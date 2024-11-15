@@ -1,7 +1,7 @@
 ---
 title: "Pioneering Filters: The Mondly-Pearson Collaboration"
-date: 2024-10-29T01:15:55.657Z
-updated: 2024-11-05T01:23:47.998Z
+date: 2024-11-07T22:02:58.200Z
+updated: 2024-11-15T04:41:02.580Z
 tags:
   - speak
   - english
@@ -40,16 +40,10 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **About Mondly**
@@ -73,21 +67,22 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-quick-guide-merging-igtv-with-instagram-stories/"><u>[New] In 2024, Quick Guide Merging IGTV with Instagram Stories</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-clear-vision-through-stillness-control/"><u>[Updated] Clear Vision Through Stillness Control</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-superior-cameras-for-frame-by-frame-creation/"><u>[Updated] In 2024, Superior Cameras for Frame-by-Frame Creation</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-game-enhancing-screens-top-5-for-ps5-and-xbox-gamers/"><u>2024 Approved Game-Enhancing Screens Top 5 for PS5 & Xbox Gamers</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-instant-inspiration-free-video-intro-kits/"><u>2024 Approved Instant Inspiration - Free Video Intro Kits</u></a></li>
-<li><a href="https://article-helps.techidaily.com/eliminating-iphones-inability-to-autofocus-on-targets-for-2024/"><u>Eliminating iPhone's Inability to Autofocus on Targets for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Vivo Y78+ | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-warmly-welcome-in-chinese-social-settings/"><u>How To Warmly Welcome In Chinese Social Settings</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-no-fluff-just-facts-the-verdict-on-recordcast/"><u>In 2024, No Fluff, Just Facts The Verdict on RecordCast</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Honor Magic 6 Pro | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/infatuation-inkling-german-flirtations/"><u>Infatuation Inkling: German Flirtations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/neurospeak-language-mastery-through-virtual-reality/"><u>NeuroSpeak: Language Mastery Through Virtual Reality</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-polish-learning-techniques/"><u>Quick Polish Learning Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sprint-your-way-through-urdu-ten-minutes-daily/"><u>Sprint Your Way Through Urdu: Ten Minutes Daily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-iberian-code-deciphering-the-sounds-of-spanish-and-portuguese/"><u>The Iberian Code: Deciphering the Sounds of Spanish and Portuguese</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-pearson-way-to-fluent-multilingualism/"><u>The Pearson Way to Fluent Multilingualism</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-harnessing-the-power-of-movie-maker-an-animators-best-friend/"><u>[New] Harnessing the Power of Movie Maker An Animator’s Best Friend</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-perfect-your-images-with-dynamic-text-tools/"><u>2024 Approved Perfect Your Images with Dynamic Text Tools</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-quintessential-underwater-accessories-for-gopro/"><u>2024 Approved Quintessential Underwater Accessories for Gopro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/americas-most-popular-second-language-initiatives/"><u>America's Most Popular Second Language Initiatives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendizaje-de-tiempo-en-espanol-fundamentos/"><u>Aprendizaje De Tiempo en Español: Fundamentos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bestappcom-names-mondly-the-best-language-learning-app-of-2022/"><u>BestApp.com Names Mondly The Best Language Learning App Of 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captivating-couture-bilingual-banter/"><u>Captivating Couture: Bilingual Banter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-language-pathways-french-edition/"><u>Discovering Language Pathways - French Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579212463-dive-into-hindi-mastery-with-8-compelling-mondly-advantages/"><u>Dive Into Hindi Mastery with 8 Compelling Mondly Advantages!</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/elite-vpn-service-rankings-in-depth-reviews-and-performance-checks-zdnet/"><u>Elite VPN Service Rankings : In-Depth Reviews & Performance Checks | ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-italy-100plus-expressions-to-speak-like-a-local/"><u>Embrace Italy: 100+ Expressions to Speak Like a Local</u></a></li>
+<li><a href="https://win-dash.techidaily.com/free-windows-sound-card-driver-software-downloads/"><u>Free Windows Sound Card Driver Software Downloads</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-honor-90-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Honor 90 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580846789-in-a-flash-japanese-numbers-unlocked/"><u>In a Flash: Japanese Numbers Unlocked!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-track-in-the-air-parody-anthems-for-2024/"><u>Laugh Track in the Air Parody Anthems for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/quick-and-free-driver-installs-asus-usb-bt400/"><u>Quick & Free Driver Installs: Asus USB-BT400</u></a></li>
+<li><a href="https://fox-that.techidaily.com/resurrect-your-iphones-deleted-text-and-note-entries-with-these-strategies/"><u>Resurrect Your iPhone's Deleted Text and Note Entries with These Strategies</u></a></li>
 </ul></div>
 

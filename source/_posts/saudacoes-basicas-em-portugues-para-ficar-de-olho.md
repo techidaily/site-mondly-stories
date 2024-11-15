@@ -1,7 +1,7 @@
 ---
 title: Saudações Básicas Em Português Para Ficar De Olho
-date: 2024-11-01T17:48:03.447Z
-updated: 2024-11-04T21:14:12.271Z
+date: 2024-11-10T16:32:26.898Z
+updated: 2024-11-15T02:49:22.555Z
 tags:
   - speak
   - english
@@ -24,18 +24,18 @@ thumbnail: https://thmb.techidaily.com/9e8b456962dede45b52947713c8978e1ca5454c2b
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### “Hi” in Portuguese – Oi
 
@@ -44,10 +44,16 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Lisbon, Portugal” by Diego García©
@@ -70,13 +76,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
@@ -102,14 +101,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -142,6 +141,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -173,22 +179,20 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-become-a-youtube-visionary-with-these-production-insights/"><u>[Updated] 2024 Approved Become a YouTube Visionary with These Production Insights</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-transform-imagination-to-reality-top-10-graphic-designers-on-android-for-2024/"><u>[Updated] Transform Imagination to Reality Top 10 Graphic Designers on Android for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/command-prompt-mastery-a-how-to-guide-for-clearing-files-on-your-windows-11-device/"><u>Command Prompt Mastery: A How-To Guide for Clearing Files on Your Windows 11 Device</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-greetings-multilingual-birthday-phrases/"><u>Global Greetings: Multilingual Birthday Phrases</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-honor-x50-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Honor X50 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-say-hello-in-french-12-useful-french-greetings/"><u>How to Say Hello in French: 12 Useful French Greetings</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-mini-without-passcode-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 13 mini Without Passcode?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-progopro-secrets-unveiled/"><u>In 2024, ProGoPro Secrets Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-acquisition-without-strict-grammar-rules/"><u>Language Acquisition without Strict Grammar Rules</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-fluency-cognitive-superiority/"><u>Linguistic Fluency = Cognitive Superiority</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polyglot-power-program/"><u>Polyglot Power Program</u></a></li>
-<li><a href="https://facebook.techidaily.com/presidents-lawsuit-targets-silence-on-social-networking-sites/"><u>President's Lawsuit Targets Silence on Social Networking Sites</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sultry-syntaxes-captivating-conversations-with-a-twist-of-spanish/"><u>Sultry Syntaxes: Captivating Conversations with a Twist of Spanish</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/the-art-of-beats-pure-dj-visuals-available-online-for-2024/"><u>The Art of Beats Pure DJ Visuals Available Online for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-compre-cookie-guide-to-captivating-covers-on-fb/"><u>The Compre Cookie Guide to Captivating Covers on FB</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/triple-crown-of-language-mastery-your-gateway-to-fluency/"><u>Triple Crown of Language Mastery: Your Gateway to Fluency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-popular-year-end-objectives/"><u>Understanding Popular Year-End Objectives</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-5-essential-tips-for-monetizing-your-content-finding-the-right-viewer-count-for-2024/"><u>[New] 5 Essential Tips for Monetizing Your Content Finding the Right Viewer Count for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-french-travel-phrases-youll-need-in-your-next-trip-to-france/"><u>100+ French Travel Phrases You'll Need In Your Next Trip To France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-tale-of-triumph-mondlylanguages-2-year-dream-journey/"><u>A Tale of Triumph: MondlyLanguages, 2 Year Dream Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amores-orchestra-harmonious-italian-verbal-artistry/"><u>Amore's Orchestra: Harmonious Italian Verbal Artistry</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-romance-language-codes/"><u>Decoding the Romance Language Codes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutschsprachige-aufkommenden-trennungsformeln/"><u>Deutschsprachige Aufkommenden Trennungsformeln</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-the-top-10-oldest-languages-in-the-world/"><u>Discovering The Top 10 Oldest Languages In The World</u></a></li>
+<li><a href="https://common-error.techidaily.com/fix-windows-11-dvdcd-rom-error-windows-cannot-start-this-hardware-device-because-its-configuration-information-in-the-registry-is-incomplete-or-damaged-code43/"><u>Fix Windows 11 DVD/CD-ROM Error: Windows Cannot Start This Hardware Device because Its Configuration Information (in the Registry) Is Incomplete or Damaged. (Code 19)</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/guide-revealing-hidden-applications-on-your-iphone/"><u>Guide: Revealing Hidden Applications on Your iPhone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-making-online-gaming-more-intimate-via-xbox-zoom/"><u>In 2024, Making Online Gaming More Intimate via Xbox Zoom</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-the-evolutionary-path-from-novice-to-expert-in-audio-recording-for-film/"><u>In 2024, The Evolutionary Path From Novice to Expert in Audio Recording for Film</u></a></li>
+<li><a href="https://program-issues.techidaily.com/launch-issues-resolved-enjoy-robocops-latest-installment-rogue-city-on-pc/"><u>Launch Issues Resolved: Enjoy RoboCop's Latest Installment, Rogue City on PC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/oculus-quest-2-exposed-seamless-spectacular-virtual-reality-at-an-incredible-bargain/"><u>Oculus Quest 2 Exposed: Seamless, Spectacular Virtual Reality at an Incredible Bargain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/this-weeks-apple-hit-across-nations/"><u>This Week's Apple Hit Across Nations</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/top-no-cost-solutions-for-securely-transferring-your-operating-system-on-windows-11/"><u>Top No-Cost Solutions for Securely Transferring Your Operating System on Windows 11</u></a></li>
 </ul></div>
 

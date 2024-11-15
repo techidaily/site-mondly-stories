@@ -1,7 +1,7 @@
 ---
 title: Principios Del Entendimiento Del Tiempo en Español
-date: 2024-10-31T16:20:57.384Z
-updated: 2024-11-04T16:08:32.668Z
+date: 2024-11-08T12:15:59.286Z
+updated: 2024-11-15T00:56:31.956Z
 tags:
   - speak
   - english
@@ -33,10 +33,10 @@ But first things first.
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The basics of Spanish time
@@ -63,6 +63,13 @@ But first things first.
  As you can see, the feminine article (_la/las_) is used before the number. Why is that? Well, because it refers to_la hora_ . But again, remember that the singular form**_la_** will only be used in the case of**“one o’clock”** because we’re talking about a single hour.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How do you say the time in Spanish after 30?
 
@@ -94,10 +101,10 @@ Here are some examples:
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Different ways of telling time in Spanish
@@ -109,13 +116,6 @@ Here are some examples:
 * _es/son_ +_las_ \+ hour + con + number of minutes –**_Son las tres con diez_**
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
 
@@ -132,10 +132,10 @@ Here are some examples:
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Other useful time phrases in Spanish
@@ -198,20 +198,20 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-exclusive-sneak-peek-at-apples-finest-facebook-video-extractor-apps/"><u>[New] In 2024, Exclusive Sneak Peek at Apple's Finest Facebook Video Extractor Apps</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-unveiling-advantages-comprehen/"><u>[New] In 2024, Unveiling Advantages Comprehen</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-navigating-the-insta-to-tik-connection-for-2024/"><u>[New] Navigating the Insta-to-Tik Connection for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-find-zen-with-these-10-game-choices/"><u>[Updated] Find Zen with These 10 Game Choices</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/convert-live-facebook-videos-to-mp3s-on-the-fly-for-2024/"><u>Convert Live Facebook Videos to MP3s on the Fly for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-your-logitech-g510-drivers-supports-windows-7-8-and-10-installation/"><u>Get Your Logitech G510 Drivers - Supports Windows 7, 8 & 10 Installation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-haste-to-learning-urdu-online/"><u>Introducing Haste to Learning Urdu Online!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-top-10-dynamic-ways-to-say-hello-in-spanish/"><u>Learning Top 10 Dynamic Ways To Say Hello In Spanish</u></a></li>
-<li><a href="https://win-able.techidaily.com/mts/"><u>MTSファイル再生ガイド - 成功保証!</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/quintessential-quests-screenwriting-gems-for-2024/"><u>Quintessential Quests Screenwriting Gems for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-benefits-of-learning-croatian-7-reasons-to-start-today/"><u>The Benefits Of Learning Croatian: 7 Reasons To Start Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-polyglot-symphony-global-teaching-day/"><u>The Polyglot Symphony: Global Teaching Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-pathway-to-mastering-finnish-online/"><u>The Ultimate Pathway to Mastering Finnish Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/virtual-guru-guide-to-lithuanian-mastery/"><u>Virtual Guru Guide to Lithuanian Mastery</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/winxvideo-ai-enhanced-video-and-image-transformation-toolkit-boost-stabilize-convert-edit-and-record/"><u>WinxVideo AI: Enhanced Video and Image Transformation Toolkit - Boost, Stabilize, Convert, Edit & Record</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-upload-videos-to-igtv-for-2024/"><u>[New] How to Upload Videos to IGTV for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-boost-your-channels-crafting-captivating-yt-descriptions-using-custom-templates/"><u>2024 Approved Boost Your Channels Crafting Captivating YT Descriptions Using Custom Templates</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-exciting-reasons-to-learn-arabic-online-with-mondly/"><u>6 Exciting Reasons To Learn Arabic Online With Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577475324-accelerated-tagalog-learning-a-simple-daily-routine/"><u>Accelerated Tagalog Learning - A Simple Daily Routine!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bring-international-communication-within-your-home-mondly-vr-language-program/"><u>Bring International Communication Within Your Home: Mondly VR Language Program</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/contare-in-italiano-vol-1-dalle-cifre-alle-saghe/"><u>Contare in Italiano Vol. 1: Dalle Cifre Alle Saghe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-german-language-phonetics-and-script-basics/"><u>Decoding the German Language: Phonetics and Script Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-france-through-its-language-top-expressions/"><u>Discovering France Through Its Language: Top Expressions</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/effective-tips-and-tricks-to-optimize-blog-income-with-buyselladscom/"><u>Effective Tips and Tricks to Optimize Blog Income with BuySellAds.com</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-global-communication-4-essential-reasons-for-post-40-polyglots/"><u>Embracing Global Communication: 4 Essential Reasons for Post-40 Polyglots</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/mending-disabled-trash-can-symbol-on-win11-os/"><u>Mending Disabled Trash Can Symbol on Win11 OS</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-meizu-21-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/step-by-step-path-turning-gifs-into-stickers-across-social-media-messaging/"><u>Step-by-Step Path Turning GIFs Into Stickers Across Social Media Messaging</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/the-high-flying-glion-dolly-e-scooter-a-review-on-its-pricey-swanky-and-rapid-deliverances/"><u>The High-Flying Glion Dolly E-Scooter: A Review on Its Pricey, Swanky, and Rapid Deliverances</u></a></li>
 </ul></div>
 

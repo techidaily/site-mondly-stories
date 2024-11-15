@@ -1,7 +1,7 @@
 ---
 title: "Paso a Paso: Entender La Hora Y Segundo en Español"
-date: 2024-11-04T05:02:51.851Z
-updated: 2024-11-05T05:05:07.535Z
+date: 2024-11-07T20:48:07.276Z
+updated: 2024-11-14T19:26:50.269Z
 tags:
   - speak
   - english
@@ -31,6 +31,13 @@ But first things first.
  In order to tell the time in Spanish, you’ll first have to learn how to properly ask for the time in Spanish. You can never be too cautious. I’m just making sure you’re not missing that_fiesta española_ you spent weeks thinking about!
 
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The basics of Spanish time
 
@@ -74,26 +81,13 @@ Here are some examples:
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Telling time in Spanish – a visual guide
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Hour + minutes in Spanish time
 
@@ -106,13 +100,6 @@ Here are some examples:
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Different ways of telling time in Spanish
 
  There are three formulas of telling time in Spanish. Here are different ways of telling it’s 3:10:
@@ -122,6 +109,13 @@ Here are some examples:
 * _es/son_ +_las_ \+ hour + con + number of minutes –**_Son las tres con diez_**
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
 
@@ -136,6 +130,13 @@ Here are some examples:
 * _tarde_ – in the afternoon
 
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Other useful time phrases in Spanish
 
@@ -172,13 +173,6 @@ Here are some examples:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -204,22 +198,19 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-7-comedy-youtube-video-ideas-that-only-funny-people-are-allowed-to-try/"><u>[New] 2024 Approved 7 Comedy YouTube Video Ideas That Only Funny People Are Allowed to Try</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-smooth-soundscape-fading-techniques-with-lumafusion/"><u>[New] Smooth Soundscape Fading Techniques with Lumafusion</u></a></li>
-<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-samsung-galaxy-xcover-7-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/best-free-downloads-top-7-online-platforms-for-your-favorite-tv-shows/"><u>Best Free Downloads: Top 7 Online Platforms for Your Favorite TV Shows</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/1723862865384-experiencing-chilly-performance-on-gigabytes-pricey-but-high-quality-b65t-aorus-elite-ax-ice-mobo-usb-galore-included/"><u>Experiencing Chilly Performance on Gigabyte's Pricey, But High-Quality B65t Aorus Elite AX Ice Mobo: USB Galore Included</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/heartbeats-in-haute-couture-dialogues/"><u>Heartbeats in Haute Couture Dialogues</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-6-methods-for-switching-from-apple-iphone-11-to-samsung-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 6 Methods for Switching from Apple iPhone 11 to Samsung | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-french-sounds-a-beginners-resource/"><u>Navigating French Sounds: A Beginner's Resource</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/pureearaudioextractors-latest-evolution/"><u>PureEarAudioExtractor's Latest Evolution</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/sim-unlock-realme-narzo-60-pro-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Realme Narzo 60 Pro 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://driver-download.techidaily.com/sm-bus-controller-downloads-compatible-drivers-for-windows-users-win-11-win-10-win-8-and-win-7/"><u>SM Bus Controller Downloads: Compatible Drivers for Windows Users (Win 11, Win 10, Win 8 & Win 7)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-confidently-in-korean-choosing-the-top-6-learning-websites/"><u>Speak Confidently in Korean: Choosing the Top 6 Learning Websites</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spinning-yarns-in-a-buccaneer-written-form/"><u>Spinning Yarns in a Buccaneer’ Written Form</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-secret-to-fluent-french-chats-perfecting-bonjour-in-daily-life/"><u>The Secret to Fluent French Chats: Perfecting 'Bonjour' In Daily Life</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-finnish-top-tips-for-e-learning-success/"><u>Unlock Finnish: Top Tips for E-Learning Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sygkentrwsh-eyxhs-kalwn-piatoys-gkreman/"><u>Συγκέντρωση Ευχής Καλών Πιατούς Γκρεμάν</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/syna3ia-eyxhs-gkreman/"><u>Συναξία Ευχής Γκρεμάν</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-scriptwriting-essentials-mastering-the-art-of-slug-lines/"><u>[New] 2024 Approved Scriptwriting Essentials Mastering the Art of Slug Lines</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-stand-out-with-yt-shorts-essential-guidelines-to-follow/"><u>[New] 2024 Approved Stand Out with YT Shorts Essential Guidelines to Follow</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-superior-choices-elite-webcam-holders-for-2024/"><u>[New] Superior Choices Elite Webcam Holders for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-rise-above-struggles-10-empowering-movies-for-life/"><u>[Updated] Rise Above Struggles 10 Empowering Movies for Life</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-top-11-gk-quizzes-best-online-channels-2024/"><u>[Updated] Ultimate Top 11 GK Quizzes Best Online Channels 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-defying-brain-the-power-of-multilingualism-after-fifty/"><u>Age-Defying Brain: The Power of Multilingualism After Fifty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-most-preferred-linguistic-varieties-backup-filter/"><u>Asia’s Most Preferred Linguistic Varieties: Backup, Filter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-the-gap-with-educators-global-event/"><u>Bridging the Gap with Educators Global Event</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dont-miss-out-grab-your-free-access-to-mondly-premium-before-its-too-late/"><u>Don't Miss Out - Grab Your Free Access to Mondly Premium Before It's Too Late</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-authentic-speech-17-spontaneous-spanish-sayings/"><u>Embrace Authentic Speech: 17 Spontaneous Spanish Sayings</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-silence-amplified-simple-steps-to-enhance-quality-by-minimizing-unwanted-sounds-in-audacity-and-filmorapro-for-2024/"><u>New Silence Amplified Simple Steps to Enhance Quality by Minimizing Unwanted Sounds in Audacity and FilmoraPro for 2024</u></a></li>
+<li><a href="https://win-tips.techidaily.com/top-real-time-backup-solutions-per-windows-una-guida-esaustiva/"><u>Top Real-Time Backup Solutions per Windows: Una Guida Esaustiva</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/transforming-your-favorite-tunes-the-best-spotify-playlists-tools-for-youtube/"><u>Transforming Your Favorite Tunes The Best Spotify Playlists Tools for YouTube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/uniting-communication-and-visuals-a-detailed-plan-for-slack-plus-filmora-meetings/"><u>Uniting Communication & Visuals A Detailed Plan for Slack + Filmora Meetings</u></a></li>
 </ul></div>
 

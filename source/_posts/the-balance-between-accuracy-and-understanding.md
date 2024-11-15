@@ -1,7 +1,7 @@
 ---
 title: The Balance Between Accuracy and Understanding
-date: 2024-11-01T05:14:41.164Z
-updated: 2024-11-05T03:23:03.677Z
+date: 2024-11-12T03:51:18.450Z
+updated: 2024-11-15T13:35:23.549Z
 tags:
   - speak
   - english
@@ -24,28 +24,42 @@ Chances are that you probably took language classes at some point in your educat
 
 Many students can manage reading and writing in a foreign language, but they struggle to understand it in conversational form. These situations make it clear that the past methods of language education are lacking. What is the solution?
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Language Learning: What Holds People Back?**
 
 One of the best ways to learn a language is to practice both writing the language and speaking it in a conversational manner. This is where many people panic and lose confidence in everything they have learned. If you’re new at a language, chances are that you haven’t even begun to grasp all the important grammar rules. This can lead to insecurity about sounding stupid when you write or speak the language, and this fear might hold you back from practicing.
 
 This is why a focus on grammar is the wrong way to teach and learn a language. Grammar is the art of perfecting the use of a language you already know. When learning a language, it can hold students back in a variety of ways.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **1\. Complexity**
 
 There is a lot to take in when learning a language. The last thing a student needs is to get bogged down in a sea of confusing grammar rules. Of course, there are languages with simpler rules. For example, the [French grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is more difficult than [the German grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875), but unless you’re naturally gifted at learning languages, realizing there are so many grammar rules to figure out might leave you so discouraged that you give up.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **2\. Incorrect Focus**
 
 Grammar rules are generally about perfecting the written language. This isn’t to say that having a strong grasp on the written aspects of the language are not important. After all, many people do the majority of their communication online these days. However, if your aim is to learn to speak a foreign language, then spending a large amount of time focusing on grammar might be holding you back.
 
 The goal for a language student is to become fluent as quickly as possible. Fluency with the spoken word will transfer to an understanding of the written word as well. The old models of teaching do not place importance on becoming fluent as quickly as possible, and it seems this is a huge part of the problem.
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **3\. A Lack of Conversational Aspects**
 
@@ -58,23 +72,10 @@ This might seem like a crazy concept to some, but learning a language should be 
 ![Learn grammar with Mondly: French grammar, German Grammar, Spanish Grammar and more](https://edge.mondly.com/blog/wp-content/uploads/2017/10/Webp.net-compress-image-1.jpg "Is Grammar Holding You Back From Learning A Language? 2")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Returning to Our Roots: Learning with the Mind of a Child**
@@ -88,13 +89,6 @@ If worrying about grammar has been holding you back in language learning, allow 
 Do you feel that grammar holds you back from learning a language? Share your story in a comment below.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Speak a new language in just 10 minutes a day
 
@@ -121,24 +115,24 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-ranking-premium-photo-and-video-shows-x-ios14/"><u>[New] Ranking Premium Photo & Video Shows (X-IOS14)</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-creating-connections-vrs-impact-on-business-communication/"><u>[Updated] Creating Connections VR's Impact on Business Communication</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-navigating-the-best-pixel-soundtracks-online/"><u>[Updated] In 2024, Navigating the Best Pixel Soundtracks Online</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/compreh-ensive-strategies-for-diagnosing-and-repairing-windows-driver-power-problem/"><u>Compreh Ensive Strategies for Diagnosing & Repairing Window's Driver Power Problem</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/elite-mac-options-surpassing-bandicams-video-capabilities-for-2024/"><u>Elite Mac Options Surpassing Bandicam's Video Capabilities for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-streamlining-the-conversion-of-shorts-to-mp4/"><u>In 2024, Streamlining the Conversion of Shorts to MP4</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-your-disabled-iphone-13-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>In 2024, Unlock Your Disabled iPhone 13 Without iTunes in 5 Ways | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-a-10-point-guide-for-success/"><u>Language Learning: A 10-Point Guide for Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-champion-of-language-learning-germany-resonates/"><u>Mondly: Champion of Language Learning - Germany Resonates!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multi-language-mental-merge/"><u>Multi-Language Mental Merge</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/overcoming-the-hurdle-correcting-the-msi-dll-not-found-issue-on-your-pc/"><u>Overcoming the Hurdle: Correcting the MSI DLL Not Found Issue on Your PC</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-speak-quick-learn-top-10-simple-language-list/"><u>Quick Speak, Quick Learn: Top 10 Simple Language List</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sound-like-a-native-top-17-common-spanish-expressions/"><u>Sound Like a Native: Top 17 Common Spanish Expressions</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-process-how-to-uninstall-apps-on-a-samsung-smart-tv/"><u>Step-by-Step Process: How To Uninstall Apps On A Samsung Smart TV</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sweet-french-whisperings-for-love/"><u>Sweet French Whisperings for Love</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-rise-of-mondly-languages-dreams-woven-over-2-years/"><u>The Rise of Mondly Languages - Dreams Woven Over 2 Years</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-5-foreign-languages-dominating-american-classrooms/"><u>Top 5 Foreign Languages Dominating American Classrooms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-humanitys-earliest-conversations/"><u>Unlocking Humanity's Earliest Conversations</u></a></li>
-<li><a href="https://win-studio.techidaily.com/1728501850012-windows-111087/"><u>Windows 11/10/8/7專業版電腦硬盤壓片軟件選擇指南</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-computational-photography-what-are-auto-hdr-smart-hdr-3-and-4-shooting-modes-in-2024/"><u>[New] Computational Photography What Are Auto HDR, Smart HDR 3 & 4 Shooting Modes, In 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-closer-look-at-german-learning-difficulty/"><u>A Closer Look at German Learning Difficulty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amorous-artistry-a-guide-to-lines/"><u>Amorous Artistry: A Guide to Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/belgiums-communication-tapestry-unveiled/"><u>Belgium's Communication Tapestry Unveiled</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/best-practices-for-filming-and-sharing-immersive-content-on-fb/"><u>Best Practices for Filming and Sharing Immersive Content on FB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-prowess-top-17-commonplace-spanish-idioms/"><u>Conversational Prowess: Top 17 Commonplace Spanish Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dominant-croatian-language/"><u>Dominant Croatian Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/early-brain-adaptability-kids-language-learning-advantage/"><u>Early Brain Adaptability: Kids' Language Learning Advantage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empower-yourself-with-japan-education-for-free/"><u>Empower Yourself with Japan Education, For Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579183296-germans-premier-learning-portal-mondly-emerges-victorious/"><u>German's Premier Learning Portal - Mondly Emerges Victorious!</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-demystifying-complex-srt-concepts-for-professionals/"><u>In 2024, Demystifying Complex SRT Concepts for Professionals</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-most-effective-ways-to-bypass-apple-iphone-se-2022-activation-lock-by-drfone-ios/"><u>In 2024, The Most Effective Ways to Bypass Apple iPhone SE (2022) Activation Lock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-google-pixel-7a-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Google Pixel 7a Device</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-must-have-3d-video-maker-tools-for-stunning-visuals/"><u>New In 2024, Must-Have 3D Video Maker Tools for Stunning Visuals</u></a></li>
+<li><a href="https://windows11.techidaily.com/speedy-boot-streamlining-your-win11-routines/"><u>Speedy Boot: Streamlining Your Win11 Routines</u></a></li>
+<li><a href="https://fox-http.techidaily.com/step-by-step-android-guide-to-enjoy-virtual-reality/"><u>Step-by-Step Android Guide to Enjoy Virtual Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580375581-the-best-way-to-learn-korean-online-6-brilliant-resources/"><u>The Best Way To Learn Korean Online - 6 Brilliant Resources</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/the-ultimate-technique-for-noiseless-iphone-movies/"><u>The Ultimate Technique for Noiseless iPhone Movies</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/troubleshooting-0x80073712-in-windows-update/"><u>Troubleshooting 0X80073712 in Windows Update</u></a></li>
 </ul></div>
 

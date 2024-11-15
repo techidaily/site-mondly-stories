@@ -1,7 +1,7 @@
 ---
 title: The Dawn of Verbalized Augmented Experiences
-date: 2024-11-03T17:20:12.064Z
-updated: 2024-11-04T23:42:38.945Z
+date: 2024-11-09T01:24:38.986Z
+updated: 2024-11-14T21:43:31.407Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +85,16 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,16 +126,21 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-affordable-high-quality-asmr-recording-devices-revealed-for-2024/"><u>[New] Affordable, High-Quality ASMR Recording Devices Revealed for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-crafting-moments-of-happiness-animated-filters-on-your-phone-for-2024/"><u>[Updated] Crafting Moments of Happiness Animated Filters on Your Phone for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-exploring-previous-images-3-inverse-search-methods-on-social-media/"><u>2024 Approved Exploring Previous Images 3 Inverse Search Methods on Social Media</u></a></li>
-<li><a href="https://fox-access.techidaily.com/cheapest-cosmic-storage-service-large-files-on-the-low-for-2024/"><u>Cheapest Cosmic Storage Service Large Files on the Low for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-connectivity-unlocked-best-languages-applications-ranked/"><u>Global Connectivity Unlocked: Best Languages Applications Ranked</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/innovative-approaches-learning-czech-in-short-timeframes/"><u>Innovative Approaches: Learning Czech in Short Timeframes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/smart-start-for-little-ones-the-mirari-child-friendly-alarm-clock-reviewed/"><u>Smart Start for Little Ones: The Mirari Child-Friendly Alarm Clock Reviewed</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-get-back-on-track-resetting-final-cut-pro-x-to-resolve-common-problems-for-2024/"><u>Updated Get Back on Track Resetting Final Cut Pro X to Resolve Common Problems for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/varfor-sverige-svenska-forsalar/"><u>Varför Sverige? - Svenska Försalar</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-are-the-romance-languages/"><u>What Are The Romance Languages?</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/xboxs-next-gen-vr-headset-projected-price-release-schedule-and-specs-revealed/"><u>Xbox's Next-Gen VR Headset: Projected Price, Release Schedule & Specs Revealed!</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-insta-savvy-the-top-10-tags-that-matter-most-for-2024/"><u>[New] Insta Savvy The Top 10 Tags That Matter Most for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-experts-method-for-timestamping-your-youtube-videos/"><u>[New] The Expert's Method for Timestamping Your YouTube Videos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-6-ways-to-increase-audience-retention-on-youtube-filmora-for-2024/"><u>[Updated] 6 Ways To Increase Audience Retention on YouTube - Filmora for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-interlinking-giants-a-comprehensible-guide-for-instra-and-tikto/"><u>[Updated] Interlinking Giants A Comprehensible Guide for Instra & Tikto</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-cross-cultural-films-that-sharpen-your-vocabulentic-skills/"><u>10 Cross-Cultural Films That Sharpen Your Vocabulentic Skills</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-proven-recorders-ioss-leading-screenshot-tools/"><u>2024 Approved Proven Recorders IOS's Leading Screenshot Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-manieres-francaises-oui-bienvenue/"><u>4 Manières Françaises: Oui, Bienvenue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-surprising-ways-multilingualism-enriches-life/"><u>7 Surprising Ways Multilingualism Enriches Life</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/a-beginners-guide-to-producing-facebook-reels/"><u>A Beginner's Guide to Producing Facebook Reels</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/complete-guide-on-watching-spider-man-no-way-home-online/"><u>Complete Guide on Watching 'Spider-Man: No Way Home' Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-the-languages-santa-speaks-with-reindeer/"><u>Deciphering the Languages Santa Speaks with Reindeer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dynamic-classroom-dynamics-with-latin-studies/"><u>Dynamic Classroom Dynamics with Latin Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-global-communication-with-mondlys-brilliance/"><u>Embrace Global Communication with Mondly's Brilliance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-next-gen-worth-more-than-mid-gen-in-ps5ps4-pro/"><u>Is Next-Gen Worth More Than Mid-Gen in PS5/PS4 Pro?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578409266-unveiling-8-engaging-reasons-to-master-hindi-with-mondly-online/"><u>Unveiling 8 Engaging Reasons to Master Hindi with Mondly Online!</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-nokia-g42-5g-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Nokia G42 5G Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
 </ul></div>
 

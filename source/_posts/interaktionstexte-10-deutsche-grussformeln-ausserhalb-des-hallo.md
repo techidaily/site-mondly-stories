@@ -1,7 +1,7 @@
 ---
 title: "Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'"
-date: 2024-11-02T00:15:59.146Z
-updated: 2024-11-05T06:49:28.026Z
+date: 2024-11-10T13:19:19.731Z
+updated: 2024-11-15T04:20:53.707Z
 tags:
   - speak
   - english
@@ -28,6 +28,13 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  First, some good news! As it turns out, Germans use_hi_ too. Careful though: as you already know,_hi_ is more informal than_hallo_ so you should keep this one between friends.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Hallöchen – ‘Hello’ (lit. ‘little hello’)
 
  If you want to avoid repetition and diversify your vocabulary, you can also say_hallöchen,_ which is literally a ‘little hello’. It’s best to use_hallöchen_ to greet… whoever says German is a harsh language 🤭.
@@ -35,19 +42,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Kidding, but you did get the point. This tiny, little hello is reserved for very informal situations.
 
  Since we’re discussing diminutives, let’s also mention that_tschüss_ (‘bye’) can become_tschüssi_ . How cute!
-
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Guten Tag – “Hello” or “Good day”
 
@@ -80,10 +74,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Was ist los? – “What’s up?”
@@ -95,10 +89,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Regional German greetings
@@ -130,13 +124,6 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** northern Germany, especially in and around Hamburg.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Grüezi – “Hello”
 
 _Grüezi_ is a greeting you can use in formal situations, such as speaking with people you don’t know.
@@ -150,6 +137,13 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
  A variation of this is_Grüß dich,_ which can be interpreted as “greetings to you”. This one is less formal, but it is still mostly used by seniors.
 
 **Localization:** Bavaria (south-eastern Germany) and Austria.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Servus – “At your service”
 
@@ -199,22 +193,21 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-your-daily-diary-staying-fresh-and-avoiding-common-mistakes/"><u>[New] 2024 Approved Your Daily Diary Staying Fresh & Avoiding Common Mistakes</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-streamline-your-videography-instantly-upgrade-fb-videos-to-mp4-hd/"><u>[New] In 2024, Streamline Your Videography - Instantly Upgrade FB Videos to MP4 HD</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-ultimate-guide-hitting-the-slopes-with-excellent-cams-for-2024/"><u>[New] Ultimate Guide Hitting the Slopes with Excellent Cams for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/s-about-youtube-shorts-thumbnail-not-showing-problem-for-2024/"><u>7 FAQs About YouTube Shorts Thumbnail Not Showing Problem for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-user-engagement-with-customized-advertising-through-advanced-tracking-solutions/"><u>Enhanced User Engagement with Customized Advertising Through Advanced Tracking Solutions</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-turn-off-the-screen-lock-on-my-nokia-c110-by-drfone-android-unlock-android-unlock/"><u>How to turn off the screen lock on my Nokia C110</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-realme-v30t-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Realme V30T Phone?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jolly-juxtaposition-of-latins-and-games/"><u>Jolly Juxtaposition of Latins and Games</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/launching-the-novel-auditory-ar-interface/"><u>Launching the Novel Auditory AR Interface</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-languages-on-cue-researched-methods-tips-and-song-lists/"><u>Learning Languages on Cue - Researched Methods, Tips & Song Lists</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/maximizing-your-israeli-travel-experience-key-advice-and-local-lingo/"><u>Maximizing Your Israeli Travel Experience: Key Advice & Local Lingo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-through-spanish-tenses-and-conjugations/"><u>Navigating Through Spanish Tenses & Conjugations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/silk-strands-of-sentiment-elegant-italian-pick-up-lines/"><u>Silk Strands of Sentiment: Elegant Italian Pick-Up Lines</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-by-step-to-mastering-the-turkish-script-easy-reference-for-learners/"><u>Step-by-Step to Mastering the Turkish Script: Easy Reference for Learners</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/the-ultimate-android-resource-guide-to-download-videos-from-youtube-for-2024/"><u>The Ultimate Android Resource Guide to Download Videos From YouTube for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transformative-language-experience-unveiling-7-compelling-advantages-of-hindi-study-online-with-mondly/"><u>Transformative Language Experience: Unveiling 7 Compelling Advantages of Hindi Study Online with Mondly</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ched-camera-and-recording-app-selection-on-iphones-and-androids-for-2024/"><u>Unmatched Camera & Recording App Selection on iPhones and Androids for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-essential-fixes-to-tackle-fb-story-load-failures/"><u>[New] 2024 Approved Essential Fixes to Tackle Fb Story Load Failures</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-script-to-screen-your-guide-to-youtube-storytelling/"><u>[New] 2024 Approved Script to Screen Your Guide to YouTube Storytelling</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-driving-sales-not-just-views-monetizing-your-social-media-videos/"><u>[New] In 2024, Driving Sales, Not Just Views Monetizing Your Social Media Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-seamlessslide-visual-harmony-on-macsierra/"><u>[New] SeamlessSlide Visual Harmony on MacSierra</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crack-the-code-of-content-top-6-youtuber-personality-tests-revealed/"><u>2024 Approved Crack the Code of Content Top 6 YouTuber Personality Tests Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-guide-to-effortless-russian-social-communication/"><u>A Guide to Effortless Russian Social Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-romance-race-analyzing-the-similarities-and-differences-in-spanish-and-portuguese/"><u>A Romance Race: Analyzing the Similarities and Differences in Spanish & Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/articulating-spanish-accents-a-step-by-step-approach/"><u>Articulating Spanish Accents: A Step-by-Step Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/btns-in-pt-languages-a-cross-continental-study/"><u>BTNs in PT Languages: A Cross-Continental Study</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/constructing-home-made-vr-headgear-with-google-cards/"><u>Constructing Home-Made VR Headgear with Google Cards</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/continental-verbal-preferences-asias-top-3/"><u>Continental Verbal Preferences: Asia's Top 3</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-bengali-dose-ten-minutes-to-fluency/"><u>Daily Bengali Dose: Ten Minutes to Fluency!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579122156-effortless-norsk-acquisition-short-sessions/"><u>Effortless Norsk Acquisition - Short Sessions!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-realme-c67-4g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Realme C67 4G online without jailbreak</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-htc-u23-pro-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from HTC U23 Pro to Another | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-motorola-moto-g23-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Motorola Moto G23 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
 </ul></div>
 

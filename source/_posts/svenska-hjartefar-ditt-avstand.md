@@ -1,7 +1,7 @@
 ---
 title: "Svenska Hjärtefär: Ditt Avstånd"
-date: 2024-11-03T06:18:21.009Z
-updated: 2024-11-05T00:38:54.338Z
+date: 2024-11-08T09:55:24.766Z
+updated: 2024-11-14T21:31:18.588Z
 tags:
   - speak
   - english
@@ -27,47 +27,47 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
  If you’re visiting and want to get a coffee, the simplest way to sound and look like a local is to throw in a smile and a **“Hej!”** (pronounced just like _Hey!_). This one is the perfect greeting, regardless of the time of day or to whom you address it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say “Hello!” in Swedish
 
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to answer the phone in Swedish
 
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say “Good Morning!” in Swedish
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to say “Good evening!” in Swedish
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say “Goodnight!” in Swedish
@@ -106,24 +106,18 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-comic-creators-charter-zero-cost-endless-laughs/"><u>[New] Comic Creators' Charter Zero Cost, Endless Laughs</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-gopro-hero-10-secrets-for-flawless-long-exposure-films/"><u>[New] GoPro Hero 10 Secrets for Flawless Long-Exposure Films</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-pivoting-to-passive-income-the-youtube-expedition-without-ads/"><u>[Updated] 2024 Approved Pivoting to Passive Income The YouTube Expedition Without Ads</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/a-guide-vivo-x100-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Vivo X100 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/holiday-bargain-alert-apple-watch-ultra-plunges-to-unprecedented-discounts-sparks-consumer-frenzy-tech-news-breakdown/"><u>Holiday Bargain Alert! Apple Watch Ultra Plunges to Unprecedented Discounts, Sparks Consumer Frenzy | Tech News Breakdown</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Motorola G54 5G? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-locked-out-of-iphone-15-5-ways-to-get-into-a-locked-iphone-15-drfone-by-drfone-ios/"><u>In 2024, Locked Out of iPhone 15? 5 Ways to get into a Locked iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jubilant-joys-july-the-4th-festival/"><u>Jubilant Joys, July the 4Th Festival</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-made-fun-oculus-quest-and-mondly-collaboration/"><u>Language Learning Made Fun: Oculus Quest and Mondly Collaboration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-languages-a-year-end-promise/"><u>Learn Languages: A Year-End Promise</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-the-language-of-chinese-scripts/"><u>Learning the Language of Chinese Scripts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-wins-chairmans-award-at-2021-witsa-global-ict-excellence-awards/"><u>Mondly Wins Chairman’s Award at 2021 WITSA Global ICT Excellence Awards</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multicultural-linguistics-in-macau/"><u>Multicultural Linguistics in Macau</u></a></li>
-<li><a href="https://driver-install.techidaily.com/navigating-mf4770n-drivers-for-w11w8w7/"><u>Navigating MF4770n Drivers for W11/W8/W7</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pasos-esenciales-para-lectura-de-tiempo-en-espanol/"><u>Pasos Esenciales Para Lectura De Tiempo en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pearson-reimagines-gsl-with-mondly-for-maximum-accuracy/"><u>Pearson Reimagines GSL with Mondly for Maximum Accuracy</u></a></li>
-<li><a href="https://driver-download.techidaily.com/update-your-konica-minolta-driver-effortlessly-complete-guide/"><u>Update Your Konica Minolta Driver Effortlessly - Complete Guide</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/upgrading-to-high-def-facebook-broadcasts-for-2024/"><u>Upgrading to High-Def Facebook Broadcasts for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/viking-vocabulary-the-speech-of-the-scandinavian-saga-tellers/"><u>Viking Vocabulary: The Speech of the Scandinavian Saga-Tellers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-fbx-gameplay-snapshot-techniques/"><u>[New] 2024 Approved FBX Gameplay Snapshot Techniques</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-earning-insights-average-adsense-earning-for-every-1000-youtube-views/"><u>[New] Earning Insights Average AdSense Earning for Every 1,000 YouTube Views</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-stabilizing-pixels-the-truth-behind-photoshop-shake/"><u>[Updated] 2024 Approved Stabilizing Pixels The Truth Behind Photoshop Shake</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-guidelines-for-effective-use-of-cc-licenses/"><u>[Updated] In 2024, Guidelines for Effective Use of CC Licenses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-links-a-tale-of-two-slavic-countries/"><u>Language Links: A Tale of Two Slavic Countries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-portuguese-top-6-study-strategies-for-success/"><u>Mastering Portuguese: Top 6 Study Strategies for Success</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-mac-video-maker-effortless-slideshow-creation-for-mac-users-for-2024/"><u>New Mac Video Maker Effortless Slideshow Creation for Mac Users for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-bokmal-breakthrough-with-daily-practice/"><u>Quick Bokmål Breakthrough with Daily Practice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ranking-nations-by-their-number-of-french-communicators/"><u>Ranking Nations by Their Number of French Communicators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-multilanguage-mastery-at-your-fingertips-top-3-platforms/"><u>Seamless Multilanguage Mastery at Your Fingertips: Top 3 Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-to-cutting-edge-linguistic-assessments/"><u>The Essential Guide to Cutting-Edge Linguistic Assessments</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/top-picks-in-affordable-home-cinema-setups-with-4k-for-2024/"><u>Top Picks in Affordable Home Cinema Setups with 4K for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-tecno-phantom-v-fold-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Tecno Phantom V Fold | Dr.fone</u></a></li>
 </ul></div>
 

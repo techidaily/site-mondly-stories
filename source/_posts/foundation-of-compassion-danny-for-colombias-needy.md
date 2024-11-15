@@ -1,7 +1,7 @@
 ---
 title: "Foundation of Compassion: Danny for Colombia's Needy"
-date: 2024-07-29T06:49:55.212Z
-updated: 2024-07-30T06:49:55.212Z
+date: 2024-11-07T22:38:21.533Z
+updated: 2024-11-14T16:22:50.813Z
 tags:
   - speak
   - english
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/d7ebc6506ee84717282a71bf655d8ecabd8e6c4fa
 
  **One of the causes dearest to our heart is [Fundación Danny](http://www.fundaciondanny.org/) from Colombia to whom we donated 150 Premium subscriptions in an effort to help them make language learning accessible for Colombian children.**
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![fundacion danny mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/fundacion-danny-mondly-600x450.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 2")
 
  Colombian children attending the Danny Foundation courses.
@@ -33,16 +30,10 @@ thumbnail: https://thmb.techidaily.com/d7ebc6506ee84717282a71bf655d8ecabd8e6c4fa
 
  **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unlocking the power of social good
 
  When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
 
  Graduation at the Danny Foundation.
@@ -61,8 +52,12 @@ thumbnail: https://thmb.techidaily.com/d7ebc6506ee84717282a71bf655d8ecabd8e6c4fa
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Learn a new language in just 10 minutes a day
 
  If the story of the Colombian children from the Danny Foundation inspired you to invest in yourself, you can start learning a new language right now with Mondly.
@@ -81,8 +76,6 @@ thumbnail: https://thmb.techidaily.com/d7ebc6506ee84717282a71bf655d8ecabd8e6c4fa
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -90,4 +83,24 @@ thumbnail: https://thmb.techidaily.com/d7ebc6506ee84717282a71bf655d8ecabd8e6c4fa
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-master-your-mac-the-top-gif-recorder-choices/"><u>[New] 2024 Approved Master Your Mac The Top GIF Recorder Choices</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-employing-in-device-recording-for-screen-capture-across-huaweis-mate-and-p-series/"><u>[New] Employing In-Device Recording for Screen Capture Across Huawei’s Mate and P Series</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-ideal-selections-the-best-9-mobile-video-meeting-solutions-reviewed/"><u>[Updated] In 2024, Ideal Selections The Best 9 Mobile Video Meeting Solutions Reviewed</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-learning-speedy-linguistic-journey/"><u>Accelerated Learning: Speedy Linguistic Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-ukranian-learning-in-brief-sessions-104-chars/"><u>Accelerated Ukranian Learning in Brief Sessions (104 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-global-ed-tech-showcase-hails-mondly-at-10-spotlight/"><u>Apple's Global Ed-Tech Showcase Hails Mondly at #10 Spotlight</u></a></li>
+<li><a href="https://fox-place.techidaily.com/comment-convertir-une-appareil-materiel-en-un-appareil-logiciel-sous-windows-11-8-ou-7/"><u>Comment Convertir Une Appareil Matériel en Un Appareil Logiciel Sous Windows 11, 8 Ou 7 ?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-hangul-your-pathway-to-language-excellence/"><u>Conquering Hangul: Your Pathway to Language Excellence</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/cutting-edge-techniques-for-efficient-hp-notebook-screen-recording-for-2024/"><u>Cutting-Edge Techniques for Efficient HP Notebook Screen Recording for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/delving-into-our-linguistic-prehistory/"><u>Delving Into Our Linguistic Prehistory</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-exclusive-language-apps-for-corporate-growth/"><u>Discover Exclusive Language Apps for Corporate Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/gain-top-tier-credential-metas-verified-pathway/"><u>Gain Top-Tier Credential: Metas’ Verified Pathway</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honterus-sparking-passion-and-purpose/"><u>Honterus: Sparking Passion and Purpose</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-disabled-apple-iphone-15-pro-how-to-unlock-a-disabled-apple-iphone-15-pro-by-drfone-ios/"><u>In 2024, Disabled Apple iPhone 15 Pro How to Unlock a Disabled Apple iPhone 15 Pro?</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/repairtool-reclaim-your-distorted-videos-at-no-cost/"><u>RepairTool: Reclaim Your Distorted Videos at No Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-future-language-that-will-define-my-growth/"><u>Unveiling The Future Language That Will Define My Growth</u></a></li>
+</ul></div>
 

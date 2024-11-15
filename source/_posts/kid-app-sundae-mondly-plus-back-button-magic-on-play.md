@@ -1,7 +1,7 @@
 ---
 title: Kid-App Sundae - Mondly + Back Button Magic on Play
-date: 2024-08-08T09:32:32.671Z
-updated: 2024-08-09T09:32:32.671Z
+date: 2024-11-09T04:12:01.800Z
+updated: 2024-11-14T23:12:24.457Z
 tags:
   - speak
   - english
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/d24334e679d3e178a2e8d9f5b333fac2b20b9134a
 
  Children are always the best critics. They are disarmingly honest and have an innocent way of being straightforward. If they don’t like you, they will tell you right away, so it’s not totally preposterous to think that they would make great judges in almost any kind of competition. This is why we were proud and honored when **Google Play notified us that MondlyKids was selected as one of the Best Apps of 2017** in a children’s category. And before we could properly celebrate the news,**Google Play** announced that**MondlyKids** is giving us yet another milestone to celebrate in 2017:[Editors’ Choice language app](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Our journey of learning and creating
 
  We, at [Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-942&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-942%26utm%5Fsource%3Dblog-post-id-942&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-942%26utm%5Fsource%3Dblog-post-id-942&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-942%26utm%5Fsource%3Dblog-post-id-942&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-942%26mt%3D8) , started our journey of learning and creating almost five years ago. It required a lot of work, but it was worth every step of the way. Our aim was to create immersive learning experiences. We wanted to never stop innovating. So here we are today:
@@ -28,8 +25,12 @@ thumbnail: https://thmb.techidaily.com/d24334e679d3e178a2e8d9f5b333fac2b20b9134a
 > _We think your app was one of the best on Google Play in 2017\. We know that you and your team have worked hard to create a unique and compelling experience, so consider this our way of saying thank you for bringing your innovation and expertise to the Play Store._  – Google Play
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## MondlyKids – a new learning experience for children
 
  After our first language app launch, it became quite clear the concept we were trying to tackle: learning through play. In an era labeled by visual stimuli and the constant lack of time, people are always looking for the fastest and most enjoyable ways to learn. This is why they chose and will continue to choose our innovative approach.
@@ -39,8 +40,12 @@ thumbnail: https://thmb.techidaily.com/d24334e679d3e178a2e8d9f5b333fac2b20b9134a
  The result? We created a child-friendly app with an eye-catching design and a cool story for 5 to 12 years old children that have a great thirst for knowledge and like gamified experiences. Cool sound effects and music are also here to keep the children engaged. Over the course of our 11 main lessons, children will become competitive and eager to learn, discover and interact more with their new virtual native speaker chipmunk friend.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### The road to success
 
  In order for the new Mondly app to match its exigent young target, we had to give children a new angle on progress and how important it is in the learning experience. This is the point where we decided to create our design around a map where the learning progress would be visualized in terms of traveling to new places – this is why a completed set of lessons will get you to a new place on the map; because knowledge broadens the mind and lets you travel.[Mondly for Kids - free languages for kids (small)](https://edge.mondly.com/blog/wp-content/uploads/2017/12/Mondly-for-Kids-free-languages-for-kids-small-1024x921.png "Google Play Selects Mondly’s Kids App As One Of The Best Apps Of 2017 2") ](https://play.google.com/store/apps/details?id=com.atistudios.mondly.kids.languages&hl=en)
@@ -60,8 +65,6 @@ thumbnail: https://thmb.techidaily.com/d24334e679d3e178a2e8d9f5b333fac2b20b9134a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -69,4 +72,26 @@ thumbnail: https://thmb.techidaily.com/d24334e679d3e178a2e8d9f5b333fac2b20b9134a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-discovering-the-best-4k-monitors-1-10/"><u>[New] 2024 Approved Discovering the Best 4K Monitors #1-10</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-perfecting-your-live-stream-our-picks-from-the-top-6-microphones-for-2024/"><u>[New] Perfecting Your Live Stream Our Picks From the Top 6 Microphones for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-in-minutes-6-outstanding-online-helpers/"><u>Break Language Barriers in Minutes - 6 Outstanding Online Helpers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captivating-classrooms-joyful-language-study/"><u>Captivating Classrooms: Joyful Language Study</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/developing-persuasive-podcast-thumbnails/"><u>Developing Persuasive Podcast Thumbnails</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enchanting-whispers-italian-seductive-phrases/"><u>Enchanting Whispers: Italian Seductive Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-english-simplified-by-oxford-and-mondly/"><u>Essential English, Simplified by Oxford & Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/greeting-worldwide-multilingual-introduction/"><u>Greeting Worldwide: Multilingual Introduction</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Realme GT 5? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-mend-the-microsoft-store-problem-code-x800704cf-on-windows/"><u>How To Mend the Microsoft Store Problem: Code X800704CF on Windows</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-6-methods-to-share-apple-iphone-11-pro-max-screen-with-pc-drfone-by-drfone-ios/"><u>In 2024, 6 Methods to Share Apple iPhone 11 Pro Max Screen with PC | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-locked-lenovo-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Lenovo Phone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-poco-m6-pro-4g-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Poco M6 Pro 4G Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://techtrends.techidaily.com/initiate-your-amazon-echo-dot-into-setup-mode-a-comprehensive-walkthrough/"><u>Initiate Your Amazon Echo Dot Into Setup Mode - A Comprehensive Walkthrough</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/old-norse-voices-unveiling-viking-communication/"><u>Old Norse Voices: Unveiling Viking Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sverige-mojligen-valkommen-hjartligvis/"><u>Sverige Möjligen: Välkommen Hjärtligvis</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-final-step-delete-your-youtube-shorts-link-for-2024/"><u>The Final Step Delete Your YouTube Shorts Link for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-future-of-language-learning-how-to-do-it-in-the-21st-century/"><u>The Future Of Language Learning: How To Do It In The 21St Century!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-richness-of-german-vernacular-discover-25-sayings-top/"><u>The Richness of German Vernacular - Discover 25 Sayings (Top)</u></a></li>
+</ul></div>
 

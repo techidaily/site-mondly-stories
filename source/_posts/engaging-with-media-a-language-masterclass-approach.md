@@ -1,7 +1,7 @@
 ---
 title: "Engaging with Media: A Language Masterclass Approach"
-date: 2024-07-29T06:49:34.680Z
-updated: 2024-07-30T06:49:34.680Z
+date: 2024-11-09T01:00:03.605Z
+updated: 2024-11-15T13:45:29.440Z
 tags:
   - speak
   - english
@@ -17,8 +17,6 @@ thumbnail: https://thmb.techidaily.com/0464d20c8383250ad5eec7dae311ce3366a21c1ce
 ## Engaging with Media: A Language Masterclass Approach
 
  Language learning through TV shows and films sounds like a scenario straight out of science fiction, doesn’t it? Yet, it’s not. You might be thinking, “Why should I even bother googling this? It can’t be true.” But here you are. To save you some time: yes, you can learn languages from TV. Context plays a vital role in comprehension and retention when it comes to language learning, and what textbook can provide a more immersive visual context than “The Lord of the Rings” or “Game of Thrones”? Probably none.
-
-
 
  I grew up in Eastern Europe in the ‘90s and learned most of my English by watching cartoons and later movies. If only learning French later in school had been as easy! Luckily, the movie industry isn’t going anywhere, and I can catch up on my French by watching “Lupin” on Netflix._Oui, monsieur!_
 
@@ -40,9 +38,6 @@ thumbnail: https://thmb.techidaily.com/0464d20c8383250ad5eec7dae311ce3366a21c1ce
 
  For example, watching South American or Spanish soap operas is a great way to learn Spanish. Although they tend to be a bit overly dramatic, this will actually boost the learning process. It’s the out-of-the-ordinary that we tend to remember. The stuff people actually say outside the classroom.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Binge-watching is study time
 
  There’s no denying that watching TV series and movies is addictive. While inch-thick textbooks can become dull after a while, a TV series you like will keep you glued to the screen until the end. That’s why it’s called binge-watching.
@@ -52,8 +47,12 @@ thumbnail: https://thmb.techidaily.com/0464d20c8383250ad5eec7dae311ce3366a21c1ce
  The effectiveness of TV and film in language learning is in its power to help you learn new vocabulary naturally. You watch, you learn. The only condition is to pay extra attention.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to learn languages from TV shows and movies
 
  It’s possible to learn languages through movies and TV shows. But don’t imagine you’ll wake up one day knowing French after watching a couple of [French movies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -71,8 +70,18 @@ thumbnail: https://thmb.techidaily.com/0464d20c8383250ad5eec7dae311ce3366a21c1ce
 ![learn languages from tv shows and movies](https://edge.mondly.com/blog/wp-content/uploads/2023/08/learn-languages-from-tv-shows-and-movies.jpg "Learn Languages From Tv Shows And Movies 4")
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Tips for improving pronunciation through movie dialogues
 
  Learning a language by watching TV will not only teach you the real language, it will also help you learn what’s the proper intonation and articulation for it. So here’s how to make the most of it:
@@ -85,9 +94,12 @@ thumbnail: https://thmb.techidaily.com/0464d20c8383250ad5eec7dae311ce3366a21c1ce
  The bottom line is: imitate the characters as much as you can. After all, it should be a fun activity to do, right?
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The influence of film and TV on language and culture understanding
 
  Another great thing about learning a language from TV series and films is being able to experience cultural understanding and immersion. As you probably already know, knowing the language is not enough. You also have to understand the culture and even history around it.
@@ -95,6 +107,13 @@ thumbnail: https://thmb.techidaily.com/0464d20c8383250ad5eec7dae311ce3366a21c1ce
  The accessibility of foreign films and TV shows allows viewers to travel through the screen to far-off lands and times. This experience enables a deeper comprehension of the cultural subtleties that may not be captured in textbooks or traditional language classes. For many language learners, this adds an exciting dimension to their educational experience. Take, for example, the movie [“Seven Samurai”](https://www.imdb.com/title/tt0047478/) , which presents a fascinating image of 1586 Japan.
 
  Of course, if you want to learn about the current situation, you’ll have to watch movies and TV shows set in the present day. A good example of modern-day Japan is the highly acclaimed movie “Drive My Car” (2021).
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Explore cultural and language diversity through movies
 
@@ -104,9 +123,6 @@ thumbnail: https://thmb.techidaily.com/0464d20c8383250ad5eec7dae311ce3366a21c1ce
 
  In the age of streaming services, where a plethora of international content is available at one’s fingertips, the impact of films and TV shows on language and culture understanding has never been more potent. It offers a window into the soul of different societies, enabling people to explore, learn, and grow without ever leaving their living rooms. Whether it’s delving into historical Japan from a Kurosawa classic or navigating modern-day South Korea through the work of Bong Joon Ho, these media provide valuable tools for language learning and cultural exploration.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## Learn languages with Netflix and other streaming services
 
  Netflix has taken the world by storm in recent years. We can’t help but marvel at its success. It’s easy to use, it’s addictive, and it’s a great tool for anyone wanting to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Why? Because you have a lot of options for audio and subtitles – especially if you use a VPN.
@@ -117,13 +133,17 @@ thumbnail: https://thmb.techidaily.com/0464d20c8383250ad5eec7dae311ce3366a21c1ce
 
 ![watching tv in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2023/08/watching-tv-in-spanish.jpg "Learn Languages From Tv Shows And Movies 5")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Another thing you can do is watch the movie with its original sound (if you’re unhappy with dubbed versions) and switch the subtitles to Spanish. You’ll do this for a long while, but the final level is to watch a movie in Spanish with no subtitles. Fingers crossed!
 
  Now, I’m not saying you shouldn’t use other streaming services as well, but Netflix seems to offer the most varied catalog of foreign language audios and subtitles. Just watch and learn!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## How to choose the best movies and TV shows for language learning
 
 Grab the popcorn and hit play.
@@ -138,9 +158,6 @@ Grab the popcorn and hit play.
 
  That’s it for now. If you still have questions about learning languages through TV shows and films, you can ask away in the comments or check the following frequently asked questions.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Does watching TV in another language help?
 
  Yes, watching TV in another language can help with listening comprehension, vocabulary building, and exposure to natural speech patterns.
@@ -153,9 +170,6 @@ Grab the popcorn and hit play.
 
  Language learning through TV and film can be an effective learning method. It helps in immersion, understanding cultural nuances, and learning conversational speech. However, it’s often best combined with other learning tool for a better and faster result.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Is watching TV and movies in the target language necessary to learn it effectively?
 
  While not necessary, watching TV and movies in the target language can significantly enhance learning. It provides real-world context and exposure that can be difficult to replicate through traditional learning alone.
@@ -187,8 +201,6 @@ With Mondly, you will learn languages naturally using:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -196,4 +208,20 @@ With Mondly, you will learn languages naturally using:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-polling-puzzle-platforms-leading-politic-simulations/"><u>[New] In 2024, Polling Puzzle Platforms Leading Politic Simulations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-harnessing-your-creative-potential-an-exhaustive-tutorial-for-youtube-video-submission/"><u>[Updated] In 2024, Harnessing Your Creative Potential An Exhaustive Tutorial for YouTube Video Submission</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-tailoring-your-youtube-videography-with-powerful-wm-maker-skills/"><u>[Updated] In 2024, Tailoring Your YouTube Videography with Powerful WM Maker Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/2017s-educational-star-mondly-kids-app-wins-google-praise/"><u>2017'S Educational Star: Mondly Kids App Wins Google Praise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-effective-online-methods-to-speak-like-a-native-koreanist/"><u>6 Effective Online Methods to Speak Like a Native Koreanist</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-repair-your-malfunctioning-corsair-gaming-headset/"><u>How to Repair Your Malfunctioning Corsair Gaming Headset</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/immortals-fenynix-rising-steps-to-resolve-frequent-game-malfunctions/"><u>Immortals: Fenynix Rising – Steps to Resolve Frequent Game Malfunctions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-jargon-the-most-useful-93-travel-terms-in-spanish/"><u>Journey Jargon: The Most Useful 93 Travel Terms in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-speech-based-augmented-interaction/"><u>Pioneering Speech-Based Augmented Interaction</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-oppo-find-x7-ultra-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Oppo Find X7 Ultra.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-happy-birthday-worldwide/"><u>Saying Happy Birthday Worldwide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/understanding-system-repair-the-essence-of-chkdsk-and-sfc/"><u>Understanding System Repair: The Essence of CHKDSK & SFC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-words-of-affection-your-valentine-guide/"><u>Worldwide Words of Affection: Your Valentine Guide</u></a></li>
+</ul></div>
 

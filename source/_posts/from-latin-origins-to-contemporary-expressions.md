@@ -1,7 +1,7 @@
 ---
 title: From Latin Origins to Contemporary Expressions
-date: 2024-07-29T06:49:17.322Z
-updated: 2024-07-30T06:49:17.322Z
+date: 2024-11-12T09:23:29.527Z
+updated: 2024-11-15T09:18:52.761Z
 tags:
   - speak
   - english
@@ -18,8 +18,6 @@ thumbnail: https://thmb.techidaily.com/ef126118f50b6cc91b0e402fe75cfce958a6a6e6b
 
  The Romance languages have grown to become one of the most prominent language families in the world. Despite being just a subgroup of the Indo-European language family, the Romance languages are still the most famous language family there is. Although having (almost) nothing to do with love, we all love them. In fact, they are some of the most popular foreign languages that English speakers want to learn. Still, one question remains: what are the Romance languages exactly?
 
-
-
 ## What are the Romance languages?
 
  **The Romance languages are a group of related languages that gradually evolved from Vulgar Latin in the first ten centuries CE. Bound together by the common ancestor, they form a subgroup of the Italic branch of the Indo-European language family.** The [most widely spoken](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Romance languages are Spanish, Portuguese, French, Italian, Romanian, and Catalan.
@@ -29,8 +27,12 @@ thumbnail: https://thmb.techidaily.com/ef126118f50b6cc91b0e402fe75cfce958a6a6e6b
  Spoken mainly in the Americas, Europe, and parts of Africa, Romance languages have roughly 1 billion native speakers worldwide. Spanish, Portuguese, French, Italian and Romanian are also national languages and the top 5 most important Romance languages. These five languages combined account for over 90 percent of those who [speak a Romance language](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6018&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018) .
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Romance languages complete list
 
  According to [Ethnologue](https://www.ethnologue.com/subgroups/romance) , there are 43 Romance languages: Aragonese, Aromanian, Arpitan, Asturian, Cajun French, Campidanese Sardinian, Catalan, Charapa Spanish, Corsican, Emilian, Extremaduran, Fala, French, Friulian, Galician, Gallurese Sardinian, Guernésiais, Istriot, Istro Romanian, Italian, Judeo-Italian, Ladin, Ladino, Ligurian, Logudorese Sardinian, Lombard, Megleno Romanian, Minderico, Mirandese, Napoletano-Calabrese, Occitan, Picard, Piedmontese, Portuguese, Romagnol, Romanian, Romansh, Sassarese Sardinian, Shuadit, Sicilian, Spanish, Venetian and Walloon.
@@ -47,12 +49,16 @@ thumbnail: https://thmb.techidaily.com/ef126118f50b6cc91b0e402fe75cfce958a6a6e6b
 
  Now back to ‘romance’. While there is no proof to support the connection to what we call ‘romance’ nowadays, three of the most popular Romance languages are considered to be very ‘romantic’ languages. We are talking, of course, about Spanish, French and Italian which have a reputation as ‘languages of love’.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![what are the romance languages](https://edge.mondly.com/blog/wp-content/uploads/2021/07/what-are-the-romance-languages-960x541.jpg "What Are The Romance Languages? 5")
 
  “Mont Saint-Michel, France” by Fab Lentz©
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Latin-based languages – where do they come from?
 
@@ -75,17 +81,18 @@ thumbnail: https://thmb.techidaily.com/ef126118f50b6cc91b0e402fe75cfce958a6a6e6b
  After the fall of the Roman Empire, these Latin varieties started to diverge even more and eventually evolved into separate languages. Unlike today, back in those days, there was no TV, radio or universal education to keep people up-to-date with the standard form of Latin. Consequently, the spoken forms of Latin diverged quite easily into the Romance languages we all know and love today.
 
 <!-- affiliate ads begin -->
-
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How similar are Romance languages?
 
  **Let’s put it this way: if you learn one Romance language, you’ll certainly ease your way into the next.** The most mutually intelligible are [Spanish and Portuguese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) which people mistake one for another more often than you’d think. Then, there’s also a degree of intelligibility between Spanish and Italian and Italian and Romanian.
 
  However, that intelligibility mostly goes in one direction. For example, Portuguese speakers can often understand Spanish very well, but Spanish speakers can’t understand Portuguese because of its complex phonology.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![latin based languages](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-based-languages.png "What Are The Romance Languages? 7")
 
  Romanian is always the odd one out.
@@ -93,8 +100,12 @@ thumbnail: https://thmb.techidaily.com/ef126118f50b6cc91b0e402fe75cfce958a6a6e6b
  Although all the modern Romance languages are definitely closer to each other than to Latin, if you really are passionate about languages, it might prove fun to learn Latin (which, by the way, you can do with [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6018&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018) ). Discovering the origin of these languages will surely help you make connections and learn faster.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Is English a Romance language?
 
  This is probably one of the most common language-related misconceptions. Although English has borrowed a lot of words from Latin, it is not a Romance language. Having developed from the mix between the dialects and vocabulary of Germanic peoples (Angles, Saxons, and Jutes) who settled in Britain in the 5th century CE, **[English](https://www.britannica.com/topic/English-language) is considered a West Germanic language.**
@@ -104,9 +115,6 @@ thumbnail: https://thmb.techidaily.com/ef126118f50b6cc91b0e402fe75cfce958a6a6e6b
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### From 0 to conversational in any Romance language
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get Mondly, the award-winning language learning app that will help you speak any of the main Romance languages and even their ancestor, Latin, in just 10 minutes a day.
@@ -123,8 +131,6 @@ thumbnail: https://thmb.techidaily.com/ef126118f50b6cc91b0e402fe75cfce958a6a6e6b
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -132,4 +138,26 @@ thumbnail: https://thmb.techidaily.com/ef126118f50b6cc91b0e402fe75cfce958a6a6e6b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-20-great-free-options-for-web-based-photo-tinkering/"><u>[New] 20 Great Free Options for Web-Based Photo Tinkering</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-effortless-ootd-videography-for-mac-users-on-tiktok/"><u>[New] 2024 Approved Effortless OOTD Videography for Mac Users on TikTok</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nleash-joy-with-9-complete-uncut-films-celebrating-christmas-day-online-for-2024/"><u>[New] Unleash Joy with 9 Complete, Uncut Films Celebrating Christmas Day Online for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-roadmap-to-instagram-star-status-9-must-do-tactics/"><u>[Updated] The Roadmap to Instagram Star Status 9 Must-Do Tactics</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-unlocking-the-art-of-captions-a-short-guide-to-facebook-videos/"><u>[Updated] Unlocking the Art of Captions A Short Guide to Facebook Videos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-thrifty-fliers-list-best-drones-for-the-price-point/"><u>2024 Approved Thrifty Flier's List Best Drones for the Price Point</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-proven-methods-to-fully-integrate-with-languages/"><u>6 Proven Methods to Fully Integrate with Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-catalysts-how-multilingualism-transforms-you/"><u>7 Catalysts: How Multilingualism Transforms You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-global-pick-of-the-day/"><u>Apple's Global Pick of the Day</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enhancing-network-analysis-win-ipandmac-via-powershell/"><u>Enhancing Network Analysis: Win IP&MAC via PowerShell</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gain-advantages-from-learning-new-languages/"><u>Gain Advantages From Learning New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-the-intricacies-of-russian-sounds/"><u>Grasping the Intricacies of Russian Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lart-de-la-physiologie-humaine-composition-corporelle-en-francais/"><u>L'Art De La Physiologie Humaine: Composition Corporelle en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-it-a-memorable-year-enjoy-unbeatable-savings-with-free-mondly-pro/"><u>Make It a Memorable Year: Enjoy Unbeatable Savings with Free Mondly Pro</u></a></li>
+<li><a href="https://techtrends.techidaily.com/master-the-art-of-recalling-an-email-with-microsoft-outlook-tips/"><u>Master the Art of Recalling an Email with Microsoft Outlook Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580658279-no-more-excuses-learn-any-language-today/"><u>No More Excuses - Learn Any Language Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pinyin-and-characters-an-introduction/"><u>Pinyin and Characters: An Introduction</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/revive-flawed-movies-quickly-stellar-phoenix-for-mac/"><u>Revive Flawed Movies Quickly: Stellar Phoenix for Mac</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unable-to-locate-the-webpage-access-denied-error-message/"><u>Unable to Locate the Webpage – Access Denied Error Message</u></a></li>
+</ul></div>
 

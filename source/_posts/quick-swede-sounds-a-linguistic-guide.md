@@ -1,7 +1,7 @@
 ---
 title: "Quick Swede Sounds: A Linguistic Guide"
-date: 2024-11-03T18:58:52.128Z
-updated: 2024-11-04T23:16:01.522Z
+date: 2024-11-14T12:23:14.290Z
+updated: 2024-11-15T01:28:18.080Z
 tags:
   - speak
   - english
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
  The current alphabet is considered modern because it arrived in Sweden together with the Christianization of Scandinavia that took place between the 8th and the 12th centuries. As a matter of fact, the translation of the New Testament into Swedish in 1526 actually marks the beginning of modern Swedish.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How was Swedish written before the Latin script?
 
  **Swedish used runes before the arrival of the Latin script in Scandinavia.** The [runic alphabet](https://www.britannica.com/topic/runic-alphabet) , also known as Futhark, was the first writing system the Norse and other Germanic people used for centuries. As it happens, isolated communities in a remote part of Sweden only [stopped using runes](https://sciencenordic.com/language-linguistics-runes/isolated-people-in-sweden-only-stopped-using-runes-100-years-ago/1418110) 100 years ago. To this day, the runic alphabet is considered a writing system of uncertain origin as scholars cannot find solid proof to support its ancestry.
@@ -36,38 +43,18 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
 ![swedish runes on stones](https://edge.mondly.com/blog/wp-content/uploads/2021/11/swedish-runic-alphabet-960x686.jpg "Quick Introduction To The Swedish Alphabet And Its Fascinating History 2")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Swedish runes” by petr sidorov©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Swedish language in a nutshell
 
  Known in Swedish as**Svenska,** the [Swedish language](https://www.britannica.com/topic/Swedish-language) belongs to the East Scandinavian group of North Germanic languages and is the official language of Sweden and Finland. According to Ethnologue, the total number of Swedish speakers worldwide is over 13 million (both native and non-native speakers).
-
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Mutual intelligibility with the other Scandinavian languages
 
@@ -77,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
  Similar to the transformation the [Romance languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) went through over time, Old East Norse dialects were influenced by numerous factors. For example, between 800 and 1100 AD, Runic Swedish was only slightly different from Runic Danish, but they began to diverge during the 12th century. However, some aspects stayed the same. That’s why is easier to learn Swedish when you already know Danish and vice versa.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Pronunciation rules and usage
 
  Being a Germanic language makes Swedish one of the easiest languages to learn by native English speakers. In fact, according to the FSI (Foreign Service Institute) of the US government, an English speaker would need about [575 hours](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or 23 weeks of practice to become fluent in Swedish. That makes Swedish even easier to learn than any Romance language such as Spanish, French or Italian.
@@ -85,6 +79,13 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
  Would you like to have access to more content like this? Get Mondly and master the Swedish pronunciation in no time with real-life conversations recorded by fluent voice actors.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Uncommon letters
 
  Before jumping to pronunciation rules, you should know that**Swedes don’t really use the letters Q, W and Z.** So, in truth, the Swedish alphabet has the same number of letters as English: 26.
@@ -92,13 +93,6 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
  Q, W, and Z will only appear in some loanwords such as queer, squash, web, or zon (zone).
 
  Though officially in the Swedish alphabet, there are two other letters you’ll probably see in Swedish: ü and è. But again, these letters are only common in some loanwords.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### General pronunciation rules
 
@@ -150,24 +144,21 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-perfect-harmony-in-vr-exploration/"><u>[Updated] In 2024, Perfect Harmony in VR Exploration</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-quiet-echo-architects-6-unpublicized-voice-recorder-apps/"><u>[Updated] Quiet Echo Architects 6 Unpublicized Voice Recorder Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/grammars-role-in-mastering-new-tongues/"><u>Grammar's Role in Mastering New Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gratitude-for-endless-educational-offerings/"><u>Gratitude for Endless Educational Offerings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-pronounce-spanish-accents-and-type-accent-letters/"><u>How To Pronounce Spanish Accents And Type Accent Letters</u></a></li>
-<li><a href="https://driver-install.techidaily.com/hp-printer-model-p1102w-driver-for-windows-os/"><u>HP Printer Model P1102w Driver for Windows OS</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/impress-locals-the-best-17-spanish-sayings/"><u>Impress Locals: The Best 17 Spanish Sayings</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Vivo Y200 | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/iphones-quintet-of-premier-podcast-tools/"><u>IPhone's Quintet of Premier Podcast Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latin-phrases-the-50-most-cool-and-classy-expressions/"><u>Latin Phrases: The 50 Most Cool and Classy Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-launches-the-first-vr-language-app-mondlyar/"><u>Mondly Launches The First VR Language App - MondlyAR</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667993-9781645670049-plant-magic-for-the-beginner-witch/"><u>Plant Magic for the Beginner Witch | Free Book</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/sculpting-soundtracks-for-animation-using-movie-maker-tools-for-2024/"><u>Sculpting Soundtracks for Animation Using Movie Maker Tools for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/sdr-vs-hdr-why-hdr-be-a-better-part-of-your-video-workflow/"><u>SDR vs HDR Why HDR Be a Better Part of Your Video Workflow</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/steps-to-publicize-your-conversations-with-bard-an-ultimate-guide/"><u>Steps to Publicize Your Conversations with Bard: An Ultimate Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-art-of-allurement-effective-phrases-to-spark-interest/"><u>The Art of Allurement: Effective Phrases to Spark Interest</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-vivo-s18-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Vivo S18 for Parents | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tv-shows-and-films-a-gateway-to-fluency/"><u>TV Shows & Films: A Gateway to Fluency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-new-linguistic-worlds-through-research-based-melodies/"><u>Unlocking New Linguistic Worlds Through Research-Based Melodies</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-tailored-screen-recording-guide-for-your-lenovo-device-for-2024/"><u>[Updated] Tailored Screen Recording Guide for Your Lenovo Device for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/an-insightful-journey-through-the-world-of-english-language-contractions/"><u>An Insightful Journey Through The World of English Language Contractions</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-oppo-a56s-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Oppo A56s 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-to-fluency-bengali/"><u>Fast-Track to Fluency: Bengali</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/flushing-steam-dns-in-windows-a-step-by-step-guide/"><u>Flushing Steam DNS in Windows: A Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/human-expertise-outshines-flawed-algorithms/"><u>Human Expertise Outshines Flawed Algorithms</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-oppo-reno-10-5g-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Oppo Reno 10 5G to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-maximizing-zoom-visual-precision-effective-strategies/"><u>In 2024, Maximizing Zoom Visual Precision Effective Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-at-40plus-four-ways-it-can-improve-your-quality-of-life/"><u>Language Learning at 40+: Four Ways It Can Improve Your Quality of Life</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/leading-websites-for-acoustic-phone-alerts/"><u>Leading Websites for Acoustic Phone Alerts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-global-conversation-skills-mondlys-new-edition/"><u>Navigate Global Conversation Skills: Mondly’s New Edition</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/straightforward-strategies-for-managing-unexpected-thread-failures/"><u>Straightforward Strategies for Managing Unexpected Thread Failures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/streamlining-user-agreements-and-policy/"><u>Streamlining User Agreements & Policy</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-oppo-a38-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Oppo A38? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-aspirants-now-easily-access-free-language-lessons-through-mondly/"><u>Ukrainian Aspirants Now Easily Access Free Language Lessons Through Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-startlingly-skilled-in-languages-over-50-heres-why/"><u>Why Startlingly Skilled in Languages Over 50? Here's Why</u></a></li>
 </ul></div>
 

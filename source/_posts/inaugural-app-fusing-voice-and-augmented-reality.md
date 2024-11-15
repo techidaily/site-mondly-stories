@@ -1,7 +1,7 @@
 ---
 title: Inaugural App Fusing Voice & Augmented Reality
-date: 2024-10-29T18:54:30.950Z
-updated: 2024-11-04T22:24:48.172Z
+date: 2024-11-08T10:29:03.368Z
+updated: 2024-11-15T10:49:29.801Z
 tags:
   - speak
   - english
@@ -43,10 +43,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +65,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +85,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,15 +120,21 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-amazing.techidaily.com/download-linksys-ae2500-driver-quickly-and-easily/"><u>[DOWNLOAD] Linksys AE2500 Driver | Quickly & Easily</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-swiftly-adapt-video-formats-for-mac-pixels/"><u>[New] 2024 Approved Swiftly Adapt Video Formats for MAC Pixels</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-ultimate-livestream-guidebook-recommended-tools-and-devices-compilation/"><u>[Updated] Ultimate Livestream Guidebook Recommended Tools and Devices Compilation</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-flick-flashback-an-old-school-take-on-the-goofys/"><u>2024 Approved Flick Flashback An Old-School Take on The Goofys</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/guide-de-la-physiologie-composants-bodily-en-francais/"><u>Guide De La Physiologie: Composants Bodily en Français</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-language-feature-on-oculus-quest-with-mondly-integration/"><u>New Language Feature on Oculus Quest with Mondly Integration</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/new-release-bamboo-art-pen-and-touch-software-installation-guide/"><u>New Release: Bamboo Art Pen & Touch Software Installation Guide</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/the-unbeatable-choice-in-vehicle-backdrop-erasers-find-out-which-one-deserves-your-attention-now/"><u>The Unbeatable Choice in Vehicle Backdrop Erasers - Find Out Which One Deserves Your Attention Now!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-screenplays-from-diverse-cultures-to-learn-languages/"><u>Top Screenplays From Diverse Cultures to Learn Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/universal-introduction-strategies/"><u>Universal Introduction Strategies</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unveiling-the-world-of-wide-web-watching-via-fb-for-2024/"><u>[New] Unveiling the World of Wide Web Watching via FB for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-edit-away-bloat-organizing-your-overflow-of-tiktok-saves/"><u>[Updated] Edit Away Bloat Organizing Your Overflow of TikTok Saves</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-essential-10-history-youtube-feeds-for-learners/"><u>[Updated] Essential 10 History YouTube Feeds For Learners</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-expert-advice-on-itunes-video-capturing/"><u>2024 Approved Expert Advice on iTunes Video Capturing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amores-secret-language-italian-flirting-guide/"><u>Amore’s Secret Language: Italian Flirting Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-premier-language-phenomena-quick-backup-feature/"><u>Asia's Premier Language Phenomena: Quick Backup Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-guide-to-essential-russian-salutations-and-vocabulranium-navigating-a-new-world-of-social-interactions-and-expressions-in-latin-america/"><u>Beginner's Guide to Essential Russian Salutations & Vocabulranium: Navigating a New World of Social Interactions and Expressions in Latin America</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bulgaria-unlocked-learn-in-quick-bursts/"><u>Bulgaria Unlocked: Learn in Quick Bursts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-dedication-mondlys-ten-year-triumph/"><u>Celebrating Dedication: Mondly's Ten-Year Triumph</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/customizing-your-windows-home-screenscape-at-will/"><u>Customizing Your Windows Home Screenscape at Will</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-slavic-languages-ukraines-ties-with-russ/"><u>Decoding Slavic Languages: Ukraine's Ties with Russ</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-latin-legacy-spanish-vs-portuguese/"><u>Decoding the Latin Legacy: Spanish Vs. Portuguese</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/focusing-the-lens-advanced-cinematic-techniques-for-2024/"><u>Focusing the Lens Advanced Cinematic Techniques for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209881195-9781087804842-the-10-laws-of-transmutation/"><u>The 10 Laws of Transmutation | Free Book</u></a></li>
+<li><a href="https://extra-information.techidaily.com/transforming-video-aesthetics-on-tiktok-dual-approach/"><u>Transforming Video Aesthetics on TikTok (Dual Approach)</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-guide-stop-warno-from-crashing-and-keep-playing-seamlessly/"><u>Ultimate Guide: Stop Warno From Crashing and Keep Playing Seamlessly</u></a></li>
 </ul></div>
 

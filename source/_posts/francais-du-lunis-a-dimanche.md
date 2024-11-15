@@ -1,7 +1,7 @@
 ---
 title: Français Du Lunis À Dimanche
-date: 2024-07-29T06:52:22.788Z
-updated: 2024-07-30T06:52:22.788Z
+date: 2024-11-08T05:44:30.482Z
+updated: 2024-11-15T02:36:31.426Z
 tags:
   - speak
   - english
@@ -20,14 +20,6 @@ thumbnail: https://thmb.techidaily.com/b274fcba0e007ea79b7a5404662f5559df1dd58ab
 
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ## Days of the week in French
 
 The days of the week in French are:
@@ -82,8 +74,12 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Usage rules
 
  One more thing before you go. To make sure you are using your newly acquired French days of the week correctly, don’t forget that:
@@ -119,8 +115,6 @@ The days of the week in French are:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -128,4 +122,24 @@ The days of the week in French are:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/updated-guarding-against-virtual-sickness/"><u>[Updated] Guarding Against Virtual Sickness</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-a-beginners-guide-to-professional-gif-creation/"><u>[Updated] In 2024, A Beginner's Guide to Professional GIF Creation</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-understanding-ip-sounds-and-songs-on-instagram/"><u>[Updated] Understanding IP Sounds and Songs on Instagram</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-becoming-an-srt-creation-virtuoso-a-complete-manual/"><u>2024 Approved Becoming an SRT Creation Virtuoso A Complete Manual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-norsk-knowledge-daily-dash/"><u>Accelerated Norsk Knowledge - Daily Dash</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-reviews-education-tech-hails-mondly-as-10-ed-tech-guru/"><u>Apple Reviews Education Tech, Hails Mondly as #10 Ed-Tech Guru</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-urdu-companion-vital-terminology-list/"><u>Beginner's Urdu Companion: Vital Terminology List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebration-of-1500-accessible-lessons/"><u>Celebration of 1,500 Accessible Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-of-elation-international-independence-day/"><u>Echoes of Elation: International Independence Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-to-korean-fluency-hangul-decoded/"><u>Fast Track to Korean Fluency: Hangul Decoded</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/msi-accepts-responsibility-fixing-the-issues-with-defective-cooler-systems-in-z790-motherboards/"><u>MSI Accepts Responsibility: Fixing the Issues with Defective Cooler Systems in Z790 Motherboards</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-asus-rog-phone-7-ultimate-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Asus ROG Phone 7 Ultimate – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-high-tech-choices-with-toms-hardware-wisdom/"><u>Navigating High-Tech Choices with Tom's Hardware Wisdom</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-connection-hiccups-in-cod-warzone-how-to-fix-delays-finding-matches-on-pc/"><u>Overcoming Connection Hiccups in COD Warzone: How to Fix Delays Finding Matches on PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saudacoes-portuguesas-as-frases-de-olho-neutro-em-pt/"><u>Saudações Portuguesas - As Frases De Olho Neutro Em PT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/senior-synapses-the-power-of-polyglots-abilities/"><u>Senior Synapses: The Power of Polyglots' Abilities</u></a></li>
+<li><a href="https://win-unique.techidaily.com/uncover-advanced-trackpad-hacks-for-pc-pros-essential-tips-you-cant-afford-to-miss/"><u>Uncover Advanced TrackPad Hacks for PC Pros! Essential Tips You Can't Afford to Miss</u></a></li>
+</ul></div>
 

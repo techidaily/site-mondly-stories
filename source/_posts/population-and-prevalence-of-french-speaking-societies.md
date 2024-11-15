@@ -1,7 +1,7 @@
 ---
 title: Population & Prevalence of French-Speaking Societies
-date: 2024-10-29T03:51:54.429Z
-updated: 2024-11-05T06:05:30.201Z
+date: 2024-11-08T18:37:13.719Z
+updated: 2024-11-15T08:04:22.823Z
 tags:
   - speak
   - english
@@ -44,13 +44,6 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 
 ![how many people speak french](https://edge.mondly.com/blog/wp-content/uploads/2022/10/how-many-people-speak-french-960x600.jpg "Top French-Speaking Countries | How Many People Speak French? 4")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### French-speaking countries in Europe
 
  Since France is the parental home of the French language, we figured it’s best to start with Europe. Boasting a rough total of 80 million French speakers, Europe counts for around 40% of the total number of worldwide francophones. This makes French the 3rd most spoken native language in Europe.
@@ -65,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 * Italy — 20% (French is the official language of the autonomous region of the Aosta Valley)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### French-speaking countries in Africa
@@ -103,6 +96,13 @@ The French-speaking countries of Africa are:
 
  \* the number represents the percentage of the population who speak French.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### French-speaking countries in North America
 
  If we know anything about Canada, it is the fact that the French language occupies a special place in its heart. At a national level, both English and French are recognized as official languages, but their status differs from one province to another. For example, in Quebec, French is the only official language.
@@ -110,13 +110,6 @@ The French-speaking countries of Africa are:
 Needless to say, the only French-speaking country in North America is:
 
 * Canada — 29% (percentage of the entire population speaking French).
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### French-speaking countries in the Caribbean
 
@@ -127,6 +120,20 @@ We told you that French speakers could be found everywhere in the world!
 * Haiti — 42% (percentage of the entire population speaking French).
 
 !['French speakers' by Claudia Altamimi©](https://edge.mondly.com/blog/wp-content/uploads/2022/10/french-speakers-960x720.jpg "Top French-Speaking Countries | How Many People Speak French? 5")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### French-speaking countries in Oceania
 
@@ -145,13 +152,6 @@ We told you that French speakers could be found everywhere in the world!
  Some of the largest minorities of French speakers can be found in Lebanon (38%), Algeria (33%), Tunisia (53%), Morocco (36%), Italy (20%) and Mauritius (73%). The same as before, the number represents the percentage of the entire population speaking French.
 
  Now we finally have the full picture and we can understand why French is spoken on five continents.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## A short history of the French language
 
@@ -201,24 +201,22 @@ We told you that French speakers could be found everywhere in the world!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-chime-connoisseurs-curated-list-of-download-websites/"><u>[New] Chime Connoisseurs Curated List of Download Websites</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-ultimate-non-twitter-social-sites-of-the-year/"><u>[New] In 2024, Ultimate Non-Twitter Social Sites of the Year</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-real-number-of-youtube-views-you-need-to-make-a-living/"><u>[Updated] 2024 Approved The Real Number of YouTube Views You Need to Make a Living</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-merging-melodies-the-art-of-crossfading/"><u>[Updated] In 2024, Merging Melodies The Art of Crossfading</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-the-ultimate-ios-screenshoting-hack/"><u>2024 Approved The Ultimate iOS Screenshoting Hack</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-xiaomi-redmi-a2-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from Xiaomi Redmi A2.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lexical-exchange-a-universal-story-of-language-adaptation/"><u>Lexical Exchange: A Universal Story of Language Adaptation</u></a></li>
-<li><a href="https://win-answers.techidaily.com/master-the-art-of-stability-solve-frequent-blender-crash-issues-on-windows-and-mac/"><u>Master the Art of Stability: Solve Frequent Blender Crash Issues on Windows & Mac</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-leading-70plus-million-in-international-learning-community/"><u>Mondly: Leading 70+ Million in International Learning Community</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oui-merci-en-francais-invitations-celebres/"><u>Oui, Merci! En Français: Invitations Célèbres</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-guide-overcoming-airpod-connection-errors-on-windows-11-latest-techniques/"><u>Step-by-Step Guide: Overcoming AirPod Connection Errors on Windows 11 - Latest Techniques</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/mlined-simplicity-ayts-quick-ways-to-blur-background/"><u>Streamlined Simplicity AYT's Quick Ways to Blur Background</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-historical-roots-of-earths-languages-explored/"><u>The Historical Roots of Earth's Languages Explored</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Infinix Hot 40? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-teams-with-targeted-language-training-for-success/"><u>Transform Teams with Targeted Language Training for Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/triple-tiered-asian-dialects-quick-save-easy-find/"><u>Triple-Tiered Asian Dialects: Quick Save, Easy Find</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-turkeys-script-an-easy-to-learn-alphabet-and-pronunciation-guide/"><u>Understanding Turkey's Script: An Easy-to-Learn Alphabet & Pronunciation Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/universal-happiness-linguistic-birthday-gems/"><u>Universal Happiness: Linguistic Birthday Gems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worlds-words-seeking-the-most-elongated-term/"><u>World's Words: Seeking the Most Elongated Term</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-engagement-top-hashtags-for-gameplay-vids/"><u>[New] 2024 Approved Elevate Engagement Top Hashtags for Gameplay Vids</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-stories-unseen-aspects-revealed/"><u>[New] In 2024, Instagram Stories Unseen Aspects Revealed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-streamlining-earnings-with-youtube-studio-techniques/"><u>[New] Streamlining Earnings with Youtube Studio Techniques</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-complete-tiktok-text-to-speech-guidebook/"><u>[New] The Complete TikTok Text-to-Speech Guidebook</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-comprerante-guide-to-sierras-cloud-file-accessibility/"><u>2024 Approved Comprerante Guide to Sierra's Cloud File Accessibility</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-expressions-francaises-de-bienvenue/"><u>4 Expressions Françaises De Bienvenue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/93-essential-spanish-travel-phrases-for-your-next-vacation/"><u>93 Essential Spanish Travel Phrases For Your Next Vacation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-novices-blueprint-for-pronunciation-and-alphabet-mastery/"><u>A Novice’s Blueprint for Pronunciation and Alphabet Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/borrowing-beyond-borders-enriched-english-lexicon/"><u>Borrowing Beyond Borders: Enriched English Lexicon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-the-turko-hanguk-intercultural-enigma/"><u>Deciphering the Turko-Hanguk Intercultural Enigma</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-germanys-linguistic-culture-top-25-phrases/"><u>Embracing Germany's Linguistic Culture: Top 25 Phrases</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-ace-10-budget-friendly-video-subtitle-grabs/"><u>In 2024, Ace 10 Budget-Friendly Video Subtitle Grabs</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-building-competence-with-lut-software/"><u>In 2024, Building Competence with LUT Software</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-melodic-minutes-streamlined-strategies-for-viral-music-on-youtub/"><u>In 2024, Melodic Minutes Streamlined Strategies for Viral Music on YouTub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576550079-mondly-is-now-available-on-huawei-appgallery/"><u>Mondly Is Now Available On Huawei AppGallery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576157624-no-more-language-barriers-your-95-off-lifetime-pass/"><u>No More Language Barriers - Your 95% Off Lifetime Pass!</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/rejuvenate-your-pc-with-a-swift-graphic-driver-upgrade-for-win10/"><u>Rejuvenate Your PC with a Swift Graphic Driver Upgrade for Win10</u></a></li>
 </ul></div>
 

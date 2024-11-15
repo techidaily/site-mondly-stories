@@ -1,7 +1,7 @@
 ---
 title: "Mondly’s Boundless Learning Network: A Community of 70+ Million"
-date: 2024-10-29T18:49:31.808Z
-updated: 2024-11-05T00:01:21.210Z
+date: 2024-11-09T22:09:06.812Z
+updated: 2024-11-15T09:08:31.371Z
 tags:
   - speak
   - english
@@ -36,10 +36,10 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
  The amount of positive feedback we are getting for Hands-Free is astonishing. People everywhere are praising the voice-powered upgrade for its ability to make the process feel less like studying and more like talking to an old friend. That is why we are working harder than ever to make it available for Android learners too as soon as possible.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## English progress tests created in partnership with Oxford University Press
@@ -56,6 +56,19 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
 
  For many of those 1.5 billion people, learning English is not just a hobby, but the key to success. Therefore, it was essential for us to maximize the outcome of our partnership and make the trusted content from Oxford available in 33 native languages – including yours.
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Mondly is now available on Huawei AppGallery too
 
  When it comes to our apps, accessibility is key. We want everyone to be able to learn new languages with Mondly, regardless of the device or platform they choose. Naturally, with the AppGallery in the top three app stores globally, we were thrilled when Huawei proposed to us to bring Mondly to their community too.
@@ -67,10 +80,10 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
 ![mondly huawei](https://edge.mondly.com/blog/wp-content/uploads/2021/03/mondly-huawei-960x521.jpg "Mondly Surpasses 70 Million Learners Worldwide 3")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Huawei Developer Webinar – Grow with AppGallery in China
@@ -82,10 +95,10 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
  Following our series of exciting updates, Mondly has been featured multiple times in both Apple’s App Store and Huawei’s AppGallery.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### “App of the Day” in Apple’s App Store in 157 countries
@@ -93,13 +106,6 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
  “Create Good Resolutions Now”, “Apps We Love Right Now” and “Learn a New Language” are only a few of the categories Mondly has been featured in the last few months. But the greatest honor of all was to be named [“App of the Day”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in 157 countries and to be featured on Apple’s celebratory story with the occasion of Romania’s National Day.
 
  We are thrilled to have received the spotlight in so many countries, but the dearest to our heart was surely the story on the most trending Romanian apps. As Romanians ourselves, it was an honor to be able to represent the thriving tech scene in Romania alongside fellow tech innovators.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Named among the Best Apps of 2020 by Huawei in the “Best for Personal Growth” category
 
@@ -143,22 +149,24 @@ Here’s to 70 million learners and counting! 🥂
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/updated-advanced-mobile-mounting-accurate-camera-positioning/"><u>[Updated] Advanced Mobile Mounting Accurate Camera Positioning</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-cost-effective-tools-to-record-pc-screens-for-2024/"><u>[Updated] Cost-Effective Tools to Record PC Screens for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-quick-guide-to-honor-90-gt-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Honor 90 GT FRP Bypass Instantly</u></a></li>
-<li><a href="https://win11.techidaily.com/circumvent-unauthorized-windows-login-errors-easy-guide/"><u>Circumvent Unauthorized Windows Login Errors (Easy Guide)</u></a></li>
-<li><a href="https://win-dash.techidaily.com/free-hp-speakerheadset-drivers-fast-installation-guide/"><u>Free HP Speaker/Headset Drivers - Fast Installation Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gsl-innovation-unveiled-the-pearson-and-mondly-duo/"><u>GSL Innovation Unveiled - The Pearson & Mondly Duo</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-infinix-hot-40-pro-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Infinix Hot 40 Pro Pictures An Easy Method Explained.</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-s24-ultra-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Samsung Galaxy S24 Ultra Phone Without Password?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-as-an-lifelong-adventure-top-reasons-why-at-age-40plus-is-the-best-time-to-start/"><u>Language Learning as an Lifelong Adventure: Top Reasons Why at Age 40+ Is the Best Time to Start</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-5-digital-resources-in-language-education/"><u>Leading 5 Digital Resources in Language Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-swedish-letters-and-pronunciation-fast/"><u>Learn Swedish Letters and Pronunciation Fast</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-milestone-moments-across-the-world/"><u>Mondly Milestone Moments Across the World</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/persian-past-unveiled-the-power-of-knowing-it/"><u>Persian Past Unveiled: The Power of Knowing It</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/persuasive-prose-excellent-english-training-options/"><u>Persuasive Prose: Excellent English Training Options</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sultry-sentiments-spoken-in-french/"><u>Sultry Sentiments Spoken in French</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-ultimate-5-online-av-creation-leaders/"><u>The Ultimate 5 Online AV Creation Leaders</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unlocking-ebook-purchases-a-users-guide-to-utilizing-the-books-app-on-apple-tablets-and-phones/"><u>Unlocking eBook Purchases: A User’s Guide to Utilizing the Books App on Apple Tablets and Phones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-frosted-feats-beijings-ice-showdown-highlights-for-2024/"><u>[New] Frosted Feats Beijing's Ice Showdown Highlights for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ultimate-quick-view-windows-photos-for-2024/"><u>[New] Ultimate Quick View - Windows Photos for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-gopro-max-versus-hero-11-ultimate-review-guide/"><u>[Updated] In 2024, GoPro Max Versus Hero 11 Ultimate Review Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-leap-into-fitness-a-curated-selection-of-vr-treadmill-pros/"><u>[Updated] Leap Into Fitness A Curated Selection of VR Treadmill Pros</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/advanced-computer-solutions-decoded-by-experts-at-toms-hardware/"><u>Advanced Computer Solutions Decoded by Experts at Tom's Hardware</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-effortless-essential-17-natural-spanish-sayings/"><u>Become Effortless: Essential 17 Natural Spanish Sayings</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-samsung-galaxy-s23-tactical-edition-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Samsung Galaxy S23 Tactical Edition via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brain-boost-in-your-fifties-with-foreign-languages-learning/"><u>Brain Boost in Your Fifties with Foreign Languages Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/frequently-learned-overseas-dialects-in-the-usa/"><u>Frequently Learned Overseas Dialects in the USA</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/full-guide-to-unlock-your-oneplus-12r-by-drfone-android/"><u>Full Guide to Unlock Your OnePlus 12R</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-essentials-the-100-phrase-voyagers-companion/"><u>Italian Essentials: The 100-Phrase Voyager's Companion</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210614415-9781648291173-restorative-rituals/"><u>Restorative Rituals | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/santas-secretive-speech-skills-exposed/"><u>Santa's Secretive Speech Skills Exposed</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/secrets-to-high-quality-roblox-game-footage-on-macos/"><u>Secrets to High-Quality Roblox Game Footage on macOS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/selecting-the-most-versatile-european-language-germanfrench/"><u>Selecting the Most Versatile European Language: German/French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-smart-stand-out-elite-english-coaching/"><u>Speak Smart, Stand Out: Elite English Coaching</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-joy-of-language-acquisition-beyond-50/"><u>The Joy of Language Acquisition Beyond 50</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/unlocking-iphone-recovery-a-comprehensive-guide-without-need-for-a-backup-stellar/"><u>Unlocking iPhone Recovery: A Comprehensive Guide Without Need for a Backup (Stellar)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-mondly-is-your-essential-language-learning-ally/"><u>Why Mondly Is Your Essential Language Learning Ally</u></a></li>
 </ul></div>
 

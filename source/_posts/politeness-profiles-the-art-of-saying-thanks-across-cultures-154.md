@@ -1,7 +1,7 @@
 ---
 title: "Politeness Profiles: The Art of Saying Thanks Across Cultures (154)"
-date: 2024-11-01T16:44:40.482Z
-updated: 2024-11-04T23:08:10.469Z
+date: 2024-11-08T16:19:29.572Z
+updated: 2024-11-15T12:26:12.757Z
 tags:
   - speak
   - english
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +89,10 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,20 +125,24 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-digital-recorders-companion-pc-mac-phone-edition/"><u>[New] Digital Recorder's Companion PC, Mac, Phone Edition</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-screenshot-simplicity-compatible-free-capturing-apps-for-windows/"><u>[New] In 2024, Screenshot Simplicity Compatible Free Capturing Apps for Windows</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/1728484325499-vs/"><u>『データ復旧』VS『データ復元』: 根本的な違いを深掘り</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Oppo A78 | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/cross-promotion-partnerships-with-brands-on-youtube/"><u>Cross-Promotion Partnerships with Brands on YouTube</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-sony-xperia-5-v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Sony Xperia 5 V | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-oppo-f23-5g-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Oppo F23 5G Phones? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-honor-magic-v2-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Honor Magic V2 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-starry-eyed-for-apples-app/"><u>International Starry Eyed for Apple's App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/italian-etiquette-made-simple-essential-greeting-phrases/"><u>Italian Etiquette Made Simple: Essential Greeting Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-advantages-deciphering-german-vs-french-usefulness/"><u>Language Advantages: Deciphering German vs French Usefulness</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-app-for-oculus-quest-mondlys-latest-feature/"><u>Language App for Oculus Quest - Mondly's Latest Feature</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/neues-leben-in-deutschen-zahlen-eine-einfuhrung-ab-1-100/"><u>Neues Leben in Deutschen Zahlen: Eine Einführung Ab 1-100</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/quick-fixes-for-sluggish-and-inoperative-windows-programs/"><u>Quick Fixes for Sluggish and Inoperative Windows Programs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speech-recognition-revolutionizing-augmented-interaction/"><u>Speech Recognition: Revolutionizing Augmented Interaction</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/erfecting-yt-thumbnails-with-aspect-ratios-for-2024/"><u>[New] Perfecting YT Thumbnails with Aspect Ratios for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-unlocking-mac-recording-capabilities/"><u>[Updated] In 2024, Unlocking Mac Recording Capabilities</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-rapid-techniques-to-separate-genuine-from-fake-on-insta-for-2024/"><u>[Updated] Rapid Techniques to Separate Genuine From Fake on Insta for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-kickstarting-with-a-gopro-unbox-the-perfect-add-ons/"><u>2024 Approved Kickstarting with a GoPro Unbox the Perfect Add-Ons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apex-communicator-the-business-linguistic-blueprint/"><u>Apex Communicator: The Business Linguistic Blueprint</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/busting-ai-chatbot-fallacies-insights-into-9-prevalent-myths/"><u>Busting AI Chatbot Fallacies: Insights Into 9 Prevalent Myths</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciding-on-the-next-ideal-linguistic-journey-to-pursue/"><u>Deciding on the Next Ideal Linguistic Journey to Pursue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hablar-de-semana-en-espanol-descubrimiento-desde-lunes-al-domingo/"><u>Hablar De Semana en Español: Descubrimiento Desde Lunes Al Domingo</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-youthful-minds-conquer-linguistic-barriers/"><u>How Youthful Minds Conquer Linguistic Barriers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-non-native-language-curriculum-for-us-students/"><u>Leading Non-Native Language Curriculum for U.S. Students</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/manejo-de-horas-un-principio-de-lectura-en-espanol/"><u>Manejo De Horas: Un Principio De Lectura En Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/may-the-words-be-with-you-exploring-the-fascinating-languages-of-star-wars/"><u>May The Words Be With You: Exploring The Fascinating Languages Of Star Wars</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932908-9781855842830-rosicrucian-wisdom/"><u>Rosicrucian Wisdom | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782241-9781594779510-sanctuary-of-the-divine-presence/"><u>Sanctuary of the Divine Presence | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-prime-strategies-to-pick-up-languages-digitally/"><u>Step-by-Step Guide: Prime Strategies to Pick up Languages Digitally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-slang-lexicon-common-expressions-in-todays-tongue/"><u>The Slang Lexicon: Common Expressions in Today's Tongue</u></a></li>
+<li><a href="https://win-dash.techidaily.com/ultimate-vob-editing-techniques-unveiled-master-the-art-of-slicing-and-merging-video-footage/"><u>Ultimate VOB Editing Techniques Unveiled: Master the Art of Slicing and Merging Video Footage</u></a></li>
 </ul></div>
 

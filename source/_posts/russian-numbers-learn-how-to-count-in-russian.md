@@ -1,7 +1,7 @@
 ---
 title: Russian Numbers – Learn How to Count in Russian
-date: 2024-10-29T05:10:50.870Z
-updated: 2024-11-04T23:46:44.698Z
+date: 2024-11-08T21:58:54.447Z
+updated: 2024-11-15T01:00:01.769Z
 tags:
   - speak
   - english
@@ -37,16 +37,10 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 * neuter: одно _(odno)_ ; два _(dva)_
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Learn how to count to 20 in Russian
@@ -64,10 +58,10 @@ If you did manage, good job! You must be a natural.
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Russian numbers: 21 and onwards
@@ -75,13 +69,6 @@ If you did manage, good job! You must be a natural.
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
 
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Russian tens
 
@@ -100,10 +87,10 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Russian hundreds
@@ -111,6 +98,13 @@ And guess what! It works the same with the hundreds.
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
 
 Not as hard as you’d expect, is it?
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Russian ordinal numbers
 
@@ -157,24 +151,24 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-securing-your-scene-minimize-camera-jostle/"><u>[New] Securing Your Scene Minimize Camera Jostle</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-step-by-step-guide-embellishing-images-with-borders-on-instagram/"><u>[Updated] In 2024, Step-by-Step Guide Embellishing Images with Borders on Instagram</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-latest-pulse-of-facebooks-evolution/"><u>[Updated] Latest Pulse of Facebook's Evolution</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/comprehensive-tutorial-importing-and-integrating-recovered-edb-mailboxes-into-live-exchange-systems/"><u>Comprehensive Tutorial: Importing and Integrating Recovered EDB Mailboxes Into Live Exchange Systems</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/from-iphone-to-pc-mastering-the-use-of-apple-maps/"><u>From iPhone to PC: Mastering the Use of Apple Maps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/golden-age-gains-through-new-languages/"><u>Golden Age Gains Through New Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-urdu-swiftly-with-daily-10-minute-intervals/"><u>Learn Urdu Swiftly with Daily 10-Minute Intervals</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-win-with-back-and-filter-buttons-feature/"><u>Mondly Kids Win with Back and Filter Buttons Feature</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-in-2024-10-essential-fcpx-plugins-to-elevate-your-video-editing-game-free-and-paid/"><u>New In 2024, 10 Essential FCPX Plugins to Elevate Your Video Editing Game Free and Paid</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/open-doors-new-perspectives-the-value-of-multilingualism/"><u>Open Doors, New Perspectives: The Value of Multilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/planetary-language-prestige-top-fifteen-countdown/"><u>Planetary Language Prestige – Top Fifteen Countdown</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saying-happy-day-in-every-dialect/"><u>Saying Happy Day in Every Dialect</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/selecting-the-new-language-that-speaks-to-me/"><u>Selecting The New Language That Speaks To Me</u></a></li>
-<li><a href="https://win-answers.techidaily.com/step-by-step-guide-cropping-videos-into-perfect-squares-in-windows-10-or-11/"><u>Step-by-Step Guide: Cropping Videos Into Perfect Squares in Windows 10 or 11</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/top-10-avants-gardistes-outils-de-montage-video-pour-ordinateurs-personnels/"><u>Top 10 Avants-Gardistes Outils De Montage Vidéo Pour Ordinateurs Personnels</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/top-powerpoint-tools-for-videographers-for-2024/"><u>Top PowerPoint Tools for Videographers for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-to-language-tests-and-high-honors/"><u>Ultimate Guide to Language Tests & High Honors</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/up-to-date-hp-laserjet-m506-printer-driver-software-installation-instructions-and-resources/"><u>Up-to-Date HP LaserJet M506 Printer Driver Software - Installation Instructions & Resources</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/virtual-classroom-a-global-edunet-meeting/"><u>Virtual Classroom: A Global Edunet Meeting</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-animation-tips-warped-type-techniques/"><u>2024 Approved Animation Tips Warped Type Techniques</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-embracing-the-world-one-post-at-a-time-with-insta-captions/"><u>2024 Approved Embracing the World, One Post at a Time with Insta Captions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-kiss-across-borders-language-of-love-for-valentines-day/"><u>A Kiss Across Borders: Language of Love for Valentines Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/earths-primary-parlance-the-15-echo/"><u>Earth's Primary Parlance – The #15 Echo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-bulbarian-short-10-min-lessons/"><u>Efficient Bulbarian: Short 10-Min Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-fluency-best-methods-for-online-finnish-study/"><u>Enhance Fluency: Best Methods for Online Finnish Study</u></a></li>
+<li><a href="https://fox-search.techidaily.com/guia-paso-a-paso-para-rescatar-tu-diario-de-chats-en-wechat-como-recuperar-mensajes-viejos-o-borrados/"><u>Guía Paso a Paso Para Rescatar Tu Diario De Chats en WeChat: Cómo Recuperar Mensajes Viejos O Borrados</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/guide-securing-online-versions-of-your-existing-movie-collection/"><u>Guide: Securing Online Versions of Your Existing Movie Collection</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-sony-xperia-5-v-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Sony Xperia 5 V Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-vivo-s18-pro-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Vivo S18 Pro FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-mastering-snapchat-incorporating-songs-into-your-videos/"><u>In 2024, Mastering Snapchat Incorporating Songs Into Your Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-that-echo-across-asia-top-3/"><u>Languages that Echo Across Asia: Top 3</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-named-best-language-learning-app-of-2022-by-bestappcom/"><u>Mondly Named Best Language Learning App of 2022 by BestApp.com</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-transforms-linguistic-learning-with-a-fresh-guidebook/"><u>Mondly Transforms Linguistic Learning with a Fresh Guidebook</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-the-top-5-free-mpeg-video-combining-tools-for-2024/"><u>New The Top 5 Free MPEG Video Combining Tools for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-languages-focusing-on-english/"><u>Second Languages: Focusing on English</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-skype-microphone-malfunction-on-pcs-with-windows-10/"><u>Troubleshooting Guide: Skype Microphone Malfunction on PCs with Windows 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unpacking-mondlys-way-to-learn/"><u>Unpacking Mondly's Way to Learn</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unraveling-the-mystery-what-do-different-colors-on-your-ps4-controller-signify/"><u>Unraveling the Mystery: What Do Different Colors on Your PS4 Controller Signify?</u></a></li>
 </ul></div>
 

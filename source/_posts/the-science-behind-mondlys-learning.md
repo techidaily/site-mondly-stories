@@ -1,7 +1,7 @@
 ---
 title: The Science Behind Mondly's Learning
-date: 2024-11-01T04:13:09.001Z
-updated: 2024-11-04T21:12:11.715Z
+date: 2024-11-14T06:14:03.692Z
+updated: 2024-11-15T12:19:36.648Z
 tags:
   - speak
   - english
@@ -43,16 +43,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -64,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -82,10 +76,10 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -113,18 +107,22 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-chart-a-course-to-6-figure-growth-with-powerful-tags/"><u>[New] In 2024, Chart a Course to 6-Figure Growth with Powerful #Tags</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-essential-tips-for-crop-and-export-videos-for-instagram/"><u>[Updated] In 2024, Essential Tips for Crop & Export Videos for Instagram</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-innovative-techniques-for-enhancing-youtube-audio/"><u>[Updated] Innovative Techniques for Enhancing YouTube Audio</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-sierra-sovereign-dvd-and-media-cutting-tools/"><u>2024 Approved Sierra Sovereign Dvd & Media Cutting Tools</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/jpeg-file-converter-websites-edit-photos-at-no-cost-with-top-services/"><u>JPEG File Converter Websites: Edit Photos at No Cost with Top Services</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revolutionary-applications-for-rapid-vocabulary-growth/"><u>Revolutionary Applications for Rapid Vocabulary Growth</u></a></li>
-<li><a href="https://win-answers.techidaily.com/say-goodbye-to-arma-3-game-freezes-innovative-fixes-and-optimization-tips-released/"><u>Say Goodbye to Arma 3 Game Freezes: Innovative Fixes & Optimization Tips Released</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/ssdhdd-windows-10-os/"><u>SSDへのスムーズなHDDからの Windows 10 OS 転送手順を学ぶ！</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/start-the-year-smart-savings-alert-on-mondly-premium-up-to-96-off/"><u>Start the Year Smart - Savings Alert on Mondly Premium, Up to 96% Off!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-polite-expression-learning-xiexie/"><u>The Essentials of Polite Expression: Learning Xièxiè</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-lightweight-contender-a-comprehensive-review-of-the-lenovo-thinkpad-x1-nano/"><u>The Lightweight Contender - A Comprehensive Review of the Lenovo ThinkPad X1 Nano</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-spanish-verb-conjugations/"><u>The Ultimate Guide to Spanish Verb Conjugations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlimited-unbeatable-mondly-savings/"><u>Unlimited, Unbeatable Mondly Savings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-full-time-employees-guide-to-video-content-success/"><u>[Updated] 2024 Approved The Full-Time Employee's Guide to Video Content Success</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-enhanced-cutting-techniques-for-professional-vimeo-media/"><u>[Updated] Enhanced Cutting Techniques for Professional Vimeo Media</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-unleash-potential-advanced-techniques-in-instagram-loop-creation-for-2024/"><u>[Updated] Unleash Potential Advanced Techniques in Instagram Loop Creation for 2024</u></a></li>
+<li><a href="https://app-tips.techidaily.com/365-as-revealed-by-zdnet/"><u>365, as Revealed by ZDNET</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-myths-about-language-learning-you-should-definitely-learn-about/"><u>5 Myths About Language Learning You Should Definitely Learn About</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/acontece-em-portugues-as-palavras-mais-usadas-para-se-encontrar/"><u>Acontece Em Português: As Palavras Mais Usadas Para Se Encontrar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aggregate-of-best-danish-productions-for-language-acquisition/"><u>Aggregate of Best Danish Productions for Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-guide-to-german-numbers-1-100/"><u>Beginner's Guide to German Numbers 1-100</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-mondlys-ar-for-multilingual-education/"><u>Bridging Cultures: Mondly's AR for Multilingual Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-bridges-through-effective-business-communication/"><u>Building Bridges Through Effective Business Communication</u></a></li>
+<li><a href="https://win-dash.techidaily.com/complete-guide-free-driver-software-for-optimal-functionality-of-your-hp-designjet-500/"><u>Complete Guide: Free Driver Software for Optimal Functionality of Your HP Designjet 500</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/countries-observing-the-thanksgiving-tradition/"><u>Countries Observing the Thanksgiving Tradition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-top-16-ways-to-demonstrate-gratitude-in-german/"><u>Discover the Top 16 Ways to Demonstrate Gratitude in German</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/flawless-mobile-filmmaking-leading-phones-with-image-stability/"><u>Flawless Mobile Filmmaking Leading Phones with Image Stability</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-no-bootable-device-error/"><u>How to Fix No Bootable Device Error</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-honor-x50i-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Honor X50i?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-apple-iphone-7-plus-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On Apple iPhone 7 Plus</u></a></li>
 </ul></div>
 

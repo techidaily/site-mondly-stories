@@ -1,7 +1,7 @@
 ---
 title: "The Buccaneer's Guide: Key Slang for Seafaring Characters"
-date: 2024-11-04T04:31:43.150Z
-updated: 2024-11-05T03:55:43.118Z
+date: 2024-11-12T23:36:07.270Z
+updated: 2024-11-15T10:27:49.469Z
 tags:
   - speak
   - english
@@ -29,10 +29,10 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
  Over the years, the idea gained a lot of notoriety and is now celebrated internationally by people and brands everywhere. For example, in 2008, to celebrate the day, Facebook introduced a pirate-translated version of its website.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The pirate accent: how to talk like a pirate
@@ -75,10 +75,16 @@ Easy peasy, ain’t it?
  Arr! Is Talk Like a Pirate Day one of the best parodic holidays ever or what? Not even [World Chocolate Day](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) sounds as good as talking like a pirate all day long with ye’ maties.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Avast, ye! Pirates have discovered a new way to learn languages
@@ -87,16 +93,23 @@ Easy peasy, ain’t it?
 
 ![jack sparrow](https://media.giphy.com/media/LrIA0CryFKvN6/giphy.gif "How To Talk Like A Pirate: 20 Pirate Words 4")
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fahoy-its-talk-like-a-pirate-day-arr%2F&t=How+to+Talk+Like+a+Pirate%3A+20+Pirate+Words "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Ahoy! Get your language skills to the next level
@@ -104,13 +117,6 @@ Easy peasy, ain’t it?
 [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3348&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348) is a pocket-held language tutor that allows you to put your brain on autopilot and enjoy the sail to fluency in 33 languages.
 
  By combining solid neural science, cutting edge technologies, bite-sized Daily Lessons and a gamified experience guaranteed to make you addicted to learning languages, Mondly gets you fluent faster than you could ever imagine. Every true pirate loves it ![Learn a new language now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-3348&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-3348%26mt%3D8 "Learn a new language now")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,18 +133,20 @@ Easy peasy, ain’t it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-effortless-srt-file-manipulation-on-pc-and-mac-for-2024/"><u>[New] Effortless SRT File Manipulation on PC and Mac for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-tactics-for-smoothly-importing-movies-to-vimeo-from-wmm/"><u>[Updated] In 2024, Tactics for Smoothly Importing Movies to Vimeo From WMM</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/gaming-transformed-by-tech/"><u>Gaming Transformed by Tech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-haunted-holiday-practices/"><u>International Haunted Holiday Practices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-systems-accelerating-grammar-acquisition/"><u>Leading Systems Accelerating Grammar Acquisition</u></a></li>
-<li><a href="https://article-posts.techidaily.com/lens-legends-choosing-the-best-10-camera-optics-for-2024/"><u>Lens Legends Choosing the Best 10 Camera Optics for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/panneaux-et-jours-semaine-en-francais/"><u>Panneaux Et Jours: Semaine en Français</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romance-rivalry-unpacking-spanish-and-portuguese-linguistics/"><u>Romance Rivalry: Unpacking Spanish & Portuguese Linguistics</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-guide-to-modifying-and-turning-on-vlc-media-players-audio-visualizations/"><u>Step-by-Step Guide to Modifying and Turning On VLC Media Player's Audio Visualizations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-10-arguments-to-start-studying-german/"><u>Top 10 Arguments to Start Studying German</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-spelling-blunders-in-english-a-comprehensive-list-of-mistakes/"><u>Top Spelling Blunders in English: A Comprehensive List of Mistakes</u></a></li>
-<li><a href="https://media-tips.techidaily.com/understanding-the-h266-standard-a-guide-to-the-versatile-video-coding/"><u>Understanding the H.266 Standard: A Guide to the Versatile Video Coding</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/watching-anime-legally-the-animeseason-site-and-more-options-for-streaming-episode-without-cost/"><u>Watching Anime Legally - The Animeseason Site & More Options for Streaming Episode Without Cost</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-vloggers-guide-to-camera-lenses-wondershare-filmora-for-2024/"><u>[New] A Vlogger's Guide To Camera Lenses | Wondershare Filmora for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-audiopiece-recorder-guide-installation-and-test/"><u>[New] AudioPiece Recorder Guide Installation & Test</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-how-to-use-creative-commons-copyright-licenses/"><u>[New] In 2024, How to Use Creative Commons Copyright Licenses?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-top-picks-premium-and-economical-bdr-players-for-pcmac/"><u>[New] Top Picks Premium & Economical BDR Players for PC/Mac</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-boosting-engagement-and-followers-in-igtv-with-smart-hash-tagging/"><u>[Updated] In 2024, Boosting Engagement and Followers in IGTV with Smart Hash Tagging</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-for-kids-on-google-play-mondly-with-back-button-control/"><u>Best for Kids on Google Play: Mondly with Back Button Control</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-earthly-words-discovering-the-multifaceted-languages-in-star-wars/"><u>Beyond Earthly Words: Discovering the Multifaceted Languages in Star Wars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-alphabets-of-nipponese-language/"><u>Decoding the Alphabets of Nipponese Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/demystifying-english-punctuation-getting-to-grips-with-contractions/"><u>Demystifying English Punctuation: Getting to Grips with Contractions</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/financial-flourishing-in-youtube-content-markets-for-2024/"><u>Financial Flourishing in YouTube Content Markets for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-handheld-smooth-movies-maker/"><u>In 2024, Handheld Smooth Movies Maker</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-infuse-your-snap-with-japanese-pop-culture-the-anime-filter-tutorial/"><u>In 2024, Infuse Your Snap with Japanese Pop Culture The Anime Filter Tutorial</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-vimeo-cash-flow-maximizing-income-through-content-marketing/"><u>In 2024, Vimeo Cash Flow Maximizing Income Through Content Marketing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579938576-quick-urdu-skills-just-10-minsday/"><u>Quick Urdu Skills, Just 10 Mins/Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581347739-the-ultimate-guide-to-english-contractions/"><u>The Ultimate Guide to English Contractions</u></a></li>
 </ul></div>
 

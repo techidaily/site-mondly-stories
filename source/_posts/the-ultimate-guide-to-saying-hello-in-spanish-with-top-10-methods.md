@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide To Saying 'Hello' In Spanish With Top 10 Methods
-date: 2024-10-29T00:20:13.226Z
-updated: 2024-11-05T02:10:22.756Z
+date: 2024-11-10T21:10:51.636Z
+updated: 2024-11-15T14:48:29.594Z
 tags:
   - speak
   - english
@@ -47,19 +47,19 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 ![hi in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/04/hi-in-spanish-600x463.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  ¡Hola, señor! by Bruce Jastrow©
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## “How are you?” in Spanish
@@ -75,16 +75,10 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## “Yes”, “please” and “thank you” in Spanish
@@ -101,10 +95,10 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 * Nice to meet you – Encantado/Encantada de conocerte
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Goodbye in Spanish
@@ -156,18 +150,15 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-top-10-final-cut-pro-plug-ins/"><u>[Updated] 2024 Approved Top 10 Final Cut Pro Plug-Ins</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-exclusive-list-the-most-reliable-10-vimeo-downloader-apps/"><u>[Updated] Exclusive List The Most Reliable 10 Vimeo Downloader Apps</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-professional-strategies-converting-xmlssattml-to-dynamic-srts/"><u>[Updated] In 2024, Professional Strategies Converting XML/SSA/TTML to Dynamic SRTs</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-securing-your-facebook-memories-top-5-downloading-methods-for-2024/"><u>[Updated] Securing Your Facebook Memories Top 5 Downloading Methods for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/chorus-climaxes-ultimate-hits-to-accompany-your-promise-for-2024/"><u>Chorus Climaxes Ultimate Hits to Accompany Your Promise for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-methods-to-customize-fb-navigation-paths/"><u>Effective Methods to Customize FB Navigation Paths</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-gratitude-for-american-birthday/"><u>Global Gratitude for American Birthday</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/harnessing-artificial-intelligence-with-quoras-poe-for-easy-access-to-advanced-chatbots-and-llms/"><u>Harnessing Artificial Intelligence with Quora's Poe for Easy Access to Advanced Chatbots and LLMs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/iberian-language-puzzle-solving-spanish-and-portuguese-distinctions/"><u>Iberian Language Puzzle: Solving Spanish and Portuguese Distinctions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rediscovering-the-original-forms-of-human-speech/"><u>Rediscovering the Original Forms of Human Speech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-shared-language-puzzle-of-anatolia-and-hanguk/"><u>The Shared Language Puzzle of Anatolia & Hanguk</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-vietnamese-dialogue/"><u>The Ultimate Guide to Vietnamese Dialogue</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unveiling-the-secrets-of-patch-tuesday-a-comprehensive-guide/"><u>Unveiling the Secrets of Patch Tuesday: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-prime-tools-turning-youtube-videos-into-text/"><u>[New] 2024 Approved Prime Tools Turning YouTube Videos Into Text</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-art-of-converting-photographs-into-cinematic-videography-with-pixiz/"><u>[New] In 2024, The Art of Converting Photographs Into Cinematic Videography with Pixiz</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-your-photo-archives-new-eden-mix-no-fee-infinite-with-paid-cloud-spaces/"><u>[New] Your Photo Archive's New Eden Mix No-Fee Infinite with Paid Cloud Spaces</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/3-leading-asian-languages-back-and-filter-efficiently/"><u>3 Leading Asian Languages: Back & Filter Efficiently</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581197529-be-a-polyglot-in-minutes-enjoy-a-staggering-95-savings/"><u>Be a Polyglot in Minutes - Enjoy a Staggering 95% Savings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/danny-from-colombias-assistance-program-for-vulnerable-populations/"><u>Danny From Colombia's Assistance Program for Vulnerable Populations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descripcion-de-musculos-desde-la-nariz-a-los-toes-en-espanol/"><u>Descripción De Músculos: Desde La Nariz a Los Toes en Español</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unlocking-xboxs-video-call-potential-with-zoom/"><u>In 2024, Unlocking Xbox's Video Call Potential with Zoom</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/movavi-free-online-un-outil-sans-frais-pour-transformer-votre-video-wmv-en-un-fichier-audio-mp3/"><u>Movavi Free Online: Un Outil Sans Frais Pour Transformer Votre Vidéo WMV en Un Fichier Audio MP3</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/step-up-to-championship-level-in-console-gaming-with-the-superior-asus-vg245h-monitor/"><u>Step Up to Championship Level in Console Gaming with the Superior Asus VG245H Monitor</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Indonesian Greetings Unveiled: An Introduction"
-date: 2024-11-03T00:32:47.012Z
-updated: 2024-11-05T07:34:45.737Z
+date: 2024-11-10T01:58:05.390Z
+updated: 2024-11-14T20:54:14.465Z
 tags:
   - speak
   - english
@@ -41,10 +41,10 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
@@ -54,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
@@ -72,18 +72,18 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
 
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
 
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to say goodbye
 
@@ -97,10 +97,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Start learning Indonesian today
@@ -134,24 +134,16 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-art-of-preservation-innovative-techniques-to-capture-the-magic-of-living-with-sims/"><u>[New] In 2024, The Art of Preservation Innovative Techniques to Capture the Magic of Living with Sims</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-embark-on-virtual-adventures-youtubes-premier-selections-for-2024/"><u>[Updated] Embark on Virtual Adventures Youtube's Premier Selections for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-serenity-through-stories-a-review-of-parent-driven-narrative-vids/"><u>[Updated] Serenity Through Stories A Review of Parent-Driven Narrative Vids</u></a></li>
-<li><a href="https://extra-information.techidaily.com/achieving-proficiency-comprehensive-photoshop-hdr-tutorial/"><u>Achieving Proficiency Comprehensive Photoshop HDR Tutorial</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/cutting-edge-strategies-for-real-time-green-screen-applications/"><u>Cutting-Edge Strategies for Real-Time Green Screen Applications</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-samsung-galaxy-a14-4g-lock-screen-password-by-drfone-android/"><u>How to Reset your Samsung Galaxy A14 4G Lock Screen Password</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-x-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone X without Losing Any Data? | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721451728240-iphone-not-connecting-to-the-cellular-network-discover-10-reliable-fixes/"><u>IPhone Not Connecting to the Cellular Network? Discover 10 Reliable Fixes!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learnings-new-era-mondly-at-seven-years/"><u>Learning's New Era: Mondly at Seven Years</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfect-your-german-etiquette-with-these-top-16-thank-yous/"><u>Perfect Your German Etiquette with These Top 16 Thank Yous</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/persian-language-heritage-unveiled-learn-today/"><u>Persian Language Heritage Unveiled: Learn Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-language-acquisition-with-oxford-3000-mondly-style/"><u>Quick Language Acquisition with Oxford 3000, Mondly Style</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/solving-your-problem-with-intel-dptf-driver-error-during-installation/"><u>Solving Your Problem with Intel DPTF Driver Error During Installation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-smart-succeed-premier-communication-courses/"><u>Speak Smart, Succeed: Premier Communication Courses</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speaking-spanish-with-peers-in-virtually-shared-realities/"><u>Speaking Spanish with Peers in Virtually Shared Realities</u></a></li>
-<li><a href="https://howto.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-xiaomi-14-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Xiaomi 14 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-first-vocal-command-center-for-ar-worlds/"><u>The First Vocal Command Center for AR Worlds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-truth-behind-the-lies-debunking-language-learning-myths/"><u>The Truth Behind the Lies: Debunking Language Learning Myths</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/whispered-words-conversational-confessions-in-deutsch/"><u>Whispered Words: Conversational Confessions in Deutsch</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-igniting-interest-how-to-elevate-your-instagram-contents-impact/"><u>[New] 2024 Approved Igniting Interest How to Elevate Your Instagram Content's Impact</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-love-for-words-the-romance-family/"><u>A Love for Words: The Romance Family</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/australian-language-for-everyday-use/"><u>Australian Language for Everyday Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-slices-of-success-learn-slovak-online-10-minutes-each/"><u>Daily Slices of Success: Learn Slovak Online, 10 Minutes Each</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easter-broadcast-hearing-the-world-speak/"><u>Easter Broadcast: Hearing the World Speak</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-repair-a-non-functional-rec-room-mic-on-pc/"><u>How to Repair a Non-Functional Rec Room Mic on PC</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-tutorial-to-bypass-your-samsung-galaxy-xcover-6-pro-tactical-edition-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Samsung Galaxy XCover 6 Pro Tactical Edition Face Lock?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-how-to-create-a-youtube-account/"><u>In 2024, How to Create a YouTube Account</u></a></li>
+<li><a href="https://win-great.techidaily.com/pc-usb-windows-11-os/"><u>PC 用 USB メモリにWindows 11 OSイメージを保存するコツとテクニック</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/revolutionizing-patient-experience-enhancing-satisfaction-with-athenahealths-advanced-ehr-solutions-insights-from-the-abbyy-perspective/"><u>Revolutionizing Patient Experience: Enhancing Satisfaction with Athenahealth's Advanced EHR Solutions - Insights From the ABBYY Perspective</u></a></li>
+<li><a href="https://network-issues.techidaily.com/1719974335727-upgrade-graphics-performance-install-intel-hd-graphics-3000-on-windows-10-with-ease/"><u>Upgrade Graphics Performance: Install Intel HD Graphics 3000 on Windows 10 with Ease</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Salutations Françaises Pour Accueillir
-date: 2024-11-01T07:08:44.734Z
-updated: 2024-11-05T04:25:05.842Z
+date: 2024-11-11T10:01:38.094Z
+updated: 2024-11-14T16:38:28.930Z
 tags:
   - speak
   - english
@@ -30,6 +30,19 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
  You can use ‘_de rien’_ as an informal response to somebody who has thanked you. You’ll hear this expression used commonly throughout France in a range of situations.
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### The literal translation of_‘de rien’_
 
  Whilst it’s important not to think too much about the literal translation of phrases from French into English, it can help us remember how and when to use them. The literal translation of ‘_de rien’_ is ‘of nothing’. In English, we’d likely say ‘no problem’ or ‘don’t worry about it.’
@@ -47,26 +60,26 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 ![de rien](https://edge.mondly.com/blog/wp-content/uploads/2021/05/de-rien-960x540.jpg "4 Popular Ways To Say You’re Welcome In French 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Strasbourg, France” by Patrick Robert Doyle©
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. The informal “you’re welcome”:_je t’en prie_
 
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
 
  It is most common amongst very close friends and family members. This particular form is most appropriate when you want to express a higher level of gratitude than_‘de rien’_ , but with somebody close to you, with whom your relationship is casual.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### The literal translation of_‘je t’en prie’_
 
@@ -83,13 +96,6 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  You’ll notice that this particular way to say ‘you’re welcome’ in French is very similar to the previous example. In fact, the phrase is almost identical. The only thing that’s changed is the personal pronoun. Instead of using the informal you –_‘tu’_ – we use the formal counterpart –_‘vous’_ .
 
  This should make_‘je vous en prie’_ nice and easy to remember. Just be careful not to use it with close friends. Using_‘vous’_ will sound unnatural if you are in close company. Likewise, always use this version of you’re welcome in French if you are speaking with somebody you do not know, no matter their level of seniority.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### The literal translation of_‘je vous en prie’_
 
@@ -128,10 +134,10 @@ Example:
  A:_Pas de problème. Merci._ (“No problem. Thanks.”)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus: Less common ways to say “you’re welcome” in French
@@ -188,17 +194,24 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-elite-filmmakers-foreshadowing-series-for-2024/"><u>[New] Elite Filmmaker's Foreshadowing Series for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-step-by-step-full-screen-preview-tutorials/"><u>[Updated] 2024 Approved Step-by-Step Full Screen Preview Tutorials</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/enhancing-data-analysis-with-chatgpt-six-innovative-approaches/"><u>Enhancing Data Analysis with ChatGPT: Six Innovative Approaches</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-tecno-pova-5-pro-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Tecno Pova 5 Pro to iPod | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lifetime-access-to-new-languages-zero-price-endless-potential/"><u>Lifetime Access to New Languages: Zero Price, Endless Potential</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-japanese-social-interactions/"><u>Navigating Japanese Social Interactions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polyglot-realm-multilingual-education-in-3d/"><u>Polyglot Realm: Multilingual Education in 3D</u></a></li>
-<li><a href="https://win11.techidaily.com/quick-start-how-to-set-up-outlook-preview-on-windows-1011/"><u>Quick Start: How to Set Up Outlook Preview on Windows 10/11</u></a></li>
-<li><a href="https://techtrends.techidaily.com/seamless-setup-integrating-a-samsung-soundbar-into-your-home-cinema-system/"><u>Seamless Setup: Integrating a Samsung Soundbar Into Your Home Cinema System</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-free-movie-magic-16-user-friendly-video-editors-to-try-for-2024/"><u>Updated Free Movie Magic 16 User-Friendly Video Editors to Try for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voices-from-the-heart-of-africa-language-diversity-unveiled/"><u>Voices From the Heart of Africa: Language Diversity Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/whispering-desires-italys-sultry-sayings/"><u>Whispering Desires: Italy's Sultry Sayings</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-securesave-professionals-assessment/"><u>[New] 2024 Approved SecureSave Professionals' Assessment</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-exploring-significance-and-usage-of-a-blue-emoji-on-messenger-for-2024/"><u>[New] Exploring Significance and Usage of a Blue Emoji on Messenger for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asian-language-phenomena-prime-rankings-unveiled/"><u>Asian Language Phenomena: Prime Rankings Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-doses-of-urdu-ten-minutes-lifelong-gain/"><u>Daily Doses of Urdu: Ten Minutes, Lifelong Gain</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-vivo-v30-lite-5g-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Vivo V30 Lite 5G in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effective-techniques-for-picking-up-a-language-online/"><u>Effective Techniques for Picking Up a Language Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-conversation-starters-from-salut-to-charm/"><u>French Conversation Starters: From 'Salut' To Charm</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Nokia C02? | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-resolve-sea-of-thieves-stability-issues-a-comprehensive-guide/"><u>How to Resolve Sea of Thieves Stability Issues - A Comprehensive Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-fashion-memes-for-social-sharing-via-adobe/"><u>In 2024, Fashion Memes for Social Sharing via Adobe</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-tranquil-twilight-tales-in-video-form/"><u>In 2024, Tranquil Twilight Tales in Video Form</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/invitations-francaises-au-gre-de-merci/"><u>Invitations Françaises Au Gré De 'Merci'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581006400-language-barriers-break-for-a-minimal-0-today/"><u>Language Barriers Break for a Minimal $0 Today!</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/lenovo-releases-innovative-2-in-1-convertible-device-combining-windows-pc-and-android-tablet-functionality/"><u>Lenovo Releases Innovative 2-in-1 Convertible Device Combining Windows PC & Android Tablet Functionality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/olympian-odes-tracing-the-evolution-of-greek/"><u>Olympian Odes: Tracing the Evolution of Greek</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tank-om-sverige-grev-for-sverige/"><u>Tänk Om Sverige: Grev För Sverige</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-seven-pitfalls-why-generative-ai-may-not-suit-your-messenger-application/"><u>The Seven Pitfalls: Why Generative AI May Not Suit Your Messenger Application</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tips-and-tricks-to-tell-if-your-iphone-7-is-unlocked-by-drfone-ios/"><u>Tips And Tricks To Tell if Your iPhone 7 Is Unlocked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-elite-examination-and-certification-prep/"><u>Unlock Your Potential: Elite Examination and Certification Prep</u></a></li>
 </ul></div>
 

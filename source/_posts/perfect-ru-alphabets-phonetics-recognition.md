@@ -1,7 +1,7 @@
 ---
 title: Perfect RU Alphabets' Phonetics Recognition
-date: 2024-11-02T21:02:59.025Z
-updated: 2024-11-05T05:02:36.702Z
+date: 2024-11-14T00:23:31.674Z
+updated: 2024-11-14T17:02:27.563Z
 tags:
   - speak
   - english
@@ -28,13 +28,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
  Russian has been greatly influenced by Old Church Slavonic and – since the westernizing policies of Tsar Peter I the Great in the 18 century – by the [languages of western Europe](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Then, the 19th-century poet Aleksandr Pushkin determined the further development of the [Russian language we know](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today. His writings, in which he combined the colloquial and Church Slavonic styles, were decisive in establishing the best style for literary use.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### The Cyrillic script
 
 [The Cyrillic script](https://en.wikipedia.org/wiki/Cyrillic%5Fscript) is the national script in various Slavic-, Turkic- and Iranic-speaking countries in Eastern Europe, the Caucasus, Central Asia, and Northern Asia.
@@ -55,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
  If we were to compare the Russian alphabet to the English alphabet, we would have four groups of letters: letters that look and sound (almost) the same as in English, letters that sound the same but look different, letters that look the same but sound different and letters that have no English equivalent whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Russian letters that are (almost) the same as in English
 
 * **А а** sounds like “a” in “father” or “after”,
@@ -63,6 +63,13 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **М м** sounds like “m” in “mother” or “mobile”,
 * **О о** sounds like “o” in “bore” or “more” (without the ‘r’ sound),
 * **Т т** sounds like “t” in “top” or “task”.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Russian letters that sound the same as in English (but look different)
 
@@ -84,10 +91,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **Я я** sounds like “yu” in yummy or “ya” in “yard”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Russian letters that look the same as in English (but sound different)
@@ -101,13 +108,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **Ч ч** sounds like “ch” in “chat” or “church“,
 * **Х х** sounds like “ch” in “loch”,
 * **Ы ы** sounds like “i” in “ill” but with a “rounder” pronunciation (said with your tongue slightly back in your mouth).
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Russian letter with no English equivalent
 
@@ -143,10 +143,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Study Russian in just 10 minutes a day
@@ -174,24 +174,16 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-the-elite-list-of-win11s-screen-recording-apps-for-2024/"><u>[New] The Elite List of Win11's Screen Recording Apps for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unboxing-opportunities-the-marketing-planning-journey/"><u>[Updated] 2024 Approved Unboxing Opportunities The Marketing Planning Journey</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/a-guide-vivo-y78t-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Vivo Y78t Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/complete-guide-solve-windows-network-problem-0x80e704cf-fixed/"><u>Complete Guide: Solve Windows Network Problem - 0X80e704CF Fixed</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/decoding-chatgpt-4s-dilatory-nature-vs-35-speed/"><u>Decoding ChatGPT-4's Dilatory Nature Vs. 3.5 Speed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/identifying-the-more-beneficial-european-language-german-vs-french/"><u>Identifying The More Beneficial European Language: German vs French</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-pro-with-imei-code-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 13 Pro with IMEI Code?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-impress-with-your-visuals-mastering-podcast-identity/"><u>In 2024, Impress with Your Visuals Mastering Podcast Identity</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-fundamentals-of-vimeo-video-logging/"><u>In 2024, The Fundamentals of Vimeo Video Logging</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-acquisition-quest/"><u>Language Acquisition Quest</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lifelong-language-acquisition-late-bloomers-triumph/"><u>Lifelong Language Acquisition: Late Bloomers Triumph</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/major-focus-most-popular-foreign-languages-us/"><u>Major Focus: Most Popular Foreign Languages U.S</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/navigate-the-internet-effortlessly-using-searchgpt-the-advanced-chatgpt-enhanced-search-engine/"><u>Navigate the Internet Effortlessly Using SearchGPT - The Advanced, ChatGPT-Enhanced Search Engine</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-articulation-guide-french-vibrance/"><u>Quick Articulation Guide: French Vibrance</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-talk-alert-could-facebook-sell-off-giphy-assets/"><u>Tech Talk Alert: Could Facebook Sell Off Giphy Assets?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-rogues-repertoire-diving-into-sea-slang-lexicon/"><u>The Rogue's Repertoire: Diving Into Sea Slang Lexicon</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transcending-borders-through-africas-languages/"><u>Transcending Borders Through Africa’s Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/trick-or-treating-through-global-lenses/"><u>Trick-or-Treating Through Global Lenses</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/kalwn-morfwn-eygnwmwn-gia-ta-eyxes-gkreman/"><u>Καλών Μορφών Ευγνώμων Για Τα Ευχές Γκρεμάν</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-aim-for-perfection-selecting-superior-hd-live-streaming-equipment/"><u>[New] 2024 Approved Aim for Perfection Selecting Superior HD Live-Streaming Equipment</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-12-unparalleled-youtube-gamers-intros-revealed-free-or-fee/"><u>[New] In 2024, 12 Unparalleled YouTube Gamers' Intros Revealed Free or Fee?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-professional-tips-for-perfecting-your-srt-files/"><u>[Updated] Professional Tips for Perfecting Your SRT Files</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1-boost-your-productivity-with-macos-spotlight-shortcuts-expert-tips-and-tricks/"><u>1. Boost Your Productivity with macOS Spotlight Shortcuts - Expert Tips & Tricks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/auditory-agility-tackling-tricky-words-and-their-pronunciation/"><u>Auditory Agility: Tackling Tricky Words and Their Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-bridges-with-global-cultures-why-learn-languages-at-50plus/"><u>Building Bridges with Global Cultures: Why Learn Languages at 50+</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubre-el-lenguaje-semanal-en-espana/"><u>Descubre El Lenguaje Semanal en España</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/enhancing-pc-specs-for-optimal-intell-driver-use/"><u>Enhancing PC Specs for Optimal Intell Driver Use</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-securing-gaming-triumphs-record-save-and-archive-ps4-games/"><u>In 2024, Securing Gaming Triumphs Record, Save & Archive PS4 Games</u></a></li>
+<li><a href="https://fox-links.techidaily.com/palette-prestige-highlighting-10-free-mac-compatible-art-tools-for-2024/"><u>Palette Prestige Highlighting 10 Free, Mac-Compatible Art Tools for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580845727-the-ultimate-guide-to-learning-croatian-top-7-reasons-explored/"><u>The Ultimate Guide to Learning Croatian – Top 7 Reasons Explored!</u></a></li>
 </ul></div>
 

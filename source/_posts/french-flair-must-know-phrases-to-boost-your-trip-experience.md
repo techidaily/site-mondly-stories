@@ -1,7 +1,7 @@
 ---
 title: "French Flair: Must-Know Phrases to Boost Your Trip Experience"
-date: 2024-07-29T06:51:33.363Z
-updated: 2024-07-30T06:51:33.363Z
+date: 2024-11-07T21:30:02.774Z
+updated: 2024-11-15T12:31:07.373Z
 tags:
   - speak
   - english
@@ -37,9 +37,6 @@ thumbnail: https://thmb.techidaily.com/dce6bc9a112b3f049356452f785b8eb72027385ba
 
 **P.S.:** Listen to “La vie en rose” in the background while reading this article. The mood can’t get more French than that.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 1\. Bonjour and other basic French words you’ll need to say hello
 
  When talking about**French travel phrases** , greetings should be no. 1 on your list of priorities. Foreigners regard your attempt to speak their language as a sign of respect towards their culture. Apply this unspoken rule everywhere you go in the world and many doors shall joyously open in your path.
@@ -74,8 +71,12 @@ thumbnail: https://thmb.techidaily.com/dce6bc9a112b3f049356452f785b8eb72027385ba
 * Have a good day. –_Bonne journée._
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 2\. Useful French expressions for when you are at the airport
 
  Arriving at the airport – both at the beginning and at the end of your journey – will also require some French phrases. Whether you are making small talk with the person sitting next to you in the airplane, passport verification or asking for directions, these**essential French travel phrases** will definitely have your back in any situation.
@@ -85,10 +86,14 @@ thumbnail: https://thmb.techidaily.com/dce6bc9a112b3f049356452f785b8eb72027385ba
 * We are traveling together. –_Nous voyageons ensemble._
 * I’m traveling with a child. –_Je voyage avec un enfant._
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![french travel vocabulary](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-travel-vocabulary-scaled-960x540.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 4")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  ©Bambi Corro
 
@@ -98,6 +103,19 @@ thumbnail: https://thmb.techidaily.com/dce6bc9a112b3f049356452f785b8eb72027385ba
 * We need help boarding the plane. –_Nous avons besoin d’aide pour embarquer dans l’avion._
 * Is this seat taken? –_Est-ce que cette place est libre?_
 * I would like to change my seat. –_J’aimerais changer de place._
+
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Basic French for travelers who need help
 
@@ -129,9 +147,6 @@ thumbnail: https://thmb.techidaily.com/dce6bc9a112b3f049356452f785b8eb72027385ba
 * Please wait a moment. –_Attendez un moment, s’il vous plaît._
 * I’ll be back immediately. –_Je reviens tout de suite._
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. French for tourists who need a place to spend the night
 
  Staying in an Airbnb apartment or at a hotel requires some human interaction as well. The hotel staff is required to know English, but if you rent an apartment via Airbnb, there’s a big chance to bump into locals that don’t speak English at all. It’s simply better to be safe than sorry.
@@ -142,9 +157,6 @@ thumbnail: https://thmb.techidaily.com/dce6bc9a112b3f049356452f785b8eb72027385ba
 * Do you have a firmer mattress? –_Est-ce que vous avez un matelas plus ferme?_
 * When is check-out time? –_A quelle heure doit-on libérer la chambre?_
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![basic french sentences](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-sentences-scaled-960x641.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 6")
 
  Paris by night by ©Jez Timms
@@ -187,8 +199,12 @@ thumbnail: https://thmb.techidaily.com/dce6bc9a112b3f049356452f785b8eb72027385ba
 * What would you like for breakfast? –_Que désirez-vous pour le petit déjeuner?_
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 6\. Common French phrases for tourists who want to have fun
 
  Probably the most important phrases – for some of us – are those related to fun. Going out might tell you a lot about the country you are visiting. Are people drunk, friendly and talkative even at 2 or 3 a.m.? Is the city center empty at 11 o’clock? Never miss a chance to explore a city and know its people. Sleep is for the weak! Having fun is for travelers!
@@ -222,13 +238,17 @@ thumbnail: https://thmb.techidaily.com/dce6bc9a112b3f049356452f785b8eb72027385ba
 * What would you like? –_Que désirez-vous?_
 * Can I have some ice cream? –_Je peux avoir une glace?_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 8\. French love quotes and expressions for French love stories
 
  A short love story or an unexpected marriage proposal is every girl’s secret dream when traveling to France. Boys, don’t tie your shoelaces in Paris! You’ve been warned!
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![basic french travel phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-travel-phrases-scaled-640x960.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 9")
 
  ©Gijs Coolen
@@ -244,9 +264,6 @@ thumbnail: https://thmb.techidaily.com/dce6bc9a112b3f049356452f785b8eb72027385ba
 * You are very beautiful. –_Tu es très belle._
 * You are very handsome. –_Tu es très beau._
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![french love quotes](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-love-quotes-683x1024.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 10")
 
  “Love” by ©Cedric Klei
@@ -282,8 +299,6 @@ thumbnail: https://thmb.techidaily.com/dce6bc9a112b3f049356452f785b8eb72027385ba
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -291,4 +306,23 @@ thumbnail: https://thmb.techidaily.com/dce6bc9a112b3f049356452f785b8eb72027385ba
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-be-a-reddit-pro-the-13-best-ways-to-make-cash-fast-and-easy/"><u>[New] Be a Reddit Pro The 13 Best Ways to Make Cash Fast & Easy</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-perfect-picture-pro-the-best-phones-for-uncompromised-4k-video-quality/"><u>[New] Perfect Picture Pro The Best Phones for Uncompromised 4K Video Quality</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-10-tips-for-mastering-magix-video-pro-x/"><u>[Updated] Top 10 Tips for Mastering Magix Video Pro X</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-newbies-guide-to-understanding-core-filming-techniques/"><u>2024 Approved The Newbie's Guide to Understanding Core Filming Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-a-agradecernos-con-nombres-animales-hispanos/"><u>Aprende a Agradecernos Con Nombres Animales Hispanos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivate-conversation-community-in-virtual-spanish-experience/"><u>Cultivate Conversation, Community in Virtual Spanish Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decade-in-review-mondlybacks-button-evolution/"><u>Decade in Review: MondlyBack's Button Evolution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/down-under-dialect-decoded-top-100-australian-phrases/"><u>Down Under Dialect Decoded: Top 100 Australian Phrases</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/exploring-the-world-of-montage-image-magic/"><u>Exploring the World of Montage Image Magic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grammatical-rigor-boon-or-bane-for-languages/"><u>Grammatical Rigor: Boon or Bane for Languages?</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-vivo-y17s-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Vivo Y17s Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lay-the-groundwork-for-fluent-french-pronunciation/"><u>Lay the Groundwork for Fluent French Pronunciation</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-the-art-of-screenshotting-your-desktop-views/"><u>Mastering the Art of Screenshotting Your Desktop Views</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-honor-magic-v2-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Honor Magic V2</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/ultimate-step-by-step-instructions-for-screenshots-on-iphone-se-latest-versions-ios-141312-compatible/"><u>Ultimate Step-by-Step Instructions for Screenshots on iPhone SE (Latest Versions) - iOS 14/13/12 Compatible</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vibrant-approach-to-studying-latin/"><u>Vibrant Approach to Studying Latin</u></a></li>
+</ul></div>
 

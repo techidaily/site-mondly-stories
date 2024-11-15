@@ -1,7 +1,7 @@
 ---
 title: The Eloquent Enthusiast's Handbook to French Greeting Expressions
-date: 2024-10-28T17:08:19.245Z
-updated: 2024-11-04T21:46:48.686Z
+date: 2024-11-13T03:14:16.402Z
+updated: 2024-11-15T06:35:22.215Z
 tags:
   - speak
   - english
@@ -57,10 +57,10 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  “French fashion” by Charles 🇵🇭©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Hello? –_Allô?_
@@ -73,6 +73,13 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Looking for a polite way to get someone’s attention in French? Maybe there’s someone blocking your way in the store or maybe you want to get noticed by the office clerk. In these situations, a classic greeting would be a bit redundant. So instead you could use this “question-like”_Excusez-moi?_ that has a double meaning and works as both a greeting and a way to get someone’s attention.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 8\. “How are you” in French –_Comment ça va?_
 
  Almost equally as notorious as_Bonjour_ ,_Comment ça va?_ can be used the same way we use the English “how are you?”: directly on its own or together with another greeting. For example, you can simply say_Comment ça va?_ (“How are you?) or_Bonjour! Comment ça va?_ (”Hello! How are you?“).
@@ -80,13 +87,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  If someone says_Comment ça va?_ to you, you can respond with_Ça va bien, merci!_ (“I’m good, thanks!”),_Ça va bien. Et toi?_ (“I’m good. And you?”) or_Pas mal_ (“Not bad”).
 
  Or you can play it simple, follow the lead of the French speakers and answer directly with_Et toi?_ (“And you?”) since the_Ça va bien_ (“I’m good”) answer is usually implied.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 9\. What’s up? –_Ça va?_
 
@@ -99,10 +99,10 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 11\. The cute Bonjour:_Coucou!_
@@ -114,20 +114,13 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 ![bonjour](https://edge.mondly.com/blog/wp-content/uploads/2019/11/bonjour-scaled-960x641.jpg "How To Say Hello In French: 12 Useful French Greetings 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 12\. How’s it going? –_Ça roule?_
 
@@ -137,6 +130,13 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Here’s how to learn French in just 10 minutes a day
 
@@ -167,17 +167,20 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-srt-to-sub-pivotal-approaches-for-content-transformation/"><u>[New] 2024 Approved SRT to SUB Pivotal Approaches for Content Transformation</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-navigating-to-platforms-for-youtube-influencer-partnerships/"><u>[New] Navigating to Platforms for YouTube Influencer Partnerships</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/google-and-mondly-team-up-for-your-linguistic-endeavors/"><u>Google and Mondly Team Up for Your Linguistic Endeavors</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-realme-11-promirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Realme 11 ProMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-lock-apps-on-nubia-z50s-pro-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Nubia Z50S Pro to Protect Your Individual Information</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-tecno-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Tecno Phones</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latin-american-versus-old-world-portuguese-buttons/"><u>Latin American Versus Old World Portuguese Buttons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfezionamento-dei-numeri-italiani-1-mille-e-oltre/"><u>Perfezionamento Dei Numeri Italiani: 1 - Mille E Oltre</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/quick-fix-how-to-get-your-sandisk-solid-state-drive-up-and-running/"><u>Quick Fix: How to Get Your SanDisk Solid State Drive Up and Running</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/russian-cyrillic-sounds-a-practical-guide/"><u>Russian Cyrillic Sounds: A Practical Guide</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-mystery-of-off-facebook-activity-what-to-know-and-do-for-2024/"><u>The Mystery of Off-Facebook Activity What to Know & Do for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-multilingual-magic-of-saint-nick/"><u>Unveiling The Multilingual Magic of Saint Nick</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-the-gopro-hero-series-comparison/"><u>[New] In 2024, The GoPro Hero Series Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-lifelong-benefits-of-multilingual-mastery/"><u>5 Lifelong Benefits of Multilingual Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieve-urdu-fluency-with-minimal-time/"><u>Achieve Urdu Fluency with Minimal Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-language-ability-with-dark-and-german/"><u>Boost Your Language Ability with 'Dark' And German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bulbarian-basics-learn-in-snappy-sessions/"><u>Bulbarian Basics: Learn in Snappy Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/delightful-dialogue-love-linguistics/"><u>Delightful Dialogue: Love Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-french-authenticity-with-27-essential-expressions/"><u>Embrace French Authenticity with 27 Essential Expressions</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722974743520-install-the-latest-epson-wf-2630-drivers-on-your-pc-running-windows-7-8-or-10-heres-how/"><u>Install the Latest Epson WF-2630 Drivers on Your PC Running Windows 7, 8, or 10 - Here's How</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/1726028805113-mp4/"><u>MP4ビデオの水平反転手順と無料ツール</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/panasonic-re-enters-american-market-with-triad-of-innovative-4k-televisions-reviving-iconic-brand/"><u>Panasonic Re-Enters American Market With Triad of Innovative 4K Televisions, Reviving Iconic Brand</u></a></li>
+<li><a href="https://blog-min.techidaily.com/position-the-double-slits-between-the-laser-and-the-screen-ensuring-that-they-are-perpendicular-to-the-path-of-the-laser-beam-the-distance-from-the-laser-so116/"><u>Position the Double Slits Between the Laser and the Screen, Ensuring that They Are Perpendicular to the Path of the Laser Beam. The Distance From the Laser Source to the Double Slits Should Be Adjustable for Different Fringe Spacing Experiments Later On.</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-and-secure-geforce-gtx-460-drivers-downloading-guide-for-windows-users/"><u>Quick and Secure GeForce GTX 460 Drivers Downloading Guide for Windows Users</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-list-of-podcast-interview-questions-to-hook-up-listeners/"><u>Updated List Of Podcast Interview Questions To Hook Up Listeners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578445356-virtual-lingo-mondlys-breakthrough-ar-language-app/"><u>Virtual Lingo: Mondly's Breakthrough AR Language App</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-postpones-default-e2e-encryption-till-2023-explained/"><u>Why Meta Postpones Default E2E Encryption Till 2023 Explained</u></a></li>
 </ul></div>
 

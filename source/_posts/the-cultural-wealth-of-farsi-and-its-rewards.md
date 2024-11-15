@@ -1,7 +1,7 @@
 ---
 title: The Cultural Wealth of Farsi & Its Rewards
-date: 2024-10-28T19:57:11.908Z
-updated: 2024-11-05T07:22:12.008Z
+date: 2024-11-09T21:49:44.262Z
+updated: 2024-11-15T07:39:24.724Z
 tags:
   - speak
   - english
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  In other words, the confusion arises from the fact that there’s currently no country on Earth named Persia in the same way there’s no language we can call the ‘Iranian language’. Persian does belong to the Iranian languages, but the Iranian languages are a branch of the Indo-Iranian languages in the Indo-European language family. So they are not an individual language.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Persian language – history and facts
 
  One of the most fascinating things about Persian is its long history stretching back thousands of years. The Persian language that exists today is a continuation of Middle Persian, itself a continuation of Old Persian, which was used in the Achaemenid Empire between 550 and 330 BCE. Let’s look a little bit at the history of the Persian language and discover what makes it special.
@@ -35,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  The oldest known records of**Old Persian** are some inscriptions dating back to the time of King Darius I (522–486 BC). These inscriptions are written in the Babylonian cuneiform script, which is one of the oldest writing forms in the world.
 
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The Arab rule
 
@@ -45,22 +59,15 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 !["Ferdowsi Shahnameh" by McGill Library©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/mcgill-library-AH42Li7NKUc-unsplash-960x629.jpg "Persian Language: History &Amp; Benefits Of Learning Farsi/Persian 2")
 
 <!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
 
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Persian influence on other languages
 
@@ -77,13 +84,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  Over the course of history, the word ‘Farsi’ developed from the terms the natives used to refer to Old Persian, Middle Persian, and New Persian, which are_Parsa, Parsik_ or_Parsig_ and_Fars_ , respectively.
 
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Persian vs Arabic: Is Persian similar to Arabic?
 
@@ -118,10 +118,10 @@ Other benefits of learning Persian include:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Learn Persian online with Mondly
@@ -155,19 +155,19 @@ Other benefits of learning Persian include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-inspiring-ideas-gratis-graphics-for-your-channel/"><u>[New] Inspiring Ideas Gratis Graphics for Your Channel</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-testimonial-videos-the-social-proof-powerhouse-for-2024/"><u>[Updated] Testimonial Videos The Social Proof Powerhouse for 2024</u></a></li>
-<li><a href="https://win-tips.techidaily.com/7-tecnicas-eficaces-para-reparacion-y-reset-de-windows-update-en-sistemas-operativos-modernos/"><u>7 Técnicas Eficaces Para Reparación Y Reset De Windows Update en Sistemas Operativos Modernos</u></a></li>
-<li><a href="https://techidaily.com/how-to-erase-apple-iphone-13-data-permanently-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase Apple iPhone 13 Data Permanently | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Google Pixel 7a | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-xiaomi-civi-3-disney-100th-anniversary-edition-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Xiaomi Civi 3 Disney 100th Anniversary Edition Pattern Lock Screen</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-quick-thumbs-up-creating-your-own-google-image-mosaic/"><u>In 2024, Quick Thumbs Up Creating Your Own Google Image Mosaic</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-diversity-as-a-relationship-booster/"><u>Linguistic Diversity as a Relationship Booster</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-global-reach-touches-70-million-lifelong-learners/"><u>Mondly's Global Reach Touches 70 Million Lifelong Learners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/presenting-mondlys-advanced-interactive-qanda-features/"><u>Presenting Mondly’s Advanced Interactive Q&A Features</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/simplify-your-inbox-the-simple-method-to-eliminate-mess-without-extra-accounts-or-complicated-guidelines-tech-news/"><u>Simplify Your Inbox: The Simple Method to Eliminate Mess Without Extra Accounts or Complicated Guidelines | Tech News</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/small-scale-streaming-mastery-on-youtube-without-big-subscriber-base-for-2024/"><u>Small-Scale Streaming Mastery on YouTube Without Big Subscriber Base for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sprachreichtum-uber-10-grelle-in-deutsch-verbreitete-ausdrucke/"><u>Sprachreichtum: Über 10 Grelle in Deutsch Verbreitete Ausdrücke</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/wanderlust-words-must-know-expressions-for-french-journeys/"><u>Wanderlust Words: Must-Know Expressions for French Journeys</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-immediate-methods-for-facebook-photomontage/"><u>[New] Immediate Methods for Facebook Photomontage</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-regain-control-recovering-after-a-facebook-breach/"><u>[New] Regain Control Recovering After a Facebook Breach</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-anime-for-your-lifes-highlights-todays-most-captivating-streaming-channels-2023-new/"><u>2024 Approved Anime for Your Life’s Highlights Today's Most Captivating Streaming Channels [2023 New]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-exciting-reasons-to-learn-arabic/"><u>6 Exciting Reasons to Learn Arabic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-fluency-tackling-the-worlds-difficult-linguistics/"><u>Beyond Fluency: Tackling the World’s Difficult Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalan-in-flashes-mastering-each-day/"><u>Catalan in Flashes: Mastering Each Day</u></a></li>
+<li><a href="https://win-best.techidaily.com/efficiently-clean-your-ssd-with-asus-secure-erase-best-practices-and-solutions-compared/"><u>Efficiently Clean Your SSD with Asus Secure Erase - Best Practices & Solutions Compared</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-polyglotism-easiest-worlds-languages-ranking/"><u>Effortless Polyglotism: Easiest World's Languages Ranking</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mastery-over-motion-manipulating-mp4-playback-rate-for-2024/"><u>Mastery Over Motion Manipulating MP4 Playback Rate for 2024</u></a></li>
+<li><a href="https://win-special.techidaily.com/microsofts-daunting-challenge-the-urgent-need-to-fix-windows-11-within-a-year-insights-from-zdnet/"><u>Microsoft's Daunting Challenge: The Urgent Need to Fix Windows 11 Within a Year - Insights From ZDNet</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/quick-and-simple-linksys-wusb6300-driver-download-process-explained/"><u>Quick & Simple Linksys WUSB6300 Driver Download Process Explained</u></a></li>
+<li><a href="https://windows11.techidaily.com/relax-high-contrast-aesthetics-in-window-os/"><u>Relax High Contrast Aesthetics in Window OS</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-top-9-premium-portable-microphones-for-podcasters/"><u>Updated In 2024, Top 9 Premium Portable Microphones for Podcasters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580737207-vr-babel-fish-transform-flingish-to-fluency/"><u>VR Babel Fish: Transform Flingish to Fluency</u></a></li>
 </ul></div>
 

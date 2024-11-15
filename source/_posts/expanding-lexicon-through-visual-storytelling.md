@@ -1,7 +1,7 @@
 ---
 title: Expanding Lexicon Through Visual Storytelling
-date: 2024-07-29T06:51:31.624Z
-updated: 2024-07-30T06:51:31.624Z
+date: 2024-11-14T11:09:19.650Z
+updated: 2024-11-14T19:57:44.494Z
 tags:
   - speak
   - english
@@ -18,8 +18,6 @@ thumbnail: https://thmb.techidaily.com/e3cf30b4720656ba32f87d0a36d739d3e594003c9
 
  Language learning through TV shows and films sounds like a scenario straight out of science fiction, doesn’t it? Yet, it’s not. You might be thinking, “Why should I even bother googling this? It can’t be true.” But here you are. To save you some time: yes, you can learn languages from TV. Context plays a vital role in comprehension and retention when it comes to language learning, and what textbook can provide a more immersive visual context than “The Lord of the Rings” or “Game of Thrones”? Probably none.
 
-
-
  I grew up in Eastern Europe in the ‘90s and learned most of my English by watching cartoons and later movies. If only learning French later in school had been as easy! Luckily, the movie industry isn’t going anywhere, and I can catch up on my French by watching “Lupin” on Netflix._Oui, monsieur!_
 
  But what about you? What language do you want to learn? Spanish or maybe Korean? By the way, do you know what these two languages have in common? Two very popular Netflix series that feature characters wearing [red coveralls](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . I’ll let you guess the answer.
@@ -30,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/e3cf30b4720656ba32f87d0a36d739d3e594003c9
 
  Learning a language by watching TV shows and films works for two main reasons: visual context and addictiveness. There may be many more reasons behind this, but these two are the most important ones. Let’s see why.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### Context is king
 
  First of all, as already mentioned, context plays a vital role in comprehension and retention. With movies and TV shows, you don’t only get general context but also visual and auditory context. Examples can include facial expressions, body language, and paralinguistic sounds such as gasps, moans, and sighs, forming a multisensory guide to understanding. Not to mention the fact that you can see how certain vocabulary might be used in different situations.
@@ -44,9 +38,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  For example, watching South American or Spanish soap operas is a great way to learn Spanish. Although they tend to be a bit overly dramatic, this will actually boost the learning process. It’s the out-of-the-ordinary that we tend to remember. The stuff people actually say outside the classroom.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Binge-watching is study time
 
  There’s no denying that watching TV series and movies is addictive. While inch-thick textbooks can become dull after a while, a TV series you like will keep you glued to the screen until the end. That’s why it’s called binge-watching.
@@ -56,8 +47,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  The effectiveness of TV and film in language learning is in its power to help you learn new vocabulary naturally. You watch, you learn. The only condition is to pay extra attention.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to learn languages from TV shows and movies
 
  It’s possible to learn languages through movies and TV shows. But don’t imagine you’ll wake up one day knowing French after watching a couple of [French movies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -72,14 +67,28 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * **Choose your favorite TV series or film:** This is by far my favorite tip. Let’s say you want to learn Italian. Once you know the basics, my personal recommendation would be to watch your favorite TV series or film dubbed in Italian (if available) or with Italian subtitles. Being your favorite one, I suppose you already know what happens in it so that you won’t lose any information. It’s a win-win situation.
 * **Enjoy the process:** Avoid getting too caught up in it. Losing the joy of learning a language through movies won’t do you any good. You might actually end up disliking the activity altogether.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![learn languages from tv shows and movies](https://edge.mondly.com/blog/wp-content/uploads/2023/08/learn-languages-from-tv-shows-and-movies.jpg "Learn Languages From Tv Shows And Movies 4")
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Tips for improving pronunciation through movie dialogues
 
  Learning a language by watching TV will not only teach you the real language, it will also help you learn what’s the proper intonation and articulation for it. So here’s how to make the most of it:
@@ -91,9 +100,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The bottom line is: imitate the characters as much as you can. After all, it should be a fun activity to do, right?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ## The influence of film and TV on language and culture understanding
 
  Another great thing about learning a language from TV series and films is being able to experience cultural understanding and immersion. As you probably already know, knowing the language is not enough. You also have to understand the culture and even history around it.
@@ -101,6 +107,13 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  The accessibility of foreign films and TV shows allows viewers to travel through the screen to far-off lands and times. This experience enables a deeper comprehension of the cultural subtleties that may not be captured in textbooks or traditional language classes. For many language learners, this adds an exciting dimension to their educational experience. Take, for example, the movie [“Seven Samurai”](https://www.imdb.com/title/tt0047478/) , which presents a fascinating image of 1586 Japan.
 
  Of course, if you want to learn about the current situation, you’ll have to watch movies and TV shows set in the present day. A good example of modern-day Japan is the highly acclaimed movie “Drive My Car” (2021).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Explore cultural and language diversity through movies
 
@@ -147,9 +160,12 @@ Grab the popcorn and hit play.
  Yes, subtitles can be a useful tool, especially for beginners or intermediate learners. They can aid in understanding and allow learners to see how words are spelled and used in context.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How effective is language learning through TV and film?
 
  Language learning through TV and film can be an effective learning method. It helps in immersion, understanding cultural nuances, and learning conversational speech. However, it’s often best combined with other learning tool for a better and faster result.
@@ -163,9 +179,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Where to go from here: Mondly
 
  While TV shows and movies are a great way to make language learning entertaining, they may not be enough. If you’re ready to dive in deeper, get Mondly, the award-winning language learning app.
@@ -188,8 +201,6 @@ With Mondly, you will learn languages naturally using:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -197,4 +208,18 @@ With Mondly, you will learn languages naturally using:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-investing-in-the-future-learning-to-proficiently-record-skype-calls-for-2024/"><u>[New] Investing in the Future Learning to Proficiently Record Skype Calls for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-visionvoice-tips-for-perfectly-sized-insta-posts/"><u>2024 Approved VisionVoice Tips for Perfectly Sized Insta Posts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-week-in-korea-one-hangul-at-a-time/"><u>A Week in Korea, One Hangul at a Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-english-100-words-that-often-go-awry/"><u>Essential English: 100 Words That Often Go Awry</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-many-languages-does-santa-fluent-in/"><u>How Many Languages Does Santa Fluent In?</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1322231-9780804151139-laugh-i-thought-id-die-if-i-didnt/"><u>Laugh! I Thought I'd Die (If I Didn't) | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-words-new-year-save-on-linguistic-adventures-with-our-deal/"><u>New Words, New Year: Save on Linguistic Adventures with Our Deal!</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-slow-download-woes-in-battlenet-pcs/"><u>Overcoming Slow Download Woes in Battle.net PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/rift-for-reboot-the-costly-measure-to-fix-a-hacked-facebook-account/"><u>Rift for Reboot: The Costly Measure to Fix a Hacked Facebook Account</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/seamless-multitasking-with-google-duet-on-your-gmail-platform/"><u>Seamless Multitasking with Google Duet on Your Gmail Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-universal-chorus-of-commendable-educationists/"><u>The Universal Chorus of Commendable Educationists</u></a></li>
+</ul></div>
 

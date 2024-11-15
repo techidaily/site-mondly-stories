@@ -1,7 +1,7 @@
 ---
 title: Majority Language in a Nation Rooted in Hebrew
-date: 2024-10-29T18:47:13.169Z
-updated: 2024-11-04T22:35:26.379Z
+date: 2024-11-11T12:18:46.208Z
+updated: 2024-11-15T07:37:20.230Z
 tags:
   - speak
   - english
@@ -27,16 +27,10 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
  Although Hebrew can be seen and heard everywhere, Israel’s laws are officially published in Arabic and English as well. The same is true for most road signs, food labels, medicine brochures, safety regulations and messages published by the government.
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Hebrew
@@ -46,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
  What’s fascinating about [Hebrew](https://books.google.ro/books?id=EZCgpaTgLm0C&pg=PA1&redir%5Fesc=y#v=onepage&q&f=false) is that it ceased to be an everyday spoken language somewhere between the 2nd and 4th century CE. During the medieval period it survived only as a sacred language of Jewish liturgy and rabbinic literature. But then, toward the end of the 19th century and into the 20th century, with the rise of Zionism, it was revived as a spoken and literary language. Its renaissance is considered by many a linguistic miracle.
 
  Modern Hebrew is what you’ll hear on [the streets of Israel](https://link.springer.com/referenceworkentry/10.1007%2F978-3-030-02438-3%5F125) (and what you can [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5614&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he) ) and premodern Hebrew is now used only for prayer or study in Jewish communities.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Arabic
 
@@ -57,19 +58,6 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  “Dome of the Rock, Jerusalem, Israel” by Stacey Franco©
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Russian
 
  When you asked yourself “what language is spoken in Israel?”, probably Russian wasn’t your first choice. However, over one million [Russian-speaking Israelis](https://en.wikipedia.org/wiki/Languages%5Fof%5FIsrael) make Russian the most widely spoken non-official language in the State of Israel. Following a mass Jewish immigration from the USSR in the 1970s and later, Israel became home to many Soviet Jews who fled Russia to escape anti-Semitic discrimination.
@@ -79,10 +67,10 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 So, as you can see, Russian is surprisingly widespread in Israel.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Other languages
@@ -105,10 +93,10 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Speak Hebrew or Arabic fluently in just 10 minutes a day
@@ -136,21 +124,24 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-analyzing-the-best-for-gaming-screens/"><u>[New] 2024 Approved Analyzing the Best for Gaming Screens</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-safaris-picture-in-picture-feature-usage-guide/"><u>[New] Safari's Picture-in-Picture Feature Usage Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-ideal-changing-voices-for-online-influencers/"><u>[Updated] 2024 Approved Ideal Changing Voices for Online Influencers</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/comprehensive-screencast-insights-for-creators/"><u>Comprehensive Screencast Insights for Creators</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/how-automatic-high-dynamic-range-enhances-image-quality/"><u>How Automatic High Dynamic Range Enhances Image Quality</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Motorola Moto G13? | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-master-list-of-youtube-templates-for-beginners/"><u>In 2024, Master List of YouTube Templates for Beginners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/israelian-itinerary-essentials-top-7-insights-and-language-basics/"><u>Israelian Itinerary Essentials: Top 7 Insights and Language Basics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-introduces-cutting-edge-language-compendium/"><u>Mondly Introduces Cutting-Edge Language Compendium</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlyar-language-learning-takes-a-leap-into-vr/"><u>MondlyAR - Language Learning Takes a Leap Into VR!</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95812999-9781944529284-psychic-research-and-modern-physics/"><u>Psychic Research and Modern Physics | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapid-learning-chromatic-french-speech/"><u>Rapid Learning: Chromatic French Speech</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/scopri-il-metodo-per-aggiungere-testo-in-sintesi-ai-tuoi-filmati-mp4/"><u>Scopri Il Metodo Per Aggiungere Testo in Sintesi Ai Tuoi Filmati MP4</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-with-grace-japenese-introduction-phrases/"><u>Speak With Grace: Japenese Introduction Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-path-to-bilingualism-duration-and-determinants/"><u>The Path to Bilingualism: Duration and Determinants</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-worldwide-words-whispered-by-st-nick/"><u>The Worldwide Words Whispered by St. Nick</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-apex-screen-capture-tools-the-elite-line-up-for-2024/"><u>[Updated] Apex Screen Capture Tools The Elite Line-Up for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-simplify-crafting-effective-youtube-subscription-buttons/"><u>[Updated] In 2024, Simplify Crafting Effective YouTube Subscription Buttons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-and-mondly-a-dynamic-duo-on-worlds-educational-pedestal/"><u>Apple & Mondly: A Dynamic Duo on World’s Educational Pedestal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asian-talking-points-ranks-and-last-access-feature/"><u>Asian Talking Points: Ranks & Last Access Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brain-gym-for-the-golden-years-top-4-reasons-to-master-languages-at-40plus/"><u>Brain Gym for the Golden Years: Top 4 Reasons to Master Languages at 40+</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breakdown-most-efficient-online-methods-to-learn-languages/"><u>Breakdown: Most Efficient Online Methods to Learn Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captains-cantations-understanding-piratical-speech-patterns/"><u>Captain’s Cantations: Understanding Piratical Speech Patterns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-connection-started-with-these-italian-greets/"><u>Cultural Connection Started with These Italian Greets</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/designing-intriguing-instagram-post-thumbnails/"><u>Designing Intriguing Instagram Post Thumbnails</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-ukrainian-learning-the-ten-minute-strategy-87-chars/"><u>Efficient Ukrainian Learning: The Ten-Minute Strategy (87 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-pronunciation-with-dynamic-tongue-twisters/"><u>Elevate Your Pronunciation with Dynamic Tongue Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578963934-explore-the-world-of-hindi-mondlys-top-8-secrets/"><u>Explore the World of Hindi - Mondly's Top 8 Secrets</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/how-to-select-the-right-tablet-a-focus-on-size-and-weight-factors/"><u>How to Select the Right Tablet: A Focus on Size and Weight Factors</u></a></li>
+<li><a href="https://extra-support.techidaily.com/methods-for-subtle-volume-reduction-in-fl-studio-for-2024/"><u>Methods for Subtle Volume Reduction in FL Studio for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ready-for-an-audio-revolution-compare-the-new-features-of-apples-airpods-pro-and-max-in-light-of-the-anticipated-airpods-ve-tech-analysis/"><u>Ready for an Audio Revolution? Compare the New Features of Apple's AirPods Pro and Max in Light of the Anticipated AirPods Ve | Tech Analysis</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/sauvegardes-incrementielles-sous-windows-quelle-economie-en-termes-de-temps-et-despace/"><u>Sauvegardes Incrémentielles Sous Windows : Quelle Économie en Termes De Temps Et D'Espace !</u></a></li>
+<li><a href="https://win11.techidaily.com/steps-to-eradicate-error-80080300-in-windows-team-collaboration/"><u>Steps to Eradicate Error 80080300 in Windows Team Collaboration</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-solving-the-mystery-of-a-missing-avcodecdll-file/"><u>Ultimate Guide: Solving the Mystery of a Missing avcodec.dll File</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-apple-iphone-se-2020-fixed-drfone-by-drfone-virtual-ios/"><u>Why is iPogo not working On Apple iPhone SE (2020)? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

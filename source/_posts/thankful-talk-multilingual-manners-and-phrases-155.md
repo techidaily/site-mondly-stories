@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2024-10-31T20:42:41.704Z
-updated: 2024-11-04T17:12:35.773Z
+date: 2024-11-08T23:28:06.056Z
+updated: 2024-11-15T06:23:16.051Z
 tags:
   - speak
   - english
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +89,10 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,24 +125,19 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-crafting-dynamic-fb-video-covers-a-step-by-step-guide-for-2024/"><u>[Updated] Crafting Dynamic FB Video Covers A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-bridging-the-gap-between-simple-to-high-tech-hdr-techniques/"><u>2024 Approved Bridging the Gap Between Simple to High-Tech HDR Techniques</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-capturewiz-windows-10s-snapshot-hero/"><u>2024 Approved CaptureWiz Windows 10'S Snapshot Hero</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-smooth-cinematography-ideal-stabilizer-tools-for-vloggers/"><u>2024 Approved Smooth Cinematography Ideal Stabilizer Tools for Vloggers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-standardized-youtube-images-made-accessible-3-easy-ways-to-download/"><u>2024 Approved Standardized YouTube Images Made Accessible 3 Easy Ways to Download</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/comprehending-the-basics-of-whatsapp-calls-for-2024/"><u>Comprehending the Basics of WhatsApp Calls for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/creating-a-windows-11-wi-fi-hotspot-a-step-by-step-guide/"><u>Creating a Windows 11 Wi-Fi Hotspot: A Step-by-Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/getting-acquainted-with-german-pronunciation-basics/"><u>Getting Acquainted with German Pronunciation Basics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/grammars-influence-on-ease-of-learning-new-languages/"><u>Grammar's Influence on Ease of Learning New Languages</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-bypass-apple-iphone-15-pro-max-passcode-easily-video-inside-drfone-by-drfone-ios/"><u>In 2024, How to Bypass Apple iPhone 15 Pro Max Passcode Easily Video Inside | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-lineage-deciphering-spanish-and-portuguese-roots/"><u>Language Lineage: Deciphering Spanish and Portuguese Roots</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/luscious-language-lessons-italian-cupids-tactics/"><u>Luscious Language Lessons: Italian Cupid’s Tactics</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-best-4k-proxy-video-editors-top-picks-for-smooth-editing-for-2024/"><u>New Best 4K Proxy Video Editors Top Picks for Smooth Editing for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seamless-sojourns-the-most-important-93-spanish-phrases-for-travelers/"><u>Seamless Sojourns: The Most Important 93 Spanish Phrases for Travelers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-10-best-foreign-films-to-watch-this-holiday-season-to-improve-your-language-skills/"><u>The 10 Best Foreign Films to Watch This Holiday Season to Improve Your Language Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-language-of-respectfulness-perfecting-excusez-moi-in-french/"><u>The Language of Respectfulness: Perfecting 'Excusez-Moi' In French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-new-language-explorers-guide-to-german-phonemes-and-glyphs/"><u>The New Language Explorer's Guide to German Phonemes & Glyphs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-unparalleled-ease-of-kids-learning-languages/"><u>The Unparalleled Ease of Kids Learning Languages</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/top-applications-17-photo-editors-for-boundary-removal/"><u>Top Applications 17 Photo Editors for Boundary Removal</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagram-engagement-strategies-with-these-powerful-25-hashtags/"><u>[Updated] In 2024, Instagram Engagement Strategies with These Powerful 25 Hashtags</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-insta-flip-techniques-rotate-videos-for-max-impact/"><u>2024 Approved Insta-Flip Techniques Rotate Videos for Max Impact</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-masterclass-guide-15-tripods-perfect-for-gopro/"><u>2024 Approved Masterclass Guide 15 Tripods Perfect for GoPro</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unlocking-the-art-of-iphone-podcast-downloads-with-ease/"><u>2024 Approved Unlocking the Art of iPhone Podcast Downloads with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprender-y-leer-la-hora-el-primer-paso-en-espanol/"><u>Comprender Y Leer La Hora: El Primer Paso en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-the-heart-of-uk-vernacular/"><u>Discovering the Heart of UK Vernacular</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578993417-dive-into-a-new-culture-mastering-croatian-here-are-the-top-7-reasons/"><u>Dive Into a New Culture - Mastering Croatian: Here Are The Top 7 Reasons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-haste-make-fluent-urdu-within-minutes/"><u>Embrace Haste: Make Fluent Urdu Within Minutes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-oneplus-nord-ce-3-5g-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring OnePlus Nord CE 3 5G to PC? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-from-the-iphone-12-pro-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock From the iPhone 12 Pro Without Previous Owner?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576640752-learn-slovak-swiftly-with-our-quick-10-minute-online-methods/"><u>Learn Slovak Swiftly with Our Quick 10-Minute Online Methods</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-ai-defense-nightshade-for-authentic-art-preservation/"><u>Mastering AI Defense: Nightshade for Authentic Art Preservation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580674820-mondly-merges-with-pearson-academics-inc/"><u>Mondly Merges with Pearson Academics Inc.</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/step-by-step-approach-to-crafting-3d-text-in-photoshop-for-2024/"><u>Step-by-Step Approach to Crafting 3D Text in Photoshop for 2024</u></a></li>
 </ul></div>
 

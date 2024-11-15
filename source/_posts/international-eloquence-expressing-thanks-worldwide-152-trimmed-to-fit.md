@@ -1,7 +1,7 @@
 ---
 title: "International Eloquence: Expressing Thanks Worldwide (152) [Trimmed to Fit]"
-date: 2024-11-02T01:40:30.997Z
-updated: 2024-11-05T01:38:50.083Z
+date: 2024-11-13T01:35:40.432Z
+updated: 2024-11-15T11:54:19.859Z
 tags:
   - speak
   - english
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +89,10 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,16 +125,22 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-disable-youtubes-automatic-video-playback-trigger-for-2024/"><u>[New] Disable YouTube's Automatic Video Playback Trigger for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/levate-your-brand-with-ai-enhanced-naming-solutions/"><u>[New] Elevate Your Brand with AI-Enhanced Naming Solutions</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/extract-srt-from-zip-simple-subtitle-file-creation-tips/"><u>Extract SRT From ZIP Simple Subtitle File Creation Tips</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-xiaomi-13-ultra-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Xiaomi 13 Ultra? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Nokia 150 (2023) | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-commencing-your-google-meet-experience/"><u>In 2024, Commencing Your Google Meet Experience</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-journey-to-digital-mastery-explore-best-10-android-drawing-apps/"><u>In 2024, Journey to Digital Mastery Explore Best 10 Android Drawing Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/passionate-phrases-the-heart-of-french-charm/"><u>Passionate Phrases: The Heart of French Charm</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/symphonic-syntax-rhythmic-techniques-for-language-acquisition/"><u>Symphonic Syntax: Rhythmic Techniques for Language Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-art-of-appreciation-multilingual-thank-you-expressions-156/"><u>The Art of Appreciation: Multilingual Thank You Expressions (156)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-your-minds-capabilities-with-7-reasons-to-study-afrikaans-on-mondly/"><u>Unlock Your Mind's Capabilities with 7 Reasons to Study Afrikaans on Mondly</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-insiders-look-at-facebook-sharing-for-youtube-creators/"><u>[New] In 2024, The Insider's Look at Facebook Sharing for YouTube Creators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/60-pistas-para-saberlos-nombre-de-animales-en-espanol/"><u>60 Pistas Para Saberlos: Nombre De Animales en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/african-languages-unleashed-a-cultural-expedition/"><u>African Languages Unleashed: A Cultural Expedition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basic-russian-expressions-boosting-travel-confidence/"><u>Basic Russian Expressions Boosting Travel Confidence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-practices-in-linguistics-top-5-teaching-technologies/"><u>Best Practices in Linguistics: Top 5 Teaching Technologies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brief-but-effective-guide-to-japanese-numerals/"><u>Brief but Effective Guide to Japanese Numerals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-border-favorite-the-days-apple-app/"><u>Cross-Border Favorite: The Day's Apple App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empowerment-through-the-lens-of-honterus/"><u>Empowerment Through the Lens of Honterus</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/inside-openais-incentive-system-for-cybersecurity-testing-a-step-by-step-participant-guide/"><u>Inside OpenAI’s Incentive System for Cybersecurity Testing: A Step-by-Step Participant Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580763861-is-german-hard-to-study/"><u>Is German Hard To Study?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-tutorial-on-active-involvement-in-x-twitter-conversations/"><u>Step-by-Step Tutorial on Active Involvement in X Twitter Conversations</u></a></li>
+<li><a href="https://win-top.techidaily.com/the-choreography-of-search-engines-expert-insights-into-optimizing-for-google-your-comprehensive-seo-toolkit/"><u>The Choreography of Search Engines: Expert Insights Into Optimizing for Google | Your Comprehensive SEO Toolkit</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1127011-9781612831305-the-little-book-of-true-ghost-stories/"><u>The Little Book of True Ghost Stories | Free Book</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-10-free-mp4-video-editors-compatible-with-windows-macos-and-linux/"><u>Top 10 Free MP4 Video Editors Compatible with Windows, macOS & Linux</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/transforming-ideas-to-visuals-chatgpt-in-ai-artistry/"><u>Transforming Ideas to Visuals: ChatGPT in AI Artistry</u></a></li>
 </ul></div>
 

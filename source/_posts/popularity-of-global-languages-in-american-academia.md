@@ -1,7 +1,7 @@
 ---
 title: Popularity of Global Languages in American Academia
-date: 2024-10-30T05:28:06.640Z
-updated: 2024-11-04T20:17:13.954Z
+date: 2024-11-10T08:26:50.336Z
+updated: 2024-11-15T04:09:29.195Z
 tags:
   - speak
   - english
@@ -30,22 +30,15 @@ thumbnail: https://thmb.techidaily.com/9f78d218ca56a8e977ac9c156c6d3df029b653f49
 
  As the official language of 21 nations, it would be a great idea for a traveler to [start learning Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  as soon as possible. Since we’re on the topic of learning on the internet, you must also know that Spanish is the third most utilized language online, after English and Chinese. English speakers usually pick Spanish as their secondary language because it’s easy to learn – with only approximately 600 hours of study time required. Want to sound like a fluent speaker? Here are [17 Spanish sayings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that will help you achieve that!
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. French
 
 ![eiffel tower paris](https://edge.mondly.com/blog/wp-content/uploads/2021/12/eiffel-tower-paris-960x640.jpg "Which Are The Most Studied Foreign Languages In America? 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Paris, Eiffel Tower” by Eugene Dorosh©
@@ -55,16 +48,10 @@ thumbnail: https://thmb.techidaily.com/9f78d218ca56a8e977ac9c156c6d3df029b653f49
  Back home, French is mainly spoken in Louisiana and Maine, which has to do with the history of the states. If you thought about Cajuns, you’re on the right track! Americans usually prefer to learn French in order to increase employment opportunities and enjoy the rich culture and traditions. Cajun seasoning may have something to do with their decision, but we’re not sure. If you struggle with pronunciation, we can help you with this [quick guide](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) !
 
 <!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. German
@@ -83,6 +70,13 @@ thumbnail: https://thmb.techidaily.com/9f78d218ca56a8e977ac9c156c6d3df029b653f49
 
 ![italian car](https://edge.mondly.com/blog/wp-content/uploads/2021/12/italian-car-960x644.jpg "Which Are The Most Studied Foreign Languages In America? 5")
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  “Fiat” by Jonathan Bean©
 
  Again, not really a shocker since there are large communities of Italians scattered in the US, most notably in San Francisco and Boston. American gangster movies are famous for their portrayal of Italian-Americans and Italian-American culture is basically a staple of American life. Not to mention the fact that many Americans are direct descendants of Italian immigrants, so they [learn Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to communicate with nonna.
@@ -97,10 +91,10 @@ thumbnail: https://thmb.techidaily.com/9f78d218ca56a8e977ac9c156c6d3df029b653f49
  If any of these languages piqued your interest, you should start using Mondly on your computer for free, or better yet, download the app and start learning on the go ![Learn with Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-6310&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6310%26utm%5Fsource%3Dblog-post-id-6310&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6310%26utm%5Fsource%3Dblog-post-id-6310&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-6310%26utm%5Fsource%3Dblog-post-id-6310&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-6310%26mt%3D8 "Learn with Mondly")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -118,18 +112,22 @@ thumbnail: https://thmb.techidaily.com/9f78d218ca56a8e977ac9c156c6d3df029b653f49
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-top-ranked-hd-screen-capturing-tools/"><u>[New] 2024 Approved Top-Ranked HD Screen Capturing Tools</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-ultimate-sea-snag-footage-top-5-picks/"><u>[New] 2024 Approved Ultimate Sea Snag Footage - Top 5 Picks</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-basic-steps-flip-video-using-vlc-software/"><u>[Updated] Basic Steps Flip Video Using VLC Software</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-y55s-5g-2023-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo Y55s 5G (2023) to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-samsung-galaxy-s23-tactical-edition-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Samsung Galaxy S23 Tactical Edition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-education-summit-at-mansion-house-2022/"><u>International Education Summit at Mansion House 2022</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/isolate-subject-a-step-by-step-guide-to-clear-borders-for-2024/"><u>Isolate Subject – A Step-by-Step Guide to Clear Borders for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/le-calendrier-francais-la-semaine-mentale/"><u>Le Calendrier Français: La Semaine Mentale</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-bonds-in-romance-culture/"><u>Linguistic Bonds in Romance Culture</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-the-local-tongue-27-key-french-phrases/"><u>Master the Local Tongue: 27 Key French Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-speech-top-100-english-tongue-twisters/"><u>Mastering Speech: Top 100 English Tongue Twisters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-3-language-revolutionizing-mobile-applications-announced/"><u>Top 3 Language Revolutionizing Mobile Applications Announced</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/top-rated-streaming-platforms-for-free-movie-downloads-and-viewing/"><u>Top-Rated Streaming Platforms for Free Movie Downloads & Viewing</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-the-ultimate-checklist-for-twitter-video-posts/"><u>[New] 2024 Approved The Ultimate Checklist for Twitter Video Posts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rime-selection-of-websites-for-youtube-video-intro-download/"><u>[New] Prime Selection of Websites for YouTube Video Intro Download</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-stand-out-strategies-a-step-by-step-guide-to-reddit-success/"><u>2024 Approved Stand Out Strategies A Step-By-Step Guide to Reddit Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-thrilling-benefits-learning-hindi-online-via-mondly/"><u>7 Thrilling Benefits: Learning Hindi Online via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beacon-of-inspiration-johannes-honterus/"><u>A Beacon of Inspiration: Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-boost-mastering-in-ten-minutes/"><u>Bangla Boost: Mastering in Ten Minutes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chord-powered-communication-science-backed-music-learning-techniques/"><u>Chord-Powered Communication: Science Backed Music Learning Techniques</u></a></li>
+<li><a href="https://win-docs.techidaily.com/complete-guide-restoring-deleted-data-from-an-external-hdd-on-windows-11-and-macos/"><u>Complete Guide: Restoring Deleted Data From an External HDD on Windows 11 and macOS</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-a-scintillating-trailer-tale/"><u>Crafting A Scintillating Trailer Tale</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crafting-connections-romantic-german-pick-up-lines/"><u>Crafting Connections: Romantic German Pick Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-global-understanding-pathways-to-successful-communication/"><u>Cultivating Global Understanding: Pathways to Successful Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultures-spooky-holiday-rituals/"><u>Cultures' Spooky Holiday Rituals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsche-grussformeln-fur-die-abreise/"><u>Deutsche Grußformeln Für Die Abreise</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/generative-ai-tool-or-trap-for-disinformation/"><u>Generative AI: Tool or Trap for Disinformation?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-frame-finesse-selecting-superior-video-cams-for-slow-motion/"><u>In 2024, Frame Finesse Selecting Superior Video Cams for Slow Motion</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/losung-fur-stehende-systemwiederherstellungsfunktion-bei-windows-10-wahrend-der-initialisierungs-oder-datentragerwiederherstellungsphase/"><u>Lösung Für Stehende Systemwiederherstellungsfunktion Bei Windows 10 Während Der Initialisierungs- Oder Datenträgerwiederherstellungsphase</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/professional-editors-guide-fcps-top-10-plugins-for-2024/"><u>Professional Editor’s Guide FCP's Top 10 Plugins for 2024</u></a></li>
 </ul></div>
 

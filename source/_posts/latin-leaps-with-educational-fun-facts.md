@@ -1,7 +1,7 @@
 ---
 title: Latin Leaps with Educational Fun Facts
-date: 2024-10-31T18:33:13.649Z
-updated: 2024-11-05T08:10:47.507Z
+date: 2024-11-08T07:46:07.348Z
+updated: 2024-11-15T14:16:48.951Z
 tags:
   - speak
   - english
@@ -37,16 +37,10 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 Here’s how.
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Veni, vidi, vici
@@ -70,10 +64,10 @@ Here’s how.
  Latin made fun with language learning app Mondly
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## _Carpe diem_ and learn Latin the fun way
@@ -87,16 +81,10 @@ Here’s how.
 ![carpe diem latin](https://edge.mondly.com/blog/wp-content/uploads/2020/09/carpe-diem-latin-960x641.jpg "Back To School: Latin Made Fun And Easy For Students Of All Ages 4")
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Carpe diem” by Mr Autthaporn Pradidpong©
@@ -111,10 +99,16 @@ Here’s how.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Speak Latin fluently in just 10 minutes a day
@@ -142,20 +136,24 @@ Here’s how.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-maximizing-video-quality-in-zoom-conferences/"><u>[New] Maximizing Video Quality in Zoom Conferences</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unlocking-youtube-lives-thumbnail-code/"><u>[Updated] 2024 Approved Unlocking YouTube Live's Thumbnail Code</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-enhancing-gaming-experience-minecraft-recordings-made-easy-for-2024/"><u>[Updated] Enhancing Gaming Experience Minecraft Recordings Made Easy for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/uyarlanan-ses-olmadi-ekran-kaydini-duzenlemeye-kadar-onemli-movavi/"><u>[Uyarlanan Ses Olmadı! Ekran Kaydını Düzenlemeye Kadar Önemli] – Movavi</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/getting-past-the-stuck-screen-in-football-manager-2021-solutions-and-tips/"><u>Getting Past the Stuck Screen in Football Manager 2021: Solutions & Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/google-play-honors-mondly-kids-for-ease-of-use/"><u>Google Play Honors Mondly Kids for Ease of Use</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-leap-forward-mondlys-free-course-initiative-transforms-ukraine/"><u>Language Leap Forward – Mondly's Free Course Initiative Transforms Ukraine</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/1721266294107-maximize-conversions-using-cookiebot-technology-a-game-changer/"><u>Maximize Conversions Using Cookiebot Technology – A Game Changer!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/native-tongue-learn-romanian-app-style/"><u>Native Tongue: Learn Romanian App Style</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1726030431747-pc-iphone-and-android/"><u>PC, iPhone & Androidで効果的に動画騒音を低減するテクニック</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seamlessly-speak-spanish-17-versatile-colloquialisms/"><u>Seamlessly Speak Spanish: 17 Versatile Colloquialisms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/svensk-geni-ditt-avstand-till-sverige/"><u>Svensk Geni: Ditt Avstånd Till Sverige</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-jolly-rogers-verbal-arsenal/"><u>The Jolly Roger's Verbal Arsenal</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-power-of-english-contractions-a-practical-manual/"><u>Unlocking the Power of English Contractions: A Practical Manual</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-how-android-flips-video-frames-for-the-ages-for-2024/"><u>[New] How Android Flips Video Frames for the Ages for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-chroma-shift-4k-vistas-unveiled-by-blade-technology/"><u>[New] The Chroma Shift 4K Vistas Unveiled by Blade Technology</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-audfreetechunveiled-detailed-look-at-the-new-audio-tool/"><u>[Updated] In 2024, AudFreeTechUnveiled Detailed Look at the New Audio Tool</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mastering-engagement-your-essential-list-of-15-opener-templates/"><u>[Updated] Mastering Engagement Your Essential List of 15 Opener Templates</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-oppo-a78-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Oppo A78 Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-shortcuts-to-success-how-to-skip-edgenuity-online-lessons-gracefully/"><u>2024 Approved Shortcuts to Success How to Skip Edgenuity Online Lessons Gracefully</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-nokia-c22-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/authentic-reviews-the-mac-customer-voice/"><u>Authentic Reviews: The Mac Customer Voice</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/diy-tips-enhancing-snapchat-photos-with-custom-audio-tracks/"><u>DIY Tips: Enhancing Snapchat Photos with Custom Audio Tracks</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/enrich-iphone-imagery-top-paid-and-free-camera-app-list/"><u>Enrich iPhone Imagery Top Paid & Free Camera App List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580797196-europes-vibrant-verbal-tapestry-celebrate-it-today/"><u>Europe's Vibrant Verbal Tapestry – Celebrate It Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-friendship-starters/"><u>International Friendship Starters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lundi-au-vendredi-francais/"><u>Lundi Au Vendredi Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-chat-essential-17-spontaneous-spanish-phrases/"><u>Master Chat: Essential 17 Spontaneous Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mundo-semanal-en-espanol-no-olvides-desde-martes-hasta-domingo/"><u>Mundo Semanal en Español: No Olvides Desde Martes Hasta Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/palabras-comunes-en-ingles-y-espanol-cognados-realizadores/"><u>Palabras Comunes en Inglés Y Español: Cognados Realizadores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/picks-of-the-best-danish-features-for-lingo-proficiency/"><u>Picks of the Best Danish Features for Lingo Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-language-skills-7-reasons-for-afrikaans-on-mondly/"><u>Revolutionize Language Skills: 7 Reasons for Afrikaans on Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-brain-benefits-of-learning-a-foreign-language/"><u>The Brain Benefits Of Learning A Foreign Language</u></a></li>
 </ul></div>
 

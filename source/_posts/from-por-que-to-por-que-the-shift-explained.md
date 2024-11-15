@@ -1,7 +1,7 @@
 ---
 title: "From 'Por Que' To 'Por Qué': The Shift Explained"
-date: 2024-07-29T06:51:46.735Z
-updated: 2024-07-30T06:51:46.735Z
+date: 2024-11-11T08:02:20.547Z
+updated: 2024-11-14T21:02:46.105Z
 tags:
   - speak
   - english
@@ -22,9 +22,6 @@ thumbnail: https://thmb.techidaily.com/122fad585a96b844750a62c04c4dce3455583d7df
 
  If you are an English speaker, you know that’s not new. We also have our struggles with “your” and “you’re”, “whose” and “who’s”, “these” and “this”. Even if you know English to perfection, sometimes your brain just goes blank and you don’t know what’s the correct form anymore. But the [**_porque, por que, porqué_ and_por qué_**  problem](https://www.rae.es/espanol-al-dia/porque-porque-por-que-por-que-0) seems even more complicated than that. So read on to discover rules, eloquent examples in Spanish and the correct**Spanish pronunciation** for each situation.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## 1\. Por qué – how to ask**“** why?” in Spanish
 
  Let’s start with the two most common _porques:**por qué**_   **and_porque_ – “why?” and “because”** – the question and the answer.
@@ -42,16 +39,17 @@ thumbnail: https://thmb.techidaily.com/122fad585a96b844750a62c04c4dce3455583d7df
 * _No sé**por qué** rechazaste la oferta._ – “I don’t know**why** you refused the offer.”
 * _Quiero saber**por qué** está tan feliz._ – “I want to know**why** he/she is so happy.”
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![por que](https://edge.mondly.com/blog/wp-content/uploads/2019/08/por-que-scaled-960x554.jpg "Porque Vs Por Que: What'S The Difference? 2")
 
  “Let’s write” by Kelly Sikkema©
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 2\. Porque – “because” or how to give reasons in Spanish
 
  As you already know, whenever you ask “why?” in English, the other person will probably begin their answer using “because”. Well, Spanish has the same rules: whenever you ask someone**“por qué”,** they will probably begin their answer with the plain and simple**“porque”** with no spaces and no accents. Let’s see some examples:
@@ -69,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/122fad585a96b844750a62c04c4dce3455583d7df
  Well, this was the easy part of the great mystery behind **p_orque_ vs_por que_ .** Lucky for those of us who want to**learn Spanish,** the simplest_porques_ are also the most frequently used.
 
  But it’s always better to be safe and learn all the possible outcomes than learn only half of them and feel sorry afterwars. So let’s move on to the more problematic_porques:_ **_por que_ (for which)** and **_el porqué_ (the reason)_._**
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Por que – “For which”
 
@@ -90,17 +95,17 @@ thumbnail: https://thmb.techidaily.com/122fad585a96b844750a62c04c4dce3455583d7df
 
 Well, now it’s all starting to make sense, doesn’t it?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ![learn Spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/08/porque-or-por-que-1024x682.jpg "Porque Vs Por Que: What'S The Difference? 3")
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  “Studying” by David Iskander©
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## 4\. El porqué – The reason
 
  Bare with me. This is the last**“porqué”** and the easiest**“porqué”.**
@@ -122,8 +127,18 @@ Well, now it’s all starting to make sense, doesn’t it?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### See_porque_ vs_por que_ and_porqué_ vs_por qué_ in action
 
  Do you want to**practice what you’ve learned** about the four_porques_ ? Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!
@@ -146,8 +161,6 @@ Well, now it’s all starting to make sense, doesn’t it?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -155,4 +168,18 @@ Well, now it’s all starting to make sense, doesn’t it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-display-depth-discussion-choosing-between-ultrawide-and-uhd-4k/"><u>[New] In 2024, Display Depth Discussion Choosing Between UltraWide & UHD 4K</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-solved-muted-youtube-shorts-appearance/"><u>[New] In 2024, Solved Muted YouTube Shorts Appearance</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-reducing-sound-interference-in-video-meetings-for-2024/"><u>[New] Reducing Sound Interference in Video Meetings for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-precise-preservation-how-to-capture-windows-for-2024/"><u>[Updated] Precise Preservation How to Capture Windows for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-xiaomi-redmi-note-12-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Xiaomi Redmi Note 12 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsche-wochentags-namen-erlernt/"><u>Deutsche Wochentags-Namen Erlernt</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-techniques-for-spanish-accented-typography/"><u>Efficient Techniques for Spanish Accented Typography</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-play-selects-mondlys-kids-app-as-one-of-the-best-apps-of-2017/"><u>Google Play Selects Mondly’s Kids App as One of the Best Apps of 2017</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-infinix-note-30-vip-racing-edition-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Infinix Note 30 VIP Racing Edition? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tongue-skill-boost-top-100-pronunciation-tests/"><u>Tongue Skill Boost: Top 100 Pronunciation Tests</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Starting Urdu Learning Journey with Keywords
-date: 2024-11-01T07:09:24.400Z
-updated: 2024-11-05T00:03:57.101Z
+date: 2024-11-13T13:42:28.195Z
+updated: 2024-11-15T08:27:25.145Z
 tags:
   - speak
   - english
@@ -85,13 +85,6 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * who — _کون (kon)_
 * stop — _رکو (ruko)_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The most popular Urdu words searches
 
  While we’re at it, why not also learn some of the most popular words for which people want an Urdu translation? If they are so popular in searches, I’m sure they can also be useful to you on your way to speaking Urdu.
@@ -115,16 +108,10 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * hope — _امید (umeed)_
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Urdu words related to food and drink
@@ -132,6 +119,13 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
  Did you know that the [Urdu language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) was one of the premier languages of poetry in South Asia for centuries? And rightly so. Just listen to the music of its words and you’ll understand.
 
 ![words in urdu by Sumeet B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/words-in-urdu-960x735.jpg "100+ Core Urdu Words – Learn The Most Common Words In Urdu 3")
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Meanwhile, let’s add some flavor to your Urdu vocabulary. What are the best words to learn if not the words related to food and drink?
 
@@ -159,16 +153,10 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * pepper — _مرچ (mirch)_
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Urdu words related to body and health
@@ -195,19 +183,6 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * pain — _درد (dard)_
 * medicine — _دوا (dawa)_
 * pharmacy — _دواخانہ (dawakhana)_
-
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Urdu words related to transportation and places
 
@@ -260,6 +235,13 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Learn Urdu in just 10 minutes a day
 
  Do you want to see the Urdu words in action? Get Mondly, the award-winning language learning app that will help you speak Urdu from day 1.
@@ -289,19 +271,22 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-mastering-the-art-of-twilight-portraits-for-2024/"><u>[New] Mastering the Art of Twilight Portraits for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-discovering-ffmpegs-potency-in-original-sound-format-retention-for-2024/"><u>[Updated] Discovering FFmpeg's Potency in Original Sound Format Retention for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-uncovering-key-pace-requirements-for-exceptional-slow-motion-videos/"><u>[Updated] In 2024, Uncovering Key Pace Requirements for Exceptional Slow-Motion Videos</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/5-must-know-tips-for-choosing-the-right-used-ipad-model/"><u>5 Must-Know Tips for Choosing the Right Used iPad Model</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/erfassen-sie-ihre-verlorenen-rohdaten-mit-diesen-kostenlosen-recovery-techniken-schritt-fur-schritt-leitfaden/"><u>Erfassen Sie Ihre Verlorenen Rohdaten Mit Diesen Kostenlosen Recovery-Techniken - Schritt-Für-Schritt-Leitfaden</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-quickly-can-i-become-a-conversationalist/"><u>How Quickly Can I Become a Conversationalist?</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-translate-compressed-files-into-subtitle-format-srt/"><u>In 2024, Translate Compressed Files Into Subtitle Format (SRT)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-dynamics-in-macau/"><u>Linguistic Dynamics in Macau</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/maximizing-youtube-revenue-understanding-adsense-payments-per-thousand-views/"><u>Maximizing Youtube Revenue Understanding AdSense Payments per Thousand Views</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-pathway-to-fluent-afrikaans-explained-in-7-points/"><u>Mondly's Pathway to Fluent Afrikaans Explained in 7 Points</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-japenese-warm-welcomes/"><u>Navigating Japenese Warm Welcomes</u></a></li>
-<li><a href="https://games-able.techidaily.com/preventing-xbox-controller-gaming-malfunctions/"><u>Preventing Xbox Controller Gaming Malfunctions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-necessity-of-flexible-language-learning-frameworks/"><u>The Necessity of Flexible Language Learning Frameworks</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1726227221485-rw2/"><u>오독스의 방대한 무료 RW2 전환 소스: 모바일으로 이동하는 단격에 최적화</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-probing-instagrams-max-video-length-rule/"><u>[New] Probing Instagram's Max Video Length Rule</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-pioneers-in-online-mastery-meet-up/"><u>[Updated] Pioneers in Online Mastery Meet-Up</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/101plus-powerful-phrases-for-smooth-russian-travels/"><u>101+ Powerful Phrases for Smooth Russian Travels</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/aomei-backupper-professionelle-kostenfreie-tools-fur-die-effiziente-wiederherstellung-ihrer-daten/"><u>AOMEI Backupper: Professionelle, Kostenfreie Tools Für Die Effiziente Wiederherstellung Ihrer Daten.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/auf-den-ersten-blick-1-100-in-deutscher-zahlweise/"><u>Auf Den Ersten Blick: 1-100 in Deutscher Zählweise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-language-gaps-essential-expressions-and-vocabulary-for-south-american-travelers/"><u>Bridging Language Gaps: Essential Expressions and Vocabulary for South American Travelers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comenzar-con-la-manera-correcta-de-anotar-tiempo-en-espanol/"><u>Comenzar Con La Manera Correcta De Anotar Tiempo en Espaňol</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/corporate-success-through-innovative-linguistic-applications/"><u>Corporate Success Through Innovative Linguistic Applications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-mosaic-benefits-of-embracing-multiple-languages/"><u>Cultural Mosaic: Benefits of Embracing Multiple Languages</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/discover-how-to-fine-tune-game-audio-on-ps-console/"><u>Discover How to Fine-Tune Game Audio on PS Console</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-ks-unveil-squid-games-secrets-in-hangul/"><u>Discovering KS: Unveil Squid Game's Secrets in Hangul</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empfindliche-bitte-um-verzeihung-in-deutsch/"><u>Empfindliche Bitte Um Verzeihung in Deutsch</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-dolby-premium-issue-how-to-restart-the-dolby-digital-audio-driver-on-windows-10/"><u>Fixing Dolby Premium Issue: How To Restart The Dolby Digital Audio Driver On Windows 10</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-tecno-spark-10-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-samsung-galaxy-f14-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Samsung Galaxy F14 5G to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-dub-like-a-pro-top-6-video-dubbing-apps-for-funny-videos/"><u>New In 2024, Dub Like a Pro Top 6 Video Dubbing Apps for Funny Videos</u></a></li>
+<li><a href="https://techtrends.techidaily.com/protect-your-system-with-these-15-free-pre-installed-antivirus-apps/"><u>Protect Your System with These 15 Free, Pre-Installed Antivirus Apps</u></a></li>
 </ul></div>
 

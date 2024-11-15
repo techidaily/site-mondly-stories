@@ -1,7 +1,7 @@
 ---
 title: "The Heart of Indonesia: Greetings and More"
-date: 2024-11-03T07:31:58.504Z
-updated: 2024-11-05T03:10:23.399Z
+date: 2024-11-12T20:20:54.075Z
+updated: 2024-11-15T02:38:38.076Z
 tags:
   - speak
   - english
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say ‘hello’ in Indonesian
@@ -48,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
@@ -59,6 +59,13 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
 
@@ -79,10 +86,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to say goodbye
@@ -95,13 +102,6 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Start learning Indonesian today
 
@@ -134,22 +134,24 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unlocking-multilingual-potential-in-virtual-reality/"><u>'Mondly': Unlocking Multilingual Potential in Virtual Reality</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-pro-level-streaming-tech-innovations-you-need/"><u>[New] Pro-Level Streaming Tech Innovations You Need</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-screen-partition-prowess-top-recorders-rating-for-2024/"><u>[Updated] Screen Partition Prowess Top Recorder's Rating for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/chatgpt-intelligence-in-question-openai-confirms-stability-and-improvement/"><u>ChatGPT Intelligence in Question – OpenAI Confirms Stability and Improvement</u></a></li>
-<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-samsung-galaxy-a24-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Samsung Galaxy A24 | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/free-downloads-canon-printerscanner-drivers-for-windows-instantly-accessible/"><u>Free Downloads: Canon Printer/Scanner Drivers for Windows - Instantly Accessible</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-make-a-bootable-windows-10-usb-flash-drive-for-system-restore/"><u>How to Make a Bootable Windows 10 USB Flash Drive for System Restore</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/initial-foray-into-voice-guided-ar-realm/"><u>Initial Foray Into Voice-Guided AR Realm</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-of-the-continent-africas-polyglot-essence/"><u>Language of the Continent: Africa’s Polyglot Essence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/les-jours-du-dimanche-francais/"><u>Les Jours Du Dimanche Français</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/passionate-whispers-savoring-italian-pick-up-lines/"><u>Passionate Whispers: Savoring Italian Pick-Up Lines</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tracing-the-dialectal-roots-of-dutch/"><u>Tracing the Dialectal Roots of Dutch</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-the-change-in-network-configuration-error-quickly/"><u>Troubleshooting the 'Change in Network Configuration' Error Quickly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/twofold-tongue-techniques/"><u>Twofold Tongue Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-communication-in-germany-phonetics-and-alphabet-basics/"><u>Unlocking Communication in Germany: Phonetics and Alphabet Basics</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-get-virtualdub-to-optimize-your-mpeg2-video-storage/"><u>Updated In 2024, Get VirtualDub to Optimize Your MPEG2 Video Storage</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ing-your-options-choosing-between-tiktok-and-youtube-shorts/"><u>Weighing Your Options Choosing Between TikTok and YouTube Shorts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ashtag-heroes-the-ultimate-list-for-popularizing-your-youtube-snippets/"><u>[New] Hashtag Heroes The Ultimate List for Popularizing Your YouTube Snippets</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-leading-tech-for-group-virtual-engagement-for-2024/"><u>[Updated] Leading Tech for Group Virtual Engagement for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-quick-snapback-to-loss-prevention/"><u>[Updated] Quick Snapback to Loss Prevention</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-video-mastery-without-relying-on-xsplit-for-2024/"><u>[Updated] Video Mastery Without Relying on Xsplit for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-unveiling-the-process-precision-recording-of-roblox-adventures-on-apple-devices/"><u>2024 Approved Unveiling the Process Precision Recording of Roblox Adventures on Apple Devices</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-itel-a70-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-primer-on-german-speech-sounds-for-beginners/"><u>A Primer on German Speech Sounds for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieving-proficient-ru-phonetics/"><u>Achieving Proficient RU Phonetics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boosting-bilingualism-top-3-cognitive-routines/"><u>Boosting Bilingualism: Top 3 Cognitive Routines</u></a></li>
+<li><a href="https://win-special.techidaily.com/conversione-gratuita-da-ogm-a-wmv-il-guida-completa-di-movavi-per-il-cambio-formati-video/"><u>Conversione Gratuita Da OGM a WMV: Il Guida Completa Di Movavi per Il Cambio Formati Video</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cosmic-conversations-diving-deep-into-star-wars-languages/"><u>Cosmic Conversations: Diving Deep Into Star Wars Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crescendo-of-comprehension-musical-techniques-for-learning-languages/"><u>Crescendo of Comprehension: Musical Techniques for Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialects-spoken-in-croatia/"><u>Dialects Spoken in Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dreaming-in-diversity-mondly-languages-two-year-odyssey/"><u>Dreaming in Diversity: Mondly Languages' Two-Year Odyssey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dubai-expo-2020-shaping-global-polyglots/"><u>Dubai Expo 2020: Shaping Global Polyglots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-english-for-personal-growth/"><u>Embracing English for Personal Growth</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-comprehensible-guide-to-shifting-photosvideos-in-ios-world/"><u>In 2024, Comprehensible Guide to Shifting Photos/Videos in iOS World</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/1728467699594-sd3/"><u>SDカードデータ復旧方法：王都市で最も人気の3手法</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unlock-fcp-without-paying-tips/"><u>Unlock FCP without Paying - Tips</u></a></li>
 </ul></div>
 

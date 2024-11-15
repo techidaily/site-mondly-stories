@@ -1,7 +1,7 @@
 ---
 title: Mondly's Innovative Way to Master Foreign Languages with AR
-date: 2024-11-03T20:05:10.417Z
-updated: 2024-11-04T23:30:40.198Z
+date: 2024-11-07T19:38:11.915Z
+updated: 2024-11-15T04:18:25.926Z
 tags:
   - speak
   - english
@@ -30,6 +30,19 @@ thumbnail: https://thmb.techidaily.com/06a98345ca9fe3e1a93c5ec4e7a6ce9ab8cdccc3c
 
 _ ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 2") _
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## _An out of this world encounter_
 
  _The**new augmented reality experience from Mondly** introduces us to a new character named Mondly with whom you can talk in various contexts (she can even change her outfit and become a waitress at the restaurant) and [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in the meantime. After all, we all know it is easier to learn a new language when you are being social. The rendez-vous  between me and my new virtual friend started after we scanned the room we were in using just the iPad’s camera. She immediately and seamlessly appeared in front of me. Her eyes met mine and I froze. It this even possible? That was just the beginning, but I already felt like a character in one of my favorite sci-fi shows._
@@ -37,10 +50,10 @@ _ ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/gip
 _ ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 3") _
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  _But the coolest feature is yet to come. You just have to ask her to show you an animal. “Show me a rabbit” – I said – and a virtual rabbit magically appeared on the floor. I got to tell you: I have never been so amazed when seeing a rabbit in my whole life. Besides that, I learned that “rabbit” is “conejo” in Spanish. The rabbit started jumping around and I suddenly felt that anything could happen at this point so I quickly asked her to show me another animal fearing that the rabbit could take me to Wonderland._
@@ -50,10 +63,10 @@ _ ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.
 _ ![AUGMENTED REALITY MONDLY LANGUAGES](https://media.giphy.com/media/gC1iUtDE9Tkh0wDx3O/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 4") _
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## _Building the future of learning and teaching_
@@ -65,10 +78,10 @@ _ ![AUGMENTED REALITY MONDLY LANGUAGES](https://media.giphy.com/media/gC1iUtDE9T
 _ ![AR language learning app](https://media.giphy.com/media/C9pYCWN2mjxuWD0ufF/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 5") _
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  _Now, I was indeed amazed, but there may be room for improvement. I’m sure that until the launch they will work more on the conversation topics, but when technology makes it possible I expect the character and the animals to be more realistic. I’ve seen it in games, so I’m sure that this will soon be possible in AR._
@@ -78,13 +91,6 @@ _ ![AR language learning app](https://media.giphy.com/media/C9pYCWN2mjxuWD0ufF/g
  _In the end, I am now sure that Mondly deserves a place next to the best of the best like Google and Apple. They identified the recipe for success in a simple learning problem and used advanced AR technology to give an answer. I have a feeling that more and more kids and even adults will stop chasing Pokémon. Instead, they will still play, but in a more productive way because they will also learn a new language meanwhile using Mondly AR or any other app from Mondly. That’s how you trick people into learning something useful: by luring them with something as interactive as this app._
 
 _ ![MondlyAR app](https://media.giphy.com/media/2yyH5SzNqpUzwwN3TZ/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 6") _
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  _As I left their headquarters in my 2004 Peugeot 206, I realized that these people live in the future and I am a decade behind them. Hopefully, smart use of technology like theirs will help us make our way to the future._
 
@@ -112,21 +118,16 @@ _ ![MondlyAR app](https://media.giphy.com/media/2yyH5SzNqpUzwwN3TZ/giphy.gif "Th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-selecting-the-ultimate-steadicams-for-flawless-dslr-shoots/"><u>[New] 2024 Approved Selecting the Ultimate Steadicams for Flawless DSLR Shoots</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-framefixer-analysis-all-inclusive-report/"><u>[Updated] FrameFixer Analysis – All-Inclusive Report</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-navigating-through-time-the-finest-history-youtube-sources-for-students/"><u>[Updated] In 2024, Navigating Through Time The Finest History YouTube Sources for Students</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-mastering-minecraft-survival-housing-for-2024/"><u>[Updated] Mastering Minecraft Survival Housing for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-perfecting-color-the-top-15-gopro-luts-for-filmmaking/"><u>[Updated] Perfecting Color The Top 15 GoPro LUTs for Filmmaking</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/749-deal-alert-secure-your-apple-m2-macbook-air-before-the-end-of-amazons-premier-october-sale-insider-tips-from-zdnet/"><u>$749 Deal Alert: Secure Your Apple M2 MacBook Air Before the End of Amazon's Premier October Sale - Insider Tips From ZDNet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-latvian-online-in-just-10-minutes-a-day/"><u>Learn Latvian Online in Just 10 Minutes a Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-bangla-in-just-10-mins-a-day/"><u>Master Bangla in Just 10 Mins a Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-the-premier-app-for-language-acquisition/"><u>Mondly: The Premier App for Language Acquisition</u></a></li>
-<li><a href="https://win11.techidaily.com/navigating-through-server-hiccups-repairing-ms-store-problems-in-windows-11-and-11/"><u>Navigating Through Server Hiccups: Repairing MS Store Problems in Windows 11 and 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pt-variants-analysis-brazilians-vs-europeans-button-trends/"><u>PT Variants Analysis: Brazilians vs Europeans - Button Trends</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seamless-introduction-to-lithuanian-online/"><u>Seamless Introduction to Lithuanian Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-revolutionary-ai-conversationalist-is-here/"><u>The Revolutionary AI Conversationalist Is Here</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-garmin-forerunner-265-features-benefits-and-reviews/"><u>The Ultimate Guide to the Garmin Forerunner 265: Features, Benefits & Reviews</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-motivations-for-learning-the-german-language/"><u>Top Motivations for Learning the German Language</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-free-best-top-11-animated-logo-makers-creative-logo-tips/"><u>Updated FREE Best Top 11 Animated Logo Makers Creative Logo Tips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rom-filming-to-fame-discovering-the-top-10-ladies-on-youtube/"><u>[New] From Filming to Fame Discovering the Top 10 Ladies on YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-tunetinker-tweaking-the-audio-map/"><u>2024 Approved TuneTinker Tweaking the Audio Map</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/become-an-instagram-content-wizard-with-smart-cropping-practices/"><u>Become an Instagram Content Wizard with Smart Cropping Practices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-fluent-russian-alphabet-speech/"><u>Become Fluent: Russian Alphabet Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bellas-whispers-crafting-italian-cupids-dialogue/"><u>Bella's Whispers: Crafting Italian Cupid’s Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bite-into-squid-game-korean-language-basics/"><u>Bite Into Squid Game: Korean Language Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-french-sounds-an-introduction-to-pronunciation/"><u>Dive Into French Sounds: An Introduction to Pronunciation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ipad-vs-amazon-fire-tablet-deciding-on-the-perfect-device-for-you/"><u>IPad Vs. Amazon Fire Tablet: Deciding on the Perfect Device for You</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/solutions-for-resolving-advapi32dll-file-missing-bugs/"><u>Solutions for Resolving 'Advapi32.dll File Missing' Bugs</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-silencing-sounds-five-techniques-for-deleting-audio-in-digital-footage/"><u>Updated Silencing Sounds Five Techniques for Deleting Audio in Digital Footage</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/vr-in-education-a-new-paradigm-shift/"><u>VR in Education A New Paradigm Shift</u></a></li>
 </ul></div>
 

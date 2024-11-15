@@ -1,7 +1,7 @@
 ---
 title: "Spirits and Carving: A Globe Tour of Halloween"
-date: 2024-11-01T21:32:09.827Z
-updated: 2024-11-04T17:26:51.750Z
+date: 2024-11-07T20:19:24.667Z
+updated: 2024-11-14T21:54:28.729Z
 tags:
   - speak
   - english
@@ -25,13 +25,26 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  Nevertheless, there are many countries around the world that have their own Halloween-like traditions celebrating the afterlife. For example, in some parts of the world, on All Hallows’ Eve, people visit the graveyards of their loved ones to pray and place flowers. But let’s dive in already and look at **four of the most fascinating Halloween-like traditions from different corners of the world.**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Halloween-like Traditions Worldwide
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Mexico: Día de Muertos (Day of the Dead)
 
@@ -41,16 +54,16 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Calaveras” by Valeria Almaraz©
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### China: The Hungry Ghost Festival
 
@@ -69,13 +82,6 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  _The Hungry Ghost Festival is not only celebrated in China but also in other parts of Southeast Asia, with each region having its unique customs._
 
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
 
@@ -96,10 +102,10 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 ![dracula's castle](https://edge.mondly.com/blog/wp-content/uploads/2019/09/draculas-castle-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 9")
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  “Dracula’s Castle in Romania” by Nomadic Julien©
@@ -144,24 +150,24 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-step-by-step-guide-to-saving-insta-story-content/"><u>[New] In 2024, Step-by-Step Guide to Saving Insta Story Content</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/1726030001502-windows-11pc/"><u>初めてのクリップ撮影:Windows 11で効果的なPC録画テクニック</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-t-view-hevc-h-265-content-on-galaxy-s23plus-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Can’t view HEVC H.265 content on Galaxy S23+</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/evolution-of-action-cameras-from-gopro-hero4-to-hero5-for-2024/"><u>Evolution of Action Cameras From GoPro (Hero4 to Hero5) for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-poco-f5-pro-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Poco F5 Pro 5G Phones with/without a PC</u></a></li>
-<li><a href="https://driver-download.techidaily.com/improve-video-and-photo-quality-with-the-newest-lenovo-camera-drivers-in-windows-7-environment/"><u>Improve Video and Photo Quality with the Newest Lenovo Camera Drivers in Windows 7 Environment</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-vivo-v30-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Vivo V30 Phone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/indonesian-salutations-simplified-a-beginners-companion/"><u>Indonesian Salutations Simplified: A Beginner's Companion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jornada-completa-al-cuerpo-de-la-boca-a-los-rinones-en-espanol/"><u>Jornada Completa Al Cuerpo: De La Boca A Los Riñones En Español</u></a></li>
-<li><a href="https://common-error.techidaily.com/keyboard-fixation-restored-input-functionality/"><u>Keyboard Fixation: Restored Input Functionality</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-landscapes-evolved-mondlylanguages-bold-journey/"><u>Language Landscapes Evolved: MondlyLanguages' Bold Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pronunciation-pairings-brazilian-vs-european-portuguese/"><u>Pronunciation Pairings: Brazilian Vs. European Portuguese</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-smoothly-learn-swiftly-easy-language-guidebook/"><u>Speak Smoothly, Learn Swiftly: Easy Language Guidebook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/start-with-these-top-20-francophone-novels-today/"><u>Start With These Top 20 Francophone Novels Today</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-essential-guide-for-live-facebook-streams-pcmaclaptop/"><u>The Essential Guide for Live Facebook Streams (PC/Mac/Laptop)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/transforming-video-makeup-through-color-alignment-for-2024/"><u>Transforming Video Makeup Through Color Alignment for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/trendy-5-tech-based-aids-for-language-schools/"><u>Trendy 5 Tech-Based Aids for Language Schools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-voices-resound-in-belgian-halls/"><u>What Voices Resound in Belgian Halls?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-who-are-the-major-francophones-analysis/"><u>Worldwide, Who Are The Major Francophones? Analysis</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-elevate-your-lone-broadcast-tips-from-single-source-experts/"><u>[New] 2024 Approved Elevate Your Lone Broadcast Tips From Single-Source Experts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-capture-without-capsule-the-no-limit-story-saving-app/"><u>[Updated] 2024 Approved Capture Without Capsule The No-Limit Story Saving App</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-entry-editor-for-seamless-edits-across-all-platforms/"><u>[Updated] Top Entry Editor for Seamless Edits Across All Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-dialects-turkey-and-korea/"><u>Deciphering Dialects: Turkey and Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-global-patterns-in-french-speaking-populations/"><u>Deciphering Global Patterns in French-Speaking Populations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-secrets-of-speed-in-language-acquisition/"><u>Decoding the Secrets of Speed in Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/distinctions-in-british-and-american-dialects/"><u>Distinctions in British and American Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diversity-in-dialogue-macaus-three-major-tongues/"><u>Diversity in Dialogue: Macau’s Three Major Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embark-on-a-new-language-expedition/"><u>Embark on a New Language Expedition!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580251708-embrace-hindi-learning-mondly-unveils-top-8-reasons-online/"><u>Embrace Hindi Learning: Mondly Unveils Top 8 Reasons Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580825709-enhance-communication-skills-in-hindi-discover-7-powerful-mondly-advantages/"><u>Enhance Communication Skills in Hindi - Discover 7 Powerful Mondly Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580367068-enhancing-your-life-in-hindi-mondly-highlights-8-key-benefits/"><u>Enhancing Your Life in Hindi: Mondly Highlights 8 Key Benefits!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/essential-speaker-and-microphone-drivers-for-your-pc-running-on-windows-7/"><u>Essential Speaker and Microphone Drivers for Your PC Running on Windows 7</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/guide-casting-content-from-chromecast-to-firestick-seamlessly/"><u>Guide: Casting Content From Chromecast to Firestick Seamlessly</u></a></li>
+<li><a href="https://video-capture.techidaily.com/how-to-archive-video-team-hangouts-effectively/"><u>How to Archive Video Team Hangouts Effectively</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/techniques-to-boost-periscope-live-video-speed-for-2024/"><u>Techniques to Boost Periscope Live Video Speed for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1723808088070-this-site-cant-provide-a-secure-connection-in-chrome-solved/"><u>This Site Can't Provide a Secure Connection in Chrome [Solved]</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Motorola Razr 40 Ultra? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Fundación Danny From Colombia: Providing Assistance To Those Who Need It Most"
-date: 2024-07-29T06:52:01.482Z
-updated: 2024-07-30T06:52:01.482Z
+date: 2024-11-09T13:05:42.019Z
+updated: 2024-11-15T04:04:25.591Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/5497305e7ede52ac11b29b1b9923a18c5f2da5c48
 
  **One of the causes dearest to our heart is [Fundación Danny](http://www.fundaciondanny.org/) from Colombia to whom we donated 150 Premium subscriptions in an effort to help them make language learning accessible for Colombian children.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![fundacion danny mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/fundacion-danny-mondly-600x450.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 2")
 
  Colombian children attending the Danny Foundation courses.
@@ -34,16 +30,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ## Unlocking the power of social good
 
  When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
 
  Graduation at the Danny Foundation.
@@ -62,8 +52,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Learn a new language in just 10 minutes a day
 
  If the story of the Colombian children from the Danny Foundation inspired you to invest in yourself, you can start learning a new language right now with Mondly.
@@ -82,8 +76,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -91,4 +83,24 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ecoding-the-essentials-of-your-youtube-tv-experience/"><u>[New] Decoding the Essentials of Your YouTube TV Experience</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-taringaid-profile-image-details-pixel-count-codec-time-span/"><u>[New] In 2024, TaringaID Profile Image Details Pixel Count, Codec, Time Span</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-the-most-effective-9-microphone-capture-tools-online-2e/"><u>[Updated] In 2024, The Most Effective 9 Microphone Capture Tools Online (2E)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/5-important-questions-answered-before-you-invest-in-a-fitness-tracker/"><u>5 Important Questions Answered Before You Invest in a Fitness Tracker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cut-prices-deep-lifetime-mondly-plan/"><u>Cut Prices Deep - Lifetime Mondly Plan</u></a></li>
+<li><a href="https://app-tips.techidaily.com/discover-the-ultimate-list-of-free-eq-tools-for-android-devices-top-5-selections/"><u>Discover the Ultimate List of Free EQ Tools for Android Devices - Top 5 Selections</u></a></li>
+<li><a href="https://video-capture.techidaily.com/exciting-quests-selecting-the-top-10-adventure-gaming-treasures-for-2024/"><u>Exciting Quests Selecting the Top 10 Adventure Gaming Treasures for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expand-your-mind-reasons-to-learn-later/"><u>Expand Your Mind: Reasons to Learn Later</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressoes-amigaveis-do-portugues-compreensao-absoluta/"><u>Expressões Amigáveis Do Português - Compreensão Absoluta</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/how-to-clear-print-head-conflict-on-win-1011/"><u>How To Clear Print Head Conflict on Win 10/11</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-zte-axon-40-lite-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your ZTE Axon 40 Lite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/keywords-and-phrases-to-know-in-k-squid-game/"><u>Keywords and Phrases to Know in K-Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-tongue-of-east-asia-top-budget-friendly-resources/"><u>Mastering the Tongue of East Asia: Top Budget-Friendly Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-educational-powerhouse-serving-70-million-worldwide/"><u>Mondly: The Educational Powerhouse Serving 70 Million Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/scripting-success-in-japans-linguistic-landscape/"><u>Scripting Success in Japan's Linguistic Landscape</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/ultimate-showdown-samsung-galaxy-s23-ultra-against-s21-ultra-reviewed/"><u>Ultimate Showdown: Samsung Galaxy S23 Ultra Against S21 Ultra Reviewed!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-your-culinary-creativity-essential-strategies-and-tips-from-experts/"><u>Unleash Your Culinary Creativity: Essential Strategies and Tips From Experts</u></a></li>
+</ul></div>
 
