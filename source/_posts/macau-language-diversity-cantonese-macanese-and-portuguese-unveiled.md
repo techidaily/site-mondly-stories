@@ -1,7 +1,7 @@
 ---
 title: "Macau Language Diversity: Cantonese, Macanese, And Portuguese Unveiled"
-date: 2024-11-12T22:25:55.839Z
-updated: 2024-11-15T05:23:32.327Z
+date: 2024-11-20T23:29:10.180Z
+updated: 2024-11-24T23:33:50.236Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
 
  Ready to find our more about the rich linguistic mosaic of Macau? Read on to discover the intriguing history behind this captivating blend of languages.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The History of Macau
 
  The current linguistic mosaic of Macau began taking shape almost 500 years ago. It all started in 1557, when**the Ming dynasty leased Macau to Portugal** as a trading post. Naturally, this marked the beginning of a significant Portuguese presence in Macau, introducing the Portuguese language and culture to the region.
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
  Furthermore, approximately two-thirds of the city’s land area consists of reclaimed land from the sea, making the territory highly urbanized.
 
  Despite its tumultuous history, Macau is the perfect example of a happy ending.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Multilingualism in Macau
 
@@ -51,17 +59,11 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
 ![Cantonese in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/cantonese.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 2")
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Macanese: A Distinctive Creole Language of Macau
@@ -82,13 +84,6 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
 
  The linguistic connection between Macau and Portugal also results in significant movement between the two regions. According to the [2021 Macau Census](https://www.dsec.gov.mo/Censos2021/en-US/) , individuals born in Portugal make up around 0.3% of Macau’s total population, indicating a notable presence of Portuguese-born residents in Macau.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Official Portuguese Usage in Macau
 
  Despite the relatively small number of Portuguese speakers in Macau, the local government remains committed to promoting the Portuguese language. In public schools, students are taught Chinese, English, and Portuguese, reflecting the importance of these languages in the education system. Additionally, the government offers free programs to facilitate the learning of Portuguese among the general population.
@@ -103,13 +98,6 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
 
 ![multilingualism in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/multilingualism-in-macau.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 3")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Cantonese serves as the primary medium of instruction in the majority of schools in Macau. Additionally, there are mandatory classes that focus on Mandarin, ensuring students have exposure to and proficiency in the official language of China.
 
 ## The Future of Macau’s Languages
@@ -119,6 +107,10 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
  In May 2012, the Public Administration and Civil Service Bureau of the Macau Special Administrative Region issued a circular emphasizing the equal importance of Chinese and Portuguese as the official languages of Macau. They urged public administrations to use both languages when releasing information to the public and requested that any existing information available in only one language be supplemented in the other language. Therefore, Portuguese in Macau seems to be safe for now as it is protected by law.
 
  As China’s influence continues to grow, there has also been a rise in the use of Mandarin. Still, Cantonese remains dominant. On the other hand, Macanese (Patuá), with its small number of speakers, is in danger of extinction. In order to safeguard this distinctive aspect of Macau’s cultural heritage, concerted efforts are said to be made to preserve and promote Macanese through various cultural events and initiatives.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Is English widely spoken in Macau?
 
@@ -164,18 +156,20 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-real-world-examples/"><u>[New] Real-World Examples</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-snap-into-the-loop-mastering-boomerangs-for-max-impact/"><u>[Updated] 2024 Approved Snap Into the Loop Mastering Boomerangs for Max Impact</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/adventure-with-hindi-study-8-amazing-reasons-mondly-offers/"><u>Adventure with Hindi Study - 8 Amazing Reasons Mondly Offers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/americas-favorite-non-native-tongues/"><u>America's Favorite Non-Native Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apple-hails-mondly-among-global-ed-techs-top-10/"><u>Apple Hails Mondly Among Global Ed-Tech's Top 10</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-danish-films-as-a-tool-for-fluency-development/"><u>Best Danish Films as a Tool for Fluency Development</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivating-bilingual-competence-via-esl/"><u>Cultivating Bilingual Competence via ESL</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/determining-which-new-language-fit-for-you/"><u>Determining Which New Language Fit For You?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/premier-fb-viewing-sites-ranked-1-10/"><u>Premier FB Viewing Sites Ranked #1-10</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/step-by-step-solutions-to-stop-discord-from-continuously-crashing/"><u>Step-by-Step Solutions to Stop Discord From Continuously Crashing</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/top-93-love-inspired-email-headlines-for-stellar-valentines-campaigns-using-massmail/"><u>Top 93 Love-Inspired Email Headlines for Stellar Valentine's Campaigns Using MassMail</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/unleashing-potential-with-smart-tech-powered-by-cookiebot/"><u>Unleashing Potential with Smart Tech - Powered by Cookiebot</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unleashing-the-power-of-structured-chapters-in-online-video-creation/"><u>Unleashing the Power of Structured Chapters in Online Video Creation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-a-deep-dive-into-professional-3d-lut-creation/"><u>[New] In 2024, A Deep Dive Into Professional 3D LUT Creation</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-send-gif-on-snapchat-stey-by-stey-guide-for-2024/"><u>[Updated] How to Send Gif on Snapchat [Stey-by-Stey Guide] for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-filter-application-guide-tips-and-tricks-for-2024/"><u>[Updated] Instagram Filter Application Guide - Tips & Tricks for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-art-of-film-capturing-essential-camera-movements-for-novices/"><u>[Updated] The Art of Film Capturing Essential Camera Movements for Novices</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/digital-therapeutics-and-patient-engagement/"><u>Digital Therapeutics and Patient Engagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gran-expedicion-anatomica-la-jornada-del-ser-humano-desde-la-nariz-a-los-pies/"><u>Gran Expedición Anatómica: La Jornada Del Ser Humano Desde La Nariz A Los Pies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/groundbreran-applications-transform-language-comprehension/"><u>Groundbreran Applications Transform Language Comprehension</u></a></li>
+<li><a href="https://network-issues.techidaily.com/harmonizing-nvidia-with-newest-operating-system/"><u>Harmonizing Nvidia with Newest Operating System</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-complete-guide-to-sony-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Sony FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mandarin-manners-made-simple-learn-to-thank-in-chinese/"><u>Mandarin Manners Made Simple: Learn to Thank in Chinese</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-google-plays-top-picks-the-best-android-apps-around/"><u>New In 2024, Google Plays Top Picks The Best Android Apps Around</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tank-om-sverige-valkomma/"><u>Tänk Om Sverige: Välkomma</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-explorers-voice-guide-to-vietnamese-expressions/"><u>The Explorer's Voice Guide to Vietnamese Expressions</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/uncover-hidden-details-with-our-selection-of-top-8-personal-detectives-online/"><u>Uncover Hidden Details with Our Selection of Top 8 Personal Detectives Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-korean-mastering-hangul-with-ease/"><u>Unraveling Korean: Mastering Hangul with Ease</u></a></li>
 </ul></div>
 

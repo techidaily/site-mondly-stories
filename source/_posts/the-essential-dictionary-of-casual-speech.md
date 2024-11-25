@@ -1,7 +1,7 @@
 ---
 title: The Essential Dictionary of Casual Speech
-date: 2024-11-08T18:46:32.143Z
-updated: 2024-11-15T01:21:22.623Z
+date: 2024-11-17T17:51:22.724Z
+updated: 2024-11-24T18:07:12.402Z
 tags:
   - speak
   - english
@@ -35,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
 5. [Regional variations in English slang](#regionalslang)
 6. [How to use slang words in conversation](#useslang)
 7. [How to learn English slang words](#learnslang)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **What are English slang words?**
 
@@ -87,31 +91,21 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
 
 _Dude, the party last night was lit! Where were you?_
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Extra
 
  When someone is “extra”, it means they are unnecessarily dramatic, excessive, over the top or a “drama queen”.
 
 _She invited the entire school to her birthday. She’s so extra!_
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Salty
 
  You can say someone is salty when they get upset or angry over something minor.
 
 _Nick is so salty since his parents took away his car!_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## To ghost someone
 
@@ -132,10 +126,7 @@ _– Yeah. Like weird flex but OK._
 ![flex](https://media.giphy.com/media/mEDj3oXP1t55pE0fCh/giphy-downsized-large.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 4")
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lowkey & highkey
@@ -162,27 +153,7 @@ _What happened at Jessica’s birthday party? Come on, spill the tea!_
 
 ![english slang](https://edge.mondly.com/blog/wp-content/uploads/2019/11/english-slang-1024x810.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 5")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Teenagers” by Jed Villejo©
-
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## To clap back
 
@@ -206,6 +177,10 @@ _– Ugh! I wish I was in Bora Bora right now._
 
 _– Mood!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Hangry
 
  When you are so hungry that you are angry! (probably the most relatable slang word Gen Z taught us).
@@ -218,6 +193,10 @@ Not Gonna Lie. Another way of saying “to tell you the truth”.
 
 _NGL, I’m not in the mood to go out tonight._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Slay
 
  To do something very well. To impress someone very much or to be very good or impressive.
@@ -226,6 +205,10 @@ _Pedro Pascal’s performance in The Last of Us slayed._
 
 ![pedro pascal](https://media.giphy.com/media/xa5PxUklxPjMqK81jc/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Receipts
 
 Proof or evidence of something that happened.
@@ -233,6 +216,10 @@ Proof or evidence of something that happened.
 _– How do you know Jamie is cheating on Sylvie?_
 
 _– Honey, I got all the receipts._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Sus
 
@@ -253,25 +240,16 @@ _– Non-boomer: OK boomer._
 
 _Bro, we have a moral obligation to stay woke. Inform yourself!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Savage
 
 This is used when someone is bold and doesn’t care about consequences.
 
 _– Gaby is gonna report the teacher to the principal._
 _– OMG, savage!_
-
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Stan
 
@@ -283,10 +261,7 @@ _– Whoa, don’t be such a stan._
 ![jon](https://media.giphy.com/media/3o7qE2fiT5seO2lIre/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 7")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  **Other_lit_ mentions:** _gucci_ (good, doing well, feeling fine),_TFW_ (that feeling when),_squad_ (a group of friends),_JOMO_ (Joy Of Missing Out),_fam_ (a group of friends that feels like family),_dank_ (really cool),_basic_ (interested in mainstream or very popular things),_woke_ (being aware of current events).
@@ -303,6 +278,10 @@ _– Whoa, don’t be such a stan._
 * **Spelling:** Spelling can also differ between countries. For instance, Americans spell “color” without a ‘u’, while in the UK, they use the spelling “colour”.
 * **Pronunciation:** Don’t get me started. The differences between [British English and American English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are plentiful in this sector.
 * **Culture:** For example, Australian slang is heavily influenced by surfing and beach culture, while American slang has been influenced by hip-hop and African American Vernacular English.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Examples of popular slang words in different regions**
 
@@ -380,13 +359,6 @@ _– Whoa, don’t be such a stan._
 
  Just remember: slang words can vary based on region, social group, and generation, so it’s essential to consider the context when using them.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Are you ready to_slay?_
 
 Okay, so what did we learn so far? Let’s recap:
@@ -429,17 +401,22 @@ Okay, so what did we learn so far? Let’s recap:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-vlcs-place-among-streaming-titans/"><u>[Updated] 2024 Approved VLC's Place Among Streaming Titans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/amp-up-mastering-japanese-digits-with-minutes/"><u>Amp Up: Mastering Japanese Digits with Minutes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aprendiendo-la-linea-del-tiempo-en-espanol-de-martes-al-domingo/"><u>Aprendiendo La Línea Del Tiempo en Español De Martes Al Domingo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/british-english-vs-american-english-differences-spelling-pronunciation-and-more/"><u>British English vs American English Differences: Spelling, Pronunciation and More</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/digital-pathways-to-master-a-foreign-language-today/"><u>Digital Pathways to Master a Foreign Language Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-commerce-through-powerful-language-programs/"><u>Elevate Commerce Through Powerful Language Programs</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-music-that-fuels-movement-top-rated-workout-anthems/"><u>In 2024, Music that Fuels Movement Top-Rated Workout Anthems</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-top-5-mac-videography-tools-unleashed-in-sierra-os/"><u>In 2024, Top 5 Mac Videography Tools Unleashed in Sierra OS</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-oppo-a78-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Oppo A78 IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/innovative-techniques-to-blur-faces-in-photography/"><u>Innovative Techniques to Blur Faces in Photography</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solve-your-game-starts-fixing-assassins-creed-unity-boot-problems-edition/"><u>Solve Your Game Starts: Fixing 'Assassin's Creed Unity' Boot Problems Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/what-sets-the-ipad-apart-from-the-ipad-air/"><u>What Sets the iPad Apart From the iPad Air?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-unlocking-skypes-full-capacity-with-effective-zoom-methods/"><u>[New] Unlocking Skype's Full Capacity with Effective Zoom Methods</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-universal-templates-galore-for-youtube-crafting/"><u>[Updated] Universal Templates Galore – For YouTube Crafting</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-premium-downloader-suite-for-vimeo-content/"><u>2024 Approved Premium Downloader Suite for Vimeo Content</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-prime-iphone-photography-top-app-picks-x-7/"><u>2024 Approved Prime iPhone Photography Top App Picks (X, 7)</u></a></li>
+<li><a href="https://win11.techidaily.com/excel-tips-how-to-embed-current-page-number-and-total-pages-into-document-headers/"><u>Excel Tips: How To Embed Current Page Number and Total Pages Into Document Headers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-heart-of-generative-ai/"><u>Exploring the Heart of Generative AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/know-your-japenese-salutations-for-every-scenario/"><u>Know Your Japenese Salutations for Every Scenario</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-fundamentos-del-sistema-de-colores/"><u>Los Fundamentos Del Sistema De Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-gratis-ukrainian-lessons-galore/"><u>Mondly: Gratis Ukrainian Lessons Galore</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-systems-empowering-grammar-enhancement/"><u>Premier Systems Empowering Grammar Enhancement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-thankfulness-common-chinese-phrases/"><u>The Language of Thankfulness: Common Chinese Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-new-e-learning-standard-mondlys-german-linguistic-sovereignty/"><u>The New E-Learning Standard: Mondly’s German Linguistic Sovereignty</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-pros-and-cons-of-choosing-language-bots-as-a-self-employed-professional/"><u>The Pros & Cons of Choosing Language Bots as a Self-Employed Professional</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/two-years-one-bold-dream-mondlylanguages-story/"><u>Two Years, One Bold Dream - MondlyLanguages Story</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unboxing-the-lightning-fast-netgear-nighthawk-rax120-the-fastest-routers-on-the-market-reviewed/"><u>Unboxing the Lightning-Fast Netgear Nighthawk RAX120: The Fastest Routers on the Market Reviewed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleashing-your-full-potential-in-english-via-mondly/"><u>Unleashing Your Full Potential in English via Mondly</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlocking-creative-potential-with-these-17-top-ranked-design-apps/"><u>Unlocking Creative Potential with These 17 Top-Ranked Design Apps</u></a></li>
 </ul></div>
 

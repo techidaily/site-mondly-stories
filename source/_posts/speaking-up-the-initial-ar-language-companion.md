@@ -1,7 +1,7 @@
 ---
 title: "Speaking Up: The Initial AR Language Companion"
-date: 2024-11-12T11:13:50.901Z
-updated: 2024-11-15T04:21:51.064Z
+date: 2024-11-23T18:38:42.438Z
+updated: 2024-11-24T17:59:17.986Z
 tags:
   - speak
   - english
@@ -26,11 +26,19 @@ Here’s a video showcasing Mondly AR:
 
 ##
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## We take learning out of the books and bring it to life into your living room using augmented reality
 
  The new experience we created helps you develop a strong sense of the language you want to learn through highly realistic visual lessons and purposeful conversations. This approach is aiming to stimulate you to learn languages not because you have to, but because [it’s genuinely fun.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
 
@@ -38,15 +46,16 @@ Here’s a video showcasing Mondly AR:
 
 ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -64,13 +73,6 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Facts and figures about Mondly
 
 * 30 million downloads, in over 190 countries
@@ -85,10 +87,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,24 +119,21 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-cutting-edge-recording-best-camcorders-reviewed/"><u>[New] Cutting-Edge Recording Best Camcorders Reviewed</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-mastering-tweeted-videos-on-facebooks-networks-for-2024/"><u>[New] Mastering Tweeted Videos on Facebooks Networks for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-savory-storytelling-in-video-cooking-top-7-insights-for-2024/"><u>[New] Savory Storytelling in Video Cooking - Top 7 Insights for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-new-lens-on-sonys-s6500-bdp-features/"><u>[Updated] 2024 Approved The New Lens on Sony’s S6500 BDP Features</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-create-a-sports-highlight-video/"><u>[Updated] In 2024, How to Create a Sports Highlight Video</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-transform-avi-files-into-gifs-with-filmora-on-windowsmacos/"><u>2024 Approved Transform AVI Files Into GIFs with Filmora on Windows/MacOS</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/asian-language-hierarchy-first-second-third-leaders/"><u>Asian Language Hierarchy: First, Second, Third Leaders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/awaken-your-inner-german-top-25-idioms-to-perfect-your-speech/"><u>Awaken Your Inner German - Top 25 Idioms to Perfect Your Speech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/become-fluent-faster-with-mondly/"><u>Become Fluent Faster with Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/contare-in-italiano-pianificazione-di-un-percorso-educativo/"><u>Contare in Italiano: Pianificazione Di Un Percorso Educativo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dialogue-diversification-turko-korean-nexus/"><u>Dialogue Diversification: Turko-Korean Nexus</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixes-for-google-chrome-will-not-open-error-a-complete-guide/"><u>Fixes for 'Google Chrome Will Not Open' Error – A Complete Guide</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-tailoring-your-footage-a-comprehensive-guide-to-gopros-color-adjustment/"><u>In 2024, Tailoring Your Footage A Comprehensive Guide to GoPro's Color Adjustment</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-samsung-galaxy-s23plus-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Samsung Galaxy S23+</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lyric-infused-education-science-backed-language-acquisition/"><u>Lyric-Infused Education: Science-Backed Language Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-italy-in-fluency-the-travelers-phrasebook/"><u>Navigating Italy in Fluency: The Traveler's Phrasebook</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-d3dx934dll-file-absence-a-comprehensive-guide/"><u>Resolving d3dx9_34.dll File Absence - A Comprehensive Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unique-uses-in-us-uk-english/"><u>Unique Uses in US-UK English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-harmony-a-linguistic-springtime-greeting/"><u>Worldwide Harmony: A Linguistic Springtime Greeting</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-from-concept-to-completion-utilizing-luts-effectively-in-premiere-pro/"><u>[Updated] In 2024, From Concept to Completion Utilizing LUTs Effectively in Premiere Pro</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-art-of-instagram-video-bordering/"><u>[Updated] Mastering the Art of Instagram Video Bordering</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-secrets-of-the-top-social-media-videos-for-2024/"><u>[Updated] Secrets of the Top Social Media Videos for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-the-ultimate-guide-to-non-vimeo-editing-software/"><u>2024 Approved The Ultimate Guide to Non-Vimeo Editing Software</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-honor-play-8t-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Honor Play 8T?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/1716465703098-from-buffer-to-broadcast-learn-how-to-convert-your-youtube-viewing-into-a-screenshot-for-free/"><u>From Buffer to Broadcast Learn How to Convert Your YouTube Viewing Into a Screenshot for Free.</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-lava-storm-5g-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Lava Storm 5G</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-at-unbelievable-prices-on-black-friday/"><u>Language Learning at Unbelievable Prices on Black Friday</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-the-world-better-with-multiple-languages/"><u>Navigate the World Better With Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-sea-slang-the-ultimate-pirate-lexicon/"><u>Navigating Sea Slang: The Ultimate Pirate Lexicon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/por-que-and-por-que-understanding-the-contrast/"><u>Por Qué and Por Que: Understanding the Contrast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-thank-you-in-chinese-xiexie-and-other-common-phrases/"><u>Saying Thank You In Chinese: Xièxiè And Other Common Phrases</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-unlock-new-pathways-in-the-mind/"><u>Words Unlock New Pathways in the Mind</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/yarrr-phrases-for-true-buccaneers/"><u>Yarrr! Phrases for True Buccaneers</u></a></li>
 </ul></div>
 

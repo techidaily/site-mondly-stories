@@ -1,7 +1,7 @@
 ---
 title: Japanese Dialogues for First Impressions
-date: 2024-11-11T16:41:28.915Z
-updated: 2024-11-14T19:20:12.094Z
+date: 2024-11-22T16:51:10.742Z
+updated: 2024-11-24T19:58:44.120Z
 tags:
   - speak
   - english
@@ -45,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/a297ffbc354d264eb1493e128ad67218845cfbc00
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
@@ -64,6 +68,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 **Bonus tip:** Morning and evening are more carefully delimited in the Japanese culture than in the West. So it’s important to know your**_Konnichiwa_** and never use it instead of**_Konbanwa_** or**_Oyasuminasai._**
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
@@ -111,19 +119,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Kyoto, Japan” by Andre Benz©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Don’t forget about the Japanese bow
@@ -143,10 +145,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
@@ -169,13 +168,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -209,22 +201,24 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-exclusive-selection-winning-16-free-video-tools-for-2024/"><u>[New] Exclusive Selection Winning 16 Free Video Tools for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-the-definitive-list-of-5-drone-racing-headsets-for-2024/"><u>[New] The Definitive List of 5 Drone Racing Headsets for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-breaking-into-livestrances-a-gamers-guide-to-youtube-success-for-2024/"><u>[Updated] Breaking Into Livestrances A Gamers' Guide to YouTube Success for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/becoming-a-language-prodigy-best-certification-pathways/"><u>Becoming a Language Prodigy: Best Certification Pathways</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/charming-chit-chat-mastering-the-art-of-conversation/"><u>Charming Chit-Chat: Mastering the Art of Conversation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/data-protection-pledge-renewed/"><u>Data Protection Pledge Renewed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-japanese-top-free-and-self-taught-study-strategies/"><u>Discovering Japanese: Top Free & Self-Taught Study Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-the-nuances-of-french-sound-articulation/"><u>Discovering the Nuances of French Sound Articulation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-your-interactions-with-japanese-formalities/"><u>Elevate Your Interactions with Japanese Formalities</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-of-elegance-romantic-italian-phrases/"><u>Embrace of Elegance: Romantic Italian Phrases</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expertly-curated-selection-premier-usb-wireless-adapters-to-upgrade-your-connectivity/"><u>Expertly Curated Selection: Premier USB Wireless Adapters to Upgrade Your Connectivity</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/from-play-to-pro-setting-up-a-ps4-game-broadcast-hub-for-2024/"><u>From Play to Pro Setting up a PS4 Game Broadcast Hub for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-a-google-pixel-8-pro-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Google Pixel 8 Pro Phone That Is Locked | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Realme C67 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576102131-master-bangla-in-just-10-mins-a-day/"><u>Master Bangla in Just 10 Mins a Day!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/showdown-of-smartwatches-apple-watch-series-9-versus-fitbit-charge-6-reviewed/"><u>Showdown of Smartwatches: Apple Watch Series 9 Versus Fitbit Charge 6 Reviewed</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/steps-to-restore-accidentally-deleted-excel-spreadsheets/"><u>Steps to Restore Accidentally Deleted Excel Spreadsheets</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-keeping-your-virtual-circle-true-not-tainted-by-tricks-for-2024/"><u>[New] Keeping Your Virtual Circle True, Not Tainted by Tricks for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/kyrocket-traffic-and-views-discover-the-best-5-video-marketing-techniques/"><u>[New] Skyrocket Traffic and Views – Discover the Best 5 Video Marketing Techniques</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-forging-a-future-in-artistic-expression-and-commerce/"><u>[Updated] Forging a Future in Artistic Expression and Commerce</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-showcasing-excellence-top-20-anime-openings/"><u>[Updated] Showcasing Excellence Top 20 Anime Openings</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unveiling-the-unexpected-10-truths-about-instagram-reels/"><u>[Updated] Unveiling the Unexpected 10 Truths About Instagram Reels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honoring-ten-years-at-mondlys-milestone/"><u>Honoring Ten Years at Mondly's Milestone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-realme-c55-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Realme C55 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingualeap-at-dubai-2020-the-next-language-era/"><u>LinguaLeap at Dubai 2020: The Next Language Era</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-elite-unbeatable-ever-lasting-pricing/"><u>Mondly Elite: Unbeatable, Ever-Lasting Pricing!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-vision-realized-educating-the-next-70-million-learners/"><u>Mondly's Vision Realized – Educating the Next 70 Million Learners</u></a></li>
+<li><a href="https://windows11.techidaily.com/perfecting-taskbar-setup-in-windows-11/"><u>Perfecting Taskbar Setup in Windows 11</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723125169446-save-big-on-high-quality-black-tpu-filament-only-16-per-kg-specially-for-3d-printing-enthusiasts/"><u>Save Big on High-Quality Black TPU Filament - Only $16 per Kg, Specially For 3D Printing Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-in-just-minutes-each-day/"><u>Speak Like a Native in Just Minutes Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swiftly-learn-urdu-online-every-day/"><u>Swiftly Learn Urdu Online, Every Day!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-majority-of-french-users-top-five-francophone-states-analyzed/"><u>The Majority of French Users: Top Five Francophone States Analyzed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-better-spelling-the-most-commonly-misspelled-vocabulary/"><u>Unlocking Better Spelling: The Most Commonly Misspelled Vocabulary</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unveiling-the-steps-to-engage-wordpad-in-win-os/"><u>Unveiling the Steps to Engage WordPad in Win OS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-volleyball-international-words-serving-english/"><u>Vocabulary Volleyball: International Words Serving English</u></a></li>
+<li><a href="https://win11.techidaily.com/winning-at-overcoming-onedrive-errors-on-windows/"><u>Winning at Overcoming OneDrive Errors on Windows</u></a></li>
 </ul></div>
 

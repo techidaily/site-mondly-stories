@@ -1,7 +1,7 @@
 ---
 title: Unraveling Five Misconceptions in Acquiring New Tongues
-date: 2024-11-11T17:32:24.069Z
-updated: 2024-11-14T20:19:35.277Z
+date: 2024-11-20T21:35:15.298Z
+updated: 2024-11-24T20:52:41.447Z
 tags:
   - speak
   - english
@@ -20,41 +20,36 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 
  Here are the most common myths and the way in which reality comes to the rescue:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Not everyone can learn a foreign language
 
  False! Everyone with the right motivation can learn a foreign language. The amount of effort and time invested is different for experienced learners and beginners, but the fact remains that anyone can do it. Once you ‘learn how to learn’, certain patterns become visible, especially with grammar, and this makes learning much faster.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Language learning requires a high IQ
 
  So untrue! There are so many smart people who only speak one language. This is because a high IQ doesn’t make anyone a natural-born [polyglot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . An average IQ combined with persuasiveness, sensitivity and lots of practice is a much better recipe for becoming fluent in another language.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Failing to learn a language in school makes the student incompetent
 
  There are so many stories of students who left school thinking that they were incapable of learning French or Spanish, and later in life, they became fluent within a few months of living in Latin countries. The reason why students fail to learn a language in school is mostly due to the professor’s incompetence.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Grammar is difficult
 
  Here’s a fun fact: grammar is a language’s least difficult element and it takes the least time to master. Every language, no matter how remote, is built on clear grammar rules and the experienced learner can easily figure out patterns that he or she can use to accelerate the learning process.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Conversations require fluency
@@ -83,10 +78,7 @@ Thank YOU, Alan!
 Get Mondly now and speak any language like you never dreamed you would ![Learn a new language](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-72&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-72%26mt%3D8 "Learn a new language")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -104,24 +96,19 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/approved-corrected-clandestine-miniature-video-absence/"><u>2024 Approved Corrected Clandestine Miniature Video Absence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-decade-well-spent-mondlys-achievements/"><u>A Decade Well Spent: Mondly’s Achievements</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-journey-into-french-culture-phrases-to-use-abroad/"><u>A Journey Into French Culture: Phrases to Use Abroad</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/applause-for-mondly-kids-on-google-plays-top-selections/"><u>Applause for Mondly Kids on Google Play’s Top Selections</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/choosing-a-more-useful-foreign-language-german-or-french/"><u>Choosing a More Useful Foreign Language: German or French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/crafting-your-israeli-journey-essential-tips-and-practical-language-skills/"><u>Crafting Your Israeli Journey: Essential Tips & Practical Language Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/croatias-official-language/"><u>Croatia's Official Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dimanche-francais/"><u>Dimanche Français</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/diy-chromecast-background-change-from-boring-to-beautiful/"><u>DIY Chromecast Background Change - From Boring to Beautiful!</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-data-from-itel-a70-by-fonelab-android-recover-data/"><u>Easy steps to recover deleted data from Itel A70</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/tless-offline-viewing-how-to-save-youtube-videos-for-iphoneipad-for-2024/"><u>Effortless Offline Viewing How to Save YouTube Videos for iPhone/iPad for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/einladung-zu-einer-kulturreise-grusse-in-deutsch-uber-hallo-hinaus/"><u>Einladung Zu Einer Kulturreise: Grüße in Deutsch Über Hallo Hinaus</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-open-your-iphone-12-mini-without-a-home-button-by-drfone-ios/"><u>How To Open Your iPhone 12 mini Without a Home Button</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-10-basic-blocks-house-concepts-for-mc-players/"><u>In 2024, 10 Basic Blocks House Concepts for MC Players</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-in-2024-no-more-format-issues-a-comprehensive-guide-to-chromecast-video-streaming/"><u>New In 2024, No More Format Issues A Comprehensive Guide to Chromecast Video Streaming</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/preserving-quality-the-ultimate-guide-to-downsizing-your-gopro-videos-4k-27k-and-full-hd/"><u>Preserving Quality: The Ultimate Guide to Downsizing Your GoPro Videos (4K, 2.7K & Full HD)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580671983-secure-future-savings-unlimited-lifetime-mondly-premium-at-up-to-96-off/"><u>Secure Future Savings: Unlimited Lifetime Mondly Premium at Up to 96% Off</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/stream-your-favorite-shows-on-netflix-for-zero-price-the-ultimate-guide/"><u>Stream Your Favorite Shows on Netflix for Zero Price - The Ultimate Guide</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unveiling-the-top-10-largest-online-platforms-globally/"><u>Unveiling The Top 10 Largest Online Platforms Globally</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-mastering-the-art-of-text-insertion-in-digital-pictures/"><u>[New] 2024 Approved Mastering the Art of Text Insertion in Digital Pictures</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-instagram-tutorial-upload-and-share-video/"><u>2024 Approved Instagram Tutorial Upload and Share Video</u></a></li>
+<li><a href="https://techidaily.com/guide-on-how-to-free-up-apple-iphone-12-pro-max-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Free Up Apple iPhone 12 Pro Max Space | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2671529-9780752481630-haunted-staffordshire/"><u>Haunted Staffordshire | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parsing-rules-or-linguistic-fluency/"><u>Parsing Rules or Linguistic Fluency?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-skills-boost-quick-start-guide/"><u>Polish Skills Boost: Quick Start Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/regional-dialects-asias-top-3-prowess/"><u>Regional Dialects: Asia's Top 3 Prowess</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-personalization-your-social-media-dream-now-reality/"><u>Seamless Personalization - Your Social Media Dream Now Reality</u></a></li>
+<li><a href="https://extra-information.techidaily.com/skill-elevation-rising-through-the-ranks-in-designing/"><u>Skill Elevation Rising Through the Ranks in Designing</u></a></li>
+<li><a href="https://win-webster.techidaily.com/southwest-airlines-shares-great-updates-for-all-passengers-bill-gates-left-out-zdnet-coverage/"><u>Southwest Airlines Shares Great Updates for All Passengers, Bill Gates Left Out - ZDNet Coverage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-journey-essentials-the-most-useful-93-phrases-listed-here/"><u>Spanish Journey Essentials: The Most Useful 93 Phrases Listed Here</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-selection-best-true-crime-podcast-series/"><u>The Ultimate Selection: Best True Crime Podcast Series</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>What is the best Pokemon for pokemon pvp ranking On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-words-within-the-web-of-english-language/"><u>World Words Within the Web of English Language</u></a></li>
 </ul></div>
 

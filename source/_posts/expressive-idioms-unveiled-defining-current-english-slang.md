@@ -1,7 +1,7 @@
 ---
 title: "Expressive Idioms Unveiled: Defining Current English Slang"
-date: 2024-07-29T06:47:23.049Z
-updated: 2024-07-30T06:47:23.049Z
+date: 2024-11-21T21:01:11.046Z
+updated: 2024-11-24T16:30:57.427Z
 tags:
   - speak
   - english
@@ -26,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/f05049a163390a10effd56fd7872beac0cf978908
 
 **Slang words can help us seem cooler.** No, seriously! As technology advances and we get closer to the possibility of a_Black Mirror-esque_ scenario becoming real, the world enters a new chapter dominated by the**internet culture.** Most of our social interactions are now influenced by memes, social media platforms and our desire to be unique, heard and belong to a certain group. This is why enhancing our vocab with**popular English slang words** can be one of the easiest ways to connect with others and form a sense of community.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![slang words](https://media.giphy.com/media/nFFguNjdeotwc/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 2")
 
 1. [What are slang words?](#slang)
@@ -39,16 +36,10 @@ thumbnail: https://thmb.techidaily.com/f05049a163390a10effd56fd7872beac0cf978908
 6. [How to use slang words in conversation](#useslang)
 7. [How to learn English slang words](#learnslang)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## **What are English slang words?**
 
  According to Oxford,**“slang”** is **“a type of language consisting of words and phrases that are regarded as very informal, are more common in speech than writing, and are typically restricted to a particular context or group of people”.** For example, the slang words and phrases we are going to talk about today are defining for two generations known as “millennials” and “gen z” – but mostly “gen z” because – let’s face it – today’s teenagers have come up with tons of new slang terms that even I, as a millennial, have trouble understanding. Praised be the mighty internet for slang dictionaries!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Why is it important to learn English slang words?
 
  It may be indecent, colorful, or obscene, but slang is a crucial part of any language. Just think about how criminals started using slang so police or other people who are not in their crime circle would not understand what they are saying. Isn’t that great evidence of how creative people can be? Regardless of their social status or intentions.
@@ -58,8 +49,9 @@ thumbnail: https://thmb.techidaily.com/f05049a163390a10effd56fd7872beac0cf978908
  **Thus, it’s important to know English slang words because they bring us closer and while also enriching the language.**
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **History of English slang words**
 
  Whether you millennial desperately trying to stay cool – like me –, a Gen X-er striving to understand the new generations, or a baby boomer who wants to be the_GOAT_ (Greatest Of All Time) grandpa or grandma, you’ve come to the right place. Why? ‘Cause we’re about to absolutely_slay_ this list of popular slang words! But first, let’s talk briefly about the history behind English slang terms. This will help you figure out their importance and why all new generations have them.
@@ -74,9 +66,6 @@ thumbnail: https://thmb.techidaily.com/f05049a163390a10effd56fd7872beac0cf978908
 
  Currently, slang remains an integral part of our daily language, used to express humor, irony, and social identity. Although some slang words become obsolete quickly, others become part of the lexicon and can stay_lit_ for generations.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### **Examples of historical slang words and their meanings**
 
 1. **Bee’s knees** – the height of excellence or perfection;
@@ -90,9 +79,6 @@ thumbnail: https://thmb.techidaily.com/f05049a163390a10effd56fd7872beac0cf978908
 9. **Speakeasy** – an illegal establishment that served alcohol during Prohibition;
 10. **Sockdollager** – a decisive blow or action, often used in reference to a fight or argument.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![slang terms](https://media.giphy.com/media/1Qdp4trljSkY8/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 3")
 
  But enough history. Let’s travel to the present. Does Gen Z slang sometimes look like some secret unbreakable code to you? Well, you are not alone. But TBH (To Be Honest), once you get the hang of it and realize how relatable and fun it is, it becomes quite addictive to use in daily conversations.
@@ -117,6 +103,10 @@ _She invited the entire school to her birthday. She’s so extra!_
 
 _Nick is so salty since his parents took away his car!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## To ghost someone
 
  When you cut off communication with someone you’re no longer interested in.
@@ -124,8 +114,9 @@ _Nick is so salty since his parents took away his car!_
 _OMG! Did you hear Cristina ghosted Matt?_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## To flex
 
 Another way of saying someone is showing off.
@@ -139,8 +130,9 @@ _– Yeah. Like weird flex but OK._
 ![flex](https://media.giphy.com/media/mEDj3oXP1t55pE0fCh/giphy-downsized-large.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 4")
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Lowkey & highkey
 
  Lowkey is the opposite of highkey and it can be used as a way of saying that you liked or done something secretly, modestly or quietly.
@@ -150,8 +142,9 @@ _I lowkey rooted for Daenerys to remain on the iron throne._
 _Paul is highkey trying to learn Spanish for Elena._
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Shook
 
 When someone is shook it means they are shocked or incredibly surprised.
@@ -160,9 +153,6 @@ _– Did you see?‌ The new season of Lucifer just landed on Netflix!_
 
 _– OMG‌ I’m shook! I need to watch it ASAP!_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tea
 
 When someone is “spilling the tea”, it means they are gossiping.
@@ -179,9 +169,6 @@ To respond to another person’s criticism.
 
  _Maria is quick to quick to clap back at everyone who says she doesn’t have a nice British accent._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Bye, Felicia
 
 A cold way of dismissing someone.
@@ -216,15 +203,12 @@ _NGL, I’m not in the mood to go out tonight._
 
 _Pedro Pascal’s performance in The Last of Us slayed._
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ![pedro pascal](https://media.giphy.com/media/xa5PxUklxPjMqK81jc/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 6")
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Receipts
 
 Proof or evidence of something that happened.
@@ -232,6 +216,10 @@ Proof or evidence of something that happened.
 _– How do you know Jamie is cheating on Sylvie?_
 
 _– Honey, I got all the receipts._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Sus
 
@@ -253,8 +241,9 @@ _– Non-boomer: OK boomer._
 _Bro, we have a moral obligation to stay woke. Inform yourself!_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Savage
 
 This is used when someone is bold and doesn’t care about consequences.
@@ -262,9 +251,6 @@ This is used when someone is bold and doesn’t care about consequences.
 _– Gaby is gonna report the teacher to the principal._
 _– OMG, savage!_
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Stan
 
  An extremely or excessively enthusiastic and devoted fan. As a verb, it means “to exhibit fandom to an extreme excessive degree.”
@@ -272,10 +258,6 @@ _– OMG, savage!_
  _– I love Kit Harington so much. I would track his every move if I could._
 _– Whoa, don’t be such a stan._
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![jon](https://media.giphy.com/media/3o7qE2fiT5seO2lIre/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 7")
 
  **Other_lit_ mentions:** _gucci_ (good, doing well, feeling fine),_TFW_ (that feeling when),_squad_ (a group of friends),_JOMO_ (Joy Of Missing Out),_fam_ (a group of friends that feels like family),_dank_ (really cool),_basic_ (interested in mainstream or very popular things),_woke_ (being aware of current events).
@@ -293,9 +275,6 @@ _– Whoa, don’t be such a stan._
 * **Pronunciation:** Don’t get me started. The differences between [British English and American English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are plentiful in this sector.
 * **Culture:** For example, Australian slang is heavily influenced by surfing and beach culture, while American slang has been influenced by hip-hop and African American Vernacular English.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Examples of popular slang words in different regions**
 
  Here are some popular English slang words and phrases from different English-speaking countries.
@@ -349,6 +328,10 @@ _– Whoa, don’t be such a stan._
 
 !['English slang words' by RODNAE Productions©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/english-slang-words-960x640.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 8")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **How to use slang words in conversation**
 
  Using slang words in conversation can add flavor and personality to your language. However, it’s crucial to consider the context and audience before incorporating slang into your language. Here are some tips for using slang terms effectively in conversation:
@@ -360,6 +343,10 @@ _– Whoa, don’t be such a stan._
 5. **Be yourself:** If using slang terms doesn’t feel natural, maybe they are not for you. Everyone loves a cool mom or dad, but overdoing it can be_cringe_ . Or at least that’s what teenagers believe.
 
  Remember, slang words are meant to be fun and expressive, but using them appropriately and in the right context is very important.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Learning English slang words**
 
@@ -387,9 +374,6 @@ Okay, so what did we learn so far? Let’s recap:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ### This language learning app is lit
 
  Do you want to put some_dank_ context around those foreign slang words and_shook_ your_squad_ from abroad? Well, this is your lucky day! Because with Mondly, the fastest way to speak new languages, you’ll speak any language from day 1\. It’s fun, easy and effective!
@@ -408,8 +392,6 @@ Okay, so what did we learn so far? Let’s recap:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -417,4 +399,18 @@ Okay, so what did we learn so far? Let’s recap:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-top-3-strategies-for-clear-online-interaction-4/"><u>[New] 2024 Approved Top 3 Strategies for Clear Online Interaction (#4)</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-unlocking-screen-record-features-in-hp-computers/"><u>[New] In 2024, Unlocking Screen Record Features in HP Computers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-expert-insights-blending-visual-and-auditory-elements-in-windows-photos-for-2024/"><u>[Updated] Expert Insights Blending Visual & Auditory Elements in Windows Photos for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-masterful-fb-watching-essential-top-10-players-for-2024/"><u>[Updated] Masterful FB Watching Essential Top 10 Players for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-and-effective-top-5-multilingual-learning-apps/"><u>Engaging & Effective: Top 5 Multilingual Learning Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-japanese-on-calls-compilation/"><u>Essential Japanese On-Calls Compilation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exclusive-free-access-to-mondly-premium/"><u>Exclusive Free Access to Mondly Premium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/farewells-in-deutsch-eine-sammlung-von-abschiedsvorsatzen/"><u>Farewells in Deutsch: Eine Sammlung Von Abschiedsvorsätzen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-pro-navigating-mondly-proficiently/"><u>From Novice to Pro: Navigating Mondly Proficiently</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gamers-choice-the-best-of-the-best-4k-tvs-for-2024/"><u>Gamer's Choice The Best of the Best 4K TVs for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-ideal-titles-superior-blu-ray-players-for-free-and-paid-users/"><u>In 2024, Ideal Titles Superior Blu-Ray Players for Free and Paid Users</u></a></li>
+</ul></div>
 

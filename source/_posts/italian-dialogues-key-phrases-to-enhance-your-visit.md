@@ -1,7 +1,7 @@
 ---
 title: "Italian Dialogues: Key Phrases to Enhance Your Visit"
-date: 2024-11-14T13:55:30.124Z
-updated: 2024-11-14T18:02:15.940Z
+date: 2024-11-21T20:21:52.746Z
+updated: 2024-11-24T21:56:24.285Z
 tags:
   - speak
   - english
@@ -59,13 +59,14 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 ![italian phrases english translation](https://edge.mondly.com/blog/wp-content/uploads/2019/07/italian-phrases-english-translation-1024x682.jpg "100+ Essential Italian Travel Phrases For Your Trip 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Manarola, Italy” by Marc Zimmer©
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Basic Italian phrases for travelers that need help
@@ -112,10 +113,7 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * Can I have some ice cream? –_Posso prendere il gelato?_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Basic Italian for tourists who need a place to spend the night
@@ -132,10 +130,7 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * Here is your bill, please look it over. –_Ecco il suo conto, per favore lo controlli._
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Italian for tourists who want to have fun
@@ -154,6 +149,10 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * How much does a ticket cost? –_Quanto costa un biglietto?_
 * One ticket, please. –_Un biglietto, per favore._
 * Are there seats available? –_Ci sono posti disponibili?_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Italian phrases about love
 
@@ -177,13 +176,6 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 ![basic italian phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/basic-italian-phrases-1024x575.jpg "100+ Essential Italian Travel Phrases For Your Trip 5")
 
  “Vernazza, Italy” by Daniil Vnoutchkov
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 7\. Days of the week and numbers in Italian
 
@@ -255,14 +247,20 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-ultimate-list-for-fbs-most-popular-song-videos/"><u>2024 Approved The Ultimate List for FB's Most Popular Song Videos</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211107425-9781667463254-7-super-maneiras-de-moldar-a-realidade/"><u>7 Super Maneiras de Moldar a Realidade | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/anniversary-1500-free-daily-knowledge-shares/"><u>Anniversary: 1,500 Free Daily Knowledge Shares</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aussie-language-sayings-and-slang-for-daily-chit-chat/"><u>Aussie Language: Sayings & Slang for Daily Chit-Chat</u></a></li>
-<li><a href="https://win11.techidaily.com/fixing-internet-connections-a-guide-for-steam-on-windows/"><u>Fixing Internet Connections: A Guide for Steam on Windows</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-samsung-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Samsung Devices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-into-mastery-preparing-for-prestigious-language-certifications/"><u>Step Into Mastery: Preparing for Prestigious Language Certifications</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/viking-language-what-language-did-vikings-speak/"><u>Viking Language: What Language Did Vikings Speak?</u></a></li>
-<li><a href="https://games-able.techidaily.com/visual-upgrade-guide-xnas-directx-advances/"><u>Visual Upgrade Guide: XNA's DirectX Advances</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-average-gain-for-youtubers-per-ad-exposure-in-2024/"><u>[Updated] Average Gain for YouTubers per Ad Exposure, In 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-godslayer-chronicles-ragnarok-dawn/"><u>2024 Approved Godslayer Chronicles Ragnarok Dawn</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/computer-boot-error-heres-how-to-fix-your-machine-when-it-wont-turn-on/"><u>Computer Boot Error? Here's How to Fix Your Machine When It Won't Turn On</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/conserve-battery-life-with-ease-unlock-the-secrets-of-macos-montereys-low-power-feature-explained/"><u>Conserve Battery Life with Ease: Unlock the Secrets of MacOS Monterey's Low Power Feature Explained</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/engineering-eye-catching-podcast-sizzle-reels/"><u>Engineering Eye-Catching Podcast Sizzle Reels</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/guide-transforming-mbr-storage-into-gpt-directly-on-a-windows-system/"><u>Guide: Transforming MBR Storage Into GPT Directly on a Windows System</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-realme-c67-5g-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Realme C67 5G Phone Screen?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-tiktok-content-mastery-learn-to-alter-digit-scenes-effectively/"><u>In 2024, TikTok Content Mastery Learn to Alter Digit Scenes Effectively</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inside-mondlys-educational-process/"><u>Inside Mondly's Educational Process</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/preparing-for-your-israeli-sojourn-5-tips-and-language-basics/"><u>Preparing for Your Israeli Sojourn: 5 Tips & Language Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pathway-comparison-of-canadian-british-and-american-accents/"><u>Pronunciation Pathway: Comparison of Canadian, British & American Accents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-locals-learn-korean-of-squid-game/"><u>Speak Like Locals: Learn Korean of Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-secrets-of-swashbuckling-terminology/"><u>Unlock the Secrets of Swashbuckling Terminology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-enabled-language-education-takes-off-with-mondlys-new-app/"><u>VR-Enabled Language Education Takes Off with Mondly's New App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-are-the-most-studied-foreign-languages-in-americaback-buttonfilter-button/"><u>Which Are The Most Studied Foreign Languages In America?Back ButtonFilter Button</u></a></li>
 </ul></div>
 

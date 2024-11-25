@@ -1,7 +1,7 @@
 ---
 title: English Contractions Explained Simply & Concisely
-date: 2024-07-29T06:46:30.357Z
-updated: 2024-07-30T06:46:30.357Z
+date: 2024-11-18T18:31:30.922Z
+updated: 2024-11-24T19:03:51.107Z
 tags:
   - speak
   - english
@@ -28,11 +28,6 @@ thumbnail: https://thmb.techidaily.com/ea46c2c3bcce8249fe3c90a83e87a709d2898868b
 
  Contraction words are generally easy enough to sort out, but there are situations where they can get tricky. For all those situations, it’s necessary to keep an eye out for rules. That’s why**we are** – or let’s say_**we’re**_ – going to explain everything you need to know about the rules of contractions in English. And while we’re at it, we will also add a contraction word list to go perfectly with the explanations.
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What is a contraction?
 
 **A contraction is** a type of abbreviation formed by combining two or more words and dropping one or more letters. In writing, the missing letters are replaced by an apostrophe. Sometimes called ‘short forms’, English contractions usually join a subject pronoun and a verb, an interrogative adverb and a verb, or a verb and the word_not_ .
@@ -42,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/ea46c2c3bcce8249fe3c90a83e87a709d2898868b
  The main advantage of contractions in English is that they save time in both writing and speaking. Besides, their informal nature gives your discourse a more friendly, accessible, and approachable tone.
 
  Careful, though! It’s**best to avoid contractions in highly formal contexts,** like academic papers, grant proposals, formal speeches, or any materials requiring a professional appearance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Understanding English contractions
 
@@ -74,14 +73,12 @@ Coming Soon
 
 **Fun fact:** Did you know that_o’clock_ is the contraction word for_of the clock_ ? In this particular case, the contraction is more popular than the actual phrase and it’s considered fine to use even in formal writing.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![contractions in English](https://edge.mondly.com/blog/wp-content/uploads/2023/11/contractions-in-english-960x960.png "The Ultimate Guide To English Contractions 3")
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Grammar rules for English contractions
 
  Before you go thinking you know everything about contractions, we must look over some rules for contractions grammar.
@@ -93,8 +90,9 @@ Coming Soon
 5. **Negative contractions and tag questions go together like English speakers and [misspelled words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :** A tag question is a short question added at the end of a sentence to turn it into a question. They are used to confirm information or engage the listener in the conversation. For example: “You’re coming to the party, aren’t you?”. When the declarative part of the sentence is affirmative, the question part is formulated as negative and conversely. If the tag question is negative, it’s your cue to use a contraction.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Common contractions in English
 
  Contraction word list
@@ -227,6 +225,10 @@ Coming Soon
 | you will                     | you’ll      |
 | you will; you shall          | you’ll      |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Contractions in writing and their importance
 
  If you write in English on a daily basis, you probably use contractions quite a lot. And that’s perfectly fine if you talk to your family or friends. English contractions save time and space and make your daily communications sound friendlier.
@@ -237,14 +239,6 @@ Coming Soon
 
  However, if what you’re writing is semi-formal, you can use a couple of very popular contractions. The only condition is to not forget about the apostrophe, as the entire text will look unprofessional.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Examples of contractions in everyday language
 
  Now that you know the rules and have a comprehensive word list of contractions, it’s time to look at some examples of contractions from everyday language.
@@ -279,8 +273,9 @@ Coming Soon
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Improve your English fast
 
  Do you want to get better at speaking English? Try Mondly, the award-winning language app that is serious about making learning English fun.
@@ -303,8 +298,6 @@ Coming Soon
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -312,4 +305,21 @@ Coming Soon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-after-effects-textwork-essentials-the-10-best-presets/"><u>[New] After Effects Textwork Essentials The 10 Best Presets</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-broadcast-elegance-gamers-guide-to-using-obs/"><u>[New] Broadcast Elegance Gamers' Guide to Using OBS</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-fixing-curved-video-gopros-fisheye-issue/"><u>[New] Fixing Curved Video GoPro's Fisheye Issue</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unleash-your-photo-potential-with-instagram-filters/"><u>[New] Unleash Your Photo Potential with Instagram Filters</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-vanguard-ventures-newcomers-to-the-panzoid-world/"><u>[Updated] Vanguard Ventures Newcomers to the Panzoid World</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/essential-pick-for-retro-gaming-top-5-android-tools-for-ps2-titles-for-2024/"><u>Essential Pick for Retro Gaming Top 5 Android Tools for PS2 Titles for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ethereal-elixirs-spirited-italian-flirtation-lines/"><u>Ethereal Elixirs: Spirited Italian Flirtation Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everyday-speech-simplified-insights-into-prevalent-slang/"><u>Everyday Speech Simplified: Insights Into Prevalent Slang</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-multilingual-fabric-of-macau/"><u>Exploring the Multilingual Fabric of Macau</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-flirt-the-language-of-seduction/"><u>French Flirt: The Language of Seduction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-basic-to-breakthrough-mondlys-english-journey/"><u>From Basic to Breakthrough: Mondly's English Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-struggling-to-successful-communicator-mondlys-best-10-practices/"><u>From Struggling to Successful Communicator: Mondly’s Best 10 Practices</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-motorola-defy-2-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Motorola Defy 2 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/unsticking-the-steelseries-arctis-5-mic-effective-strategies-for-audio-recovery/"><u>Unsticking the SteelSeries Arctis 5 Mic: Effective Strategies for Audio Recovery</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Win Over Venetians: Master 20+ Italian Language Essentials"
-date: 2024-11-10T13:12:50.917Z
-updated: 2024-11-14T22:27:34.473Z
+date: 2024-11-18T18:58:26.073Z
+updated: 2024-11-24T22:17:50.604Z
 tags:
   - speak
   - english
@@ -36,10 +36,7 @@ thumbnail: https://thmb.techidaily.com/259362f05442761cee2c53bd4a987280fdd7ced53
  Before we move on, you need to understand that expressions, sayings, phrases, and idioms is that they are the salt and pepper of any language, not just Italian. And the best ones are, of course, those unique to the language you are learning. Why? Because they are the shortcut to making you sound more fluent.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Old Italian Expressions
@@ -58,42 +55,23 @@ thumbnail: https://thmb.techidaily.com/259362f05442761cee2c53bd4a987280fdd7ced53
 
 ![Italian expressions](https://edge.mondly.com/blog/wp-content/uploads/2019/09/italian-expressions-960x640.jpg "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 5")
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Funny Italian Slang Words & Phrases
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Cavoli amari
 
 _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refers to a tough situation or impending problems. Interestingly, Italians frequently mention cabbages! For instance,_cavoli miei_ (“my cabbages”) implies something is your personal business that others shouldn’t meddle with.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Boh
 
  When you’re clueless about something or you don’t know what to say, in Italian, you can simply say “boh!”. This one is quite similar to the Italian expression_che ne so!_ meaning “how should I know?”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Dai
 
@@ -107,6 +85,10 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
 
  Literally “slipper-man”. Italian slang_pantofolaio_ refers to someone who prefers to stay home in their slippers rather than go out. Do you recognize yourself in this description? A_pantofolaio_ is basically the Italian equivalent of “couch potato”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Tirare il pacco
 
  “To throw the package”. Contrary to what some may think, this has nothing to do with the delivery man. Instead, it means to stand someone up. So, Italians don’t just skip a meeting or a date, they “throw the package”.
@@ -117,31 +99,21 @@ _Scialla_ is an Italian slang word that has become very popular lately, thanks t
 
  There’s a 2011 movie with the same name in case you’re looking to expand your Italian slang word repertoire further.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. Figo
 
  Mostly used by younger people, this Italian slang word is the equivalent of “cool”. If you want to say that something is extraordinary, fantastic, or cool, in Italian you would say_figo_ or_che figata_ .
 
  Additionally,_figo_ (or_figa_ for women) can also be used to say that someone is very attractive. For example,_Brad Pitt è un gran figo_ translates to “Brad Pitt is very attractive”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8\. Sbronza
 
 _Sbronza_ is for everything related to alcohol as it essentially describes the state of intoxication resulted from consuming it. Are you having a_sbronza_ ? It means you have a hangover.
 
  If you have to convey the meaning of being drunk in a more formal setting, you would definitely not use_sbronza_ . Instead, you would use terms like_ubriachezza_ (“drunkness”) or_intossicazione alcolica_ (“alcohol intoxication”).
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9\. Che casino
 
@@ -157,6 +129,10 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Learn Italian today 🍝
 
  Build practical Italian skills for real life with Mondly.
@@ -164,10 +140,7 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-3415&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3415&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3415&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3415&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-3415%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian Expressions with Deep Meaning
@@ -225,6 +198,10 @@ Before you go, make sure you check out these FAQs.
 
  Yes, using slang is okay when speaking Italian, as it can make your conversations more natural and show familiarity with the culture. Just make sure you’re mindful of the context and the company you’re in.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Where can I learn more Italian slang?
 
  You can learn more Italian slang on the Mondly blog, from Italian movies and TV shows, social media, and online forums frequented by fluent speakers.
@@ -269,18 +246,18 @@ Before you go, make sure you check out these FAQs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-streamline-operations-ranking-the-top-8-facebook-task-managers/"><u>[New] 2024 Approved Streamline Operations Ranking the Top 8 Facebook Task Managers</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-unlock-your-creative-potential-with-audio-edits-in-canva-videos/"><u>[Updated] 2024 Approved Unlock Your Creative Potential with Audio Edits in Canva Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-camera-control-tips-for-unshakable-images/"><u>2024 Approved Camera Control Tips for Unshakable Images</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-infinix-note-30i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/adopting-a-global-communication-lifestyle-in-24/"><u>Adopting a Global Communication Lifestyle in '24</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/childhood-as-the-peak-time-for-second-language-acquisition/"><u>Childhood as the Peak Time for Second Language Acquisition</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-s18e-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo S18e to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-key-takeaways-from-reviewing-zdsofts-vision-recorder/"><u>In 2024, Key Takeaways From Reviewing ZDSoft's Vision Recorder</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/live-streaming-mastery-with-manycam-enhanced-virtual-camera-solutions/"><u>Live Streaming Mastery with ManyCam: Enhanced Virtual Camera Solutions</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/mastering-account-recovery-navigating-through-common-chatgpt-login-errors/"><u>Mastering Account Recovery: Navigating Through Common ChatGPT Login Errors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579198473-mondly-and-apple-championed-as-ed-tech-elite-10-list-feat/"><u>Mondly & Apple Championed as Ed-Tech Elite: #10 List Feat</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577505926-one-moment-a-day-gain-mastery-over-urdu/"><u>One Moment a Day, Gain Mastery Over Urdu!</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/optimize-android-video-playback/"><u>Optimize Android Video Playback</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-apples-silicon-spectrum-comparing-m1-pro-and-the-powerhouse-m1-max/"><u>[New] In 2024, Apple's Silicon Spectrum Comparing M1 Pro and the Powerhouse M1 Max</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-premiere-pro-masterclass-essential-templates-for-free/"><u>[New] Premiere Pro Masterclass - Essential Templates for Free</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-reinvigorating-windows-photo-viewer-in-w10-procedures-1-and-2/"><u>[Updated] In 2024, Reinvigorating Windows Photo Viewer in W10 Procedures #1 & #2</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-epic-locations-for-immersive-virtual-adventures/"><u>2024 Approved Epic Locations for Immersive Virtual Adventures</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-simplified-methods-for-logging-google-voice-calls/"><u>2024 Approved Simplified Methods for Logging Google Voice Calls</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/from-traditional-to-innovative-one-week-on-a-split-keyboards-impact-as-revealed/"><u>From Traditional to Innovative: One Week on a Split Keyboard's Impact as Revealed</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-overcome-audio-distortion-and-enhance-your-gaming-experience-with-cyberpunk/"><u>How to Overcome Audio Distortion & Enhance Your Gaming Experience with Cyberpunk</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-expert-recommended-steadicams-for-professional-dslr-work/"><u>In 2024, Expert-Recommended Steadicams for Professional DSLR Work</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-language-lessons-with-mondlys-ar-features/"><u>Interactive Language Lessons with Mondly's AR Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-languages-commitment-of-2024/"><u>Learn Languages - Commitment of 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingual-distinctions-brazilian-and-eu-portuguese-contrasted/"><u>Lingual Distinctions: Brazilian & EU Portuguese Contrasted</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voice-command-enhancements-for-oculus-quest-with-mondly/"><u>Voice Command Enhancements for Oculus Quest with Mondly</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Cultural Wealth of Farsi & Its Rewards
-date: 2024-11-09T21:49:44.262Z
-updated: 2024-11-15T07:39:24.724Z
+date: 2024-11-19T18:04:50.220Z
+updated: 2024-11-24T18:25:24.819Z
 tags:
   - speak
   - english
@@ -29,10 +29,7 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  In other words, the confusion arises from the fact that there’s currently no country on Earth named Persia in the same way there’s no language we can call the ‘Iranian language’. Persian does belong to the Iranian languages, but the Iranian languages are a branch of the Indo-Iranian languages in the Indo-European language family. So they are not an individual language.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Persian language – history and facts
@@ -43,13 +40,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### The Arab rule
 
  It seems that during the Muslim conquest of Persia, the Persian language was in danger of being lost and replaced by Arabic. Luckily, Persia was one of the few places where the Arabic language did not replace the local language. However, Arabic was used by the elite and it definitely had a big impact on the vocabulary of the**Modern Persian** that was emerging.
@@ -58,16 +48,13 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
 !["Ferdowsi Shahnameh" by McGill Library©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/mcgill-library-AH42Li7NKUc-unsplash-960x629.jpg "Persian Language: History &Amp; Benefits Of Learning Farsi/Persian 2")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
 
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Persian influence on other languages
 
@@ -85,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Persian vs Arabic: Is Persian similar to Arabic?
 
  Considering their shared history presented above, Persian and Arabic developed to become somehow similar, but not as similar as many think.
@@ -96,6 +87,10 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  Here are two videos of numbers from 1 to 10 in Persian and in Arabic so you can see the difference:
 
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The benefits of learning Farsi/Persian
 
@@ -118,10 +113,7 @@ Other benefits of learning Persian include:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Learn Persian online with Mondly
@@ -155,19 +147,24 @@ Other benefits of learning Persian include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-immediate-methods-for-facebook-photomontage/"><u>[New] Immediate Methods for Facebook Photomontage</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-regain-control-recovering-after-a-facebook-breach/"><u>[New] Regain Control Recovering After a Facebook Breach</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-anime-for-your-lifes-highlights-todays-most-captivating-streaming-channels-2023-new/"><u>2024 Approved Anime for Your Life’s Highlights Today's Most Captivating Streaming Channels [2023 New]</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/6-exciting-reasons-to-learn-arabic/"><u>6 Exciting Reasons to Learn Arabic</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beyond-fluency-tackling-the-worlds-difficult-linguistics/"><u>Beyond Fluency: Tackling the World’s Difficult Linguistics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/catalan-in-flashes-mastering-each-day/"><u>Catalan in Flashes: Mastering Each Day</u></a></li>
-<li><a href="https://win-best.techidaily.com/efficiently-clean-your-ssd-with-asus-secure-erase-best-practices-and-solutions-compared/"><u>Efficiently Clean Your SSD with Asus Secure Erase - Best Practices & Solutions Compared</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effortless-polyglotism-easiest-worlds-languages-ranking/"><u>Effortless Polyglotism: Easiest World's Languages Ranking</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/mastery-over-motion-manipulating-mp4-playback-rate-for-2024/"><u>Mastery Over Motion Manipulating MP4 Playback Rate for 2024</u></a></li>
-<li><a href="https://win-special.techidaily.com/microsofts-daunting-challenge-the-urgent-need-to-fix-windows-11-within-a-year-insights-from-zdnet/"><u>Microsoft's Daunting Challenge: The Urgent Need to Fix Windows 11 Within a Year - Insights From ZDNet</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/quick-and-simple-linksys-wusb6300-driver-download-process-explained/"><u>Quick & Simple Linksys WUSB6300 Driver Download Process Explained</u></a></li>
-<li><a href="https://windows11.techidaily.com/relax-high-contrast-aesthetics-in-window-os/"><u>Relax High Contrast Aesthetics in Window OS</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-top-9-premium-portable-microphones-for-podcasters/"><u>Updated In 2024, Top 9 Premium Portable Microphones for Podcasters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580737207-vr-babel-fish-transform-flingish-to-fluency/"><u>VR Babel Fish: Transform Flingish to Fluency</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-calculating-storage-total-gb-for-a-days-long-film/"><u>[Updated] 2024 Approved Calculating Storage Total GB for a Day's Long Film</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-xiaomis-new-smartphone-screenshot-tool-a-game-changer-in-recording-tech-for-2024/"><u>[Updated] Xiaomi's New Smartphone Screenshot Tool A Game Changer in Recording Tech for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/game-performance-transformation-how-to-achieve-crystal-clear-graphics-and-unmatched-high-frame-rates-without-stuttering/"><u>Game Performance Transformation : How to Achieve Crystal Clear Graphics and Unmatched High Frame Rates Without Stuttering</u></a></li>
+<li><a href="https://common-error.techidaily.com/guide-to-overcome-constant-windows-11-system-reboots-instantly/"><u>Guide to Overcome Constant Windows 11 System Reboots Instantly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-10-premier-igtv-horizontal-video-editors/"><u>In 2024, 10 Premier IGTV Horizontal Video Editors</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-honor-x8b-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Honor X8b Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-a-comprehensive-quick-start-to-mastering-video-editing-win11s-movie-maker/"><u>In 2024, A Comprehensive Quick Start to Mastering Video Editing Win11's Movie Maker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-simplified-mondlys-victory-2022-edition/"><u>Language Learning Simplified: Mondly's Victory, 2022 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-croatian-why-and-how-discover-the-7-key-advantages/"><u>Learn Croatian: Why and How – Discover the 7 Key Advantages</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/safeguarding-sensitive-info-best-practices-for-using-chatgpt-in-professional-settings/"><u>Safeguarding Sensitive Info: Best Practices for Using ChatGPT in Professional Settings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/six-sweet-secrets-of-being-bilingual/"><u>Six Sweet Secrets of Being Bilingual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-happily-ever-after-in-hungarian-dialects/"><u>Speaking Happily Ever After in Hungarian Dialects</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/step-by-step-solution-overcoming-dvd-title-scanning-challenges-with-handbrake/"><u>Step-by-Step Solution: Overcoming DVD Title Scanning Challenges with HandBrake</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-hands-of-italy-deciphering-silent-dialogue/"><u>The Hands of Italy: Deciphering Silent Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-6-benefits-of-being-bilingual-what-is-bilingualism/"><u>Top 6 Benefits Of Being Bilingual - What Is Bilingualism?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-voyage-comparing-cockney-chatter-to-aussie-buzzwords/"><u>Vocabulary Voyage: Comparing Cockney Chatter to Aussie Buzzwords</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/windows-11-mp42024-mp4/"><u>Windows 11 MP4プレーヤー導入ガイド：2024年版 - MP4再生手順と一般的エラートラブルシューティング</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zero-cost-to-zero-limit-explore-languages-on-black-friday/"><u>Zero Cost to Zero Limit - Explore Languages on Black Friday</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timwtores-eygnwmwn-dyshs/"><u>Τιμωτόρες Ευγνώμων Δύσης</u></a></li>
 </ul></div>
 

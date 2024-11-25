@@ -1,7 +1,7 @@
 ---
 title: Your Handbook to Conversational Russian for Travelers
-date: 2024-11-10T05:01:50.269Z
-updated: 2024-11-14T19:20:17.911Z
+date: 2024-11-23T18:29:45.540Z
+updated: 2024-11-24T17:22:35.375Z
 tags:
   - speak
   - english
@@ -36,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 8. [Russia Travel Guide – how to say that you have fallen in love?](#russia-travel-guide)
 9. [Bonus basic Russian phrases for FIFA World Cup 2018](#russian-phrases-world-cup)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Greetings and other useful Russian words
 
  Manners are a must. In every situation. At home, in the park or in another country. It doesn’t matter where you are. If you are traveling to a foreign country, start learning the basics first. Greetings, apologies and, thanks will always help you the most. If you were wondering how to say_good afternoon_ in Russian or what is the meaning of da, here it is:
@@ -69,13 +73,6 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * Where are you from? –_Откуда ты? – Otkuda ty?_
 * Have a good day. –_Ну тогда до свидания. – Nu togda do svidaniya._
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Useful Russian phrases for when you are at the airport
 
  Arriving at the airport – both at the beginning and at the end of your journey – will also require some basic Russian phrases. Whether we are talking about small talk with the person sitting next to you on the airplane, passport verification or asking for directions, these Russian phrases will definitely have your back in any situation.
@@ -88,10 +85,7 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 ![useful russian phrases scaled](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-phrases-scaled-640x960.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 4")
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Photo by Tom Barrett
@@ -104,10 +98,7 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * I would like to change my seat. –_Я хотел бы пересесть. – Ya hotel by peresest._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Common Russian phrases for travelers who need help
@@ -129,10 +120,7 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 ![learn russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/learn-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 5")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Photo by A.L.
@@ -149,10 +137,7 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * Drive me to this address. –_Отвезите меня по этому адресу. – Otvezite menya po etomu adresu_ .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Advanced Russian phrases for different hotel situations
@@ -273,10 +258,7 @@ Just joking. Still is an amazing drink, though!
 * I love you. – Я люблю тебя. –_Ya lyublyu tebya._
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: Basic Russian phrases for football lovers
@@ -321,18 +303,24 @@ Just joking. Still is an amazing drink, though!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-must-have-programs-for-youtube-video-downloads/"><u>[New] 2024 Approved Must-Have Programs for YouTube Video Downloads</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-discover-the-top-5-pc-clipping-utilities-for-quick-samples/"><u>[Updated] 2024 Approved Discover the Top 5 PC Clipping Utilities for Quick Samples</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-elite-mac-audio-enhanced-screen-recorder/"><u>[Updated] Elite Mac Audio-Enhanced Screen Recorder</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-the-canva-blueprint-to-neat-and-clean-image-edges/"><u>[Updated] The Canva Blueprint to Neat and Clean Image Edges</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/100plus-basic-russian-phrases-every-traveler-needs-to-know/"><u>100+ Basic Russian Phrases Every Traveler Needs To Know</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578225825-2022-speak-anywhere-for-a-bargain-priced-language-bundle/"><u>2022: Speak Anywhere for a Bargain-Priced Language Bundle!</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-how-to-elevate-your-tiktok-footage-with-enhanced-heads-a-guide-3-steps/"><u>2024 Approved How To Elevate Your TikTok Footage with Enhanced Heads A Guide (3 Steps)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/achieve-fluency-in-finnish-with-expert-online-guidance/"><u>Achieve Fluency in Finnish with Expert Online Guidance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boost-your-tagalog-skills-10-minute-study-sessions/"><u>Boost Your Tagalog Skills - 10-Minute Study Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciding-your-perfect-next-linguistic-endeavor/"><u>Deciding Your Perfect Next Linguistic Endeavor</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/die-deutsche-sprache-zur-reue-nutzen/"><u>Die Deutsche Sprache Zur Reue Nutzen</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-new-realms-a-detailed-jaunt-vr-review/"><u>In 2024, Exploring New Realms A Detailed Jaunt VR Review</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/intel-rst-driver-installation-guide-boosting-ssd-and-hdd-speeds-with-the-newest-update/"><u>Intel RST Driver Installation Guide: Boosting SSD and HDD Speeds with the Newest Update</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-compre-written-in-sounds-youtube-playlists-decoded/"><u>[New] 2024 Approved A Compre Written in Sounds YouTube Playlists Decoded</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-fluid-fusion-combining-videos-for-a-unified-youtube-presence-for-2024/"><u>[New] Fluid Fusion Combining Videos for a Unified Youtube Presence for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-from-basic-snaps-to-spectacular-shots-snapchats-edits-for-everyone-for-2024/"><u>[New] From Basic Snaps to Spectacular Shots Snapchat's Edits for Everyone for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-self-portraits-for-social-media-success/"><u>[Updated] Self-Portraits for Social Media Success</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cultivate-community-interest-with-collaborative-lists/"><u>Cultivate Community Interest With Collaborative Lists</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-glossary-accessible-languages-via-vr/"><u>Global Glossary: Accessible Languages via VR</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-meizu-lock-screen-password-by-drfone-android/"><u>How To Change Meizu Lock Screen Password?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ignite-industry-insights-via-mastery-of-business-jargon/"><u>Ignite Industry Insights via Mastery of Business Jargon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italys-sweet-notions-love-expressions-unveiled/"><u>Italy's Sweet Notions: Love Expressions Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingo-love-mastering-spanish-courtship-quips/"><u>Lingo Love: Mastering Spanish Courtship Quips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sovace-slovaci-language-made-easy-with-10-minute-daily-doses-online/"><u>Sovace Slováci - Language Made Easy with 10-Minute Daily Doses Online</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/steam-server-connection-woes-heres-how-you-can-restore-access/"><u>Steam Server Connection Woes? Here’s How You Can Restore Access</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/tailoring-your-vimeo-experience-from-free-to-pro-for-2024/"><u>Tailoring Your Vimeo Experience From Free to Pro for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-mondly-method-elevating-english-to-next-levels/"><u>The Mondly Method: Elevating English to Next Levels</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-xiaomi-redmi-note-12-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Xiaomi Redmi Note 12 5G Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukraines-new-dawn-of-dialogue-mondlys-free-language-courses-ignite-change/"><u>Ukraine's New Dawn of Dialogue – Mondly's Free Language Courses Ignite Change</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-german-sounds-an-alphabetic-tour-for-newcomers/"><u>Unveiling German Sounds: An Alphabetic Tour for Newcomers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/updated-terms-of-service-clarity/"><u>Updated Terms of Service Clarity</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/will-chatting-machines-replace-you/"><u>Will Chatting Machines Replace You?</u></a></li>
 </ul></div>
 

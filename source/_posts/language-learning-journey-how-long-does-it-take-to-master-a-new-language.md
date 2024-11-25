@@ -1,7 +1,7 @@
 ---
 title: "Language Learning Journey: How Long Does It Take To Master A New Language?"
-date: 2024-11-13T07:16:34.429Z
-updated: 2024-11-14T18:13:31.635Z
+date: 2024-11-20T18:28:36.632Z
+updated: 2024-11-24T23:52:50.648Z
 tags:
   - speak
   - english
@@ -43,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 * **Knowing more than one language helps —** languages with shared features with English are generally easier to learn, while those with significant cultural and linguistic differences may take longer to learn;
 * **The time spent learning depends on you** **—** The time it takes to learn a new language varies greatly depending on your motivation and dedication to the task.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Interagency Language Roundtable scale or the IRL scale
 
  The Interagency Language Roundtable is a grading scale used by the US government to scale [employees](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and diplomats working for the FSI (Foreign Service Institute). You’ll find this scale to be the most accurate when it comes to native English speakers learning a foreign language. Basically, what this scale does is establish the language difficulty.
@@ -59,25 +63,11 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
  But first, we need to clarify a certain aspect of learning foreign languages as a native English speaker: some languages are more difficult to learn than others. Why? Because English and some other languages haven’t been in contact with one another for thousands of years and have evolved in a totally different way. But studying languages that are completely different from English is not impossible. It takes longer, but you’ll eventually get there.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Easiest language to learn for English speakers
 
  The data presented below reflects a study held by the FSI (Foreign Service Institute) of the US government. Again, this is probably the most accurate data regarding how much time it takes for a native English speaker to become fluent in a particular new language.
 
  The FSI has over 800 language learning courses in more than 70 languages with more than 70 years of experience in training US diplomats and foreign affairs employees.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Tier 1:** Languages that are most closely related to English
 
@@ -111,6 +101,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 * comparable stress and intonation patterns;
 * already share a number of vocabulary words.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Tier 2:** Similar to English
 
 | Language | Time needed to reach fluency |
@@ -124,10 +118,7 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 !["Fastest way to learn a language" by RF._.studio©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/fastest-way-to-learn-a-language-960x641.jpg "How Long Does It Take In Hours To Learn A Language? 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Tier 3:** Languages that may have cultural and linguistic differences compared to English
@@ -142,10 +133,7 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-1364&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Tier 4:** Languages that are profoundly different from English
@@ -194,6 +182,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
 ![Mondly 1000 daily lessons for free](https://edge.mondly.com/blog/wp-content/uploads/2017/09/iphone_main_screen_s_FW7fe-1024x682.jpg "How Long Does It Take In Hours To Learn A Language? 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Let’s not also forget that the above FSI statistics don’t include the help of modern language learning aids like apps on your smartphone can bring to the table. In theory, today you can [learn a foreign language much faster.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhow-many-hours-learn-language%2F&t=How+Long+Does+It+Take+in+Hours+to+Learn+a+Language%3F "Share on Facebook")
@@ -232,18 +224,19 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-action-capture-duel-2022-gopro-hero5-versus-garmin-virb/"><u>[New] 2024 Approved Action Capture Duel 2022 GoPro Hero5 Versus Garmin VIRB</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-optimal-8-camera-stands-for-ultra-hd-shooting-for-2024/"><u>[New] Optimal 8 Camera Stands for Ultra-HD Shooting for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-the-wealth-of-mr-beast/"><u>2024 Approved The Wealth of Mr. Beast</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/4-reasons-why-you-should-learn-a-language-in-your-fortiesback-buttonfilter-button/"><u>4 Reasons Why You Should Learn A Language In Your FortiesBack ButtonFilter Button</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerated-learning-lithuanias-language-online/"><u>Accelerated Learning: Lithuania's Language Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/achieve-your-corporate-language-training-goals-a-comprehensive-guide/"><u>Achieve Your Corporate Language Training Goals - A Comprehensive Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/croatias-dominant-dialect/"><u>Croatia's Dominant Dialect</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoing-voices-for-educators-in-multilingual-praise/"><u>Echoing Voices for Educators in Multilingual Praise</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-vivo-g2-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Vivo G2 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-oppo-a78-5g-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Oppo A78 5G Bootloader Easily</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-ultimate-choice-10-best-webcams-for-win-11/"><u>In 2024, Ultimate Choice 10 Best Webcams for Win 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578407692-swiftlearnbangla-master-language-with-minutes/"><u>SwiftLearnBangla: Master Language with Minutes</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unpacking-the-pixel-slate-experience-issues-with-chromeos-explored/"><u>Unpacking the Pixel Slate Experience: Issues with ChromeOS Explored</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-essential-ipad-recording-tools-3-edition/"><u>[New] Essential iPad Recording Tools #3 Edition</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-streaming-powerhouses-face-off-streamlabs-versus-obs-analysis/"><u>[Updated] Streaming Powerhouses Face-Off Streamlabs versus OBS Analysis</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-pro-video-cameras-rated-your-guide-to-the-best/"><u>2024 Approved Pro Video Cameras Rated - Your Guide to the Best</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasp-the-essence-of-english-grammar-top-9-tips-by-esl-expert/"><u>Grasp the Essence of English Grammar: Top 9 Tips by ESL Expert</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ht-into-highlighted-video-discussion-threads-for-2024/"><u>Insight Into Highlighted Video Discussion Threads for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-93-must-know-spanish-expressions-for-international-voyages/"><u>Mastering 93 Must-Know Spanish Expressions for International Voyages</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-the-ultimate-guide-to-animation-creation-top-software-for-2024/"><u>New The Ultimate Guide to Animation Creation Top Software for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-gets-its-first-ever-language-app-mondlyback-buttonfilter-button/"><u>Oculus Quest Gets Its First-Ever Language App: MondlyBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pantheon-of-philology-greek-influence-and-legacy/"><u>Pantheon of Philology: Greek Influence & Legacy</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-tecno-camon-20-premier-5g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Tecno Camon 20 Premier 5G Phone Now with These Tips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-10-channel-list-best-history-yt-groups-for-2024/"><u>Prime 10 Channel List Best History YT Groups for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On OnePlus Nord N30 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/through-language-through-people-mondly-connects-millions-to-world-wide-opportunities/"><u>Through Language, Through People: Mondly Connects Millions to World Wide Opportunities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-japanese-top-gratis-web-tools-for-self-education/"><u>Unlock Japanese: Top Gratis Web Tools for Self-Education</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Fundacion Danny en Colombia: Solidaridad Con Pobres"
-date: 2024-07-29T06:48:10.253Z
-updated: 2024-07-30T06:48:10.253Z
+date: 2024-11-19T17:12:00.706Z
+updated: 2024-11-24T20:43:36.818Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/d4c3e08ad2c1079e3a0235e50a952e0f146bf5d50
 
  **One of the causes dearest to our heart is [Fundación Danny](http://www.fundaciondanny.org/) from Colombia to whom we donated 150 Premium subscriptions in an effort to help them make language learning accessible for Colombian children.**
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![fundacion danny mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/fundacion-danny-mondly-600x450.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 2")
 
  Colombian children attending the Danny Foundation courses.
@@ -35,16 +31,18 @@ thumbnail: https://thmb.techidaily.com/d4c3e08ad2c1079e3a0235e50a952e0f146bf5d50
  **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Unlocking the power of social good
 
  When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Graduation at the Danny Foundation.
 
@@ -62,8 +60,9 @@ thumbnail: https://thmb.techidaily.com/d4c3e08ad2c1079e3a0235e50a952e0f146bf5d50
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Learn a new language in just 10 minutes a day
 
  If the story of the Colombian children from the Danny Foundation inspired you to invest in yourself, you can start learning a new language right now with Mondly.
@@ -82,8 +81,6 @@ thumbnail: https://thmb.techidaily.com/d4c3e08ad2c1079e3a0235e50a952e0f146bf5d50
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -91,4 +88,19 @@ thumbnail: https://thmb.techidaily.com/d4c3e08ad2c1079e3a0235e50a952e0f146bf5d50
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-crescent-casts-the-art-of-shaping-focal-points-with-light/"><u>[New] Crescent Casts The Art of Shaping Focal Points with Light</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-tech-assisted-jogs-top-virtual-reality-walking-machines-explored/"><u>[New] Tech-Assisted Jogs Top Virtual Reality Walking Machines Explored</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-premier-microphones-for-university-podcasts/"><u>[Updated] In 2024, Premier Microphones for University Podcasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-tailoring-audio-rate-on-mobile-and-desktops-for-youtube-for-2024/"><u>[Updated] Tailoring Audio Rate on Mobile and Desktops for YouTube for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ahoy-the-pirate-way-of-speaking/"><u>Ahoy, the Pirate Way of Speaking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-with-appropriate-japanese-phrases/"><u>Bridging Cultures with Appropriate Japanese Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/culinary-secrets-cooking-the-best-fried-eggs-in-7-steps-93-characters/"><u>Culinary Secrets: Cooking the Best-Fried Eggs in 7 Steps (93 Characters)</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/efficient-backup-of-camera-roll-to-share-via-snapchat/"><u>Efficient Backup of Camera Roll to Share via Snapchat</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-itel-p55-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Itel P55 to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-amazon-fire-tv-cube-review-a-revolutionary-approach-to-media-consumption/"><u>Innovative Amazon Fire TV Cube Review: A Revolutionary Approach to Media Consumption</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577153589-mastering-hindi-made-easy-top-8-reasons-why-choose-mondlys-online-platform/"><u>Mastering Hindi Made Easy: Top 8 Reasons Why Choose Mondly's Online Platform!</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-ai-evolution-continues-understanding-key-differences-between-google-palm-narrative-and-openais-gpt-narrative/"><u>The AI Evolution Continues: Understanding Key Differences Between Google PaLM Narrative and OpenAI's GPT-Narrative</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Macau: A Study in Linguistic Convergence"
-date: 2024-11-10T14:36:23.395Z
-updated: 2024-11-15T14:33:40.297Z
+date: 2024-11-19T18:31:34.258Z
+updated: 2024-11-24T22:31:10.760Z
 tags:
   - speak
   - english
@@ -50,6 +50,10 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
 ![Cantonese in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/cantonese.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Macanese: A Distinctive Creole Language of Macau
 
 **Macanese Patois or the Macanese creole language, known as Patuá** to its speakers, is a mixture of Cantonese, Malay, Sinhalese, and – most importantly – Portuguese. Developed as a lingua franca for communication among the multicultural community of traders, sailors, and settlers, Macanse emerged as a unique language reflecting the melting pot of cultures that Macau represented.
@@ -69,10 +73,7 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
  The linguistic connection between Macau and Portugal also results in significant movement between the two regions. According to the [2021 Macau Census](https://www.dsec.gov.mo/Censos2021/en-US/) , individuals born in Portugal make up around 0.3% of Macau’s total population, indicating a notable presence of Portuguese-born residents in Macau.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Official Portuguese Usage in Macau
@@ -82,10 +83,7 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
  In official government documents, both written Portuguese and written Chinese (traditional) are used. This dual-language approach demonstrates the recognition and value given to both languages in administrative matters. In daily life, it is common to come across signs and displays in Macau that feature written Chinese and written Portuguese. This parallel use of languages is similar to the coexistence of written Chinese and British English in Hong Kong.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cantonese: The Dominant Language of Macau
@@ -97,10 +95,7 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 ![multilingualism in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/multilingualism-in-macau.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 3")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Cantonese serves as the primary medium of instruction in the majority of schools in Macau. Additionally, there are mandatory classes that focus on Mandarin, ensuring students have exposure to and proficiency in the official language of China.
@@ -113,16 +108,13 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
  As China’s influence continues to grow, there has also been a rise in the use of Mandarin. Still, Cantonese remains dominant. On the other hand, Macanese (Patuá), with its small number of speakers, is in danger of extinction. In order to safeguard this distinctive aspect of Macau’s cultural heritage, concerted efforts are said to be made to preserve and promote Macanese through various cultural events and initiatives.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Is English widely spoken in Macau?
 
  English is not as widely spoken in Macau compared to Cantonese. However, due to Macau’s status as popular gambling destination, English is commonly understood and spoken. Many signs, menus, and information for tourists are also available in English. Additionally, English is taught as a compulsory subject in schools, contributing to a level of English proficiency among the younger generation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Are there any efforts to revitalize endangered languages in Macau?
 
@@ -164,16 +156,24 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-voice-driven-operation-platform-zero-price/"><u>[New] 2024 Approved Voice-Driven Operation Platform Zero Price</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-are-product-assessments-online-content-sold/"><u>[Updated] 2024 Approved Are Product Assessments Online Content Sold?</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-easy-effective-edits-that-make-a-mark-on-tiktok-for-2024/"><u>[Updated] Easy, Effective Edits that Make a Mark on TikTok for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-preserve-animated-gifs-effortlessly-with-these-top-9-apps-for-windows/"><u>2024 Approved Preserve Animated GIFs Effortlessly with These Top 9 Apps for Windows</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-vsdc-capture-expert-analysis-and-top-replacements/"><u>2024 Approved VSDC Capture Expert Analysis & Top Replacements</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/alphabetization-in-chinese-writing-systems/"><u>Alphabetization in Chinese Writing Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-advanced-dialogue-introducing-new-ai/"><u>Embrace Advanced Dialogue: Introducing New AI</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-educators-celebration-multilingual-homage/"><u>Global Educators Celebration: Multilingual Homage</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/professional-selections-best-5-interactive-capture-apps/"><u>Professional Selections Best 5 Interactive Capture Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/take-your-portuguese-skills-to-new-heights-discover-6-effective-methods/"><u>Take Your Portuguese Skills to New Heights: Discover 6 Effective Methods</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unity-in-diversity-mastering-cultural-exchange-techniques/"><u>Unity in Diversity: Mastering Cultural Exchange Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-leading-microphone-reviews-podcastings-best/"><u>[New] In 2024, Leading Microphone Reviews Podcasting's Best</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-editorial-elegance-at-the-end/"><u>[Updated] 2024 Approved Editorial Elegance at the End</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-render-and-upload-your-youtube-video-faster/"><u>[Updated] How to Render and Upload Your YouTube Video Faster?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pinnacle-cloud-solutions-highest-rated-reviewed/"><u>2024 Approved Pinnacle Cloud Solutions Highest-Rated Reviewed</u></a></li>
+<li><a href="https://media-tips.techidaily.com/access-your-epic-fantasy-adventure-live-play-skyrim-via-geforce-now/"><u>Access Your Epic Fantasy Adventure: Live Play Skyrim via GeForce Now!</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/crafters-guide-to-crafting-a-unique-tiktok-keyphrase-for-2024/"><u>Crafters' Guide to Crafting a Unique TikTok Keyphrase for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-samsung-galaxy-m14-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-chatter-mastery-top-simplest-languages-guidebook/"><u>Global Chatter Mastery: Top Simplest Languages Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-fast-track-bulgarian-learning/"><u>Language Leap: Fast-Track Bulgarian Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-ecosystem-foreign-words-thriving-in-eng/"><u>Linguistic Ecosystem: Foreign Words Thriving in ENG</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/making-sense-of-english-language-contractions-strategies-and-tips/"><u>Making Sense of English Language Contractions: Strategies and Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-hopes-for-the-resurrection-festival/"><u>Multilingual Hopes for the Resurrection Festival</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-threads-weaving-into-english-vocabulary/"><u>Multilingual Threads Weaving Into English Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oui-bienvenue-en-france-une-douceur-exprimee/"><u>Oui, Bienvenue! En France: Une Douceur Exprimée</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/refine-fluency-in-english-discourse-9-key-tactics/"><u>Refine Fluency in English Discourse – 9 Key Tactics</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-class-registration-issues-in-windows-10-how-to-guide/"><u>Resolved: Class Registration Issues in Windows 10 - How-To Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-with-confidence-learn-tagalog-each-day/"><u>Speak with Confidence: Learn Tagalog Each Day</u></a></li>
+<li><a href="https://win-able.techidaily.com/ultimate-guide-activating-and-setting-up-hyper-v-virtualization-in-windows-10/"><u>Ultimate Guide: Activating & Setting Up Hyper-V Virtualization in Windows 10</u></a></li>
+<li><a href="https://techtrends.techidaily.com/what-to-expect-from-your-upgrade-a-look-at-the-third-generation-apple-tv-with-ultra-hd/"><u>What to Expect From Your Upgrade: A Look at the Third Generation Apple TV with Ultra HD</u></a></li>
 </ul></div>
 

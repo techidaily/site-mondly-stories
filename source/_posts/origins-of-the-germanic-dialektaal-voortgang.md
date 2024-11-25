@@ -1,7 +1,7 @@
 ---
 title: Origins of the Germanic Dialektaal Voortgang
-date: 2024-11-13T19:28:42.738Z
-updated: 2024-11-14T20:39:11.895Z
+date: 2024-11-22T19:22:16.022Z
+updated: 2024-11-24T21:27:25.626Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/19cc3daca0ae766efaf5a0d940f51eeacf8f63806
 
  It’s true that Dutch and_Deutsch_ look and sound somehow similar and there \*was\* a connection there. But not anymore. So let’s settle this out once and for all.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Where are Dutch people from?
 
  It’s pretty obvious why this confusion still exists. There’s no surprise that even the reverse of this question (“what are people from the Netherlands called?”) is also a very popular Google inquiry. So what is the answer after all?
@@ -36,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/19cc3daca0ae766efaf5a0d940f51eeacf8f63806
 
  And this is not everything. Within the Holy Roman Empire, the word ‘Netherlands’ was widely used to indicate people from the low-lying (‘nether’) region (‘land’). That’s how ‘the Kingdom of the Netherlands’ got its name when it became a formal, separate country in 1815.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Where is the Netherlands?
 
  The Netherlands and the Kingdom of the Netherlands are two different entities. While the Netherlands is a country located in Western Europe, the Kingdom of the Netherlands is a comprehensive sovereign state consisting of four constituent countries: the Netherlands, Aruba, Curaçao, and Sint Maarten.
@@ -43,10 +51,7 @@ thumbnail: https://thmb.techidaily.com/19cc3daca0ae766efaf5a0d940f51eeacf8f63806
  So where exactly in Western Europe is the Netherlands? The country borders Germany to the east,[Belgium](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to the south, and the North Sea to the northwest. Its largest city and capital is Amsterdam.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The Netherlands vs Holland
@@ -63,13 +68,6 @@ Okay, bare with me. There’s more.
 
  Formerly the County of Holland (the most important county in the Low Countries region), Holland now consists of North and South Holland. These are two of the nation’s twelve provinces.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What language do they speak in the Netherlands?
 
  If you read the above explanations, you probably already understand the rationale.**People in the Netherlands speak the Dutch language.**
@@ -84,14 +82,11 @@ Okay, bare with me. There’s more.
 
 ![language in the netherlands](https://edge.mondly.com/blog/wp-content/uploads/2022/02/language-in-the-netherlands-960x573.jpg "Where Are Dutch People From? Discover The Dutch Language 3")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  ‘Tulip fields in the Netherlands’ by redcharlie©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What other countries speak Dutch?
 
@@ -102,16 +97,7 @@ Okay, bare with me. There’s more.
  If you travel to South Africa, you may think people speak Dutch, but they actually speak [Afrikaans](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , a language that evolved from Dutch.
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is German Dutch?
@@ -156,20 +142,20 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-master-commanders-unleashed-ranking-7-total-war-champions/"><u>[New] In 2024, Master Commanders Unleashed Ranking 7 Total War Champions</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-state-of-the-art-gametime-documentation-tools/"><u>[New] In 2024, State-of-the-Art Gametime Documentation Tools</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-innovative-strategies-for-keeping-a-log-of-whatsapp-calls/"><u>[New] Innovative Strategies for Keeping a Log of WhatsApp Calls</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-algorithm-advantage-tips-for-achieving-instagram-video-fame-for-2024/"><u>[New] The Algorithm Advantage Tips for Achieving Instagram Video Fame for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-engaging-openers-perfecting-podcast-intro-techniques/"><u>2024 Approved Engaging Openers Perfecting Podcast Intro Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aprende-a-agradecernos-a-los-animales-60-nombres/"><u>Aprende a Agradecernos a Los Animales: 60 Nombres</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brain-games-that-build-bilingual-brilliance/"><u>Brain Games That Build Bilingual Brilliance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breeze-through-basic-numbers-in-japanese/"><u>Breeze Through Basic Numbers in Japanese!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-english-mondlys-pathway-for-proficiency/"><u>Conquer English: Mondly's Pathway for Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/crafting-your-personalized-language-learning-plan/"><u>Crafting Your Personalized Language Learning Plan</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-culture-through-language-learn-hangul-understand-squid-game/"><u>Decoding Culture Through Language: Learn Hangul, Understand Squid Game</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577017353-enjoy-the-best-of-both-worlds-get-free-mondly-plus-for-life/"><u>Enjoy the Best of Both Worlds - Get Free Mondly Plus for Life!</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-treasures-on-youtube-understanding-unlisted-footage/"><u>Hidden Treasures on YouTube Understanding 'Unlisted' Footage</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/premier-playwrighting-for-public-broadcast-for-2024/"><u>Premier Playwrighting for Public Broadcast for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-address-webview-compatibility-for-fb-streaming/"><u>[New] Address WebView Compatibility for FB Streaming</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-decoding-authenticity-in-your-digital-instagram-family/"><u>[New] Decoding Authenticity in Your Digital Instagram Family</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-explore-the-top-5-snipping-utilities-for-chrome-os-users/"><u>[New] Explore The Top 5 Snipping Utilities For Chrome OS Users</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-enhancing-your-video-cover-images-updating-techniques-for-fb/"><u>[Updated] In 2024, Enhancing Your Video Cover Images Updating Techniques for FB</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/oad-youtube-playlists-with-ease-our-instructions-for-2024/"><u>Download YouTube Playlists with Ease - Our Instructions for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-fix-d3dx933dll-not-found-or-missing-errors/"><u>How to Fix D3dx9_33.dll Not Found or Missing Errors</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-on-apple-iphone-xs-max-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock On Apple iPhone XS Max?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-connects-educates-surpassing-the-70-million-mark-worldwide/"><u>Mondly Connects, Educates - Surpassing the 70 Million Mark Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pt-variants-analysis-brazilians-vs-europeans-button-trends/"><u>PT Variants Analysis: Brazilians vs Europeans - Button Trends</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-introduction-to-lithuanian-online/"><u>Seamless Introduction to Lithuanian Online</u></a></li>
+<li><a href="https://win-forum.techidaily.com/step-by-step-guide-to-managing-registry-entries-with-revo-uninstaller/"><u>Step-by-Step Guide to Managing Registry Entries with Revo Uninstaller</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-lexicon-of-love-a-journey-through-hungarian-sentences/"><u>The Lexicon of Love: A Journey Through Hungarian Sentences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-swashbucklers-handbook-navigating-piratical-chatter/"><u>The Swashbuckler's Handbook: Navigating Piratical Chatter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-motivations-for-learning-the-german-language/"><u>Top Motivations for Learning the German Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-without-borders-mondlys-mission-to-uplift-ukrainians-in-linguistics/"><u>Words Without Borders – Mondly’s Mission to Uplift Ukrainians in Linguistics</u></a></li>
 </ul></div>
 

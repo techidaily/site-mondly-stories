@@ -1,7 +1,7 @@
 ---
 title: Gepflegte Gute-Auftaktsätze Im Deutschen
-date: 2024-07-29T06:48:05.914Z
-updated: 2024-07-30T06:48:05.914Z
+date: 2024-11-21T21:06:56.012Z
+updated: 2024-11-24T22:41:49.717Z
 tags:
   - speak
   - english
@@ -21,8 +21,9 @@ thumbnail: https://thmb.techidaily.com/14ac9c60c0a7c6de320a160e01c4efc88f6a5375e
  Here are 15 different ways to say goodbye in German – from the well-known_Auf Wiedersehen_ to different variations of “see you later”. They will all come in handy sooner or later if you want to [learn German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and speak it like a native.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Auf Wiedersehen – ‘Goodbye’ in German
 
 **_Auf Wiedersehen_ is the most popular way to say goodbye in German.** It’s standard and neutral, so it can be used safely in all formal social contexts or whenever you feel you shouldn’t use a casual goodbye.
@@ -51,38 +52,24 @@ thumbnail: https://thmb.techidaily.com/14ac9c60c0a7c6de320a160e01c4efc88f6a5375e
 
  The more polite version of_Schönen Tag noch_ is_Einen schönen Tag noch_ . It means the same thing, but it is used by someone who wants to sound more formal and respectful.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Ciao – ‘Bye’
 
  The same as the rest of Europe, Germans borrowed [_Ciao_](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from the Italians. It’s a nice, friendly and very international way of parting ways with a friend.
 
  Just as chic, though not as common, is the French_Adieu_ or_Ade_ .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 6\. Man sieht sich – ‘See you’
 
  When you didn’t plan a next meeting or get-together and you’re not sure when you are going to see the other person, you can simply say_Man sieht sich_ , which means “see you”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Bis bald – ‘See you soon’ in German
 
  However, it’s way more common to take your leave by saying_Bis bald_ , which means “see you soon” in German. For the next three goodbyes, it will be useful to know that_bis_ is the German equivalent of “till”.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 8\. Bis später – ‘See you later’
 
  If you enjoy getting creative with your goodbyes in German,_Bis später_ is another great option for a casual farewell.
@@ -91,9 +78,6 @@ thumbnail: https://thmb.techidaily.com/14ac9c60c0a7c6de320a160e01c4efc88f6a5375e
 
  If you want to say “see you tomorrow”, you guessed it! You will say_Bis morgen_ .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. Bis Montag – ‘Until Monday’
 
  Also not uncommon is the usage of_bis_ in combination with the [days of the week in German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -107,22 +91,20 @@ thumbnail: https://thmb.techidaily.com/14ac9c60c0a7c6de320a160e01c4efc88f6a5375e
 * _Bis Sonntag_ – “Until Sunday”
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## basic german words
 
 ![basic german words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/basic-german-words-960x960.png "15 Ways To Say Goodbye In German 2")
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## 10\. Gute Nacht – ‘Good night’ in German
 
  Naturally,_Gute Nacht_ (“good night”) is another great way to say goodbye if you’re retiring for the night. Although we use_Guten Morgen_ (“good morning”) as a greeting,_Gute Nacht_ only works as a farewell.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 11\. Bis zum nächsten Mal – ‘See you next time’
 
@@ -131,6 +113,10 @@ No advertising on the website.
 ## 12\. Wir sehen uns dann – ‘See you then’
 
 _Wir sehen uns_ is another nice way to say “see ya later” if you are making plans with someone. Add_dann_ to that and it will mean something more along the lines of “see you then”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 13\. Viel Spaß – ‘Have fun’ in German
 
@@ -141,8 +127,9 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
  For more caring natures,_Mach’s gut_ is the perfect way to end a conversation. It is, of course, an informal way to say goodbye and it’s reserved for people with whom we have a special relationship.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 15\. Lebewohl – ‘Farewell’
 
  Last of not least, if you want to sound dramatic or crack a joke, you can always say_Lebewohl_ , which literally means “live well” but is most commonly translated as “farewell”.
@@ -176,8 +163,6 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -185,4 +170,26 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-in-depth-exploration-of-morphvox-modification-methods/"><u>[New] In-Depth Exploration of MorphVOX Modification Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/2-years-of-mondly-languages/"><u>2 Years of Mondly Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-eye-opening-reasons-for-global-language-proficiency/"><u>8 Eye-Opening Reasons for Global Language Proficiency</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/accelerate-your-gaming-experience-with-top-extensions/"><u>Accelerate Your Gaming Experience with Top Extensions</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/backup-windows-server-2019-in-un-caffe-passaggi-essenziali-per-lutente-principiante/"><u>Backup Windows Server 2019 in Un Caffè: Passaggi Essenziali per L'Utente Principiante</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-local-rap-figure-learn-27-authentic-french-expressions/"><u>Become a Local Rap Figure: Learn 27 Authentic French Expressions</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/best-top-timelapses-quick-capture-and-edit-for-2024/"><u>Best Top Timelapses Quick Capture & Edit for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilian-and-eu-portuguese-a-comparative-linguistic-examination/"><u>Brazilian and EU Portuguese: A Comparative Linguistic Examination</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultures-of-appreciation-multilingual-thank-you-guides-154/"><u>Cultures of Appreciation: Multilingual Thank-You Guides (154)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-power-of-arabic-6-compelling-online-advantages-with-mondly/"><u>Discover the Power of Arabic: 6 Compelling Online Advantages with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-number-one-in-spanish/"><u>Discovering Number One In Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580898500-fast-norsk-fluency-daily-ten-minute-boosts/"><u>Fast Norsk Fluency - Daily Ten-Minute Boosts</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-enhance-frame-rates-and-speed-up-your-ring-of-elysium-experience/"><u>How to Enhance Frame Rates and Speed Up Your Ring of Elysium Experience</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/imovie-blueprint-the-pathway-to-crafting-impressive-square-videos/"><u>IMovie Blueprint The Pathway to Crafting Impressive Square Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/innovative-tech-trends-leading-online-screen-capture-apps-for-2024/"><u>Innovative Tech Trends Leading Online Screen Capture Apps for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/sty-subscription-a-gateway-to-better-viewing-habits-in-2024/"><u>Is Hasty Subscription a Gateway to Better Viewing Habits, In 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/techniques-to-deal-with-missing-values-on-pcs-running-winos/"><u>Techniques to Deal with Missing Values on PCs Running WinOS</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-etiquette-of-engaging-with-artificial-intelligence-chatgpt-alexa-and-siri/"><u>The Etiquette of Engaging with Artificial Intelligence: ChatGPT, Alexa & Siri</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578757679-ukranian-in-a-flash-one-minute-a-day-65-chars-note-adjusted-for-brevity/"><u>Ukranian in a Flash, One Minute a Day (65 Chars) - Note: Adjusted for Brevity.</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Expressive French Greetings for Every Occasion & Setting
-date: 2024-07-29T06:47:01.466Z
-updated: 2024-07-30T06:47:01.466Z
+date: 2024-11-17T21:24:06.305Z
+updated: 2024-11-24T23:17:30.473Z
 tags:
   - speak
   - english
@@ -19,8 +19,9 @@ thumbnail: https://thmb.techidaily.com/d31c6f93e50a0d4cef2f6b0259a76d22bb0769d48
 _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to see you love the French language as much as I do! In some of the previous lessons, we’ve talked about [French phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ,[French movies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [best way to learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but for today’s lesson it’s time to go back to the basics and learn how to say “hello” in French. Of course, we all know and love the classic_Bonjour!_ But what are other French greetings we could use to diversify our French conversations?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The most common way to say “hello” in French:_Bonjour!_
 
  Literally meaning “good day”,_Bonjour_ is the most commonly used French greeting. Whether you go to a restaurant, meet someone randomly on the street or enter a_boulangerie_ (pastry shop), the French people you meet will probably greet you using Bonjour (if it’s not dark outside). If it’s getting dark, then you should consider switching to “good evening” in French:_Bonsoir._
@@ -29,41 +30,27 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  But everyone wants to make a change from time to time. So let’s dive into 12 ways to say hello in French that are not_Bonjour._
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. “Hi” in French –_Salut!_
 
  Just as commonly used, but a bit more informal,_Salut_ is what we could call_Bonjour_ ’s cool kid.
 
  Meaning “hi”, “hello” or sometimes even “bye”,_Salut_ is the informal French greeting you can use with family and friends but not with your boss or teacher.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. “Good morning” in French –_Bon matin!_
 
  European French doesn’t have an equivalent for “good morning”. So it’s good to know that while in France you shouldn’t use Bon matin. But if you happen to spend a charming morning in Paris, you can safely use – you guessed it –_Bonjour!_
 
  However, if you are in Quebec, you are free to use_Bon matin_ until 10 or 11 AM.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. “Good afternoon” in French –_Bon après-midi!_
 
  While it’s used less often than its brothers,_Bon après-midi_ is a nice twist to_Bonjour_ .
 
  But take notice! French speakers generally use it when they are saying goodbye, so you should follow their lead and avoid using it at the beginning of a conversation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. “Good evening” in French –_Bonsoir!_
 
@@ -73,9 +60,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Literally meaning “good night”,_Bonne nuit_ is used more as a “goodbye” than as a “hello”. So if you are spending time with your French friends,_Bonne nuit_ is a great way to let them them know you are retiring.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![french greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/11/french-greetings-scaled-722x960.jpg "How To Say Hello In French: 12 Useful French Greetings 2")
 
  “French fashion” by Charles 🇵🇭©
@@ -85,6 +69,10 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  Although it is not specific to face to face interactions,_Allô_ is still considered a greeting.
 
  Usually expressed with the raising tone of a question,_Allô_ is what you could say over the phone to check whether the person you are talking to is still on the other end of the line or not:_Allô?_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Excuse me? –_Excusez-moi?_
 
@@ -104,16 +92,14 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  The only slight difference is the level for formality associated of each phrase:_Ça va?_ is obviously more suitable for informal interactions with friends and family.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 10\. What’s up? –_Quoi de neuf?_
 
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 11\. The cute Bonjour:_Coucou!_
 
 _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It literally means “cuckoo” and it is used the same way we use “hey!” in English.
@@ -123,6 +109,10 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 ![bonjour](https://edge.mondly.com/blog/wp-content/uploads/2019/11/bonjour-scaled-960x641.jpg "How To Say Hello In French: 12 Useful French Greetings 3")
 
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 12\. How’s it going? –_Ça roule?_
 
@@ -134,8 +124,9 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Here’s how to learn French in just 10 minutes a day
 
  **Do you want to see Bonjour in action and maybe even learn conversational French?**
@@ -156,8 +147,6 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -165,4 +154,26 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-easing-out-the-melodies-advanced-techniques-in-adobe-premiere/"><u>[New] 2024 Approved Easing Out the Melodies Advanced Techniques In Adobe Premiere</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-step-by-step-tutorial-on-how-to-use-igtv-effectively/"><u>[New] 2024 Approved Step-by-Step Tutorial on How to Use IGTV Effectively</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-video-cataloging-mastery-perfecting-playlists-on-youtube-platform/"><u>[New] Video Cataloging Mastery Perfecting Playlists on YouTube Platform</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-checking-credentials-on-youtube/"><u>[Updated] Checking Credentials on YouTube</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-premier-text-manipulation-software-for-ae/"><u>[Updated] Premier Text Manipulation Software for AE</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-process-to-crafting-impressive-youtube-shorts-templates/"><u>[Updated] Step-By-Step Process to Crafting Impressive YouTube Shorts Templates</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enchanting-dialogues-romancing-with-deutsch/"><u>Enchanting Dialogues: Romancing with Deutsch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/endless-learning-opportunity-anniversary-of-1500-no-cost-sessions/"><u>Endless Learning Opportunity: Anniversary of 1500 No-Cost Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-guides-to-online-independent-and-zero-cost-japan-study/"><u>Essential Guides to Online, Independent & Zero-Cost Japan Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/examining-iberian-idiosyncrasies-language-comparison-of-spanish-and-portuguese/"><u>Examining Iberian Idiosyncrasies: Language Comparison of Spanish & Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-german-culture-with-its-25-most-used-sayings/"><u>Explore German Culture with Its 25 Most Used Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-affection-in-magyar-loving-words/"><u>Expressing Affection in Magyar: Loving Words</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fast-and-furious-networking-the-tp-link-av2000-powerline-adapter-reviewed-for-performance-and-design-flaws/"><u>Fast and Furious Networking: The TP-Link AV2000 Powerline Adapter Reviewed for Performance & Design Flaws</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-ways-to-profess-love-in-hungarian/"><u>Finding Ways to Profess Love in Hungarian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-language-essentials-for-global-communicators-the-basics-of-friendly-salutations/"><u>French Language Essentials for Global Communicators: The Basics of Friendly Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-latin-to-local-a-guide-to-chocolates-global-voice/"><u>From Latin to Local: A Guide to Chocolate's Global Voice</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-ricoh-mp-c3003-printer-up-and-running-with-latest-drivers/"><u>Get Your Ricoh MP C3003 Printer Up and Running with Latest Drivers</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-disabled-iphone-8ipad-without-computer-by-drfone-ios/"><u>How to Unlock Disabled iPhone 8/iPad Without Computer</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-xiaomi-mix-fold-3-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Xiaomi Mix Fold 3 FRP</u></a></li>
+</ul></div>
 

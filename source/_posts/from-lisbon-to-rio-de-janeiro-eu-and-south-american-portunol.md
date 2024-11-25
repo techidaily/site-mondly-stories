@@ -1,7 +1,7 @@
 ---
 title: "From Lisbon to Rio De Janeiro: EU and South American Portuñol"
-date: 2024-07-29T06:48:19.561Z
-updated: 2024-07-30T06:48:19.561Z
+date: 2024-11-23T20:02:00.252Z
+updated: 2024-11-24T23:33:04.866Z
 tags:
   - speak
   - english
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/667b327336657b37d917ada8179b0c23c67339c9f
 
  In general, those who speak either language can understand the other, but it may be difficult in some situations. That’s because there are so many nuances between the two. American linguist Albert Marckwardt coined the term “Colonial Lag” as a hypothesis that original varieties of a language (i.e., Brazilian Portuguese) change less than the variety spoken in the mother country (Portugal).
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## History
 
  Countries tend to follow the linguistic developments of the mother country with a bit of delay due to the geographical distance. Portuguese was not deemed the official language in Brazil until 1758, whereas the colonization really began in the 16th century. Over time, changes occurred in the language because of increasing contact with European and [Asian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) immigrants.
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/667b327336657b37d917ada8179b0c23c67339c9f
  The other countries colonized by Portugal speak a Portuguese more akin to the [mother language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Why? Many of them are [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) countries, so they don’t have external contact from other cultures that could have impacted their way of speaking. Secondly, compared to Brazil, those countries gained their independence much later and had more contact with Portugal during their early development.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Differences in the Pronunciation
 
  Pronunciation is one of the main differences between the languages. Brazilians speak vowels longer and wider, while Portuguese pronounce the words with a more closed mouth, without pronouncing the vowels as much.
@@ -39,12 +37,16 @@ thumbnail: https://thmb.techidaily.com/667b327336657b37d917ada8179b0c23c67339c9f
  The pronunciation of some consonants is also different, particularly the S at the end of a word. In Brazilian Portuguese, an S at the end of a word is pronounced as SS; in Portugal, it is pronounced as SH.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Accents
 
  Brazilian Portuguese is thought to be more phonetically pleasing to the ear thanks to its open vowels, while European Portuguese can sound somewhat garbled. Brazilian accents have a strong cadence and lift to them, making it easier to learn and understand.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Grammar and Spelling
 
@@ -59,9 +61,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  European Portuguese is the more formal of the two versions. In Brazilian Portuguese, the word**você** is used for “you” in informal settings; in European Portuguese,**tu** is utilized in the same context. In Portugal, they view the você as crude and thus remove the second-person pronoun in less casual situations and instead use the verb in the third-person singular.  
  When describing actions, Brazilians use “estou fazendo” to mean “I am doing,” and the European Portuguese use the infinitive form, “estou a fazer.” The latter is less direct and translates to “I am taken to doing.”
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Should You Learn Brazilian or European Portuguese?
 
  This is a highly personal decision. This will depend on your personal motives, availability of resources, future aspirations and goals. In general, the thing that sparked your interest in the language will have a direct impact on the dialect you choose. For example, if you love classic literature, European Portuguese might be the best way to go for you. If you love Carnival and samba, Brazilian Portuguese may be best.
@@ -69,8 +68,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  The availability of resources will also influence your decision. _“Brazil has a larger population than Portugal with many native speakers, impacting_ availability _of content. In other words, it’s simpler to locate resources for Brazilian Portuguese learners than it is for those who study the European kind”_ says Ryan McMunn of BRIC Language Systems. Finding a professional resource that offers instruction in Brazilian Portuguese with access to native speakers will greatly improve your chances of being successful and learning both at your pace and in a way that will last.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Future Goals
 
  What are your future plans? The answer will help you determine which Portuguese variety would be best for you. If you would like to work for the United Nations someday, you should learn Continental Portuguese because its operations are based in Europe. If you want a job in a North American enterprise, Brazilian Portuguese will be best because that country has a bigger economic and trading base.
@@ -104,8 +104,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Speak Portuguese fluently in just 10 minutes a day
 
  Do you want to speak Portuguese fluently fast? Get Mondly, the award-winning language learning app that will help you speak Portuguese as if it were your first language.
@@ -122,8 +123,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -131,4 +130,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-narrowing-down-the-video-platform-wars-youtube-shorts-against-tiktok/"><u>[New] In 2024, Narrowing Down the Video Platform Wars YouTube Shorts Against TikTok</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-beginner-pro-marketing-playbook-secrets-of-facebook-success/"><u>[Updated] The Beginner-Pro Marketing Playbook Secrets of Facebook Success</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-complete-srt-file-makers-handbook/"><u>2024 Approved The Complete SRT File Maker's Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-motivating-factors-to-choose-arabic-learning-through-mondly/"><u>6 Motivating Factors to Choose Arabic Learning Through Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/acquire-clear-articulation-in-russian-language/"><u>Acquire Clear Articulation in Russian Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-spoken-tongue-vs-american/"><u>British Spoken Tongue vs American</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captivate-romans-master-20plus-italian-expressions/"><u>Captivate Romans: Master 20+ Italian Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/corporate-language-milestones-achieve-and-excel/"><u>Corporate Language Milestones: Achieve and Excel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-10-vital-spanish-greeting-phrases/"><u>Discovering 10 Vital Spanish Greeting Phrases</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/download-winxdvd-software-premium-dvd-ripper-video-editor-and-hd-mover-compatible-with-windows-and-iphoneipad/"><u>Download WinXDVD Software: Premium DVD Ripper, Video Editor & HD Mover Compatible with Windows & iPhone/iPad</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-suggestion-system-what-it-means-for-you/"><u>Facebook’s Suggestion System: What It Means for You</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/step-by-step-crafting-top-instagram-videos-for-2024/"><u>Step-by-Step Crafting Top Instagram Videos for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/why-the-amazonbasics-7-port-usb-30-hub-is-a-must-have-comprehensive-review-and-insights/"><u>Why the AmazonBasics 7-Port USB 3.0 Hub Is a Must-Have: Comprehensive Review and Insights</u></a></li>
+</ul></div>
 

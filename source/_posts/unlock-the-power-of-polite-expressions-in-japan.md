@@ -1,7 +1,7 @@
 ---
 title: Unlock the Power of Polite Expressions in Japan
-date: 2024-10-29T16:46:52.998Z
-updated: 2024-11-04T19:03:29.911Z
+date: 2024-11-19T18:49:24.681Z
+updated: 2024-11-24T20:12:31.982Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/2ba6e093c71356d417ecac5da46572ca39801b84e
  Japanese culture is the culture of respect. You don’t have to visit Japan to know that. We all heard about the famously polite**Japanese bow** and about the big emphasis Japanese people place on the respect of hierarchy in the family and etiquette in general. It’s in their DNA. And the same as its culture, the**Japanese language** is one of the most polite languages in the world. It’s true that, as a tourist, you don’t have to [learn Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to perfection, but you know what they say: when in Rome, do as the Romans do and you will certainly increase the enjoyment of your adventure.
 
  Learning as much as a simple **_Konnichiwa_ (“hello” in Japanese)** or **_Arigato_ (“thank you” in Japanese)** can work wonders. So here’s a guide to all the**Japanese greetings** you’ll need in your Japanese adventure: from**“hello” in Japanese** to**_Moshi Moshi_** (used to say “hello” on the phone), goodbye and other**common Japanese greetings.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. “Hello” in Japanese
 
@@ -45,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/2ba6e093c71356d417ecac5da46572ca39801b84e
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
@@ -65,13 +73,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
 ## 3.“Goodbye” in Japanese
@@ -91,14 +92,11 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “See you soon, human” by Alain Pham©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -124,6 +122,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Kyoto, Japan” by Andre Benz©
 
 ## Don’t forget about the Japanese bow
@@ -141,13 +143,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -171,10 +166,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
@@ -209,17 +201,18 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-easy-peel-mac-screenshots-for-no-cost/"><u>[New] Easy-Peel Mac Screenshots for No Cost</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-androids-premier-gaming-application-decoding-the-kinemaster-experience/"><u>[Updated] In 2024, Android's Premier Gaming Application - Decoding the KineMaster Experience</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-total-domination-a-ranking-of-the-7-best-war-based-titans/"><u>[Updated] In 2024, Total Domination A Ranking of the 7 Best War-Based Titans</u></a></li>
-<li><a href="https://fox-place.techidaily.com/1728487051342-3/"><u>轻松消除资源回收桶中的不必要数据：3个简单办法</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/handling-stuck-google-chrome-sessions-how-to-force-relaunch-effectively/"><u>Handling Stuck Google Chrome Sessions: How to Force Relaunch Effectively</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-crafting-vivid-instagram-profile-previews/"><u>In 2024, Crafting Vivid Instagram Profile Previews</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/korean-calendar-decoded-a-weekly-overview/"><u>Korean Calendar Decoded: A Weekly Overview</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-landscape-exploring-uk-us-and-aussie-accent-differences/"><u>Linguistic Landscape: Exploring UK, U.S., and Aussie Accent Differences</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlyvr-experience-language-learning-beyond-boundaries/"><u>MondlyVR: Experience Language Learning Beyond Boundaries</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-language-learning-for-norge-proficiency/"><u>Quick Language Learning for Norge Proficiency!</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/staying-relevant-adapting-to-periscope-trends-for-2024/"><u>Staying Relevant Adapting to Periscope Trends for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-samsung-galaxy-s23-ultra-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Samsung Galaxy S23 Ultra</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-the-top-10-filmora-traits-fueling-video-magic/"><u>[New] In 2024, The Top 10 Filmora Traits Fueling Video Magic</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-laughing-through-the-metaverse-making-your-own-humor/"><u>2024 Approved Laughing Through the Metaverse Making Your Own Humor</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/dominate-your-digital-queries-with-perplexity-ai/"><u>Dominate Your Digital Queries with Perplexity AI</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-gratitude-archive-complete-collection-freepaid/"><u>In 2024, Gratitude Archive Complete Collection (Free/Paid)</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-enable-disable-and-change-safari-location-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Enable, Disable, and Change Safari Location on Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-motorola-g24-power-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Motorola G24 Power Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-samsung-galaxy-f04-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Samsung Galaxy F04 to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/merry-christmas-or-merry-xmas-in-different-languages/"><u>Merry Christmas Or Merry Xmas In Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-your-portuguese-skills-utilize-these-6-study-methods/"><u>Polish Your Portuguese Skills: Utilize These 6 Study Methods</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/solutions-innovantes-de-sauvegarde-and-restauration-pour-sql-server-databases-software/"><u>Solutions Innovantes De Sauvegarde & Restauration Pour SQl Server Databases Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/teaching-world-unity-through-diversity-of-speeches/"><u>Teaching World Unity Through Diversity of Speeches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tune-into-new-language-skills-using-scientific-musical-approaches/"><u>Tune Into New Language Skills - Using Scientific, Musical Approaches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valkomma-i-sverige-ditt-avstand/"><u>Välkomma I Sverige: Ditt Avstånd</u></a></li>
 </ul></div>
 

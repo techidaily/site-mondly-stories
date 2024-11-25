@@ -1,7 +1,7 @@
 ---
 title: "Los Diez Nombres Del Mundo en Español: Un Curso Semanal"
-date: 2024-11-08T03:56:52.276Z
-updated: 2024-11-15T06:27:06.108Z
+date: 2024-11-18T19:50:27.449Z
+updated: 2024-11-24T18:14:53.238Z
 tags:
   - speak
   - english
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/6f6094ec46399b3ab308c1c10a0d303a8a2fe57d5
  The days of the week are probably one of the first things you learn not just in Spanish but in any language. Even as a child, when you started speaking your native language, you started with “mom”, “dad”,[“hello”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , then you probably learned the parts of the body, how to count to ten, the colors and – naturally – the days of the week. Otherwise, how would you have been able to set up meetings with the other cool toddlers in the park? The days of the week are crucial for every toddler! 😂
 
  But no more talking. Let’s dive in and find out how to say Monday in Spanish.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The days of the week in Spanish
 
@@ -51,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/6f6094ec46399b3ab308c1c10a0d303a8a2fe57d5
 
 ![spanish days of the week](https://edge.mondly.com/blog/wp-content/uploads/2019/09/spanish-days-of-the-week.png "Monday To Domingo - Learn The Days Of The Week In Spanish 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The days of the week in Spanish in a nutshell.
 
 And only now you’re free to say that that was easy peasy lemon squeezy!
@@ -61,10 +69,7 @@ And only now you’re free to say that that was easy peasy lemon squeezy!
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Speak Spanish in just 10 minutes a day
@@ -72,10 +77,7 @@ And only now you’re free to say that that was easy peasy lemon squeezy!
  Do you want to see_los días de la semana_ in action? Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy ![Mondly](https://en.wikipedia.org/wiki/Mondly) is a pocket-held language tutor that allows you to put your brain on autopilot and enjoy the ride to fluency in more than 30 languages.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  By combining solid neural science, cutting-edge technologies, bite-sized Daily Lessons and a gamified experience guaranteed to make you addicted to learning languages, Mondly is ready to literally glue the Spanish language into your brain.
@@ -99,22 +101,18 @@ And only now you’re free to say that that was easy peasy lemon squeezy!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-unveiling-the-most-reliable-9-mic-devices-for-recording/"><u>[Updated] 2024 Approved Unveiling the Most Reliable 9 Mic Devices for Recording</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-racing-to-the-top-olympic-highlights-in-short-track-speed/"><u>[Updated] In 2024, Racing to the Top Olympic Highlights in Short Track Speed</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-optimizing-youtube-closures-a-comprehensive-guide-to-crafting-effective-end-screens-and-cards/"><u>[Updated] Optimizing YouTube Closures A Comprehensive Guide to Crafting Effective End Screens and Cards</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/5-myths-busted-the-real-power-of-polyglots/"><u>5 Myths Busted: The Real Power of Polyglots</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/become-a-connoisseur-of-german-sayings-top-25/"><u>Become a Connoisseur of German Sayings (Top 25)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boost-your-brain-with-music-effective-methods-for-multilingualism/"><u>Boost Your Brain with Music: Effective Methods for Multilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/colombias-danny-fund-a-lifeline-to-underprivileged-groups/"><u>Colombia's Danny Fund: A Lifeline to Underprivileged Groups</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/comparing-broadcast-tools-go-with-wirecast-or-obs-for-2024/"><u>Comparing Broadcast Tools Go With Wirecast or OBS for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/connective-horizons-proven-methods-for-intercultural-conversation/"><u>Connective Horizons: Proven Methods for Intercultural Conversation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/does-rigidity-thwart-language-acquisition/"><u>Does Rigidity Thwart Language Acquisition?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581908867-effortless-slovak-learning-in-just-ten-minutes-online/"><u>Effortless Slovak Learning in Just Ten Minutes Online</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/elevating-your-online-presence-a-complete-handbook-for-tiktok-name-change/"><u>Elevating Your Online Presence A Complete Handbook for TikTok Name Change</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579935808-ignite-cultural-curiosity-with-hindi-experience-7-exciting-mondly-benefits/"><u>Ignite Cultural Curiosity with Hindi - Experience 7 Exciting Mondly Benefits</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Xiaomi Redmi Note 13 Pro+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/one-solution-many-possibilities-windows-across-apple-and-windows-devices/"><u>One Solution, Many Possibilities: Windows Across Apple & Windows Devices</u></a></li>
-<li><a href="https://games-able.techidaily.com/ps3-game-access-via-ps4-system/"><u>PS3 Game Access via PS4 System</u></a></li>
-<li><a href="https://win11.techidaily.com/ultimate-tutorial-capturing-gaming-sounds-with-obs-comprehensive-step-by-step/"><u>Ultimate Tutorial: Capturing Gaming Sounds with OBS - Comprehensive Step-by-Step</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-exploring-the-best-android-and-ios-wedding-timers-for-seamless-countdowns/"><u>[Updated] Exploring the Best Android & iOS Wedding Timers for Seamless Countdowns</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/best-educational-apps-for-students-in-high-school-the-ultimate-list/"><u>Best Educational Apps for Students in High School - The Ultimate List!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-cod-black-ops-cold-war-error-message-solution-to-the-code-80070057-issue/"><u>Fixing Cod: Black Ops Cold War Error Message - Solution to the Code 80070057 Issue</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-htc-u23-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-video-earnings-explored-in-depth-look-at-dm-and-yo/"><u>In 2024, Video Earnings Explored In-Depth Look at Dm & Yo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-english-with-pearson/"><u>International English with Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-german-a-difficult-target-for-learners/"><u>Is German a Difficult Target for Learners?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/langsam-gehende-abfahrtsprache-fur-deutsche/"><u>Langsam Gehende Abfahrtsprache Für Deutsche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-reaches-global-classroom-hub-for-over-70m-students/"><u>Mondly Reaches Global Classroom Hub for Over 70M Students</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nations-unified-by-castilian-roots/"><u>Nations Unified by Castilian Roots</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/optimaler-screen-recorder-fur-windows-1087-pcs-vollstandige-oder-selektive-desktop-aufnahme/"><u>Optimaler Screen Recorder Für Windows 10/8/7 PCS – Vollständige Oder Selektive Desktop-Aufnahme</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-troubleshooting-failed-hosted-network-setup-on-windows-11/"><u>Resolved: Troubleshooting Failed Hosted Network Setup on Windows 11</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/snap-save-and-share-like-a-pro-with-the-mi-11-screen-recording-suite-for-2024/"><u>Snap, Save and Share Like a Pro with the Mi 11 Screen Recording Suite for 2024</u></a></li>
 </ul></div>
 

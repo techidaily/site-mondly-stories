@@ -1,7 +1,7 @@
 ---
 title: Unearthing the Roots of Human Verbal Expression
-date: 2024-11-03T17:44:28.005Z
-updated: 2024-11-05T05:37:13.107Z
+date: 2024-11-19T20:40:51.477Z
+updated: 2024-11-24T23:24:31.570Z
 tags:
   - speak
   - english
@@ -65,10 +65,7 @@ thumbnail: https://thmb.techidaily.com/025f6d9d96521fea43b8d17c7244b091345a22a6d
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4757&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4757&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4757&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4757&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4757%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Ancient languages: the oldest dead languages on Earth
@@ -76,13 +73,6 @@ thumbnail: https://thmb.techidaily.com/025f6d9d96521fea43b8d17c7244b091345a22a6d
 **Ancient languages** typically refer to**old extinct languages** that no longer have any speakers. A [dead language](https://en.wikipedia.org/wiki/Extinct%5Flanguage) , on the other hand, is “one that is no longer the native language of any community”, even if it is still in use, like [Latin](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 ![oldest language in the world](https://edge.mondly.com/blog/wp-content/uploads/2020/05/oldest-language-in-the-world-960x720.jpg "The First &Amp; Oldest Languages Ever Spoken: Origins Of Human Communication 3")
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Hercules furens” by Seneca
 
@@ -100,11 +90,19 @@ Other ancient languages that are now extinct are:
 * [**Hittite**](https://en.wikipedia.org/wiki/Anitta) – the oldest known text in the Hittite language was written by Anitta, a king that reigned in the 17th century BC;
 * [**Mycenaean Greek**](https://en.wikipedia.org/wiki/Linear%5FB) – the most ancient attested form of the Greek language with the earliest writings dating back to 1450 BC.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10 oldest living languages in the world
 
  The same as everything else in the world, languages have a life cycle. They are born, then grow, sometimes mutate and eventually die. Still, there are languages on Earth that have been on people’s lips for thousands of years and continue to exist to this day.
 
 Here are some of the oldest languages in the world still spoken today.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Sanskrit (cc. 3500 years old)
 
@@ -119,10 +117,7 @@ Here are some of the oldest languages in the world still spoken today.
  Although many believe Sanskrit to be an extinct language, 24,800 people have registered Sanskrit as their mother tongue at the 2011 census. Additionally, it continues to be used as a ceremonial and ritual language in Hinduism and some Buddhist practices.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Greek (cc. 3400 years old)
@@ -151,13 +146,6 @@ Here are some of the oldest languages in the world still spoken today.
 
 !['First language' by NEOM©](https://edge.mondly.com/blog/wp-content/uploads/2020/05/first-language-960x640.jpg "The First &Amp; Oldest Languages Ever Spoken: Origins Of Human Communication 4")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Hebrew (cc. 3000 years old)
 
 **First attested:** 10th century BCE
@@ -170,13 +158,6 @@ Here are some of the oldest languages in the world still spoken today.
 
  The fascinating thing about [Hebrew](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is that it had ceased to be an everyday spoken language somewhere between 200 and 400 AD. Then, it continued to be used throughout the medieval period as the language of Jewish liturgy, rabbinic literature and poetry. Nevertheless, with the rise of Zionism in the 19th century, it was revived as a spoken and literary language, becoming the main language of the Jewish community and subsequently of the [State of Israel](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Chinese (cc. 3200 years old)
 
 **First attested:** 1250 BC
@@ -188,6 +169,10 @@ Here are some of the oldest languages in the world still spoken today.
 [Old Chinese](https://en.wikipedia.org/wiki/Old%5FChinese) is the oldest attested stage of [Chinese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the ancestor of all modern varieties of Chinese. The earliest examples of Chinese are divinatory inscriptions on oracle bones from around 1250 BC, during the late Shang dynasty.
 
 ![oldest language](https://edge.mondly.com/blog/wp-content/uploads/2020/05/oldest-language-960x640.jpg "The First &Amp; Oldest Languages Ever Spoken: Origins Of Human Communication 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Hebrew” by Mick Haupt©
 
@@ -204,10 +189,7 @@ Here are some of the oldest languages in the world still spoken today.
  Historically, Aramaic was the language of the Arameans, the Semitic-speaking people from the region between the northern Levant and the northern Tigris valley.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Arabic (cc. 2800 years old)
@@ -219,6 +201,10 @@ Here are some of the oldest languages in the world still spoken today.
 **Current number of speakers:** 335 million
 
 [Old Arabic](https://en.wikipedia.org/wiki/Old%5FArabic) is the ancestor of the Arabic language and it is believed that its earliest inscription is a prayer to the three gods of the Transjordanian Canaanite kingdoms dated to the early 1st millennium BC.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Persian (Farsi) (cc. 2500 years old)
 
@@ -235,6 +221,10 @@ Here are some of the oldest languages in the world still spoken today.
 ![oldest living language](https://edge.mondly.com/blog/wp-content/uploads/2020/05/oldest-living-language-960x640.jpg "The First &Amp; Oldest Languages Ever Spoken: Origins Of Human Communication 6")
 
  “The Holy Book” by T Foz©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tamil – the oldest language in the world?
 
@@ -272,16 +262,13 @@ Here are some of the oldest languages in the world still spoken today.
 
  The five oldest European languages are: Greek, Latin, Basque, Lithuanian and Irish Gaelic. Although Latin is considered a dead language, many still study Latin and even speak it fluently.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How many languages are there in the world?
 
  According to Ethnologue, there are 7,168 living languages in the world today.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Why is it important to preserve endangered languages?
 
@@ -292,13 +279,6 @@ Here are some of the oldest languages in the world still spoken today.
 ### What is the most widely spoken language in the world now?
 
  The most widely spoken language in the world is Mandarin Chinese with 920 million native speakers. However, if you count both native and non-native speakers, English is the most spoken language with 1.5 billion speakers.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What can we learn from studying the world's oldest languages?
 
@@ -340,20 +320,15 @@ Here are some of the oldest languages in the world still spoken today.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-blueprint-for-youtube-video-success/"><u>[Updated] In 2024, The Blueprint for YouTube Video Success</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-learn-how-to-create-engaging-animation-from-any-video-for-2024/"><u>[Updated] Learn How To Create Engaging Animation From Any Video for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/pcand/"><u>「推奨画面録画アプリを活用したPCマニュアル：裏技&手びき」</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-concoct-chuckles-giphy-edition/"><u>2024 Approved Concoct Chuckles - Giphy Edition</u></a></li>
-<li><a href="https://techtrends.techidaily.com/fixing-missing-file-issue-how-to-restore-d3dx941dll-successfully/"><u>Fixing Missing File Issue: How to Restore d3dx9_41.dll Successfully</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hello-in-japanese-all-the-japanese-greetings-you-need-to-knowback-buttonfilter-button/"><u>Hello In Japanese - All The Japanese Greetings You Need To KnowBack ButtonFilter Button</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-agriculture-amalgamations-best-agrigames-to-share-with-pals/"><u>In 2024, Agriculture Amalgamations Best AgriGames to Share with Pals</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-of-the-garmin-forerunner-745-the-ultimate-gadget-for-multi-sports-enthusiasts/"><u>In-Depth Analysis of the Garmin Forerunner 745: The Ultimate Gadget for Multi-Sports Enthusiasts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/launchpad-arabic-for-new-learners/"><u>Launchpad: Arabic for New Learners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/original-vocal-augmented-reality-platform/"><u>Original Vocal Augmented Reality Platform</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ten-minute-tidbits-learn-bengali-fast/"><u>Ten-Minute Tidbits: Learn Bengali Fast</u></a></li>
-<li><a href="https://some-tips.techidaily.com/the-artisans-approach-to-gathering-stock-visuals-for-use-for-2024/"><u>The Artisan's Approach to Gathering Stock Visuals for Use for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-benefits-of-learning-a-new-language-in-your-senior-years/"><u>The Benefits of Learning a New Language in Your Senior Years</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-dutch-languages-ancestral-journey/"><u>The Dutch Language's Ancestral Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-different-spanish-greeting-phrases-a-must-know-list-of-10/"><u>Understanding Different Spanish Greeting Phrases - A Must Know List Of 10</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-a-list-of-the-quickest-rising-youtube-spaces-for-encouragement/"><u>[Updated] In 2024, A List of the Quickest Rising YouTube Spaces for Encouragement</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-ultimate-guide-to-7-superior-video-players-on-mac/"><u>[Updated] Ultimate Guide to 7 Superior Video Players on Mac</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/correcting-time-sensitive-issues-with-error-1053-enhancing-service-communication-and-availability/"><u>Correcting Time-Sensitive Issues with Error 1053: Enhancing Service Communication and Availability</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-the-complete-blueprint-for-screen-capture-excellence-with-adobe-captivity/"><u>In 2024, The Complete Blueprint for Screen Capture Excellence with Adobe Captivity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-australian-lingo-100plus-slang-terms-and-sayings-to-speak-like-an-aussie/"><u>Master Australian Lingo: 100+ Slang Terms & Sayings To Speak Like An Aussie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-merrymaking-embracing-us-independence/"><u>Multilingual Merrymaking: Embracing U.S. Independence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-chinese-welcoming-expressions/"><u>The Art of Chinese Welcoming Expressions</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-final-act-steps-for-permanent-instagram-account-removal-for-2024/"><u>The Final Act Steps for Permanent Instagram Account Removal for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-basics-of-spanish-numbers/"><u>Understanding The Basics Of Spanish Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-core-structure-of-facebooks-system/"><u>Unraveling the Core Structure of Facebook’s System</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Honterus’s Path to Inspiring Others
-date: 2024-11-09T17:37:55.658Z
-updated: 2024-11-14T23:57:08.436Z
+date: 2024-11-22T16:34:08.192Z
+updated: 2024-11-24T20:35:08.513Z
 tags:
   - speak
   - english
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 
  We at [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5187) are beyond proud to be able to pave the way to innovation and help millions of people worldwide learn languages from the very heart of Romania, in idyllic Transylvania. Although miles away from important high technology and innovation centers such as Berlin, London or Silicon Valley, we find inspiration everywhere around us – in people, places, art or even history. For example, one of the local historical figures who inspires us to be better every day is [Johannes Honterus](https://en.wikipedia.org/wiki/Johannes%5FHonter) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The first humanist gymnasium in Southeast Europe
 
  Born in 1498, in Brașov, right on the street where our headquarters lies today, Johannes Honterus was a Renaissance humanist, Protestant reformer, theologian and author. Honterus, also known as Honter or Johann Hynter (Latinized as Johann Honterus or Ioannes Honterus), is best known for implementing the Lutheran reform in Transylvania and establishing the Evangelical Church of Augustan Confession in Romania.
@@ -27,10 +31,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
  In our journey to help those who need it most, we draw inspiration from Honterus and pledge to give students the tools to succeed and the opportunity to learn in ways they never could have imagined. This is why we unveiled multiple state-of-the-art [iMac labs](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) at the Transilvania University of Brașov and several other high schools. In total, there are now 60 brand new iMacs helping young minds innovate in schools all over Brașov.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Rudimenta Cosmographica, the first European-wide manual
@@ -42,10 +43,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 ![honterus map](https://edge.mondly.com/blog/wp-content/uploads/2020/06/honterus-map-600x467.jpeg "Great Personalities Who Inspire Us: Johannes Honterus 2")
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The map of the world by Johannes Honterus
@@ -53,10 +51,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
  Additionally,_Rudimenta Cosmographica_ contained 13 maps of all known parts of the world engraved by Honterus himself. The book proved to be so successful that there were printed 39 editions of it in Brașov, Basel, Prague, Zürich, Antwerp and Cologne. Many consider_Rudimenta Cosmographica_ to be the first European-wide manual and the first Minor Atlas in Central and South-Eastern Europe.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Draw inspiration from the best
@@ -83,10 +78,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 Get Mondly now and speak any language like you never dreamed you would ![Get Mondly now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-5187%26mt%3D8 "Get Mondly now")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -104,18 +96,24 @@ Get Mondly now and speak any language like you never dreamed you would ![Get Mon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-complete-tutorial-on-zoom-podcasts-recording/"><u>[New] Complete Tutorial on Zoom Podcasts Recording</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-exclusive-mcb-logo-designs-and-templates-for-2024/"><u>[New] Exclusive MCB Logo Designs and Templates for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ltimate-video-popularity-predictor-top-8-insight/"><u>[New] Ultimate Video Popularity Predictor Top 8 Insight</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-updated-scrutiny-of-sony-s3700-high-definition-playback/"><u>[Updated] 2024 Approved Updated Scrutiny of Sony S3700 High Definition Playback</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/10-minute-blitz-for-fluency-in-urdu-language/"><u>10-Minute Blitz for Fluency in Urdu Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/age-defying-language-acquisition-tips/"><u>Age-Defying Language Acquisition Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparing-brazilian-and-european-portuguese/"><u>Comparing Brazilian And European Portuguese</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-german-a-foundational-guide-for-language-enthusiasts/"><u>Deciphering German: A Foundational Guide for Language Enthusiasts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoes-of-romance-classic-italian-flirting-techniques/"><u>Echoes of Romance: Classic Italian Flirting Techniques</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-cost-effective-action-cams-unveiled/"><u>In 2024, Cost-Effective Action Cams Unveiled</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-the-security-questions-of-your-apple-id-on-your-iphone-se-2020-by-drfone-ios/"><u>In 2024, How To Reset the Security Questions of Your Apple ID On Your iPhone SE (2020)</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-infinix-gt-10-pro-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Infinix GT 10 Pro to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/key-strategies-for-recruiting-superior-video-artists/"><u>Key Strategies for Recruiting Superior Video Artists</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-pip-activatedeactivate-in-safari-on-apple-devices/"><u>[New] Mastering PIP Activate/Deactivate in Safari on Apple Devices</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-much-does-pewdiepie-make/"><u>[Updated] How Much Does PewDiePie Make</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unlock-the-power-of-engagement-to-monetize-facebook/"><u>[Updated] In 2024, Unlock the Power of Engagement to Monetize Facebook</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-musicians-manual-to-copyright-navigation-on-instagram/"><u>2024 Approved The Musician's Manual to Copyright Navigation on Instagram</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/elevate-your-photos-decoding-the-best-canva-tips/"><u>Elevate Your Photos Decoding the Best Canva Tips</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixes-and-solutions-resolving-resident-evil-village-pc-game-crash-issues/"><u>Fixes & Solutions: Resolving Resident Evil Village PC Game Crash Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartfelt-harmony-romes-seductive-speech/"><u>Heartfelt Harmony: Rome’s Seductive Speech</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-tips-for-zoom-on-chrome-devices/"><u>In 2024, Top Tips for Zoom on Chrome Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kangaroo-talk-100plus-slang-for-the-aussies/"><u>Kangaroo Talk: 100+ Slang for the Aussies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-vr-multiplayer-the-future-of-language-learning-in-virtual-reality/"><u>Mondly VR Multiplayer: The Future Of Language Learning In Virtual Reality</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-the-honest-guide-to-getting-filmora-for-free-no-illegal-downloads/"><u>New In 2024, The Honest Guide to Getting Filmora for Free (No Illegal Downloads)</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/streamlined-savings-for-cloud-storage-costs-analysis/"><u>Streamlined Savings for Cloud Storage Costs Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swiftbangla-10-minute-daily-practice-routine/"><u>SwiftBangla: 10-Minute Daily Practice Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-linguistic-renaissance-how-learning-a-new-language-at-40plus-enhances-life/"><u>The Linguistic Renaissance: How Learning a New Language at 40+ Enhances Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-five-five-world-languages-compilation/"><u>Top Five-Five World Languages Compilation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-global-conversations-with-an-exclusive-95-discounted-learning-plan/"><u>Unlock Global Conversations with an Exclusive 95% Discounted Learning Plan!</u></a></li>
+<li><a href="https://games-able.techidaily.com/what-are-xbox-console-wraps/"><u>What Are Xbox Console Wraps?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-upcoming-artificial-companion-awaits/"><u>Your Upcoming Artificial Companion Awaits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shmaia-eyxhs-kalh-morfh-gkreman/"><u>Σημαία Ευχής Καλή Μορφή Γκρεμάν</u></a></li>
 </ul></div>
 

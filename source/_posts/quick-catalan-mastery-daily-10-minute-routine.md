@@ -1,7 +1,7 @@
 ---
 title: "Quick Catalan Mastery: Daily 10-Minute Routine"
-date: 2024-11-14T07:58:55.148Z
-updated: 2024-11-14T18:25:59.589Z
+date: 2024-11-17T23:54:05.425Z
+updated: 2024-11-24T16:57:29.013Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/defd396607cd2975fa174c851525eeb9f0360235b
 _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Your voice has been heard. **You can now learn Catalan online with Mondly in just 10 minutes a day and speak Catalan like a veritable Catalan for life!**
 
  Consisting of super fun, efficient and accessible language lessons, the new Catalan course is now available on [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4538&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca) ,[Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4538&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca) and [web](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4538&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Catalan language in a nutshell
 
@@ -38,19 +42,14 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
 
 ![learn catalan language](https://edge.mondly.com/blog/wp-content/uploads/2020/03/learn-catalan-language-1-277x600.jpg "Learn Catalan Online In Just 10 Minutes A Day 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Learn Catalan with Mondly
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where is Catalan spoken?
@@ -62,16 +61,7 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
  Additionally, the Catalan language is also recognized as a minority language in Alghero (Sardinia, Italy), Aragon (Spain) and in the Pyrénées-Orientales department of France. These regions are often called Països Catalans (Catalan Countries).
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Catalan vs Spanish
@@ -90,10 +80,7 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn Catalan online with Mondly
@@ -121,22 +108,24 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-cutting-edge-screen-recording-free-from-lag-frames-for-2024/"><u>[New] Cutting-Edge Screen Recording Free From Lag Frames for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-quick-route-to-your-latest-fb-video-viewings/"><u>[Updated] Quick Route to Your Latest FB Video Viewings</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-transformative-image-processing-auto-smart-hdr-3-and-4-insights/"><u>[Updated] Transformative Image Processing Auto, Smart HDR 3 & 4 Insights</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-xiaomi-redmi-note-12-4g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Xiaomi Redmi Note 12 4G without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-beginners-guide-to-japenese-social-etiquette/"><u>A Beginner's Guide to Japenese Social Etiquette</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/begin-latin-mastery-at-your-fingertips-online/"><u>Begin Latin Mastery at Your Fingertips Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boost-your-korean-skills-ranked-list-of-6-online-educational-tools/"><u>Boost Your Korean Skills: Ranked List of 6 Online Educational Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/building-blocks-of-spanish-verbal-forms/"><u>Building Blocks of Spanish Verbal Forms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conocer-los-nombres-de-animales-hispanohablantes/"><u>Conocer Los Nombres De Animales Hispanohablantes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conversational-charm-spoken-words-that-whisper-desire/"><u>Conversational Charm: Spoken Words That Whisper Desire</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580036957-embark-on-a-new-language-expedition/"><u>Embark on a New Language Expedition</u></a></li>
-<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-samsung-galaxy-s24-ultra-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Samsung Galaxy S24 Ultra Devices | Dr.fone</u></a></li>
-<li><a href="https://solve-help.techidaily.com/how-to-safely-back-up-your-data-preventing-loss-during-format-on-windows-10-8-and-7/"><u>How to Safely Back Up Your Data: Preventing Loss During Format on Windows 10, 8 & 7</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-zte-axon-40-lite-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From ZTE Axon 40 Lite to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Fixing Foneazy MockGo Not Working On Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581512791-revolutionize-your-year-with-unlimited-lifetime-access-to-mondly-premium-at-no-cost/"><u>Revolutionize Your Year with Unlimited Lifetime Access to Mondly Premium at No Cost!</u></a></li>
-<li><a href="https://windows11.techidaily.com/transforming-file-system-visibility-on-modern-windows-pcs/"><u>Transforming File System Visibility on Modern Windows PCs</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effective-techniques-for-handling-server-is-unable-to-communicate-with-rpc-on-pc/"><u>Effective Techniques for Handling 'Server Is Unable to Communicate with RPC' On PC</u></a></li>
+<li><a href="https://driver-download.techidaily.com/fatigue-testing-is-crucial-for-determining-the-safe-operating-limits-of-components-subjected-to-fluctuating-loads/"><u>Fatigue Testing Is Crucial for Determining the Safe Operating Limits of Components Subjected to Fluctuating Loads.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/great-personalities-who-inspire-us-johannes-honterus/"><u>Great Personalities Who Inspire Us: Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/horas-y-minutos-guia-sencilla-en-espanol/"><u>Horas Y Minutos: Guía Sencilla en Español</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/how-to-restore-your-deleted-windows-7-top-2-methods-explained/"><u>How to Restore Your Deleted Windows 지구7 사용자 프로필: Top 2 Methods Explained</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-a25-5gfrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy A25 5GFRP Lock</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-salutation-strategies/"><u>Multilingual Salutation Strategies</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-hugging-face-usage-and-significance-explained/"><u>Navigating Hugging Face: Usage and Significance Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-catalan-fast-learn-in-under-an-hour-a-day/"><u>Speak Catalan Fast: Learn in Under An Hour a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-saying-hello-in-japenese/"><u>The Art of Saying 'Hello' In Japenese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ceos-guide-to-mastering-company-language/"><u>The CEO's Guide to Mastering Company Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-european-melody-a-century-of-languages-unveiled-today/"><u>The European Melody: A Century Of Languages Unveiled Today</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-oppo-find-x7-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Oppo Find X7 to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-cloud-storages-essential-choices-for-you/"><u>Top Cloud Storages Essential Choices for You</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-pages-for-stylish-shiny-3d-type-creations/"><u>Top Pages for Stylish, Shiny 3D Type Creations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-resources-and-routines-for-self-learning-french/"><u>Top Resources & Routines for Self-Learning French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-spoken-mastery-with-these-17-everyday-spanish-phrases/"><u>Unlock Spoken Mastery with These 17 Everyday Spanish Phrases</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/unlock-the-secrets-top-4-factors-leading-to-user-unsubscription-prevent-losses-with-massmail/"><u>Unlock the Secrets: Top 4 Factors Leading to User Unsubscription - Prevent Losses with MassMail</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unveiling-magixs-image-organizer-insights-for-2024/"><u>Unveiling MAGIX's Image Organizer Insights for 2024</u></a></li>
 </ul></div>
 

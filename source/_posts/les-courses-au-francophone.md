@@ -1,7 +1,7 @@
 ---
 title: Les Courses Au Francophone
-date: 2024-11-13T03:39:49.230Z
-updated: 2024-11-15T13:21:55.864Z
+date: 2024-11-21T21:35:23.247Z
+updated: 2024-11-24T22:24:07.170Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/dc5fff1a9acb5e2e1b1bb4c72b06c12c5151a76a3
  Mastering something as essential as the**days of the week in French** may prove more practical than you think. Paris is always a good idea, but what if you miss your_mardi_ reservation at the #1 restaurant in Paris because you show up on_mercredi_ instead? We don’t want that to happen. That’s why it’s always best to dive into [learning French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) by mastering the essentials first: how to say “[hello](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ”, “[you’re welcome](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ” and the days of the week.
 
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Days of the week in French
 
@@ -74,10 +78,7 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -124,19 +125,20 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discover-help.techidaily.com/mts-file-conversion-tutorial-simplified-guide/"><u>.MTS File Conversion Tutorial - Simplified Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-mastering-vlogging-with-top-12-innovative-screen-swivel-cams/"><u>[New] 2024 Approved Mastering Vlogging with Top 12 Innovative Screen Swivel Cams</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-compelling-youtube-profile-definitions-for-2024/"><u>[Updated] Crafting Compelling YouTube Profile Definitions for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-reel-of-triumph-celebrating-fig-skaters-in-22/"><u>[Updated] In 2024, Reel of Triumph - Celebrating Fig Skaters in '22</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/become-a-korean-wiz-the-essential-guide-to-6-superior-sites/"><u>Become a Korean Wiz: The Essential Guide to 6 Superior Sites</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/belgiums-linguistic-landscape-explored/"><u>Belgium’s Linguistic Landscape Explored</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/crossing-cultures-through-the-pulse-of-language/"><u>Crossing Cultures Through the Pulse of Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-the-language-of-vietnam-for-first-timers/"><u>Decoding the Language of Vietnam for First-Timers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-new-horizons-the-joy-of-language-learning/"><u>Discovering New Horizons: The Joy of Language Learning</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/guide-to-disabling-your-laptops-touchpad-whenever-you-connect-a-mouse-on-windows-10/"><u>Guide to Disabling Your Laptop's Touchpad Whenever You Connect a Mouse on Windows 10</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-infographic-8-ways-to-make-money-on-youtube-for-beginners/"><u>In 2024, Infographic - 8 Ways to Make Money on YouTube for Beginners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579487205-mondly-gold-unlimited-zero-fee-access/"><u>Mondly Gold: Unlimited, Zero-Fee Access</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/quick-restoration-techniques-to-reactivate-virus-protection-in-windows/"><u>Quick Restoration Techniques to Reactivate Virus Protection in Windows</u></a></li>
-<li><a href="https://techidaily.com/solved-excel-2003-spreadsheet-disappears-after-opening-by-stellar-guide/"><u>Solved Excel 2003 Spreadsheet Disappears after Opening</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unveiling-av1-foundations-and-fundamentals-for-2024/"><u>[New] Unveiling AV1 Foundations and Fundamentals for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-practices-for-producing-encouragement-driven-vlogs-for-2024/"><u>[Updated] Best Practices for Producing Encouragement-Driven Vlogs for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-building-your-broadcast-empire-with-obs-and-online-platforms/"><u>[Updated] Building Your Broadcast Empire with OBS and Online Platforms</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-on-air-innovations-code-or-circuitry-prevails-in-2024/"><u>[Updated] On-Air Innovations Code or Circuitry Prevails, In 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/essential-tips-for-updating-the-system-management-bus-controller-on-dell-computers/"><u>Essential Tips for Updating the System Management Bus Controller on Dell Computers</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-tecno-pop-8-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Tecno Pop 8 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-pedagogy-discussion-with-global-peers/"><u>Innovative Pedagogy Discussion with Global Peers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-semaine-dun-novice-guide-des-dix-jours/"><u>La Semaine D'un Novice: Guide Des Dix Jours</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/local-lingo-lessons-australian-slang-unpacked/"><u>Local Lingo Lessons: Australian Slang Unpacked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-now-available-on-huawei-appgallery/"><u>Mondly Is Now Available on Huawei AppGallery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-english-contractions-made-simple/"><u>Navigating Through English Contractions Made Simple</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/still-using-pattern-locks-with-poco-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Poco? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-7-factors-contributing-to-sluggish-wi-fi-performance-on-mobile-devices/"><u>Top 7 Factors Contributing to Sluggish Wi-Fi Performance on Mobile Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-linguistic-curiosity-is-still-flourishing-at-sixty/"><u>Why Linguistic Curiosity Is Still Flourishing at Sixty?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-ways-to-express-cupids-affection-this-day/"><u>Worldwide Ways to Express Cupid's Affection This Day</u></a></li>
 </ul></div>
 

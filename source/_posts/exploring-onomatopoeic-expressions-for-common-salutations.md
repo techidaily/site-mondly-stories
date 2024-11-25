@@ -1,7 +1,7 @@
 ---
 title: Exploring Onomatopoeic Expressions for Common Salutations
-date: 2024-07-29T06:48:24.098Z
-updated: 2024-07-30T06:48:24.098Z
+date: 2024-11-17T17:19:22.599Z
+updated: 2024-11-24T23:35:12.685Z
 tags:
   - speak
   - english
@@ -19,8 +19,9 @@ thumbnail: https://thmb.techidaily.com/a3a2d9a996d9eb1a5a7f44f59aadc7d2130837ea4
  How should we say “hello” in Chinese? 你好 nǐ hǎo is maybe the most well-known Chinese greeting. But surely, like in many other languages, 你好 nǐ hǎo is not_the only way_ to greet someone in Chinese. There must be different kinds of greetings you can use with friends and other people you are close to, formal greetings that are suitable for business meetings, slightly formal “hello”s you can say when entering a store and so on. Well, indeed, there are! The [Chinese language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is just as rich in greetings as any other language. So, let’s dive in and learn the best ways to say “hello” in Mandarin like a fluent speaker.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Let’s learn how to actually say “hello” in Mandarin Chinese
 
  The Mandarin “hello” is the “hello” that brings more than 1 billion people together. As you probably already know, Chinese is the most spoken language in the world, so learning how to say “hello” in Chinese is a pretty big deal for any avid language learner such as yourself, wouldn’t you say?
@@ -31,9 +32,6 @@ thumbnail: https://thmb.techidaily.com/a3a2d9a996d9eb1a5a7f44f59aadc7d2130837ea4
 
  But if you want to get a little bit more formal and greet someone who is higher-ranked than you, then you can switch to the polite 您好 nín hǎo. It may seem like a small difference, but I can assure you: it makes all the… difference!
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![mandarin hello](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mandarin-hello-1024x683.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 2")
 
  “Li River, China” by Sam Beasley©
@@ -43,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/a3a2d9a996d9eb1a5a7f44f59aadc7d2130837ea4
 ## 1\. 早！(zǎo) – “Morning!” in Chinese
 
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. 你好吗? (nǐ hǎo ma) – “How are you?” in Chinese
 
@@ -54,14 +56,15 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. 你吃了吗？(nǐ chī le ma) – “Have you eaten?”
 
  Are you confused? Amused? Or maybe a little bit of both? I was, too, when I first heard this greeting. When someone says 你吃了吗？(nǐ chī le ma) to you, they don’t actually want to know if you have eaten. In Chinese culture, this greeting is used as a way of showing someone you care about their well-being.
 
  To answer to this greeting, you can say “chī le, nǐ ne?” which means “I’ve eaten, how about you?”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. 久仰 (jiǔyǎng) – a very formal Chinese greeting
 
@@ -69,18 +72,6 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  If you want something even MORE‌ formal than that, go with 久闻大名 (jiǔwéndàmíng) literally meaning “your name is famous” – a phrase which could translate to something like “I have heard much about you”. But only use this on very special occasions like meeting the president or a person you hold in very high regard.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. 最近好吗？(zuì jìn hào mǎ) – “How are you these days?”
 
  Isn’t this beautiful? It’s very similar to the English “how are you?”, so you can use it accordingly.
@@ -90,8 +81,9 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  “Hello there!” by Theodor Lundqvist©
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
 
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
@@ -100,17 +92,13 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  Want to diversify the way you greet people in Chinese? Then you can go with 下午好 (xiàwǔ hǎo) when it’s the right time of the day.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
@@ -139,8 +127,6 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -148,4 +134,18 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-capturewiz-windows-10s-snapshot-hero/"><u>[New] 2024 Approved CaptureWiz Windows 10'S Snapshot Hero</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-best-tech-in-cards-for-4k-video-editing/"><u>[New] Best Tech in Cards For 4K Video Editing</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-quick-and-easy-image-trimming-techniques-for-websites/"><u>[New] Quick & Easy Image Trimming Techniques for Websites</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-locate-your-youtube-fanbase-for-2024/"><u>[Updated] How to Locate Your YouTube Fanbase for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-iphone-photography-breakthroughs-with-lifelike-motion/"><u>[Updated] IPhone Photography Breakthroughs with Lifelike Motion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-simplicity-in-downloading-youtube-graphics/"><u>[Updated] Simplicity in Downloading YouTube Graphics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-croatian-connoisseur-heres-your-list-of-7-key-benefits/"><u>Become a Croatian Connoisseur – Here's Your List Of 7 Key Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/connected-culture-facebooks-journey-to-meta-universe/"><u>Connected Culture: Facebook’s Journey to Meta Universe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-curiosity-and-understanding-through-language/"><u>Cultivating Curiosity and Understanding Through Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/developing-fluent-english-for-immigrants/"><u>Developing Fluent English for Immigrants</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581073381-unlock-language-skills-buy-now-save-big/"><u>Unlock Language Skills - Buy Now, Save Big</u></a></li>
+</ul></div>
 

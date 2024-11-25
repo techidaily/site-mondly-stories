@@ -1,7 +1,7 @@
 ---
 title: "Entender El Calendario Semanal: El Español Para Cada Jornada"
-date: 2024-07-29T06:47:38.136Z
-updated: 2024-07-30T06:47:38.136Z
+date: 2024-11-18T16:05:20.303Z
+updated: 2024-11-24T17:55:10.491Z
 tags:
   - speak
   - english
@@ -23,8 +23,9 @@ thumbnail: https://thmb.techidaily.com/fff656b551e024a92bec77f08e34169fdbb7972da
  But no more talking. Let’s dive in and find out how to say Monday in Spanish.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The days of the week in Spanish
 
  Show 10 25 50 100  entries
@@ -52,10 +53,11 @@ thumbnail: https://thmb.techidaily.com/fff656b551e024a92bec77f08e34169fdbb7972da
 * **“on Monday” in Spanish can’t be translated verbatim** – for example, “I will pay you a visit on Monday” translates to “te haré una visita**el** lunes” in Spanish. Although you could be tempted to say “en”, don’t do it! The only correct way to talk about something happening on a specific day in Spanish is by using the pronouns_el_ and_los_ (e.g. “she visits her grandma every Sunday” will translate to “ella visita a su abuela todos**los** domingos”)
 * **to make a day of the week plural, you add an_s_**  (if it doesn’t already end in one) – this means_lunes_ will remain_lunes_ for the plural form_los lunes_ , but_domingo_ will become_domingos_ –_los domingos._ In other words, the only days that get an_s_ for their plural form are_sábado_ and_domingo_ :_sábados y domingos._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![spanish days of the week](https://edge.mondly.com/blog/wp-content/uploads/2019/09/spanish-days-of-the-week.png "Monday To Domingo - Learn The Days Of The Week In Spanish 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The days of the week in Spanish in a nutshell.
 
@@ -67,14 +69,16 @@ And only now you’re free to say that that was easy peasy lemon squeezy!
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Speak Spanish in just 10 minutes a day
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
  Do you want to see_los días de la semana_ in action? Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy ![Mondly](https://en.wikipedia.org/wiki/Mondly) is a pocket-held language tutor that allows you to put your brain on autopilot and enjoy the ride to fluency in more than 30 languages.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  By combining solid neural science, cutting-edge technologies, bite-sized Daily Lessons and a gamified experience guaranteed to make you addicted to learning languages, Mondly is ready to literally glue the Spanish language into your brain.
 
@@ -88,8 +92,6 @@ And only now you’re free to say that that was easy peasy lemon squeezy!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -97,4 +99,20 @@ And only now you’re free to say that that was easy peasy lemon squeezy!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-a-deep-dive-into-video-platform-profit-margins-dailymovement-vs-youtube/"><u>[New] A Deep-Dive Into Video Platform Profit Margins DailyMovement vs YouTube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-unlocking-efficiency-how-to-document-your-google-collaborations-for-2024/"><u>[New] Unlocking Efficiency How to Document Your GooGle Collaborations for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-essential-android-gb-advance-emulator-list/"><u>[Updated] 2024 Approved Essential Android GB Advance Emulator List</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-deciphering-the-must-haves-for-an-enhanced-youtube-experience/"><u>[Updated] Deciphering the Must-Haves for an Enhanced YouTube Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-minutes-a-day-bengali-made-simple/"><u>10 Minutes a Day: Bengali Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingual-bliss-dive-into-new-language-realities-with-vr/"><u>Bilingual Bliss: Dive Into New Language Realities with VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-barriers-with-mondly-1-for-language-learning-2022-edition/"><u>Break Barriers with Mondly: #1 for Language Learning, 2022 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cifre-e-parole-unisciamo-la-comunicazione-con-i-numeri-italiani/"><u>Cifre E Parole - Unisciamo La Comunicazione Con I Numeri Italiani</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colloquial-contrasts-rio-vs-romes-linguistic-landscapes/"><u>Colloquial Contrasts: Rio Vs. Rome's Linguistic Landscapes</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/downloading-and-updating-the-brother-mfc-7860dw-drivers-on-your-pc/"><u>Downloading and Updating the Brother MFC-#7860DW Drivers on Your PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-speaking-with-pearson-language-services/"><u>Elevate Your Speaking with Pearson Language Services</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722965456391-enhance-your-gaming-experience-with-updated-rtx-2080-super-graphics-card-drivers-on-windows-11-download-now/"><u>Enhance Your Gaming Experience with Updated RTX 2080 Super Graphics Card Drivers on Windows 11 - Download Now!</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/graphic-interface-problem-solved-on-windows-platform/"><u>Graphic Interface Problem Solved on Windows Platform</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Key Croatian Expressions for an Unforgettable Journey to Croatia
-date: 2024-11-12T18:59:02.157Z
-updated: 2024-11-15T11:41:47.859Z
+date: 2024-11-17T16:10:04.891Z
+updated: 2024-11-24T21:47:42.808Z
 tags:
   - speak
   - english
@@ -65,10 +65,7 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
  “Plitvice Lakes National Park” by Jonatan Pie©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Basic Croatian phrases for travelers that need help
@@ -89,13 +86,6 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 * Please stop here. –_Stanite ovdje, molim._
 * Please wait a moment. –_Pričekajte trenutak, molim Vas._
 * I’ll be back immediately. –_Odmah se vraćam._
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Croatian phrases for food lovers
 
@@ -119,10 +109,7 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Basic Croatian for travelers who need a place to spend the night
@@ -155,6 +142,10 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 * One ticket, please. –_Jednu kartu bih Vas molio._
 * Are there seats available? –_Ima li slobodnih mjesta?_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Croatian phrases about love
 
  Love is paramount and ubiquitous. So don’t be surprised if you fall in love in Croatia. Everywhere is the perfect place to fall in love. Your soulmate can be right beside you or maybe thousands of miles away. So why not be thoughtful and learn some**Croatian phrases** about love beforehand? You never know who you might bump into. Kit Harington and Emilia Clarke could be roaming the streets of Dubrovnik right now (hihihi).
@@ -176,13 +167,14 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 
 ![croatian words](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-words-1024x682.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Primošten, Croatia” by Hrvoje Klaric©
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Learn Croatian for your shopping sprees
@@ -264,20 +256,16 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-generating-an-auto-subscribe-url-template/"><u>[New] 2024 Approved Generating an Auto-Subscribe URL Template</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-jumpstart-your-photo-editing-essential-pixlr-wisdoms/"><u>[New] 2024 Approved Jumpstart Your Photo Editing Essential Pixlr Wisdoms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/10-easy-to-learn-italian-gestures-for-beginners/"><u>10 Easy-to-Learn Italian Gestures for Beginners</u></a></li>
-<li><a href="https://howto.techidaily.com/android-screen-stuck-general-honor-magic-6-lite-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Honor Magic 6 Lite Partly Screen Unresponsive | Dr.fone</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/boost-data-space-move-from-compact-drives-to-expansive-solutions/"><u>Boost Data Space: Move From Compact Drives to Expansive Solutions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decipher-squid-game-master-korean-essentials/"><u>Decipher Squid Game: Master Korean Essentials</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-the-power-of-voice-and-text-on-huawei/"><u>Explore the Power of Voice & Text on Huawei</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-the-most-suitable-new-language-option/"><u>Exploring the Most Suitable New-Language Option</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fake Snapchat Location on Apple iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-look-at-the-garmin-forerunner/"><u>In-Depth Look at the Garmin Forerunner</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-social-interactions-indonesian-phrases-and-etiquette/"><u>Navigating Social Interactions: Indonesian Phrases & Etiquette</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-the-obstacle-of-error-80240020-during-windows-10-setup-your-ultimate-fixing-manual/"><u>Overcoming the Obstacle of Error 80240020 During Windows 10 Setup - Your Ultimate Fixing Manual</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essential-repertoire-of-italian-gesture-language/"><u>The Essential Repertoire of Italian Gesture Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-first-encounter-with-german-linguistics-phonetics-and-alphabet-guide/"><u>Your First Encounter with German Linguistics: Phonetics & Alphabet Guide</u></a></li>
+<li><a href="https://win-webster.techidaily.com/comment-desactiver-onedrive-efficacement-les-5-meilleures-methodes/"><u>« Comment Désactiver OneDrive Efficacement : Les 5 Meilleures Méthodes »</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-boosting-video-impact-integrating-free-luts-into-your-obs-workflow/"><u>[Updated] Boosting Video Impact Integrating Free LUTs Into Your OBS Workflow</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-full-length-video-view-remove-youtube-preview-for-2024/"><u>[Updated] Full-Length Video View Remove YouTube Preview for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-professional-thumbnail-creation-for-youtube-macos-style/"><u>2024 Approved Professional Thumbnail Creation for YouTube (macOS Style)</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/branding-breakthrough-constructing-logos-for-podcasts/"><u>Branding Breakthrough Constructing Logos for Podcasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-edunet-at-bett-2022-bridging-educator-communities-worldwide/"><u>Global Edunet at BETT 2022: Bridging Educator Communities Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-app-for-oculus-quest-mondlys-latest-feature/"><u>Language App for Oculus Quest - Mondly's Latest Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shanty-speak-for-the-swashbuckler-essential-pirate-words/"><u>Shanty-Speak for the Swashbuckler: Essential Pirate Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speech-recognition-revolutionizing-augmented-interaction/"><u>Speech Recognition: Revolutionizing Augmented Interaction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-revolutionary-ai-chat-experience-has-arrived/"><u>The Revolutionary AI Chat Experience Has Arrived</u></a></li>
+<li><a href="https://discover-best.techidaily.com/vhsdvd2/"><u>VHSからDVDへ直接録画：2つのシンプルな変換手段</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Exploring 27 Phrases for Perfecting French Pronunciation
-date: 2024-07-29T06:47:34.779Z
-updated: 2024-07-30T06:47:34.779Z
+date: 2024-11-22T19:23:28.543Z
+updated: 2024-11-24T22:54:27.517Z
 tags:
   - speak
   - english
@@ -21,8 +21,9 @@ thumbnail: https://thmb.techidaily.com/476c827c9a85439232c4139c83a2305fa9ac69841
  Additionally, French sayings will provide insight into French history and culture and they will also make you sound more natural, more authentic. After all, this is your main goal when [learning French](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5378&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5378?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5378?mother%5Flang=en%5Fus?target%5Flang=fr) , isn’t it? So let’s dive in and see what French sayings, expressions, and idioms you can use to sound as if you were French-born.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## General French sayings
 
  So what is a French saying? A saying is a short, pithy, and commonly known expression that offers wisdom or a piece of advice. You probably heard the English expression “the apple doesn’t fall far from the tree” meaning that a child has similar qualities to his parents. Well, this is the perfect example of what we could call a saying.
@@ -42,8 +43,9 @@ thumbnail: https://thmb.techidaily.com/476c827c9a85439232c4139c83a2305fa9ac69841
  – _Qu’est-ce que tu attends ? Il faut battre le fer pendant qu’il est chaud !_ (“What are you waiting for? Strike the iron while it’s hot!”)
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### _2\. Ce n’est pas la mer à boire._
 
 **Literal translation:** “It’s not as if you have to drink the sea.”
@@ -60,9 +62,6 @@ thumbnail: https://thmb.techidaily.com/476c827c9a85439232c4139c83a2305fa9ac69841
 
  “The French way” by Alex D’Alessio©
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### _3\. La nuit porte conseil._
 
 **Literal translation:** “The night brings advice.”
@@ -76,8 +75,9 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
  –_La nuit porte conseil._ (“Sleep on it.”)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### _4\. Comme on fait son lit, on se couche._
 
 **Literal translation:** “You’ve made your bed, now lie on it.”
@@ -107,8 +107,9 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
  –_Vouloir, c’est pouvoir._ (“Where there’s a will, there’s a way.”)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### _6\. Impossible n’est pas français._
 
 **Literal translation:** “Impossible isn’t French.”
@@ -144,8 +145,9 @@ _– Notre nouveau collègue semble être une personne très calme._ (“Our new
 _– L’habit ne fait pas le moine._ (“Don’t judge a book by its cover.”)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### _9\. Mieux vaut tard que jamais._
 
 **Literal translation:** “Late is worth more than never.”
@@ -156,25 +158,10 @@ _– L’habit ne fait pas le moine._ (“Don’t judge a book by its cover.”)
 
  – _J’ai 20 minutes de retard au gymnase. Mais mieux vaut tard que jamais._  (“I’m 20 minutes late to the gym. But it’s better to be there late than never.”)
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![french idioms](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-idioms-960x639.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 3")
 
  France, Paris
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ### _10\. Aux innocents les mains pleines._
 
 **Literal translation:** “Full hands for the innocents.”
@@ -187,9 +174,6 @@ _– Comment est-ce possible? Sadie a gagné encore une fois !_ (“How is this 
 
 _– Aux innocents les mains pleines._ (“Beginner’s luck”)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### _11\. Mieux vaut être seul que mal accompagné._
 
 **Literal translation:** “Better alone than in a bad company.”
@@ -203,8 +187,9 @@ _– La copine de Jacques vient de le quitter._ (“Jacques’s girlfriend just 
 _– Mieux vaut être seul que mal accompagné._ (“Better alone than in a bad company.”)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### _12\. Après la pluie, le beau temps._
 
 **Literal translation:** “After the rain, good weather.”
@@ -226,6 +211,10 @@ _– Je viens de perdre mon emploi mais je ne vais pas perdre l’espoir._ _Apr�
 _– Voulez-vous savoir ce que j’ai acheté pour l’anniversaire de maman?_ (“Do you want to know what I bought for mom’s birthday?”)
 
 _– Shhh ! Les murs ont des oreilles._ (“Shhh! The walls have ears.)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _14\. Tout est bien qui finit bien._
 
@@ -253,9 +242,6 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
  –_L’appétit vient en mangeant._ (“Appetite comes with eating.”)
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### _2\. Mangez bien, riez souvent, aimez beaucoup._
 
 **Literal translation:** “Eat well, laugh often, love a lot.”
@@ -265,6 +251,10 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 ![french proverbs](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-proverbs-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 4")
 
  “Take care of your own onions” by MILKOVÍ©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _3\. S’occuper de ses oignons._
 
@@ -296,9 +286,6 @@ _– Ça suffit! Tu racontes des salades !_ (“Enough with that. What you are s
 
 _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Stop annoying me! You are not winning this bet.”)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### _6\. La vie est trop courte pour boire du mauvais vin._
 
 **Literal translation:** “Life is too short to drink bad wine.”
@@ -310,13 +297,9 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
  “Tigger looking for rats online” by Catherine Heath©
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## French sayings about animals
 
  Sayings about animals are common in any language. After all, they are our co-residents on this planet and we have quite a lot to learn from them. Here are some of the most common French sayings about animals.
@@ -345,15 +328,16 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  – _Oui, les chiens ne font pas des chats. Elle a hérité du talent de sa mère._ (“Yes, dogs don’t make cats. She inherits her mother’s talent.”)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### _3\. Il n’y a pas de quoi fouetter un chat._
 
 **Literal translation:** “There’s no reason to whip the cat.”
 
 **Actual meaning:** “It’s no big deal” or “it doesn’t matter”. Obviously, once you know this expression, you’ll want to use it all the time.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![french saying](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-saying-960x720.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 6")
 
  “Bonjour!” by Waranya Mooldee©
@@ -364,27 +348,18 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
 **Actual meaning:** “To stand someone up”. If the person you were supposed to meet doesn’t show up, you can say_il m’a posé un lapin_ (“he stood me up”).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### _5\. Avoir une araignée au plafond._
 
 **Literal translation:** “To have a spider on the ceiling.”
 
 **Actual meaning:** If you know someone that “has screw loose” or is a bit crazy, weird, or odd, in French, you can say_il a une araignée au plafond_ (“he is a bit crazy”).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### _6\. Ce n’est pas la vache qui crie le plus fort qui fait le plus de lait._
 
 **Literal translation:** “It’s not the cow that moos the loudest who gives the most milk.”
 
 **Actual meaning:** Talkers are not always doers. The one who talks the most is not always the smartest or the most resourceful.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ### _7\. Peigner la girafe._
 
 **Literal translation:** “To comb the giraffe.”
@@ -420,8 +395,6 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -429,4 +402,19 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/updated-cutting-edge-communication-strategies-merging-slack-with-filmoras-capabilities-for-2024/"><u>[Updated] Cutting-Edge Communication Strategies Merging Slack with Filmora's Capabilities for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-revolutionize-playtime-win11s-game-library/"><u>2024 Approved Revolutionize Playtime Win11's Game Library</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-zero-cost-green-screens-for-professionals/"><u>2024 Approved Zero-Cost Green Screens for Professionals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/australian-vernacular-essentials/"><u>Australian Vernacular Essentials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581368773-black-friday-bonanza-learn-any-language-zero-cost/"><u>Black Friday Bonanza: Learn Any Language, Zero Cost!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprehensive-guide-over-100-crucial-russian-phrases/"><u>Comprehensive Guide: Over 100 Crucial Russian Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dominant-language-used-in-israel/"><u>Dominant Language Used in Israel?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficiently-learn-finnish-with-optimal-digital-techniques/"><u>Efficiently Learn Finnish with Optimal Digital Techniques</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/is-chatgpt-a-dependable-source-for-health-advice/"><u>Is ChatGPT a Dependable Source for Health Advice?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/rapid-execution-instant-clearance-of-signature-bg/"><u>Rapid Execution Instant Clearance of Signature Bg</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/e-your-favorite-youtube-images-download-without-paying-for-2024/"><u>Secure Your Favorite YouTube Images Download without Paying for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On OnePlus Open | Dr.fone</u></a></li>
+</ul></div>
 

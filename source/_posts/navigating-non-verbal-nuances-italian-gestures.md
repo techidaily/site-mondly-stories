@@ -1,7 +1,7 @@
 ---
 title: "Navigating Non-Verbal Nuances: Italian Gestures"
-date: 2024-11-11T12:57:28.712Z
-updated: 2024-11-15T11:52:49.161Z
+date: 2024-11-18T20:46:40.907Z
+updated: 2024-11-24T23:09:27.679Z
 tags:
   - speak
   - english
@@ -41,10 +41,7 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 **Origin:** funnily enough, the most common theory could be considered inappropriate and I shall not disclose it here. Google is a big place, though. I’m sure you’ll manage 🤭.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9\. The “stealing” gesture
@@ -52,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 **How to do it:** lower the palm and move all your fingers towards the palm, starting with the little finger and finishing with the index while also slowly moving the wrist.
 
 ![stealing sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/stealing-sign-960x831.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 13")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The ‘stealing’ gesture
 
@@ -61,18 +62,15 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 
 **Origin:** this gesture symbolizes something ‘magically’ disappearing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8\. The “I can’t stand you” gesture
 
 **How to do it:** put your flat hand and forearm horizontally against your stomach.
 
 ![i can't stand you italian gesture](https://edge.mondly.com/blog/wp-content/uploads/2022/01/i-cant-stand-you-italian-gesture-960x766.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 14")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  The ‘I can’t stand you’ gesture
 
@@ -96,24 +94,15 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 
 **Origin:** you are basically praying or hoping for something to happen or someone to stop doing something. It’s a very common gesture. The word ‘please’ in Italian is translated with_(ti) prego_ which literally means “I pray”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. The “I don’t know” hands
 
 **How to do it:** open your arms and show both palms usually while also raising your shoulders.
 
 ![i don't know italian gesture](https://edge.mondly.com/blog/wp-content/uploads/2022/01/i-dont-know-italian-gesture-960x785.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 16")
-
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  The ‘I don’t know’ gesture
 
@@ -131,19 +120,6 @@ This is a pretty common gesture among angry drivers and football players.
 
 ![outstretched arm](https://edge.mondly.com/blog/wp-content/uploads/2022/01/outstretched-arm-960x867.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 17")
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The ‘angry football player’ gesture
 
 **When to do it:** this gesture basically means “get lost!” or “get bent!”. Although it can also be used in a rude way depending on what you are saying, it’s not necessarily an offensive gesture. If used to joke around between friends, it means something like “come on, I don’t believe you!”.
@@ -153,10 +129,7 @@ This is a pretty common gesture among angry drivers and football players.
 **Origin:** we can’t know for sure, but it probably refers to an unspecified direction where you want the person talking to you to go (so he/she will leave you alone).
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. The “I don’t care” gesture (the ‘chin flick’)
@@ -186,13 +159,6 @@ This is a pretty common gesture among angry drivers and football players.
 
 ![italian horns sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/italian-horns-sign-960x840.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 19")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The ‘horns’
 
 **When to do it:** when someone is being a jinx or when you believe something bad might happen.
@@ -200,13 +166,6 @@ This is a pretty common gesture among angry drivers and football players.
 **What to say:** _Facciamo le corna_ (“Let’s make the horns”),_Tiè/Toh!_ (“Take that \[bad luck\]!”)
 
 **Origin:** several [sources](https://www.ipersoap.com/2019/11/04/il-vero-significato-e-lorigine-di-alcuni-dei-gesti-piu-diffusi/) agree that the horns are theoretically pointed toward bad luck the same way an animal would strike something with its horns.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. The “get out” gesture
 
@@ -217,10 +176,7 @@ This is a pretty common gesture among angry drivers and football players.
 ![get out sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/get-out-sign-960x738.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 20")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The ‘let’s get out of here’ gesture
@@ -239,6 +195,10 @@ This is a pretty common gesture among angry drivers and football players.
 
 ![finger purse](https://edge.mondly.com/blog/wp-content/uploads/2022/01/finger-purse-960x720.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 21")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The ‘finger purse’ gesture
 
 **When to do it:** when the person you’re talking to says something silly or asks you to do something stupid or dangerous.
@@ -246,6 +206,10 @@ This is a pretty common gesture among angry drivers and football players.
 **What to say:** _Ma cosa stai dicendo?_ (“What are you talking about?”),_Ma cosa vuoi \[da me\]?_ (“What do you want \[from me\]?”),_Dici sul serio?_ (“Are you serious?”) and actually many more.
 
 **Origin:** no one knows, but the most common theory is that the hand is trying to grab something but fails to do so. This symbolizes a person who tries to grasp a meaning but can’t.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why do Italians talk with their hands?
 
@@ -290,18 +254,16 @@ The rest is history.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-periscope-prodigy-from-beginner-to-expert-for-2024/"><u>[New] Periscope Prodigy From Beginner to Expert for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-vimeo-vs-youtube-differences-between-vimeo-and-youtube/"><u>[Updated] 2024 Approved Vimeo vs YouTube Differences Between Vimeo and YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-are-there-restrictions-in-saving-youtube-videos/"><u>2024 Approved Are There Restrictions in Saving YouTube Videos?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-essential-guide-to-screen-recording-facetime-meetings/"><u>2024 Approved Essential Guide to Screen-Recording FaceTime Meetings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/alphabet-accuracy-in-sweden-pronunciation-essentials/"><u>Alphabet Accuracy in Sweden: Pronunciation Essentials</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beyond-pronunciations-conquering-the-most-tricky-tongues-in-the-world/"><u>Beyond Pronunciations: Conquering the Most Tricky Tongues in the World</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bulbarian-brilliance-master-in-bare-minutes/"><u>Bulbarian Brilliance - Master in Bare Minutes</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/capture-every-angle-top-360-streaming-devices-reviewed-for-2024/"><u>Capture Every Angle Top 360° Streaming Devices Reviewed for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-english-grammar-9-powerful-hints-from-an-esl-maven/"><u>Decoding English Grammar: 9 Powerful Hints From an ESL Maven</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easily-install-hp-device-drivers-on-your-pc-windows-10-7-or-8/"><u>Easily Install HP Device Drivers on Your PC (Windows 10, 7, or 8)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/fading-frequencies-the-gentle-way-with-garageband-for-2024/"><u>Fading Frequencies The Gentle Way with Garageband for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-tecno-pova-5-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Tecno Pova 5</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-infinix-smart-8-plus-phone-by-drfone-android/"><u>How to Unlock a Network Locked Infinix Smart 8 Plus Phone?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-artisans-blueprint-achieving-3d-text-mastery/"><u>[New] 2024 Approved The Artisan's Blueprint Achieving 3D Text Mastery</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-a-meticulous-review-the-complete-guide-to-androids-lightroom/"><u>[Updated] A Meticulous Review The Complete Guide to Android's Lightroom</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-tos-selecting-free-powerful-iphoneipad-edits/"><u>[Updated] How-To's Selecting Free, Powerful iPhone/iPad Edits</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-transforming-srt-a-complete-reference-guide-for-conversion/"><u>[Updated] Transforming SRT A Complete Reference Guide for Conversion</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-top-10-mindfulness-moments-in-mobile-games/"><u>2024 Approved Top 10 Mindfulness Moments in Mobile Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/globe-trotting-grammar-master-languages-with-vr/"><u>Globe-Trotting Grammar: Master Languages with VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-german-10plus-german-greetings-beyond-hallo/"><u>Hello in German: 10+ German Greetings Beyond Hallo</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-full-screen-capture-excellence-4-leading-pcmac-programs/"><u>In 2024, Full Screen Capture Excellence 4 Leading PC/Mac Programs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-sdr-to-hdr-ultimate-guide-on-sdr-to-hdr-video-conversion/"><u>In 2024, SDR to HDR Ultimate Guide on SDR to HDR Video Conversion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-english-a-key-to-inclusive-communication/"><u>Learning English: A Key to Inclusive Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-spanish-tenses-and-conjugations/"><u>Navigating Through Spanish Tenses & Conjugations</u></a></li>
 </ul></div>
 

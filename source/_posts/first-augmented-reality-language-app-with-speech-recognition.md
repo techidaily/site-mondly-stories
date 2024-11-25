@@ -1,7 +1,7 @@
 ---
 title: First Augmented Reality Language App With Speech Recognition
-date: 2024-07-29T06:47:03.172Z
-updated: 2024-07-30T06:47:03.172Z
+date: 2024-11-22T16:15:17.115Z
+updated: 2024-11-24T20:32:28.713Z
 tags:
   - speak
   - english
@@ -27,38 +27,23 @@ Here’s a video showcasing Mondly AR:
 ##
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## We take learning out of the books and bring it to life into your living room using augmented reality
 
  The new experience we created helps you develop a strong sense of the language you want to learn through highly realistic visual lessons and purposeful conversations. This approach is aiming to stimulate you to learn languages not because you have to, but because [it’s genuinely fun.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
 
  Just as futuristic, the chatbot experience from Mondly aims to be the closest thing to a real interaction. Mondly understands spoken language, replies with a human voice, changes her outfit to match the topic of discussion and uses gestures and facial expressions to create dynamic dialogues.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 3")
 
 Alex Iliescu, our CEO, spoke about the launch:
@@ -66,8 +51,9 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Here’s what you should know about Mondly AR
 
 * Is available on [Google Play](https://play.google.com/store/apps/details?id=com.atistudios.mondlyar.languages&hl=en)
@@ -84,8 +70,9 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facts and figures about Mondly
 
 * 30 million downloads, in over 190 countries
@@ -100,8 +87,9 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Media mentions about Mondly
 
 * **INC.com** – “The New Way to Learn Languages”
@@ -122,8 +110,6 @@ Alex Iliescu, our CEO, spoke about the launch:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -131,4 +117,20 @@ Alex Iliescu, our CEO, spoke about the launch:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-decoding-the-economic-incentives-behind-youtubes-shorts-programme/"><u>[New] Decoding the Economic Incentives Behind YouTube's Shorts Programme</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-a-guide-to-excellence-with-zd-soft-screen-capture/"><u>[Updated] In 2024, A Guide to Excellence with ZD Soft Screen Capture</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-keep-it-burning-ensuring-an-everlasting-snapchat-connection/"><u>[Updated] Keep It Burning Ensuring an Everlasting Snapchat Connection</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/download-15-comic-book-zines-at-no-cost/"><u>Download 15 Comic Book Zines at No Cost</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-installation-hp-envy-5540-drivers-and-firmware-updates/"><u>Easy Installation: HP Envy 5540 Drivers & Firmware Updates</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exploring-high-resolution-with-lgs-digital-cinema-31mu97-b-for-2024/"><u>Exploring High-Resolution with LG's Digital Cinema 31MU97-B for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-to-fluency-10-minday-learning/"><u>Fast-Track to Fluency: 10 Min/Day Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-fluency-essentials-for-the-savvy-traveler/"><u>French Fluency Essentials for the Savvy Traveler</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-for-beginners-saying-hello-with-confidence-and-style/"><u>French for Beginners: Saying Hello with Confidence & Style</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-runic-runes-to-oral-tradition-viking-language-unravewed/"><u>From Runic Runes to Oral Tradition: Viking Language Unravewed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fun-filled-journey-into-latin-language/"><u>Fun-Filled Journey Into Latin Language</u></a></li>
+<li><a href="https://fox-that.techidaily.com/resolve-standby-glitches-on-iphones-a-guide-to-4-fixing-techniques/"><u>Resolve StandBy Glitches on iPhones: A Guide to 4 Fixing Techniques</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-trick-to-free-up-space-on-android-by-deleting-the-cache/"><u>The Ultimate Trick to Free Up Space on Android by Deleting the Cache</u></a></li>
+</ul></div>
 

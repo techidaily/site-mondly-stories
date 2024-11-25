@@ -1,7 +1,7 @@
 ---
 title: "Kangaroo Talk: Australian Lingo Made Simple"
-date: 2024-10-29T20:26:30.504Z
-updated: 2024-11-04T22:17:45.024Z
+date: 2024-11-21T21:14:41.296Z
+updated: 2024-11-24T22:38:10.378Z
 tags:
   - speak
   - english
@@ -31,10 +31,7 @@ thumbnail: https://thmb.techidaily.com/84a4620f422e4279d6cc9c20449448701c42416df
  Let’s start with the basics: core Australian slang vocabulary. Here’s a list of popular Australian slang terms you probably heard before but didn’t know what they meant.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1._Ta_ – Thank you
@@ -55,6 +52,10 @@ Well, I don’t mind if you call me a “barbie girl” now.
 
  Famously used by Steve Irwin. It’s similar to the [British English slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) “blimey!”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5._Cake Hole_ – Mouth
 
  There’s no better replacement for the word “mouth”. Why isn’t everybody using this?
@@ -62,13 +63,6 @@ Well, I don’t mind if you call me a “barbie girl” now.
 ### 6._Ankle-Biter_ – A Small or Young Child
 
 It can also refer to a small, aggressive dog like a chihuahua.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7._Bogan_ – An Uncultured or Unsophisticated Person
 
@@ -78,24 +72,25 @@ It can also refer to a small, aggressive dog like a chihuahua.
 
  You heard “telly” before, but “bush telly”? That’s a new one. Basically, when you are camping, you can’t watch traditional television, so you watch the “bush telly”: the campfire, the stars or just… the bush.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9._Bikkie_ – Biscuit
 
 You’ll ask for a “bikkie” just to hear yourself say it.
 
  There’s also the very cute expression “to cost big bikkies”, meaning that something is very expensive.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 10._Mate_ – Friend
 
 _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can also say “cobber”.
 
 ![aussie slang](https://edge.mondly.com/blog/wp-content/uploads/2020/05/aussie-slang-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Australian slang
 
@@ -206,15 +201,27 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
  Aussie slang
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Funny Australian Slang Phrases
 
  If it weren’t for this list, you’d need an Australian slang translator when you hear these Australian slang phrases! Use them in your day-to-day conversations and Aussies might think you’re one of their own.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. What’s the John Dory?
 
 **What’s going on?**
 
  John Dory is an edible fish found on the coasts of Africa, Southeast Asia, New Zealand, and – of course – Australia. There’s no secret story to it apart from the fact that it just rhymes with ‘story’. So, instead of asking,_“what’s the story?”_ , in Australian slang, you ask_“what’s the John Dory?”_ .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Chuck a sickie
 
@@ -223,10 +230,7 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
  If you ever took a day off work pretending to be sick, you’re guilty of chucking a sickie._“I’m chucking a sickie to go to the beach. Wanna join?”_
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Fair dinkum
@@ -234,13 +238,6 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 **Honest, true or genuine.**
 
  Popular Australian exclamation often used to emphasize or seek confirmation (if used with the proper intonation) of the genuineness or truth of something._“This pork barbie is fair dinkum!”_
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Wrap your laughing gear ‘round that
 
@@ -300,13 +297,6 @@ Coming Soon
 
  Australian slang
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What You Need to Know About Aussie Slang
 
  Whether you want to move to the Australian paradise, spend a holiday there to visit the Irwin family’s Australia Zoo, or just learn the Australian slang because you feel like spicing up your [English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) vocabulary, there are a few things you need to remember:
@@ -318,16 +308,13 @@ Coming Soon
 
 Before you go, let’s answer some frequently asked questions.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What does ‘Aussie’ mean?
 
  Aussie means Australian, also known as a person from Australia. Remember that “Aussie” is an informal word and you should use it accordingly.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What is the most common Australian slang?
 
@@ -338,13 +325,6 @@ Before you go, let’s answer some frequently asked questions.
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Crikey, mate! This language learnin’ app is bonzer
 
  Do you want to impress a_bloke_ or a_sheila_ with your newly acquired language skills? Well, this is your lucky day. Because with Mondly, the award-winning language learning app, you’ll speak any language from day 1\. It’s as fun as learning Aussie slang!
@@ -352,6 +332,10 @@ Before you go, let’s answer some frequently asked questions.
  Want more? With Mondly, you’ll get more every day! Quick Daily Lessons. 5 minutes a day. It’s so entertaining you’ll become addicted. The best part? You’ll be fluent in no time.
 
 Get Mondly now and speak any language like you never dreamed you would ![Give it a try](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4765&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4765%26mt%3D8 "Give it a try")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -368,22 +352,24 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-guide-to-adding-linktree-to-tiktok-bios/"><u>[New] The Ultimate Guide to Adding Linktree to TikTok Bios</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-capturing-skype-audiovideo-windows-and-mac-tips/"><u>[Updated] 2024 Approved Capturing Skype Audio/Video Windows & Mac Tips</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-intellectual-edge-trivia-challenges-2024/"><u>[Updated] Intellectual Edge Trivia Challenges 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-the-youtube-creator-summit-a-getaway-for-top-talent/"><u>2024 Approved The YouTube Creator Summit - A Getaway for Top Talent</u></a></li>
-<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-honor-70-lite-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Honor 70 Lite 5G to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-halloween-festivities-and-customs/"><u>Global Halloween Festivities & Customs</u></a></li>
-<li><a href="https://techidaily.com/how-to-hard-reset-honor-x50-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Honor X50 Without Password | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Xiaomi Redmi K70E | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-peak-hours-for-podcasts-strategic-timing/"><u>In 2024, Peak Hours for Podcasts Strategic Timing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-korean-writing-system-a-simplified-approach/"><u>Mastering Korean Writing System: A Simplified Approach</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pearsons-gsl-now-mondly-infused-exactitude/"><u>Pearson's GSL Now: Mondly-Infused Exactitude</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapid-bengali-lessons-daily/"><u>Rapid Bengali Lessons (Daily)</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/seamless-audio-transfer-youtube-videos-)-mp3-macos-2023-for-2024/"><u>Seamless Audio Transfer YouTube Videos > MP3, MacOS 2023 for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-science-behind-mondlys-learning/"><u>The Science Behind Mondly's Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-your-enterprise-via-advanced-linguistic-education/"><u>Transform Your Enterprise via Advanced Linguistic Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uncover-the-joys-of-arabic-learning-with-mondly-online/"><u>Uncover the Joys of Arabic Learning with Mondly Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unraveling-five-misconceptions-in-acquiring-new-tongues/"><u>Unraveling Five Misconceptions in Acquiring New Tongues</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-tricks-for-faster-instagram-video-views/"><u>[New] In 2024, Tricks for Faster Instagram Video Views</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1725284889813-dvdmp4/"><u>如何高效地從DVD改造成MP4影片文件：頂級軟體推荐列表</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-guide-finding-and-applying-upgrades-for-creative-webcams-in-windows/"><u>Easy Guide: Finding and Applying Upgrades for Creative Webcams in Windows</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-honor-magic-5-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Honor Magic 5 Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-ideal-screen-capture-device-for-effective-video-sharing/"><u>In 2024, Ideal Screen Capture Device for Effective Video Sharing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-language-learning-with-mondly-best-of-2022/"><u>Innovative Language Learning with Mondly - Best of 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israels-national-language-an-overview/"><u>Israel's National Language: An Overview?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-best-online-language-learning-portal-in-germany/"><u>Mondly Is Best Online Language Learning Portal in Germany</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/precision-pc-and-electronics-breakdown-with-toms-hardware-reviews/"><u>Precision PC & Electronics Breakdown with Tom's Hardware Reviews</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-mastery-a-beginners-guide-to-polish/"><u>Speedy Mastery: A Beginner's Guide to Polish</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722903909343-step-by-step-guide-booking-your-visit-at-the-genius-bar/"><u>Step-by-Step Guide: Booking Your Visit at The Genius Bar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-scoring-in-language-exams/"><u>The Art of Scoring in Language Exams</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pearson-linguistic-journey-begins-here/"><u>The Pearson Linguistic Journey Begins Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-triumvirate-of-asian-dialects-rising-three/"><u>The Triumvirate of Asian Dialects: Rising Three</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-guide-to-digitizing-and-saving-faded-frames-for-2024/"><u>The Ultimate Guide to Digitizing and Saving Faded Frames for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/this-is-the-easiest-way-to-learn-latin-online/"><u>This Is The Easiest Way To Learn Latin Online</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-frei-verfugbare-h265hevc-player-fur-ultra-hd-videos-im-jahre-2022-aktualisierte-liste/"><u>Top-Frei Verfügbare H.265/HEVC-Player Für Ultra HD-Videos Im Jahre 2022 - Aktualisierte Liste</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whats-changed-in-our-data-practices/"><u>What's Changed in Our Data Practices?</u></a></li>
 </ul></div>
 

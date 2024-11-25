@@ -1,7 +1,7 @@
 ---
 title: Understanding and Using Spanish Verb Endings
-date: 2024-11-14T01:09:35.913Z
-updated: 2024-11-15T02:35:53.805Z
+date: 2024-11-22T23:30:07.905Z
+updated: 2024-11-24T21:17:39.464Z
 tags:
   - speak
   - english
@@ -108,16 +108,7 @@ And the conjugation of comer will look like this:
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
@@ -153,10 +144,7 @@ And the conjugation of comer will look like this:
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish verbs: how to master irregular Spanish verbs
@@ -166,10 +154,7 @@ And the conjugation of comer will look like this:
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Stem-Changing Verbs in Spanish
@@ -227,10 +212,7 @@ And the conjugation of comer will look like this:
 _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious because to the final letter “i” of their stem, we will need to add an “e”. Thus, “I acquire” will be “Yo adquiero”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Spanish verbs with an irregular “yo” form
@@ -256,6 +238,10 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_salir_ (to exit) –_Yo salgo_ ,_Tú sales_
  –_dar_ (to give) –_Yo doy_ ,_Tú das_
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish verbs conjugation examples –_ser, estar, ir_
 
@@ -348,24 +334,22 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ultivating-connection-not-compulsion-in-subscriptions-for-2024/"><u>[New] Cultivating Connection, Not Compulsion in Subscriptions for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-integrating-twitter-feed-into-your-whatsapp-conversations-for-2024/"><u>[New] Integrating Twitter Feed Into Your WhatsApp Conversations for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-expert-guide-to-optimizing-solo-play-in-apex-legends-for-2024/"><u>[Updated] Expert Guide to Optimizing Solo Play in Apex Legends for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/backup-your-memories-camera-roll-to-snapchat-explained/"><u>Backup Your Memories Camera Roll to Snapchat Explained</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/becoming-bilingual-proven-online-methods-to-learn-languages/"><u>Becoming Bilingual: Proven Online Methods to Learn Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enlighten-expression-top-ranked-communication-methods/"><u>Enlighten Expression: Top-Ranked Communication Methods</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/finding-the-common-speech-among-belgians/"><u>Finding the Common Speech Among Belgians</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-cocoa-to-conversation-chocolate-words-around-the-globe/"><u>From Cocoa to Conversation: Chocolate Words Around The Globe</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-easy-path-to-engaging-animation-in-your-videos/"><u>In 2024, The Easy Path to Engaging Animation in Your Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-german-top-10-compelling-reasons/"><u>Mastering German: Top 10 Compelling Reasons</u></a></li>
-<li><a href="https://driver-download.techidaily.com/rtx-2080-super-graphics-card-drivers-download-and-updates-for-windows-11/"><u>RTX 2080 Super Graphics Card Drivers Download & Updates for Windows 11</u></a></li>
-<li><a href="https://windows11.techidaily.com/seamless-installation-of-intel-wi-fi-adapters-for-gaming/"><u>Seamless Installation of Intel Wi-Fi Adapters for Gaming</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speaking-smart-futuristic-strategies-in-linguistics-today/"><u>Speaking Smart: Futuristic Strategies in Linguistics Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spinning-words-for-worldwide-celebrations/"><u>Spinning Words for Worldwide Celebrations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-path-to-fluency-in-turkeys-language-a-concise-alphabet-and-pronunciation-handbook/"><u>The Path to Fluency in Turkey's Language: A Concise Alphabet & Pronunciation Handbook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-20-francophone-books-for-language-learners-to-start-with/"><u>Top 20 Francophone Books for Language Learners to Start With</u></a></li>
-<li><a href="https://win-excellent.techidaily.com/usbwindows-11plus/"><u>USBメディアからWindows 11を起動するコツ（上位手法２つ+追加のアドバイス）</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/when-virtuality-overwhelms-the-real-world-exploring-the-impact-of-apples-arvr-devices-zdnet/"><u>When Virtuality Overwhelms the Real World: Exploring the Impact of Apple's AR/VR Devices | ZDNet</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/windows2/"><u>Windowsサーバーにおける2種類の同期手法:ファイル同時更新ガイド</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-expert-insights-choosing-the-best-platforms-for-watching-cricket-live-for-2024/"><u>[Updated] Expert Insights Choosing the Best Platforms for Watching Cricket LIVE for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-seamless-classic-play-on-ios-with-select-ps2-emulators/"><u>[Updated] In 2024, Seamless Classic Play on iOS with Select PS2 Emulators</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-step-by-step-unlocking-the-joys-of-ifunnys-meme-app-for-2024/"><u>[Updated] Step-by-Step Unlocking the Joys of iFunny's Meme App for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/music-fmand/"><u>本物Music FMファイル確保：青色&オレンジ色のダウンロード方法</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-xiaomi-redmi-note-12r-by-drfone-android/"><u>How to Bypass FRP on Xiaomi Redmi Note 12R?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-good-morning-in-10-different-languagesback-buttonfilter-button/"><u>How To Say Good Morning In 10 Different LanguagesBack ButtonFilter Button</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-realme-gt-neo-5-se-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Realme GT Neo 5 SE to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-oppo-a58-4g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Oppo A58 4G to iPod | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-realme-gt-5-easily-by-drfone-android/"><u>In 2024, How To Unlock a Realme GT 5 Easily?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lively-latin-gamified-education-unveiled/"><u>Lively Latin: Gamified Education Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prevalent-international-languages-in-american-schooling/"><u>Prevalent International Languages in American Schooling</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-chances-at-multilingualism/"><u>Second Chances at Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-roots-and-branches-of-romance-tongues/"><u>The Roots and Branches of Romance Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-lives-expand-horizinas-with-mondlys-support/"><u>Transform Lives, Expand Horizinas With Mondly's Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/un-curso-elemental-de-hora-espanol/"><u>Un Curso Elemental De Hora Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unearthing-the-mightiest-multisyllable/"><u>Unearthing the Mightiest Multisyllable</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-iphone-15-plus-without-passcode-easily-drfone-by-drfone-ios/"><u>Unlock iPhone 15 Plus Without Passcode Easily | Dr.fone</u></a></li>
 </ul></div>
 

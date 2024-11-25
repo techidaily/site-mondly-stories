@@ -1,7 +1,7 @@
 ---
 title: Formale Bedauernsätze Lernen Auf Deutsch
-date: 2024-07-29T06:48:23.265Z
-updated: 2024-07-30T06:48:23.265Z
+date: 2024-11-17T22:23:17.056Z
+updated: 2024-11-24T19:04:21.842Z
 tags:
   - speak
   - english
@@ -21,8 +21,9 @@ thumbnail: https://thmb.techidaily.com/dab8cabffeddc700c42a5606e02b205ea6f1fa907
  Let’s look at the most important ways to say “sorry” in German and when to use each of them.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## When should you say you’re sorry?
 
  What you need to remember is that learning how to say “sorry” in German also has a cultural component. It’s not enough to learn how to say you’re sorry; you also have to learn_when_ to say you’re sorry. Unlike Americans and even Brits who apologize quite a lot,**Germans tend to keep their sorrys to a minimum.** In fact, they say sorry so rarely that they can come off as rude to people of other nationalities.
@@ -30,8 +31,9 @@ thumbnail: https://thmb.techidaily.com/dab8cabffeddc700c42a5606e02b205ea6f1fa907
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to apologize in German
 
 _**Es tut mir leid**_ is the standard sorry or the apologetic sorry. It’s the kind of sorry you say when you messed up and you want to apologize for what you did. The expression conveys a sense of responsibility it is kind of a formal apology.
@@ -45,8 +47,9 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to say sorry in German – the “Excuse me” sorry
 
  If you bump into someone on the street or cause a mishap, the most common way to say “sorry” in German is_**Entschuldigung**_ which literally means “apology!”. This is basically the “sorry” or the “excuse me” you say for a minor inconvenience. In other words, we’re talking about a slight bump or barely touching that person. If you knock them over, a cool_Entschuldigung_ won’t do, so you should probably apologize sincerely.
@@ -56,8 +59,9 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Other ways to say sorry in German
 
  As you very well know, there can also be other situations where you need to say “sorry” in German. For example, the “can you repeat that?” sorry is quite common. Of course, you can always say_“Entschuldigung?”_ together with the proper facial expression, but sometimes that might not be enough.
@@ -101,8 +105,9 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### From 0 to conversational in German
 
  Do you want to stop apologizing for your pronunciation? Get Mondly, the award-winning language app that will help you [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1.
@@ -125,8 +130,6 @@ Here are some practical examples of apologies in German:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +137,20 @@ Here are some practical examples of apologies in German:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-review-of-gaomon-pd1560-digital-sketching-device-is-it-a-top-tier-art-pad/"><u>A Comprehensive Review of Gaomon PD1560 Digital Sketching Device: Is It a Top-Tier Art Pad?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/alluring-arsenal-german-lingo-for-lovers/"><u>Alluring Arsenal: German Lingo for Lovers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-confidence-with-second-language-education/"><u>Building Confidence with Second Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chinese-graciousness-deciphering-xiexie-and-related-terms/"><u>Chinese Graciousness: Deciphering Xièxiè and Related Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/completar-tu-vocabulario-semanalmente/"><u>Completar Tu Vocabulario Semanalmente</u></a></li>
+<li><a href="https://win-dash.techidaily.com/comprehensive-step-by-step-tutorial-downloading-and-updating-the-epson-et-3760-printer-driver-on-windows/"><u>Comprehensive Step-by-Step Tutorial: Downloading and Updating the Epson ET-3760 Printer Driver on Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crafting-a-tapestry-of-shared-experiences-regardless-of-language/"><u>Crafting a Tapestry of Shared Experiences, Regardless of Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-language-top-10-benefits-of-bilingualism/"><u>Decoding Language: Top 10 Benefits of Bilingualism</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/discover-the-best-free-software-top-15-screen-recording-apps-for-download/"><u>Discover the Best Free Software: Top 15 Screen Recording Apps for Download</u></a></li>
+<li><a href="https://common-error.techidaily.com/gadget-glitch-gone-keys-now-good-as-gold/"><u>Gadget Glitch Gone: Keys Now Good as Gold</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-nokia-c22-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Nokia C22? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-navigate-your-way-to-youtube-fame-a-guide-to-25-proven-techniques/"><u>In 2024, Navigate Your Way to YouTube Fame A Guide to 25 Proven Techniques</u></a></li>
+<li><a href="https://blog-min.techidaily.com/real-time-broadcasting-made-easy-with-manycam-your-ultimate-choice-in-screen-recording-and-virtual-camera-solutions/"><u>Real-Time Broadcasting Made Easy with ManyCam - Your Ultimate Choice in Screen Recording and Virtual Camera Solutions</u></a></li>
+</ul></div>
 

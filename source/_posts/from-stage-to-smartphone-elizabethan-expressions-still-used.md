@@ -1,7 +1,7 @@
 ---
 title: "From Stage to Smartphone: Elizabethan Expressions Still Used"
-date: 2024-07-29T06:45:28.370Z
-updated: 2024-07-30T06:45:28.370Z
+date: 2024-11-20T21:25:42.540Z
+updated: 2024-11-24T20:46:27.645Z
 tags:
   - speak
   - english
@@ -33,9 +33,6 @@ thumbnail: https://thmb.techidaily.com/7a63e0844da70bd2c7ec7a4a482b4a25c9f48b524
 
  And these are just a few of the words Shakespeare introduced to the world during his life in the Elizabethan England. Whether you’re a fan of Shakespeare or simply enjoy learning about the evolution of the English language, this article is sure to captivate and entertain you. So stick around and read on to discover some more of the words Shakespeare invented.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How many words did Shakespeare invent?
 
 **Most sources agree that Shakespeare invented around 1700 words.** However, it seems there’s more to this story. While the playwright was indeed very productive in this field, some say that not all these words were created by him. Instead, he was just the first one to document these words in writing. And that’s entirely possible.
@@ -58,56 +55,43 @@ thumbnail: https://thmb.techidaily.com/7a63e0844da70bd2c7ec7a4a482b4a25c9f48b524
 * adding prefixes or suffixes;
 * concocting entirely original terms.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ![Shakespeare words](https://edge.mondly.com/blog/wp-content/uploads/2023/02/shakespeare-words.jpg "Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Cool words Shakespeare invented
 
 _To invent new words, or not to invent new words?_ Clearly, William Shakespeare did not ask himself that. He just went with it and invented new words so he could properly tell his stories. In the end, he was so good at both storytelling and coining words that today it is impossible to have an English curriculum without Shakespeare. But enough tittle-tattle.**Let’s see what other words Shakespeare invented:**
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **1\. Addiction**
 
 _Henry V_ , Act I, Scene II
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **2\. Arch-villain**
 
 _Timon of Athens_ , Act V, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **3\. Bandit**
 
 _King Henry VI_ , Part II, Act IV, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **4.** Cold-blooded
 
 _King John_ , Act III, Scene I
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **5\. Dauntless**
 
@@ -124,6 +108,10 @@ _Hamlet_ , Act I, Scene V
 ### **8\. (to) Gossip**
 
 _The Comedy of Errors_ , Act V, Scene I
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **9\. Hint**
 
@@ -145,9 +133,6 @@ _As You Like It_ , Act I, Scene II
 
 _A Midsummer Night’s Dream_ , Act III, Scene II
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **14.** Monumental
 
 _Troilus and Cressida_ , Act III, Scene III
@@ -161,48 +146,45 @@ _Love’s Labour’s Lost_ , Act I, Scene I
 _Love’s Labour’s Lost_ , Act IV, Scene III
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **17.** Olympian
 
 _King Henry VI_ , Part III, Act II, Scene III
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **18.** Outbreak
 
 _Hamlet_ , Act II, Scene I
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **19\. Puking (disputed)**
 
 _As You Like It_ , Act II, Scene VII
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### **20\. Radiance**
 
 _All’s Well That Ends Well_ , Act I, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **21\. (to) Rant**
 
 _Hamlet_ , Act V, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **22\. (to) Swagger**
 
 _A Midsummer Night’s Dream_ , Act III, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **23.** Tranquil
 
 _Othello_ , Act III, Scene III
@@ -223,8 +205,9 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Improve thy English with speed
 
  Dost thou desire to improve thy English with speed and ease? Look no further than Mondly, the award-winning language app that doth make learning a joy.
@@ -247,8 +230,6 @@ _Love’s Labour’s Lost_ , Act V, Scene II
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -256,4 +237,26 @@ _Love’s Labour’s Lost_ , Act V, Scene II
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/updated-digital-humor-designer-tool-for-2024/"><u>[Updated] Digital Humor Designer Tool for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-crafting-engaging-narratives-a-compreehensive-guide-to-adding-emojis-to-instagram-stories/"><u>[Updated] In 2024, Crafting Engaging Narratives A Compreehensive Guide to Adding Emojis to Instagram Stories</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-secure-your-photography-leading-software-insights/"><u>[Updated] Secure Your Photography - Leading Software Insights</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/ensure-uninterrupted-safety-continual-data-backup-with-onedrive-for-business/"><u>Ensure Uninterrupted Safety: Continual Data Backup with OneDrive for Business</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-down-under-with-easy-aussie-slang/"><u>Get Down Under with Easy Aussie Slang</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-breathe-life-into-photos-using-blur-effects-in-illustrator/"><u>In 2024, Breathe Life Into Photos Using Blur Effects in Illustrator</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-examining-the-economics-pewdiepies-annual-income/"><u>In 2024, Examining the Economics PewDiePie's Annual Income</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-samsung-galaxy-f34-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Samsung Galaxy F34 5G Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japans-linguistic-gateway-free-online-tools-for-self-learning/"><u>Japan's Linguistic Gateway: Free Online Tools for Self-Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-and-parental-control-a-2017-google-play-gem/"><u>Mondly Kids & Parental Control: A 2017 Google Play Gem</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/predominant-language-studies-abroad-from-the-states/"><u>Predominant Language Studies Abroad From the States</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-latvian-language-drills-10-minutesday/"><u>Quick Latvian Language Drills, 10 Minutes/Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/schrittweise-erlernen-von-deutschen-nummern-ab-1/"><u>Schrittweise Erlernen Von Deutschen Nummern Ab 1</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/stitching-an-innovative-tiktok-closing-credits/"><u>Stitching An Innovative TikTok Closing Credits</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-art-of-cross-platform-content-sharing/"><u>The Art of Cross-Platform Content Sharing</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-complete-breakdown-of-lg-channels-you-should-know-about/"><u>The Complete Breakdown of LG Channels You Should Know About</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-the-talent-essential-brain-workouts-to-master-new-tongues/"><u>Triple the Talent: Essential Brain Workouts to Master New Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/troubleshooting-errors-what-to-do-when-rocket-league-wont-launch-correctly/"><u>Troubleshooting Errors - What to Do When Rocket League Won't Launch Correctly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-are-the-most-studied-foreign-languages-in-america/"><u>Which Are the Most Studied Foreign Languages in America?</u></a></li>
+</ul></div>
 

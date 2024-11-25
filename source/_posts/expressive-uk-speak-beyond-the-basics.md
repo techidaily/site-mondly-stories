@@ -1,7 +1,7 @@
 ---
 title: "Expressive UK Speak: Beyond the Basics"
-date: 2024-07-29T06:48:04.237Z
-updated: 2024-07-30T06:48:04.237Z
+date: 2024-11-18T19:20:06.551Z
+updated: 2024-11-24T16:33:10.283Z
 tags:
   - speak
   - english
@@ -28,16 +28,15 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 
  It’s completely possible that you walk into a British bar and don’t understand more than half of what they are saying. If you don’t want to be this person and you want to be able to converse fluently with your British mates, then we’re here to help you out!
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 50+ British Phrases and their Meanings
 
  Have you ever been the odd one out in a group of British mates not getting the joke? Do they all belly laugh while you are left grinning awkwardly alongside them?
 
  Well, the chances of that happening are much slimmer after you get through our list. That, plus looking for online tutors can better prep you for your next British conversation.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Common British Phrases
 
@@ -59,49 +58,46 @@ Mischievous or playful.
 
 This is a very British thing to say meaning very.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### _I’m pissed_
 
  Not meaning the regular “angry”, in British talk it actually means you’re very drunk and is used quite a lot when you are out drinking with friends.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _Mate_
 
 A common one and quite cliché – mate means friend.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### _Rubbish_
 
  It could mean_garbage_ or_nonsense,_ depending on the context.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _Cockney_
 
 A person native to East London.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### _Blimey_
 
  Similar to the American_wow_ ,_blimey_ is used to describe something that takes you by surprise.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### _Bloke_
 
  Similar to_guy_ in America, it is a blanket term to describe a man in general.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### _Bollocks_
 
  One of the more well-known British terms, it actually has a multitude of meanings. It could be used to symbolize disbelief, or to talk about a man’s private parts.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Funny British Sayings
 
 * _I was gobsmacked_ – The key here being “gobsmacked”. The entire phrase means I was shocked.
@@ -132,8 +128,9 @@ A person native to East London.
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4428&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4428%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Fancy British Words
 
 * _Alas_ – used to express grief, sorrow, regret or concern
@@ -155,9 +152,6 @@ A person native to East London.
 * _Quotidian_ – ordinary or everyday
 * _Yonks_ – ages, a very long time
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **British Slang Words**
 
 * _All to pot_ – Referring to something failing miserably.
@@ -195,6 +189,10 @@ A person native to East London.
 * _Posh nosh_ – Refers to high-quality or fancy food.
 * _Take the Mickey_ – Making fun of or tease someone.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **British Compliments**
 
  Think about the elegant British phrases you have heard and see if you recognize any in our list below.
@@ -215,9 +213,9 @@ A person native to East London.
  British phrases and expressions are extraordinarily interesting to those who aren’t familiar with their terms. The common British words we see already seem so fancy and sometimes even whimsical and learning them will surely give you a leg up next time you start writing your [5 paragraph essay](https://edubirdie.com/blog/five-paragraph-essay) , or have a chinwag with your British mates!
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Differences Between American and British English
 
  As mentioned before, British terms, British phrases, British expressions as well as spelling differ by American phrases and expressions, but what else is there? When we think about [British versus American English](https://preply.com/en/blog/british-english-vs-american-english-slang-compared/) , we think about slang terms and pronunciation.
@@ -234,24 +232,18 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  ‘Cheers’ is an informal manner of expressing gratitude, akin to saying ‘thank you’. When combined with the word ‘mate’, it forms the phrase “Cheers, mate”, which carries the same meaning as “Thank you, my friend.”
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Can you be British but not English?
 
  People who are English are from the country of England. On the other hand, British people are people who live in Great Britain (Britain) and the UK. Consequently, being English implies a distinction from being Scottish, Welsh, or Northern Irish. In contrast, the term British encompasses anyone originating from Great Britain. This means that everyone residing in Scotland, Wales, or England is collectively identified as British.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to speak like a British?
 
  To speak like a British person, it’s essential to prioritize your pronunciation and vocabulary. Keep in mind that British accents exhibit significant regional variations, so actively listening to native speakers can aid in emulating specific accents like the esteemed ‘Received Pronunciation’. Additionally, acquaint yourself with British slang and remain cognizant of grammatical disparities. Finally, it is crucial to approach the emulation of a British accent with the utmost respect and a sincere curiosity about British culture. Doing this will help you improve your British accent faster.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### Will British and American English diverge?
 
  In a different era with little to no way of communicating, it would be entirely possible for British English and American English to diverge. However, modern times allow the two to communicate without restrictions. As time goes by, there’s a chance for more differences to emerge, but it’s unlikely that British and American English diverge completely.
@@ -267,18 +259,17 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Start using Mondly for free on your computer or download the app and learn Spanish, French, German and more anytime, anywhere.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Get Mondly now and speak any language like you never dreamed you would ![Learn with Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4428&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4428%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4428%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4428%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4428%26mt%3D8 "Learn with Mondly")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -287,4 +278,24 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn w
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-engagement-top-10-video-response-insights/"><u>[New] 2024 Approved Elevate Your Engagement Top 10 Video Response Insights</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-live-sound-excellence-unveiled-our-top-picks-for-streaming-quality-for-2024/"><u>[New] Live Sound Excellence Unveiled Our Top Picks for Streaming Quality for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-the-ultimate-playbook-for-professional-level-xbox-recording-for-2024/"><u>[New] The Ultimate Playbook for Professional-Level Xbox Recording for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-best-ps1-game-emulation-software-on-your-pc/"><u>2024 Approved Best PS1 Game Emulation Software on Your PC</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-vivo-s17-pro-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Vivo S17 Pro FRP</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-defying-linguistic-ambitions-achieved/"><u>Age-Defying Linguistic Ambitions Achieved!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/assessing-the-difficulty-of-german-proficiency/"><u>Assessing the Difficulty of German Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/astounding-your-audience-with-spanish-number-one/"><u>Astounding Your Audience with Spanish Number One</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580829731-breeze-through-basic-numbers-in-japanese/"><u>Breeze Through Basic Numbers in Japanese</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/bring-your-videos-to-life-border-magic-on-ig-for-2024/"><u>Bring Your Videos to Life Border Magic on IG for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-croatias-linguistic-landscape-with-these-essential-phrases/"><u>Conquer Croatia's Linguistic Landscape with These Essential Phrases!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsches-neugier-uber-10-grusse-ohne-hallo/"><u>Deutsches Neugier: Über 10 Grüße Ohne 'Hallo'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-each-korean-day-your-shortcut-handbook/"><u>Embrace Each Korean Day: Your Shortcut Handbook</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578813837-monday-to-domingo-learn-the-days-of-the-week-in-spanish/"><u>Monday To Domingo - Learn The Days Of The Week In Spanish</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-and-effortless-update-get-your-pc-ready-with-the-new-intelligent-iris-gpu-drivers-640/"><u>Quick and Effortless Update: Get Your PC Ready with the New Intelligent Iris GPU Drivers #640</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-setup-for-new-release-of-amd-radeon-v2410-video-card-software/"><u>Step-by-Step Setup for New Release of AMD Radeon V24.10 Video Card Software</u></a></li>
+</ul></div>
 

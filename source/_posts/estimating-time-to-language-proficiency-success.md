@@ -1,7 +1,7 @@
 ---
 title: Estimating Time to Language Proficiency Success
-date: 2024-07-29T06:46:07.296Z
-updated: 2024-07-30T06:46:07.296Z
+date: 2024-11-23T18:54:47.358Z
+updated: 2024-11-24T21:37:36.514Z
 tags:
   - speak
   - english
@@ -18,13 +18,8 @@ thumbnail: https://thmb.techidaily.com/f604bb285b3b1ed855f8a1c3cb89d8ee4bdb35648
 
  English is the most international language on the globe. If you are a native English speaker, chances are, you can get along quite comfortably in most Western countries without learning a word in another language. In Europe especially, with enough luck, someone out there may know enough English to initiate and sustain basic communication situations.
 
-
-
  But of course, for various other reasons either personal, cultural or work-related, you will find yourself in need of learning a foreign language. The next natural question after deciding to learn a new language is: how many hours does it take to learn a foreign language and achieve fluency?
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## Estimated times to learn a new language
 
 * Afrikaans — 575 hours
@@ -48,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/f604bb285b3b1ed855f8a1c3cb89d8ee4bdb35648
 * **Knowing more than one language helps —** languages with shared features with English are generally easier to learn, while those with significant cultural and linguistic differences may take longer to learn;
 * **The time spent learning depends on you** **—** The time it takes to learn a new language varies greatly depending on your motivation and dedication to the task.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Interagency Language Roundtable scale or the IRL scale
 
  The Interagency Language Roundtable is a grading scale used by the US government to scale [employees](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and diplomats working for the FSI (Foreign Service Institute). You’ll find this scale to be the most accurate when it comes to native English speakers learning a foreign language. Basically, what this scale does is establish the language difficulty.
@@ -65,18 +64,15 @@ thumbnail: https://thmb.techidaily.com/f604bb285b3b1ed855f8a1c3cb89d8ee4bdb35648
  But first, we need to clarify a certain aspect of learning foreign languages as a native English speaker: some languages are more difficult to learn than others. Why? Because English and some other languages haven’t been in contact with one another for thousands of years and have evolved in a totally different way. But studying languages that are completely different from English is not impossible. It takes longer, but you’ll eventually get there.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Easiest language to learn for English speakers
 
  The data presented below reflects a study held by the FSI (Foreign Service Institute) of the US government. Again, this is probably the most accurate data regarding how much time it takes for a native English speaker to become fluent in a particular new language.
 
  The FSI has over 800 language learning courses in more than 70 languages with more than 70 years of experience in training US diplomats and foreign affairs employees.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Tier 1:** Languages that are most closely related to English
 
  The fastest way to learn a language is to learn any language from Tier 1\. These are the easiest languages to learn for English speakers and will take the least amount of time to master.
@@ -109,6 +105,10 @@ The ultimate burning program for all your needs!</a>
 * comparable stress and intonation patterns;
 * already share a number of vocabulary words.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Tier 2:** Similar to English
 
 | Language | Time needed to reach fluency |
@@ -122,8 +122,9 @@ The ultimate burning program for all your needs!</a>
 !["Fastest way to learn a language" by RF._.studio©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/fastest-way-to-learn-a-language-960x641.jpg "How Long Does It Take In Hours To Learn A Language? 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **Tier 3:** Languages that may have cultural and linguistic differences compared to English
 
 | Language       | Time needed to reach fluency |
@@ -135,9 +136,6 @@ The ultimate burning program for all your needs!</a>
 
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-1364&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364)
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Tier 4:** Languages that are profoundly different from English
 
 | Language        | Time needed to reach fluency |
@@ -164,9 +162,6 @@ The ultimate burning program for all your needs!</a>
 
  The languages above are just a part of the European languages classified as tier 4 by the FSI. The list goes on with other languages from all over the world, like Mongolian, Nepali, Thai, Xhosa, Zulu or Hebrew. All of them take about 1100 hours or 44 weeks to become fluent in. Thus, when it comes to the difficulty of languages, this list does indeed include hard languages to learn, but not the hardest.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Hardest language to learn for English speakers
 
  All of the tier 5 languages are highly sophisticated and complex compared to English having an average learning curve of up to 4 times the period it takes for the average English speaker to learn Dutch for example. So arm yourself with a lot of patience and plenty of determination.
@@ -186,6 +181,10 @@ The ultimate burning program for all your needs!</a>
  But don’t let all these statistics scare you! People around the world are learning and assimilating new languages every day. Besides, these are still human languages; it’s not like you need to decipher an alien dialect. All of the above are languages created by humans, and with enough determination and willpower, you can learn any language on this list. Besides, learning a new language is [good for the brain](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) !
 
 ![Mondly 1000 daily lessons for free](https://edge.mondly.com/blog/wp-content/uploads/2017/09/iphone_main_screen_s_FW7fe-1024x682.jpg "How Long Does It Take In Hours To Learn A Language? 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Let’s not also forget that the above FSI statistics don’t include the help of modern language learning aids like apps on your smartphone can bring to the table. In theory, today you can [learn a foreign language much faster.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
@@ -216,8 +215,6 @@ The ultimate burning program for all your needs!</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -225,4 +222,18 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-discovering-one-platform-play-in-apex-legends-without-cross-play-complications/"><u>[New] 2024 Approved Discovering One-Platform Play in Apex Legends Without Cross-Play Complications</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-abcs-of-creative-facebook-advertising-a-guidebook/"><u>2024 Approved The ABCs of Creative Facebook Advertising A Guidebook</u></a></li>
+<li><a href="https://win-updates.techidaily.com/how-to-retrieve-lost-or-formatted-file-data-on-your-usb-via-windows-command-line-interface-cmd/"><u>How to Retrieve Lost or Formatted File Data on Your USB via Windows Command Line Interface (CMD)</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-vivo-s17-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Vivo S17 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/luscious-language-lessons-via-movies/"><u>Luscious Language Lessons via Movies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polite-practices-in-france-learning-proper-au-revoir-and-more/"><u>Polite Practices in France: Learning Proper 'Au Revoir' & More</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/successful-iphones-and-windows-10-integration-finding-and-installing-required-drivers/"><u>Successful iPhones and Windows 10 Integration – Finding & Installing Required Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tackling-the-complexity-of-german-grammar/"><u>Tackling the Complexity of German Grammar</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>The Best iSpoofer Alternative to Try On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-25-german-idioms-to-speak-like-a-german/"><u>Top 25 German Idioms To Speak Like A German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-language-dominates-israeli-conversations/"><u>Which Language Dominates Israeli Conversations?</u></a></li>
+</ul></div>
 

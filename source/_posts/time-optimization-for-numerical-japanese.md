@@ -1,7 +1,7 @@
 ---
 title: Time Optimization for Numerical Japanese
-date: 2024-11-10T16:09:32.886Z
-updated: 2024-11-15T03:57:00.243Z
+date: 2024-11-21T23:55:03.284Z
+updated: 2024-11-24T18:16:45.560Z
 tags:
   - speak
   - english
@@ -98,6 +98,10 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-3643&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3643&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3643&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3643&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-3643%26mt%3D8)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Count to 10,000 and beyond in Japanese
 
 | Number     | Kanji | Hiragana      | Romaji           |
@@ -144,13 +148,6 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
 ![numbers in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/11/numbers-in-japanese-960x647.jpeg "Counting In Japanese From 1 To 10000 9")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Japanese Lucky Numbers
 
  The two main**Japanese lucky numbers are seven (なな, Nana) and eight (はち, Hachi).** Given this, do you think the names of two of the most popular Japanese animal characters in the world were merely coincidental? We’re talking, of course, about the cat Nana from_The Travelling Cat Chronicles_ by Hiro Arikawa and Hachi from_Hachiko: The True Story of a Loyal Dog_ by Pamela S. Turner.
@@ -160,10 +157,7 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 ![hatchi](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdDQ0cHlhYjkxb2QwaTd1MWh1aDYyc3U3am05dnAzcnAxaGxkZWJsaiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/bzoD9WOiU1wAg/giphy.gif "Counting In Japanese From 1 To 10000 10")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  On the other hand, you probably noticed that 4, 7, and 9 have two different readings each. As we, in the Western world, consider the number 13 to bring bad luck, the Japanese people consider the numbers 4 and 9 to be unlucky because し (_shi_ – 4_)_ ) and く (_ku_ – 9) sound the same as the words for “death” (死, shi) and “suffering, agony or torture” (苦, ku). Thus, Japanese people avoid using these unlucky numbers as much as possible. If you ever travel to Japan, pay close attention to the prices. Chances are you won’t see prices like 9.99 or 4.99 anywhere.
@@ -177,26 +171,20 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
  There are over 500 counters in the Japanese language; however, not all are commonly used. Read on to discover the most frequently used counters.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Japanese counters for time
 
  o clearly indicate that you are referring to seconds, minutes, hours, months, or years, you must use specific counters in Japanese. Seconds are expressed with \~秒_(_ _byou)_ , minutes with \~分_(fun or pun)_ , hours with \~時_(ji)_ , months with \~月_(getsu)_ , and years with \~年_(nen)_ .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Japanese counters for people
 
  To count people in Japanese, use the counter ひとり_(hitori)_ for one person, ふたり_(futari)_ for two people, and \~人_(nin)_ for three or more people.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Japanese objects counters
 
@@ -209,10 +197,7 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
  For small animals like insects, fish, dogs or cats, you need to use the counter \~匹_(_ _hiki_ _)._ For larger animals, such as elephants, the appropriate counter \~頭_(tou)_ .
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Japanese counters for food
@@ -222,10 +207,11 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 ![Japanese numbers kanji](https://edge.mondly.com/blog/wp-content/uploads/2019/11/japanese-numbers-kanji-960x640.jpeg "Counting In Japanese From 1 To 10000 11")
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Japanese counters for cars or bicycles
@@ -243,13 +229,6 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 In conclusion,  while the prevalence of Arabic numerals in Japan offers a familiar comfort to learners of the Japanese language, the significance of understanding and using Japanese numbers cannot be overstated. From their indispensable role in traditional ceremonies to the necessity of verbal communication, mastering the numbers in Japanese is a critical aspect of truly embracing the language and culture.
 
 Before you go, make sure you check out these FAQs.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to say numbers in Japanese?
 
@@ -295,24 +274,17 @@ Before you go, make sure you check out these FAQs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-essential-guide-to-top-analytics-platforms-for-better-instagram-metrics/"><u>[New] 2024 Approved The Essential Guide to Top Analytics Platforms for Better Instagram Metrics</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-mastering-video-file-processing-movs-in-windows-11-edition/"><u>[New] In 2024, Mastering Video File Processing MOVs in Windows 11 Edition</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-core-principles-of-crafting-convincing-video-endorsements-for-2024/"><u>[Updated] Core Principles of Crafting Convincing Video Endorsements for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-harmonious-hub-choosing-the-best-free-apps-for-your-youtube-music-streams-for-2024/"><u>[Updated] Harmonious Hub Choosing the Best Free Apps for Your YouTube Music Streams for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/a-guide-sony-xperia-1-v-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Sony Xperia 1 V Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/cracking-the-code-on-the-2024-great-crowdstrike-windows-meltdown-a-deep-dive-into-history-s-analysis/"><u>Cracking the Code on the 2024 Great CrowdStrike-Windows Meltdown: A Deep Dive Into History 'S Analysis</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fine-tune-your-tongue-top-100-accent-boosting-twisters/"><u>Fine-Tune Your Tongue: Top 100 Accent-Boosting Twisters</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/fix-common-problems-with-oculus-air-link-on-windows-expert-advice-and-solutions/"><u>Fix Common Problems with Oculus Air Link on Windows - Expert Advice & Solutions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-stage-to-street-shakespeares-lasting-lexical-staples/"><u>From Stage to Street: Shakespeare’s Lasting Lexical Staples</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/grasping-english-grammar-nuances-top-9-strategies-from-a-lifelong-esl-learner/"><u>Grasping English Grammar Nuances: Top 9 Strategies From a Lifelong ESL Learner</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/how-to-record-gameplay-with-fbx-game-recorder/"><u>How To Record Gameplay With FBX Game Recorder</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-erase-an-iphone-13-pro-max-without-apple-id-by-drfone-ios/"><u>In 2024, How to Erase an iPhone 13 Pro Max without Apple ID?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-itel-s23-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Itel S23 Device</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578838888-introducing-haste-to-learning-urdu-online/"><u>Introducing Haste to Learning Urdu Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-through-vietnam-with-key-phrases-compiled/"><u>Journey Through Vietnam with Key Phrases Compiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/no-more-walls-mondly-bridges-linguistic-gaps-in-ukraine/"><u>No More Walls: Mondly Bridges Linguistic Gaps in Ukraine</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saying-thanks-in-30-languages-an-intercultural-companion-154/"><u>Saying Thanks in 30 Languages: An Intercultural Companion (154)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/stille-hilfe-durch-worte-im-deutschen-kontext/"><u>Stille Hilfe Durch Worte Im Deutschen Kontext</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/words-without-borders-explore-cultures-in-virtual-reality/"><u>Words Without Borders: Explore Cultures in Virtual Reality</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rom-capture-to-share-proven-methods-for-live-360-video-on-youtube/"><u>[New] From Capture to Share Proven Methods for Live 360° Video on Youtube</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-from-play-to-pixels-compreehensive-ps4-recording-with-obs-studio/"><u>[Updated] From Play to Pixels Compreehensive PS4 Recording with OBS Studio</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Poco C51? | Dr.fone</u></a></li>
+<li><a href="https://media-tips.techidaily.com/leading-no-cost-high-definition-film-streamers-choose-the-top-unsignup-options/"><u>Leading No-Cost, High-Definition Film Streamers - Choose the Top Unsignup Options!</u></a></li>
+<li><a href="https://article-posts.techidaily.com/pro-video-performance-the-best-3-smartphones-ranked/"><u>Pro Video Performance The Best 3 Smartphones Ranked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-clearly-spanish-accentuation-techniques/"><u>Speaking Clearly: Spanish Accentuation Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tandcs-whats-new-and-how-it-affects-you/"><u>T&Cs: What's New and How It Affects You</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-understanding-why-the-luxurious-amazon-kindle-oasis-is-worth-its-high-cost/"><u>The Ultimate Guide to Understanding Why the Luxurious Amazon Kindle Oasis Is Worth Its High Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-overseas-tongues-studied-in-the-states/"><u>Top Overseas Tongues Studied In the States</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-fixing-a-non-functional-hdmi-connector-via-usb/"><u>Troubleshooting Guide: Fixing a Non-Functional HDMI Connector via USB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-to-mastering-lithuanian-from-your-laptop/"><u>Ultimate Guide to Mastering Lithuanian From Your Laptop</u></a></li>
 </ul></div>
 

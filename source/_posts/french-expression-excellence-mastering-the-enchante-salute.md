@@ -1,7 +1,7 @@
 ---
 title: "French Expression Excellence: Mastering the 'Enchanté' Salute"
-date: 2024-07-29T06:47:10.115Z
-updated: 2024-07-30T06:47:10.115Z
+date: 2024-11-21T19:03:09.750Z
+updated: 2024-11-24T23:47:38.358Z
 tags:
   - speak
   - english
@@ -26,23 +26,21 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  But everyone wants to make a change from time to time. So let’s dive into 12 ways to say hello in French that are not_Bonjour._
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. “Hi” in French –_Salut!_
 
  Just as commonly used, but a bit more informal,_Salut_ is what we could call_Bonjour_ ’s cool kid.
 
  Meaning “hi”, “hello” or sometimes even “bye”,_Salut_ is the informal French greeting you can use with family and friends but not with your boss or teacher.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## 2\. “Good morning” in French –_Bon matin!_
 
  European French doesn’t have an equivalent for “good morning”. So it’s good to know that while in France you shouldn’t use Bon matin. But if you happen to spend a charming morning in Paris, you can safely use – you guessed it –_Bonjour!_
 
  However, if you are in Quebec, you are free to use_Bon matin_ until 10 or 11 AM.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. “Good afternoon” in French –_Bon après-midi!_
 
@@ -58,16 +56,10 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Literally meaning “good night”,_Bonne nuit_ is used more as a “goodbye” than as a “hello”. So if you are spending time with your French friends,_Bonne nuit_ is a great way to let them them know you are retiring.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![french greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/11/french-greetings-scaled-722x960.jpg "How To Say Hello In French: 12 Useful French Greetings 2")
 
  “French fashion” by Charles 🇵🇭©
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Hello? –_Allô?_
 
  Although it is not specific to face to face interactions,_Allô_ is still considered a greeting.
@@ -75,8 +67,9 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  Usually expressed with the raising tone of a question,_Allô_ is what you could say over the phone to check whether the person you are talking to is still on the other end of the line or not:_Allô?_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. Excuse me? –_Excusez-moi?_
 
  Looking for a polite way to get someone’s attention in French? Maybe there’s someone blocking your way in the store or maybe you want to get noticed by the office clerk. In these situations, a classic greeting would be a bit redundant. So instead you could use this “question-like”_Excusez-moi?_ that has a double meaning and works as both a greeting and a way to get someone’s attention.
@@ -90,33 +83,40 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  Or you can play it simple, follow the lead of the French speakers and answer directly with_Et toi?_ (“And you?”) since the_Ça va bien_ (“I’m good”) answer is usually implied.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 9\. What’s up? –_Ça va?_
 
  The English translation of_Ça va?_ , the little and cooler brother of_Comment ça va?_ , is “how’s it going” or literally “does it go?” and it can be used exactly the same like in the previous examples.
 
  The only slight difference is the level for formality associated of each phrase:_Ça va?_ is obviously more suitable for informal interactions with friends and family.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10\. What’s up? –_Quoi de neuf?_
 
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 11\. The cute Bonjour:_Coucou!_
 
 _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It literally means “cuckoo” and it is used the same way we use “hey!” in English.
 
  Although extremely cute, you shouln’t use_Coucou_ in formal contexts. It would be a bit weird to greet your boss using_Coucou_ , wouldn’t it?
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![bonjour](https://edge.mondly.com/blog/wp-content/uploads/2019/11/bonjour-scaled-960x641.jpg "How To Say Hello In French: 12 Useful French Greetings 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 12\. How’s it going? –_Ça roule?_
 
@@ -147,8 +147,6 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -156,4 +154,24 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-insiders-guide-to-going-live-on-instagram/"><u>[New] 2024 Approved The Insider's Guide to Going Live on Instagram</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-lightninglash-delaytape-playback/"><u>[New] In 2024, LightningLash DelayTape Playback</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-expert-techniques-for-downloading-vimeo-clips-mp4/"><u>[Updated] Expert Techniques for Downloading Vimeo Clips (MP4)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expert-techniques-for-manipulating-iphone-photos/"><u>[Updated] Expert Techniques for Manipulating iPhone Photos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-lost-in-tiktok-fixing-chrome-errors-on-devices/"><u>[Updated] In 2024, Lost in TikTok Fixing Chrome Errors on Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-students-with-dynamic-spanish-learning/"><u>Engaging Students with Dynamic Spanish Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/esl-teaching-for-immigrant-integration/"><u>ESL Teaching for Immigrant Integration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explora-la-voces-animalistas-con-espanol/"><u>Explora La Voces Animalistas Con Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-language-bonds-turkey-and-korea/"><u>Exploring Language Bonds: Turkey and Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-distinctive-aspects-of-pt-buttons-worldwide/"><u>Exploring the Distinctive Aspects of PT Buttons Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foraying-into-the-realm-of-arabic-language/"><u>Foraying Into the Realm of Arabic Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-conversationalist-essential-chinese-greeting-skills/"><u>From Novice to Conversationalist: Essential Chinese Greeting Skills</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/harnessing-the-power-of-light-in-iphone-hdr-photography/"><u>Harnessing the Power of Light in iPhone HDR Photography</u></a></li>
+<li><a href="https://win-able.techidaily.com/league-of-legends-freezing-solve-it-fast-with-these-simple-fixes/"><u>League of Legends Freezing? Solve It Fast with These Simple Fixes</u></a></li>
+<li><a href="https://discover-best.techidaily.com/leverage-the-power-of-cookiebot-for-boosted-online-presence-and-seo-success/"><u>Leverage the Power of Cookiebot for Boosted Online Presence and SEO Success</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unlock-the-potential-of-siri-solutions-for-when-suggestions-fail-to-appear/"><u>Unlock the Potential of Siri: Solutions for When Suggestions Fail to Appear</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eygnwmwn-glwttothpeio-gkreman/"><u>Ευγνώμων Γλωττοτηπειό Γκρεμάν</u></a></li>
+</ul></div>
 

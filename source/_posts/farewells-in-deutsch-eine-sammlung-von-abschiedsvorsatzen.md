@@ -1,7 +1,7 @@
 ---
 title: "Farewells in Deutsch: Eine Sammlung Von Abschiedsvorsätzen"
-date: 2024-07-29T06:45:34.379Z
-updated: 2024-07-30T06:45:34.379Z
+date: 2024-11-23T22:33:50.385Z
+updated: 2024-11-24T23:20:51.989Z
 tags:
   - speak
   - english
@@ -45,15 +45,17 @@ thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b1
  In the same manner, you’ll say_Schönes Wochenende_ to wish someone a good weekend.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Einen schönen Tag noch – ‘Have a nice day’
 
  The more polite version of_Schönen Tag noch_ is_Einen schönen Tag noch_ . It means the same thing, but it is used by someone who wants to sound more formal and respectful.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Ciao – ‘Bye’
 
  The same as the rest of Europe, Germans borrowed [_Ciao_](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from the Italians. It’s a nice, friendly and very international way of parting ways with a friend.
@@ -61,15 +63,24 @@ thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b1
  Just as chic, though not as common, is the French_Adieu_ or_Ade_ .
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Man sieht sich – ‘See you’
 
  When you didn’t plan a next meeting or get-together and you’re not sure when you are going to see the other person, you can simply say_Man sieht sich_ , which means “see you”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Bis bald – ‘See you soon’ in German
 
  However, it’s way more common to take your leave by saying_Bis bald_ , which means “see you soon” in German. For the next three goodbyes, it will be useful to know that_bis_ is the German equivalent of “till”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Bis später – ‘See you later’
 
@@ -79,9 +90,6 @@ thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b1
 
  If you want to say “see you tomorrow”, you guessed it! You will say_Bis morgen_ .
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ## 9\. Bis Montag – ‘Until Monday’
 
  Also not uncommon is the usage of_bis_ in combination with the [days of the week in German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -94,14 +102,8 @@ thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b1
 * _Bis Samstag_ – “Until Saturday”
 * _Bis Sonntag_ – “Until Sunday”
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## basic german words
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ![basic german words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/basic-german-words-960x960.png "15 Ways To Say Goodbye In German 2")
 
 ## 10\. Gute Nacht – ‘Good night’ in German
@@ -117,15 +119,13 @@ thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b1
 _Wir sehen uns_ is another nice way to say “see ya later” if you are making plans with someone. Add_dann_ to that and it will mean something more along the lines of “see you then”.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 13\. Viel Spaß – ‘Have fun’ in German
 
  Supposing that the other person is going to a party or a similar activity, you can say_Viel Spaß_ , which means “enjoy” or “have fun”.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 14\. Mach’s gut – ‘Take care’
 
  For more caring natures,_Mach’s gut_ is the perfect way to end a conversation. It is, of course, an informal way to say goodbye and it’s reserved for people with whom we have a special relationship.
@@ -163,8 +163,6 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -172,4 +170,22 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/nvestigating-top-viewed-comments/"><u>[New] Investigating Top Viewed Comments</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-kinetic-control-on-android-the-kinemaster-dive/"><u>[Updated] Kinetic Control on Android The KineMaster Dive</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-intricate-dance-of-photos-into-a-unified-display/"><u>2024 Approved The Intricate Dance of Photos Into a Unified Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-accurate-info-on-your-childs-messenger-profile/"><u>Ensuring Accurate Info on Your Child’s Messenger Profile</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/exploring-the-best-android-and-ios-wedding-timers-for-seamless-countdowns/"><u>Exploring the Best Android & iOS Wedding Timers for Seamless Countdowns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-your-gday-on-with-australian-expressions/"><u>Get Your 'G'day!' On with Australian Expressions</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-6-plus-to-others-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 6 Plus To Others Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-the-ultimate-list-of-8-gratis-corporate-video-conferencing-software/"><u>In 2024, The Ultimate List of 8 Gratis Corporate Video Conferencing Software</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-realme-c53-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Realme C53 FRP Bypass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-in-your-midlife-a-path-to-global-understanding-and-personal-growth/"><u>Language Mastery in Your Midlife – A Path to Global Understanding & Personal Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mosaic-honoring-european-linguistic-heritage/"><u>Multilingual Mosaic: Honoring European Linguistic Heritage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pc-gaming-fixes-solving-continuous-crashes-in-assassins-creed-valhalla/"><u>PC Gaming Fixes: Solving Continuous Crashes in Assassin's Creed Valhalla</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplifying-your-approach-to-spanish-verbal-usage/"><u>Simplifying Your Approach to Spanish Verbal Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-korean-days-an-introductory-guide/"><u>The Essentials of Korean Days: An Introductory Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-tech-enhanced-language-learning-for-corporates/"><u>Top Tech-Enhanced Language Learning for Corporates</u></a></li>
+</ul></div>
 

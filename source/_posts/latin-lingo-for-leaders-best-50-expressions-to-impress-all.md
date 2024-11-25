@@ -1,7 +1,7 @@
 ---
 title: "Latin Lingo for Leaders: Best 50 Expressions to Impress All"
-date: 2024-11-08T22:06:37.503Z
-updated: 2024-11-15T00:38:57.705Z
+date: 2024-11-18T21:03:09.016Z
+updated: 2024-11-24T16:31:29.691Z
 tags:
   - speak
   - english
@@ -22,37 +22,35 @@ thumbnail: https://thmb.techidaily.com/56c9727e1647faa9df05a7ff87a2cebb670ed94ea
 
 These are nearly as famous as Julius Caesar himself.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Veni, vidi, vici. —** _I came, I saw, I conquered._
 
  Famously attributed to Julius Caesar in a message he supposedly sent to the Roman Senate to describe his swift, conclusive victory against King Pharnaces II of Pontus near Zela in 47 BC.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Alea iacta est. —** _The die has been cast._
 
  Another Latin phrase said by Julius Caesar upon crossing the Rubicon to enter Italy and begin the long civil war against Pompey and the Optimates. The meaning of this phrase refers to the point of no return.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Carpe diem. —** _Seize the day._
 
  Probably the most popular Latin phrase of modern times. Luckily, we have an even better one:_carpe vinum_ . Literally ‘seize the wine’. The only Latin phrase you’ll ever need on a Friday night out. And speaking of night, you should also remember the_carpe noctem_ variation which literally translates to ‘seize the night’. Either way, the general meaning is to make the most of everything.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Cogito, ergo sum. —** _I think, therefore I am._
 
  A_dictum_ (‘a short statement that expresses a general truth’) coined by French philosopher René Descartes in Latin.
 
  What Descartes doesn’t know is that nowadays people prefer the_bibo, ergo sum_ version which literally means “I drink, therefore I am”.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **In vino veritas. —_In wine, there is truth._**
 
@@ -65,10 +63,7 @@ These are nearly as famous as Julius Caesar himself.
  That scene is very tragic indeed, but nowadays, the phrase can be used jokingly to condemn a friend’s change of heart.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Acta, non verba. —** _Deeds, not words._
@@ -81,21 +76,7 @@ These are nearly as famous as Julius Caesar himself.
 
 ![latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-phrases.jpg "50 Popular Latin Phrases To Impress Your Friends 6")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Using some Latin phrases here and there will automatically make you look smarter.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Common Latin Words & Sayings
 
@@ -290,16 +271,7 @@ Different phrase, same story. You’re welcome.
 ![latin words](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-words-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 9")
 
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Roman statue” by engin akyurt©
@@ -328,13 +300,6 @@ Different phrase, same story. You’re welcome.
 
 From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Why should you learn these cool Latin phrases?
 
  In all seriousness, Latin phrases, words and sayings are a fun way to boost your vocabulary and learn more about the origin of the words we use every day. While Latin is the common ancestor of the Romance languages, it has also influenced the Germanic languages (of which English is a part). So it might prove most illuminating to take inspiration from the master orators and use Latin words and phrases in your day-to-day conversations.
@@ -342,6 +307,10 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
  Besides, Latin can prepare you for many professions or simply discussions with scholarly people. These fields include law, medicine, science, music, theology, philosophy, art, and literature. Many scholars believe that learning Latin also sharpens the mind and cultivates analysis and attention.
 
  Furthermore, the Latin language is rich in life lessons, mottos and words to live by. By learning these sayings, you’ll not only improve your vocabulary but also your life experience.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Why are Latin words used in law?
 
@@ -357,6 +326,10 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Speak Latin like Julius Caesar
 
@@ -383,24 +356,24 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-aspect-ratio-guide-to-enhanced-facebook-viewing-for-2024/"><u>[New] Aspect Ratio Guide to Enhanced Facebook Viewing for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-balancing-main-and-supplemental-filmmaking-elements-for-2024/"><u>[New] Balancing Main & Supplemental Filmmaking Elements for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/asmr-and-wellness-what-are-its-promising-side-effects/"><u>ASMR & Wellness What Are Its Promising Side-Effects?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/british-american-language-variations-explored/"><u>British-American Language Variations Explored</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivating-communication-without-strict-grammar/"><u>Cultivating Communication without Strict Grammar</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-courtesy-express-gratitude-in-30-languages-148-under-156-but-original-concept/"><u>Cultural Courtesy: Express Gratitude in 30 Languages (148) [Under 156 but Original Concept]</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-new-languages-easily-only-047-more-than-before/"><u>Discover New Languages Easily – Only $0.47 More than Before</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-and-install-cameradrivers-compatible-with-windows-11-10-8-and-7/"><u>Download & Install CameraDrivers - Compatible with Windows 11, 10, 8 & 7</u></a></li>
-<li><a href="https://network-issues.techidaily.com/fixing-flipped-screen-on-windows-7-system/"><u>Fixing Flipped Screen on Windows 7 System</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578456981-fluency-fast-track-daily-10-minute-dose-to-speaking-slovak-fluently/"><u>Fluency Fast Track: Daily 10-Minute Dose to Speaking Slovak Fluently!</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/geavanceerd-online-amv-converter-naar-avi-vrije-movavi-dienst-voor-filmprofessionals/"><u>Geavanceerd Online AMV-Converter Naar Avi - Vrije Movavi-Dienst Voor Filmprofessionals</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-realme-12-pro-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Realme 12 Pro 5G to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Use Special Features - Virtual Location On Apple iPhone SE (2022)? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-10-various-ways-to-communicate-hello-in-spanish/"><u>Introducing 10 Various Ways to Communicate 'Hello' In Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/joyful-latin-teaching-approaches/"><u>Joyful Latin Teaching Approaches</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-merges-with-pearson-academic-consortium/"><u>Mondly Merges With Pearson Academic Consortium</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-italy-top-100-expressions-for-the-travelers-toolkit/"><u>Navigating Italy: Top 100 Expressions for the Traveler's Toolkit</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-the-romer-portable-charge-up-searchlight-a-reliable-and-high-powered-nighttime-beacon/"><u>Review of the Romer Portable Charge-Up Searchlight: A Reliable & High-Powered Nighttime Beacon</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/starting-your-own-platform-a-guide-to-critiquing-home-essentials/"><u>Starting Your Own Platform A Guide to Critiquing Home Essentials</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-perfecting-instagram-stories-adding-and-sharing-custom-emojis/"><u>[New] 2024 Approved Perfecting Instagram Stories Adding & Sharing Custom Emojis</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-ace-applications-transforming-videos-for-tweet/"><u>2024 Approved Ace Applications Transforming Videos for Tweet</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-enable-usb-debugging-on-a-locked-motorola-moto-g73-5g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Motorola Moto G73 5G Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-hoist-your-words-like-a-flag/"><u>How to Hoist Your Words Like a Flag</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/i-mille-numero-italiani-conoscenze-per-la-superiorita/"><u>I Mille Numero Italiani: Conoscenze per La Superiorità</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-a-closer-look-at-asuss-proart-pa-329q-an-in-depth-review-of-its-professional-standards/"><u>In 2024, A Closer Look at Asus's ProArt PA 329Q – An In-Depth Review of Its Professional Standards</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-asus-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Asus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-language-journey-top-6-online-tools-for-success/"><u>Korean Language Journey: Top 6 Online Tools for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-exams-and-certifications-your-path-to-proficiency/"><u>Language Exams and Certifications: Your Path to Proficiency</u></a></li>
+<li><a href="https://common-error.techidaily.com/patch-and-enhance-correctly-install-the-overlooked-key-media-controller-driver-on-your-machine/"><u>Patch and Enhance: Correctly Install the Overlooked Key Media Controller Driver on Your Machine</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211140596-9781961064102-play/"><u>Play | Free Book</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/preventing-unseen-frames-in-video-captures/"><u>Preventing Unseen Frames in Video Captures</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/prodigy-machines-top-quality-computers-available/"><u>Prodigy Machines Top-Quality Computers Available</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/swiftly-uninstalling-youtube-videos-from-devices-for-2024/"><u>Swiftly Uninstalling YouTube Videos From Devices for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-bard-redux-everyday-language-roots-unearthed/"><u>The Bard Redux: Everyday Language Roots Unearthed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-gratitude-basic-xiexie-and-more/"><u>The Language of Gratitude: Basic Xièxiè and More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-new-augmented-reality-app-from-mondly-is-the-future-of-language-learning/"><u>The New Augmented Reality App From Mondly Is the Future of Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-value-of-english-mastery-insights/"><u>The Value of English Mastery: Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-100-frequently-miswritten-english-vocabulary-words/"><u>Top 100 Frequently Miswritten English Vocabulary Words</u></a></li>
 </ul></div>
 

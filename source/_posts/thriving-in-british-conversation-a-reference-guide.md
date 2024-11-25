@@ -1,7 +1,7 @@
 ---
 title: "Thriving in British Conversation: A Reference Guide"
-date: 2024-11-03T22:01:14.211Z
-updated: 2024-11-05T06:03:36.100Z
+date: 2024-11-18T20:49:37.927Z
+updated: 2024-11-24T22:01:32.817Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/40db9e7f14d32360658bd45a85fa8baf591a4c124
 
  It’s completely possible that you walk into a British bar and don’t understand more than half of what they are saying. If you don’t want to be this person and you want to be able to converse fluently with your British mates, then we’re here to help you out!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 50+ British Phrases and their Meanings
 
  Have you ever been the odd one out in a group of British mates not getting the joke? Do they all belly laugh while you are left grinning awkwardly alongside them?
@@ -42,19 +46,6 @@ thumbnail: https://thmb.techidaily.com/40db9e7f14d32360658bd45a85fa8baf591a4c124
 
  Although it may mean “ok” in North America, it’s the equivalent of “how are you?” in British English.
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### _I’m knackered_
 
 I’m tired.
@@ -64,53 +55,35 @@ I’m tired.
 Mischievous or playful.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Bloody_
 
 This is a very British thing to say meaning very.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### _I’m pissed_
 
  Not meaning the regular “angry”, in British talk it actually means you’re very drunk and is used quite a lot when you are out drinking with friends.
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Mate_
 
 A common one and quite cliché – mate means friend.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### _Rubbish_
 
  It could mean_garbage_ or_nonsense,_ depending on the context.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Cockney_
@@ -125,9 +98,17 @@ A person native to East London.
 
  Similar to_guy_ in America, it is a blanket term to describe a man in general.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### _Bollocks_
 
  One of the more well-known British terms, it actually has a multitude of meanings. It could be used to symbolize disbelief, or to talk about a man’s private parts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Funny British Sayings
 
@@ -231,16 +212,13 @@ A person native to East London.
 
 ![british english](https://edge.mondly.net/blog/wp-content/uploads/2020/02/british-english-960x960.png "50+ British Phrases And Slangs To Impress Your British Mates 5")
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  American English vs. British English
 
  British phrases and expressions are extraordinarily interesting to those who aren’t familiar with their terms. The common British words we see already seem so fancy and sometimes even whimsical and learning them will surely give you a leg up next time you start writing your [5 paragraph essay](https://edubirdie.com/blog/five-paragraph-essay) , or have a chinwag with your British mates!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Differences Between American and British English
 
@@ -254,16 +232,13 @@ A person native to East London.
 
  Having learned some of the most common British words and phrases, let’s move on to some frequently asked questions.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Why do the British say ‘cheers’?
 
  ‘Cheers’ is an informal manner of expressing gratitude, akin to saying ‘thank you’. When combined with the word ‘mate’, it forms the phrase “Cheers, mate”, which carries the same meaning as “Thank you, my friend.”
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Can you be British but not English?
 
@@ -272,13 +247,6 @@ A person native to East London.
 ### How to speak like a British?
 
  To speak like a British person, it’s essential to prioritize your pronunciation and vocabulary. Keep in mind that British accents exhibit significant regional variations, so actively listening to native speakers can aid in emulating specific accents like the esteemed ‘Received Pronunciation’. Additionally, acquaint yourself with British slang and remain cognizant of grammatical disparities. Finally, it is crucial to approach the emulation of a British accent with the utmost respect and a sincere curiosity about British culture. Doing this will help you improve your British accent faster.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Will British and American English diverge?
 
@@ -312,19 +280,20 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/gniting-your-individual-brand-flame/"><u>[New] Igniting Your Individual Brand Flame</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-restoring-correct-self-image-amidst-message-distortion-for-2024/"><u>[Updated] Restoring Correct Self-Image Amidst Message Distortion for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/captivating-yuletide-atmosphere-in-window-artistry/"><u>Captivating Yuletide Atmosphere in Window Artistry</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/expert-insights-from-toms-electronics-hub/"><u>Expert Insights From Tom's Electronics Hub</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fluent-french-made-easy-with-essential-proverbs-and-sayings/"><u>Fluent French Made Easy with Essential Proverbs & Sayings</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-htc-u23-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on HTC U23? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-barrier-breakthroughs-with-an-epic-95-savings-opportunity/"><u>Language Barrier Breakthroughs with an Epic 95% Savings Opportunity!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latin-language-lore-best-quotations-and-proverbs-of-ancient-rome/"><u>Latin Language Lore: Best Quotations & Proverbs of Ancient Rome</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719574684003-learn-slovak-online-in-just-10-minutes-a-day/"><u>Learn Slovak Online In Just 10 Minutes A Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-named-superlative-google-play-best-of-2017/"><u>Mondly Kids App Named Superlative Google Play Best of 2017</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/most-value-packed-budget-4k-displays-reviews-and-comparisons/"><u>Most Value-Packed Budget 4K Displays - Reviews & Comparisons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-straight-ahead-top-10-simple-language-selections/"><u>Speak Straight Ahead: Top 10 Simple Language Selections</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211439123--the-poisoned-arrow/"><u>The Poisoned Arrow | Free Book</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unleash-the-power-of-words-crafting-impactful-documentary-narratives-for-2024/"><u>Unleash the Power of Words Crafting Impactful Documentary Narratives for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-asmr-apps-for-android-and-ios/"><u>[Updated] In 2024, Best ASMR Apps for Android and iOS</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-obs-streaming-windows-and-mac-guide/"><u>[Updated] In 2024, OBS Streaming [Windows and Mac Guide]</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-social-synergy-from-insta-to-the-world-of-tiktok/"><u>[Updated] In 2024, Social Synergy From Insta to the World of TikTok</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-optimizing-storage-spend-best-prices-in-cloud-services/"><u>[Updated] Optimizing Storage Spend Best Prices in Cloud Services</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-ps4-gameplay-to-video-an-in-depth-obs-recording-guide/"><u>[Updated] PS4 Gameplay to Video - An In-Depth OBS Recording Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-novice-to-newsmaker-crafting-viral-memes-in-9gag/"><u>2024 Approved From Novice to Newsmaker Crafting Viral Memes in 9GAG</u></a></li>
+<li><a href="https://windows11.techidaily.com/addressing-windows-photos-problem-package-not-registered/"><u>Addressing Windows Photos Problem - Package Not Registered</u></a></li>
+<li><a href="https://some-tips.techidaily.com/enhance-your-site-with-automated-visitor-tracking-the-secrets-in-the-bots/"><u>Enhance Your Site with Automated Visitor Tracking - The Secret's in the Bots!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-strategies-to-evade-content-flagging/"><u>In 2024, Strategies to Evade Content Flagging</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jingle-bells-around-the-world-santas-tongue/"><u>Jingle Bells Around the World - Santa's Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-made-easy-netflix-series-dark/"><u>Language Mastery Made Easy: Netflix Series 'Dark'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/practice-your-spanish-and-socialize-in-mondly-vr-multiplayer/"><u>Practice Your Spanish And Socialize In Mondly VR Multiplayer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-language-journey-with-mondlys-immersive-vr-solutions/"><u>Revolutionize Your Language Journey with Mondly's Immersive VR Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/streamlining-corporate-conversations-for-success/"><u>Streamlining Corporate Conversations for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-untapped-tongues-learn-abroad-at-home/"><u>Unlocking Untapped Tongues: Learn Abroad, at Home</u></a></li>
 </ul></div>
 

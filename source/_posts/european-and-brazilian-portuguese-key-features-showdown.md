@@ -1,7 +1,7 @@
 ---
 title: "European & Brazilian Portuguese: Key Features Showdown"
-date: 2024-07-29T06:47:09.202Z
-updated: 2024-07-30T06:47:09.202Z
+date: 2024-11-20T23:16:08.503Z
+updated: 2024-11-24T18:42:15.082Z
 tags:
   - speak
   - english
@@ -21,17 +21,15 @@ thumbnail: https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d607
  In general, those who speak either language can understand the other, but it may be difficult in some situations. That’s because there are so many nuances between the two. American linguist Albert Marckwardt coined the term “Colonial Lag” as a hypothesis that original varieties of a language (i.e., Brazilian Portuguese) change less than the variety spoken in the mother country (Portugal).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## History
 
  Countries tend to follow the linguistic developments of the mother country with a bit of delay due to the geographical distance. Portuguese was not deemed the official language in Brazil until 1758, whereas the colonization really began in the 16th century. Over time, changes occurred in the language because of increasing contact with European and [Asian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) immigrants.
 
  The other countries colonized by Portugal speak a Portuguese more akin to the [mother language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Why? Many of them are [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) countries, so they don’t have external contact from other cultures that could have impacted their way of speaking. Secondly, compared to Brazil, those countries gained their independence much later and had more contact with Portugal during their early development.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Differences in the Pronunciation
 
  Pronunciation is one of the main differences between the languages. Brazilians speak vowels longer and wider, while Portuguese pronounce the words with a more closed mouth, without pronouncing the vowels as much.
@@ -39,11 +37,16 @@ thumbnail: https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d607
  The pronunciation of some consonants is also different, particularly the S at the end of a word. In Brazilian Portuguese, an S at the end of a word is pronounced as SS; in Portugal, it is pronounced as SH.
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Accents
 
  Brazilian Portuguese is thought to be more phonetically pleasing to the ear thanks to its open vowels, while European Portuguese can sound somewhat garbled. Brazilian accents have a strong cadence and lift to them, making it easier to learn and understand.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Grammar and Spelling
 
@@ -53,17 +56,15 @@ thumbnail: https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d607
 
  Sometimes, Brazilian Portuguese takes words from American English, ignoring its Latin roots. European Portuguese usually adopts words from Latin roots, keeping the original spelling. Overall, European Portuguese is more resistant to change and assimilation of foreign words.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Formal and Informal Speech
 
  European Portuguese is the more formal of the two versions. In Brazilian Portuguese, the word**você** is used for “you” in informal settings; in European Portuguese,**tu** is utilized in the same context. In Portugal, they view the você as crude and thus remove the second-person pronoun in less casual situations and instead use the verb in the third-person singular.  
  When describing actions, Brazilians use “estou fazendo” to mean “I am doing,” and the European Portuguese use the infinitive form, “estou a fazer.” The latter is less direct and translates to “I am taken to doing.”
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Should You Learn Brazilian or European Portuguese?
 
  This is a highly personal decision. This will depend on your personal motives, availability of resources, future aspirations and goals. In general, the thing that sparked your interest in the language will have a direct impact on the dialect you choose. For example, if you love classic literature, European Portuguese might be the best way to go for you. If you love Carnival and samba, Brazilian Portuguese may be best.
@@ -71,8 +72,9 @@ thumbnail: https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d607
  The availability of resources will also influence your decision. _“Brazil has a larger population than Portugal with many native speakers, impacting_ availability _of content. In other words, it’s simpler to locate resources for Brazilian Portuguese learners than it is for those who study the European kind”_ says Ryan McMunn of BRIC Language Systems. Finding a professional resource that offers instruction in Brazilian Portuguese with access to native speakers will greatly improve your chances of being successful and learning both at your pace and in a way that will last.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Future Goals
 
  What are your future plans? The answer will help you determine which Portuguese variety would be best for you. If you would like to work for the United Nations someday, you should learn Continental Portuguese because its operations are based in Europe. If you want a job in a North American enterprise, Brazilian Portuguese will be best because that country has a bigger economic and trading base.
@@ -121,8 +123,6 @@ thumbnail: https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d607
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -130,4 +130,24 @@ thumbnail: https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d607
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-flawless-soundscape-secrets-to-high-resolution-audio-recording-for-2024/"><u>[Updated] Flawless Soundscape Secrets to High-Resolution Audio Recording for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-creating-captivating-youtube-openers-two-ways/"><u>[Updated] In 2024, Creating Captivating YouTube Openers - Two Ways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eng-speaks-other-languages-a-lexical-mosaic/"><u>ENG Speaks Other Languages: A Lexical Mosaic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enunciate-elegance-tongue-twisters-for-improvement/"><u>Enunciate Elegance: Tongue Twisters for Improvement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eternal-savings-on-mondly-ultimate-plan/"><u>Eternal Savings on Mondly Ultimate Plan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-french-greetings-for-every-occasion-and-setting/"><u>Expressive French Greetings for Every Occasion & Setting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-augmented-reality-language-app-with-speech-recognition/"><u>First Augmented Reality Language App With Speech Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-impressions-count-indonesian-greeting-basics/"><u>First Impressions Count: Indonesian Greeting Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fan-to-fluent-korean-lessons-on-squid-game/"><u>From Fan to Fluent: Korean Lessons on Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-zero-to-bilingual-your-french-self-learning-plan/"><u>From Zero to Bilingual: Your French Self-Learning Plan</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/if-ab-is-the-hypotenuse-ab2-ac2-plus-bc2-rightarrow-82-neq-52-plus-2-64-does-not-equal-25-plus-49/"><u>If AB Is the Hypotenuse: (AB^2 = AC^2 + BC^2 Rightarrow 8^2 Neq 5^2 + 지^2 ) (64 Does Not Equal 25 + 49)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-transition-tactics-for-a-hassle-free-macos-11-big-sur-upgrade/"><u>In 2024, Transition Tactics for a Hassle-Free macOS 11 Big Sur Upgrade</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/leveraging-the-power-of-visual-storytelling-in-fb-covers-for-2024/"><u>Leveraging the Power of Visual Storytelling in FB Covers for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/maximizing-efficiency/"><u>Maximizing Efficiency</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/metamorphose-into-the-metaverse-an-easy-avatar-guide/"><u>Metamorphose Into the Metaverse An Easy Avatar Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-m1-pro-vs-the-m1-max-showdown-what-sets-them-apart/"><u>The M1 Pro Vs. The M1 Max Showdown - What Sets Them Apart?</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/ultimate-iphone-fix-tool-optimized-for-seamless-compatibility-with-windows-11-systems/"><u>Ultimate iPhone Fix Tool: Optimized for Seamless Compatibility with Windows 11 Systems</u></a></li>
+</ul></div>
 

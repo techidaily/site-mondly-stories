@@ -1,7 +1,7 @@
 ---
 title: "Expressing Affection: Linguistic Love Strategies"
-date: 2024-07-29T06:48:31.857Z
-updated: 2024-07-30T06:48:31.857Z
+date: 2024-11-22T21:40:01.258Z
+updated: 2024-11-24T17:16:00.130Z
 tags:
   - speak
   - english
@@ -19,8 +19,9 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
  German is not a particularly romantic language. But that doesn’t mean there aren’t any pick up lines in German. Of course, there are! Many people speak German. Some of them must have thought of a couple of German pick up lines, right? Well, yes. The German language does have quite a lot of conversation openers you can use during your next trip to Germany, Austria, Switzerland, South Tyrol (Italy), Belgium, or Liechtenstein. Let’s see which they are. Happy flirting in German!
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Funny Pick Up Lines in German
 
 * _Glaubst du an Liebe auf den ersten Blick? Ich kann auch rausgehen und nochmal reinkommen._ (“Do you believe in love at first sight? Otherwise, I can leave and come back again.”)
@@ -36,9 +37,6 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 
 **The number one rule for German pick up lines** is to deliver them in a fun and playful manner.[Pick up lines](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) can generally be quite cheesy, so it’s important to be careful not to alienate the person you’re trying to flirt with. Your chances of success will increase if you deliver the pick up lines well, adopting a tongue-in-cheek approach. The goal is to make them smile or even laugh, not roll their eyes in annoyance.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ## Cheesy Pick Up Lines in German
 
 * _Ich hatte einen schlechten Tag. Möchtest du einen Kaffee mit mir trinken und meinen Tag retten?_  (“I had a bad day. Would you like to drink a coffee with me and save my day?”)
@@ -55,8 +53,9 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
  Using a 100% cheesy pick up line in German? Your delivery becomes even more crucial. Consider testing the waters first to see if humor is appreciated. If the response is positive, then go ahead and use it!
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Smooth German Pick Up Lines
 
 * _Denkst du, wir haben einen gemeinsamen Freund, der uns einander vorstellen könnte?_  (“Do you think that we have a mutual friend who could introduce us to each other?”)
@@ -70,16 +69,21 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 * _Ich habe kein Glück bei der Lotterie, aber bei dir habe ich das große Los gezogen._ (“I’m not lucky in the lottery, but with you, I’ve hit the jackpot.”)
 * _Kennen wir uns nicht irgendwoher?_  (“Don’t we know each other?”)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Memorable Pick-Up Lines In German For Every Occasion 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Learn German fast
 
  Does your crush speak German? Mondly has your back with practical German skills for real life.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-10001&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-10001&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-10001&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-10001&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-10001%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Pick Up Lines to Use on Guys in Germany
 
@@ -97,9 +101,6 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 
  On the other hand, if they do like football and you decide to use a football-themed pick up line on them, you may just score a goal!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ## Best Pick Up Lines for Girls in Germany
 
 * _Bist du ein Berliner Pfannkuchen? Denn du machst mein Leben süßer._  (“Are you a Berliner doughnut? Because you make my life sweeter.”)
@@ -123,8 +124,9 @@ That being said, we wish you happy flirting! 😏
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Learn German for the one you love
 
  Did you use one of these pick up lines in German and successfully broke the ice? Nice job. Or maybe you just want to learn more? Get Mondly now and enrich your German flirting vocabulary with a dedicated category on “Romance”.
@@ -143,8 +145,6 @@ That being said, we wish you happy flirting! 😏
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -152,4 +152,26 @@ That being said, we wish you happy flirting! 😏
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-a-beginners-guide-to-starting-a-professional-account-on-ig/"><u>[New] 2024 Approved A Beginner's Guide to Starting a Professional Account on IG</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-enhancing-iphone-selfies-with-water-surface-highlights/"><u>[New] 2024 Approved Enhancing iPhone Selfies with Water Surface Highlights</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-imprint-clipart-with-inner-circle-light-defocus-method-ps/"><u>[New] Imprint Clipart with Inner Circle Light Defocus Method PS</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-smooth-transition-optimal-8-sub-to-srt-modules/"><u>[New] In 2024, Smooth Transition Optimal 8 Sub to SRT Modules</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-redefining-your-twitter-vibe-with-dynamic-video-thumbnails/"><u>[Updated] In 2024, Redefining Your Twitter Vibe with Dynamic Video Thumbnails</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-top-10-christian-melodies-download-and-personalize-guide-for-2024/"><u>[Updated] Top 10 Christian Melodies Download & Personalize Guide for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-mastering-complex-word-sounds/"><u>Breaking Language Barriers: Mastering Complex Word Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-gaps-in-france-with-key-linguistic-tools/"><u>Bridging Gaps in France with Key Linguistic Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-words-and-hearts-overcoming-language-obstacles-in-romance/"><u>Bridging Words & Hearts: Overcoming Language Obstacles in Romance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprehensive-list-of-10-common-spanish-salutations-and-greetings/"><u>Comprehensive List of 10 Common Spanish Salutations And Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-bengali-fast-learn-each-day-achieve-tomorrow/"><u>Conquer Bengali Fast: Learn Each Day, Achieve Tomorrow</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-lithuanian-language-digital-mastery-steps/"><u>Conquer Lithuanian Language: Digital Mastery Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/corinthian-chronicles-the-linguistic-odyssey-continues/"><u>Corinthian Chronicles: The Linguistic Odyssey Continues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-10-minute-commitment-to-latvian-mastery/"><u>Daily 10-Minute Commitment to Latvian Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciding-german-versus-french-proficiency-advantages/"><u>Deciding: German Versus French Proficiency Advantages</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-downloadable-instagram-footage-tech-tips-for-computers-and-macs/"><u>In 2024, Downloadable Instagram Footage Tech Tips for Computers & Macs</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-how-to-change-aspect-ratio-in-imovie/"><u>New In 2024, How to Change Aspect Ratio in iMovie</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/the-ultimate-hack-recovering-eliminated-emails-from-your-gmail-account/"><u>The Ultimate Hack: Recovering Eliminated Emails From Your Gmail Account</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Premier Speech-Driven Augmented Interface
-date: 2024-11-13T00:16:38.787Z
-updated: 2024-11-15T14:16:10.438Z
+date: 2024-11-20T18:12:20.216Z
+updated: 2024-11-24T22:05:07.284Z
 tags:
   - speak
   - english
@@ -26,11 +26,19 @@ Here’s a video showcasing Mondly AR:
 
 ##
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## We take learning out of the books and bring it to life into your living room using augmented reality
 
  The new experience we created helps you develop a strong sense of the language you want to learn through highly realistic visual lessons and purposeful conversations. This approach is aiming to stimulate you to learn languages not because you have to, but because [it’s genuinely fun.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
 
@@ -38,16 +46,13 @@ Here’s a video showcasing Mondly AR:
 
 ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
 
@@ -65,10 +70,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +87,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,22 +119,17 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-transforming-vision-into-visual-storytelling-with-windows-11-techniques-for-2024/"><u>[New] Transforming Vision Into Visual Storytelling with Windows 11 Techniques for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-sierra-sovereign-dvd-and-media-cutting-tools/"><u>[Updated] 2024 Approved Sierra Sovereign Dvd & Media Cutting Tools</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-ultimate-iphone-hdr-photo-guidebook/"><u>[Updated] 2024 Approved Ultimate iPhone HDR Photo Guidebook</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-a-comprehensive-review-of-next-gen-camera-systems/"><u>[Updated] A Comprehensive Review of Next-Gen Camera Systems</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-apex-of-narrative-content-youtubes-finest-in-23/"><u>[Updated] The Apex of Narrative Content YouTube’s Finest in '23</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/4-reasons-why-you-should-learn-a-language-in-your-fifties/"><u>4 Reasons Why You Should Learn A Language In Your Fifties</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-pirates-guide-to-thrashin-tongues/"><u>A Pirate's Guide to Thrashin' Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accueils-charmants-en-langue-francaise/"><u>Accueils Charmants en Langue Française</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brazilian-and-european-portuguese-a-comparative-analysis/"><u>Brazilian and European Portuguese: A Comparative Analysis</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-down-the-language-learning-process-timeline/"><u>Breaking Down The Language Learning Process Timeline</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cognitive-rejuvenation-through-linguistics/"><u>Cognitive Rejuvenation Through Linguistics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutschsprachige-wochen-namen-lernen/"><u>Deutschsprachige Wochen-Namen Lernen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-global-communication-with-google-endorsed-language-tools-mondly/"><u>Discover Global Communication with Google-Endorsed Language Tools - Mondly</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-free-and-paid-drawing-tools-for-windows-enthusiasts/"><u>In 2024, Free and Paid Drawing Tools for Windows Enthusiasts</u></a></li>
-<li><a href="https://games-able.techidaily.com/operas-secret-weapon-gaining-month-long-free-disco-access/"><u>Opera's Secret Weapon: Gaining Month-Long FREE Disco Access</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/operational-walkthrough-deploying-and-operating-chatgpt-in-windows-environments/"><u>Operational Walkthrough: Deploying and Operating ChatGPT in Windows Environments</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/premier-paint-shop-pro-tricks-for-2024/"><u>Premier Paint Shop Pro Tricks for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-cutting-edge-tools-for-digital-video-capture-for-2024/"><u>[New] Cutting-Edge Tools for Digital Video Capture for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-streamvid-studio-xtreme/"><u>[New] In 2024, StreamVid Studio Xtreme</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-making-sporting-scenes-spectacomed/"><u>[Updated] Making Sporting Scenes Spectacomed</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/captivating-video-content-tips-for-pinterest-boards/"><u>Captivating Video Content Tips for Pinterest Boards</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/growing-older-doesnt-stop-learning-4-strong-reasons-to-learn-a-language-after-40/"><u>Growing Older Doesn't Stop Learning – 4 Strong Reasons to Learn a Language After 40</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italys-language-of-hospitality-100plus-useful-expressions/"><u>Italy's Language of Hospitality: 100+ Useful Expressions</u></a></li>
+<li><a href="https://common-error.techidaily.com/laptop-touchpad-problems-heres-how-to-fix-them-on-windows-1187/"><u>Laptop Touchpad Problems? Here's How to Fix Them on Windows 11/8/7!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-legends-the-most-prestigious-50-phrases-to-use/"><u>Latin Legends: The Most Prestigious 50 Phrases to Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-expedition-unraveling-ks-in-squid-game/"><u>Linguistic Expedition - Unraveling KS in Squid Game</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/optimal-handbrake-configuration-tips-achieving-perfect-compression-for-hd-and-ultra-hd-media/"><u>Optimal Handbrake Configuration Tips - Achieving Perfect Compression for HD and Ultra HD Media</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-filmora-on-a-budget-4-proven-ways-to-score-discount-codes/"><u>Updated 2024 Approved Filmora on a Budget 4 Proven Ways to Score Discount Codes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voyage-with-confidence-top-93-indispensable-spanish-phrases/"><u>Voyage with Confidence: Top 93 Indispensable Spanish Phrases</u></a></li>
 </ul></div>
 

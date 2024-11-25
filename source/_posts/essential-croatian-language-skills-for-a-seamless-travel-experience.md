@@ -1,7 +1,7 @@
 ---
 title: Essential Croatian Language Skills for a Seamless Travel Experience
-date: 2024-07-29T06:45:21.855Z
-updated: 2024-07-30T06:45:21.855Z
+date: 2024-11-21T16:58:44.810Z
+updated: 2024-11-24T22:31:14.953Z
 tags:
   - speak
   - english
@@ -30,8 +30,9 @@ thumbnail: https://thmb.techidaily.com/6169c8a9aeeb67674aa07a2a9dad06d0ae5fef5e1
 8. [Days of the week and numbers in Croatian](#numbers-in-croatian)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Hello in Croatian and other useful greetings
 
  Greetings are crucial in any social context. Often regarded as a window to what someone is really like, greetings have the power to strike up conversations everywhere. It’s an excellent way to joyously open many doors in your path through the world. And now that you want to discover [Croatia](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in all its beauty,**Croatian greetings** are your safe ticket toward the best_Game of Thrones_ “behind the scenes” stories from the locals. So here’s**how to say “hello” in Croatian:**
@@ -68,8 +69,9 @@ thumbnail: https://thmb.techidaily.com/6169c8a9aeeb67674aa07a2a9dad06d0ae5fef5e1
  “Plitvice Lakes National Park” by Jonatan Pie©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Basic Croatian phrases for travelers that need help
 
  Every new travel experience should be a dream come true. Imagine visiting**Dubrovnik** and the**Plitvice Lakes National Park** for the first time. It’s a unique feeling you’ll never get to experience again. Unfortunately, emergencies sometimes happen whether we anticipate them or not. It’s best not to let them affect you and the magnificent trip you are taking. So make sure you master this handful of**Croatian phrases** that might save your day at some point during one of your journeys through the spectacular**Krka National Park.**
@@ -89,17 +91,10 @@ thumbnail: https://thmb.techidaily.com/6169c8a9aeeb67674aa07a2a9dad06d0ae5fef5e1
 * Please wait a moment. –_Pričekajte trenutak, molim Vas._
 * I’ll be back immediately. –_Odmah se vraćam._
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Croatian phrases for food lovers
 
  Food is all that some of us can think about. Yep. We all know that one friend who has to try every new food when visiting a new country. We sometimes are that friend. But who can blame the gourmand? Food is soooo good! And Croatia is nothing short of delightful food. You’ll absolutely need to try Peka (baking meat, seafood, and veggies), Brudet (fish stew), Stuffed peppers, Zagreb Schnitzel and the addictive Fritule dessert. So here’s**how to order drinks or food in Croatian restaurants:**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![croatian translation](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-translation-1024x694.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 3")
 
  “Delicious” by Cel Lisboa©
@@ -116,6 +111,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * I’d like an orange juice. –_Rado bih sok od naranče._
 * I would like a coffee. –_Rado bih kavu._
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Basic Croatian for travelers who need a place to spend the night
 
@@ -135,6 +134,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  You’ll have to admit that parties connect people. Phones used to do that, but not anymore. Now going to a party is the best way to connect with people and get to know a new culture. Thus, if you have already planned your trip to Croatia, also squeeze in a night out to party and enjoy the Old Town from another perspective. It may reveal itself differently.
 
 ![croatian to english](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-to-english-960x766.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Cavtat, Croatia” by Conor Rees©
 
@@ -166,12 +169,13 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Would you like to have dinner with me? –_Bi li htio sa mnom na večeru?_
 * I love you. –_Volim te._
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![croatian words](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-words-1024x682.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 5")
 
  “Primošten, Croatia” by Hrvoje Klaric©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Learn Croatian for your shopping sprees
 
@@ -184,9 +188,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * What would you like? –_Što bi željela?_
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## 8\. Days of the week and numbers in Croatian
 
  The days of the week and the numbers are absolutely essential words in any language. Sooner or later you’ll need them when roaming the world. So here are the days of the week and the**numbers in Croatian.**
@@ -246,8 +247,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -255,4 +254,26 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-kinemasters-journey-for-seamless-scene-transitions/"><u>[New] Kinemaster's Journey for Seamless Scene Transitions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-using-inshot-for-laptoppc-and-other-video-editing-alternatives/"><u>[New] Using Inshot for Laptop/PC and Other Video Editing Alternatives</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-from-shadows-to-highlights-the-ultimate-lightroom-hdr-guide/"><u>[Updated] 2024 Approved From Shadows to Highlights The Ultimate Lightroom HDR Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-streamline-your-screen-experience-pip-mastery-for-mac-enthusiasts/"><u>[Updated] 2024 Approved Streamline Your Screen Experience PIP Mastery for Mac Enthusiasts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-premier-pro-templates-of-the-year-free-version/"><u>[Updated] In 2024, Premier Pro Templates of the Year - Free Version</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-unleash-your-phones-potential-the-ultimate-montage-application-guide/"><u>2024 Approved Unleash Your Phone's Potential The Ultimate Montage Application Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-poco-f5-pro-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-passcode-from-iphone-xs-max-complete-guide-drfone-by-drfone-ios/"><u>How To Remove Passcode From iPhone XS Max? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-bridge-between-nations/"><u>Linguistic Bridge Between Nations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-a-collection-of-9-key-grammar-techniques/"><u>Mastering English: A Collection of 9 Key Grammar Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-saying-hello-in-spanish-dive-into-these-top-10-phrases/"><u>Mastering the Art of Saying 'Hello' In Spanish - Dive Into These Top 10 Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-apple-lead-charge-in-education-tech-with-10-ranking/"><u>Mondly and Apple Lead Charge in Education Tech with #10 Ranking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-leads-with-excellence-at-2021-gala/"><u>Mondly Leads with Excellence at 2021 Gala</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-german-colloquialisms-with-confidence-top-25/"><u>Navigating German Colloquialisms with Confidence (Top 25)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oracles-output-ancient-greek-influence-and-modern-context/"><u>Oracle’s Output: Ancient Greek Influence & Modern Context</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/sennheiser-uc-pro-mobility-review/"><u>Sennheiser UC Pro-Mobility Review</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/starting-an-online-platform-for-consumer-goods-reviews-for-2024/"><u>Starting an Online Platform for Consumer Goods Reviews for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unmasking-the-mysteries-of-squid-game-with-korean-lessons/"><u>Unmasking The Mysteries of Squid Game with Korean Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-countries-are-emphasized-in-us-education/"><u>What Countries Are Emphasized in U.S. Education?</u></a></li>
+</ul></div>
 

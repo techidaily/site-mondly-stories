@@ -1,7 +1,7 @@
 ---
 title: "International Eloquence: Expressing Thanks Worldwide (152) [Trimmed to Fit]"
-date: 2024-11-13T01:35:40.432Z
-updated: 2024-11-15T11:54:19.859Z
+date: 2024-11-21T18:32:46.918Z
+updated: 2024-11-24T20:15:11.916Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
 
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
 
@@ -56,13 +60,14 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +94,7 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,22 +127,15 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-the-insiders-look-at-facebook-sharing-for-youtube-creators/"><u>[New] In 2024, The Insider's Look at Facebook Sharing for YouTube Creators</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/60-pistas-para-saberlos-nombre-de-animales-en-espanol/"><u>60 Pistas Para Saberlos: Nombre De Animales en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/african-languages-unleashed-a-cultural-expedition/"><u>African Languages Unleashed: A Cultural Expedition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/basic-russian-expressions-boosting-travel-confidence/"><u>Basic Russian Expressions Boosting Travel Confidence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-practices-in-linguistics-top-5-teaching-technologies/"><u>Best Practices in Linguistics: Top 5 Teaching Technologies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brief-but-effective-guide-to-japanese-numerals/"><u>Brief but Effective Guide to Japanese Numerals</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cross-border-favorite-the-days-apple-app/"><u>Cross-Border Favorite: The Day's Apple App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/empowerment-through-the-lens-of-honterus/"><u>Empowerment Through the Lens of Honterus</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Motorola Moto E13 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Realme 11X 5G? | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/inside-openais-incentive-system-for-cybersecurity-testing-a-step-by-step-participant-guide/"><u>Inside OpenAI’s Incentive System for Cybersecurity Testing: A Step-by-Step Participant Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580763861-is-german-hard-to-study/"><u>Is German Hard To Study?</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-tutorial-on-active-involvement-in-x-twitter-conversations/"><u>Step-by-Step Tutorial on Active Involvement in X Twitter Conversations</u></a></li>
-<li><a href="https://win-top.techidaily.com/the-choreography-of-search-engines-expert-insights-into-optimizing-for-google-your-comprehensive-seo-toolkit/"><u>The Choreography of Search Engines: Expert Insights Into Optimizing for Google | Your Comprehensive SEO Toolkit</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1127011-9781612831305-the-little-book-of-true-ghost-stories/"><u>The Little Book of True Ghost Stories | Free Book</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/top-10-free-mp4-video-editors-compatible-with-windows-macos-and-linux/"><u>Top 10 Free MP4 Video Editors Compatible with Windows, macOS & Linux</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/transforming-ideas-to-visuals-chatgpt-in-ai-artistry/"><u>Transforming Ideas to Visuals: ChatGPT in AI Artistry</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-mastering-video-segmentation-the-easy-fades-way/"><u>[New] Mastering Video Segmentation The Easy Fades Way</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-verbatim-conversion-programs-available/"><u>Best Verbatim Conversion Programs Available</u></a></li>
+<li><a href="https://driver-error.techidaily.com/bus-controller-protocols-streamlined-in-win11/"><u>Bus Controller Protocols Streamlined in Win11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/friend-to-friend-game-borrowing-tips-for-the-xbox-one-console/"><u>Friend-to-Friend Game Borrowing Tips for the Xbox One Console</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/innovative-fb-ad-campaigns-boosting-patient-care/"><u>Innovative FB Ad Campaigns Boosting Patient Care</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-multiple-languages-with-help-from-googled-editors-mondly/"><u>Mastering Multiple Languages with Help From Googled Editors - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-editor-choice-for-enhanced-language-acquisition/"><u>Mondly's Editor Choice for Enhanced Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-lifespan-in-learning-7-triumphant-years/"><u>Mondly's Lifespan in Learning: 7 Triumphant Years</u></a></li>
+<li><a href="https://win11.techidaily.com/offline-entertainment-unlimited-quick-download-movies-shows-songs-and-special-features-for-on-the-go-viewing/"><u>Offline Entertainment Unlimited: Quick-Download Movies, Shows, Songs, and Special Features for On-The-Go Viewing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reflecting-on-10-years-mondlybacks-filters-evolution/"><u>Reflecting on 10 Years: MondlyBack's Filters Evolution</u></a></li>
 </ul></div>
 

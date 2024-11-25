@@ -1,7 +1,7 @@
 ---
 title: French Fluency Boosted by 27 Timeless Expressions
-date: 2024-07-29T06:47:58.765Z
-updated: 2024-07-30T06:47:58.765Z
+date: 2024-11-22T20:15:59.734Z
+updated: 2024-11-24T17:57:18.565Z
 tags:
   - speak
   - english
@@ -26,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/bed92abb4b13bfb35e12a54bfe3958abc331bc994
 
  And French, like any other language, is full of such witty insights. Let’s look at some of the most common them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### _1\. Battre le fer pendant qu’il est chaud._
 
 **Literal translation:** “Strike the iron while it is hot.”
@@ -53,17 +50,10 @@ thumbnail: https://thmb.techidaily.com/bed92abb4b13bfb35e12a54bfe3958abc331bc994
 
  –_Oh là là, ce n’est pas la mer à boire !_ (“Come on, it’s not the end of the world!”)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![french expressions](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-expressions-1-960x539.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 2")
 
  “The French way” by Alex D’Alessio©
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ### _3\. La nuit porte conseil._
 
 **Literal translation:** “The night brings advice.”
@@ -77,8 +67,9 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
  –_La nuit porte conseil._ (“Sleep on it.”)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### _4\. Comme on fait son lit, on se couche._
 
 **Literal translation:** “You’ve made your bed, now lie on it.”
@@ -96,8 +87,9 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
  –_Comme on fait son lit, on se couche._ (“You’ve made your bed, now lie on it.”)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### _5\. Vouloir, c’est pouvoir._
 
 **Literal translation:** “To want to is to be able to.”
@@ -110,9 +102,6 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
 
  –_Vouloir, c’est pouvoir._ (“Where there’s a will, there’s a way.”)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ### _6\. Impossible n’est pas français._
 
 **Literal translation:** “Impossible isn’t French.”
@@ -122,6 +111,10 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
 **How to use it**
 
 _– Je ne peux pas le faire, c’est impossible !_ (“I can’t do it, it’s impossible!)_– Impossible n’est pas français._ (”Nothing is impossible.“)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _7\. Il ne faut rien laisser au hasard._
 
@@ -136,8 +129,9 @@ _– Je ne peux pas le faire, c’est impossible !_ (“I can’t do it, it’s 
 _– Comme vous voulez. Mais il ne faut rien laisser au hasard._ (“Suit yourself. But nothing should be left to chance.”)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### _8\. L’habit ne fait pas le moine._
 
 **Literal translation:** “The outfit doesn’t make the monk.”
@@ -160,16 +154,10 @@ _– L’habit ne fait pas le moine._ (“Don’t judge a book by its cover.”)
 
  – _J’ai 20 minutes de retard au gymnase. Mais mieux vaut tard que jamais._  (“I’m 20 minutes late to the gym. But it’s better to be there late than never.”)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![french idioms](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-idioms-960x639.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 3")
 
  France, Paris
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### _10\. Aux innocents les mains pleines._
 
 **Literal translation:** “Full hands for the innocents.”
@@ -182,9 +170,6 @@ _– Comment est-ce possible? Sadie a gagné encore une fois !_ (“How is this 
 
 _– Aux innocents les mains pleines._ (“Beginner’s luck”)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### _11\. Mieux vaut être seul que mal accompagné._
 
 **Literal translation:** “Better alone than in a bad company.”
@@ -196,6 +181,10 @@ _– Aux innocents les mains pleines._ (“Beginner’s luck”)
 _– La copine de Jacques vient de le quitter._ (“Jacques’s girlfriend just left him.”)
 
 _– Mieux vaut être seul que mal accompagné._ (“Better alone than in a bad company.”)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _12\. Après la pluie, le beau temps._
 
@@ -219,9 +208,6 @@ _– Voulez-vous savoir ce que j’ai acheté pour l’anniversaire de maman?_ (
 
 _– Shhh ! Les murs ont des oreilles._ (“Shhh! The walls have ears.)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ### _14\. Tout est bien qui finit bien._
 
 **Literal translation:** “All’s well that ends well.”
@@ -231,6 +217,10 @@ _– Shhh ! Les murs ont des oreilles._ (“Shhh! The walls have ears.)
 **How to use it**
 
 _–_   _Je suis tellement content que nous soyons arrivés en France en toute sécurité ! Tout est bien qui finit bien._ (“I’m so glad we got to France safely! All’s well that ends well.”)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## French sayings about food and wine
 
@@ -256,11 +246,12 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
 ![french proverbs](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-proverbs-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Take care of your own onions” by MILKOVÍ©
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### _3\. S’occuper de ses oignons._
 
 **Literal translation:** “To take care of your own onions.”
@@ -297,23 +288,22 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
 **Actual meaning:** This saying can be used both literally and figuratively. The idea is that life’s too short to do things that you don’t like.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![funny french expressions](https://edge.mondly.com/blog/wp-content/uploads/2020/07/funny-french-expressions-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 5")
 
  “Tigger looking for rats online” by Catherine Heath©
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## French sayings about animals
 
  Sayings about animals are common in any language. After all, they are our co-residents on this planet and we have quite a lot to learn from them. Here are some of the most common French sayings about animals.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### _1\. À bon chat, bon rat._
 
 **Literal translation:** “To a good cat, a good rat.”
@@ -325,6 +315,10 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
  –_Oh là là, Finalement, Andrew a du mal à gagner le match._ (“Wow! Andrew is finally having trouble winning the match.”)
 
  –_Oui, Xavier est vraiment un adversaire de taille. À bon chat, bon rat._ (“Yes, Xavier is a really good match for him. They are equally matched.”)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _2\. Les chiens ne font pas des chats._
 
@@ -338,9 +332,6 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  – _Oui, les chiens ne font pas des chats. Elle a hérité du talent de sa mère._ (“Yes, dogs don’t make cats. She inherits her mother’s talent.”)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### _3\. Il n’y a pas de quoi fouetter un chat._
 
 **Literal translation:** “There’s no reason to whip the cat.”
@@ -351,9 +342,6 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
  “Bonjour!” by Waranya Mooldee©
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ### _4\. Poser un lapin._
 
 **Literal translation:** “To place a rabbit.”
@@ -407,8 +395,6 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -416,4 +402,24 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-preserving-gh-meetings-live/"><u>[New] 2024 Approved Preserving GH Meetings Live</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-archive-itunes-content-with-ease-using-these-tips-for-2024/"><u>[Updated] Archive iTunes Content with Ease Using These Tips for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-secrets-to-captivating-audiences-in-real-time-broadcasting/"><u>[Updated] In 2024, Secrets to Captivating Audiences in Real-Time Broadcasting</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-adding-chapters-with-ease-a-detailed-youtube-video-editing-tutorial/"><u>2024 Approved Adding Chapters with Ease A Detailed YouTube Video Editing Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-pick-top-10-simplest-world-languages/"><u>Best Pick: Top 10 Simplest World Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/code-switching-to-success-21st-century-linguistic-skills/"><u>Code-Switching to Success: 21St Century Linguistic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/commemorating-a-decade-at-mondlyback-filter-prowess/"><u>Commemorating a Decade at MondlyBack Filter Prowess</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-deep-emotions-hungarian-language-lessons/"><u>Decoding Deep Emotions: Hungarian Language Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-language-proficiency-with-mondlys-innovations/"><u>Effortless Language Proficiency with Mondly's Innovations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-chat-game-nine-tricks-to-better-english-talk/"><u>Elevate Your Chat Game: Nine Tricks to Better English Talk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579366520-exclusive-unlimited-free-mondly-pro-up-to-96-off/"><u>Exclusive: Unlimited Free Mondly Pro - Up to 96% Off</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>How to Come up With the Best Pokemon Team On Apple iPhone XS Max? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-apple-iphone-11-pro-by-drfone-ios/"><u>In 2024, Top 11 Free Apps to Check IMEI on Apple iPhone 11 Pro</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/instant-access-to-behringers-usb-midiaudio-device-drivers/"><u>Instant Access to Behringer's USB MIDI/Audio Device Drivers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/no-fog-only-clarity-gopro-lens-care-essentials-for-2024/"><u>No Fog, Only Clarity GoPro Lens Care Essentials for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578758448-porque-vs-por-que-whats-the-difference/"><u>Porque vs Por Que: What’s the Difference?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/single-platform-focus-disabling-cross-play-for-personal-zen/"><u>Single-Platform Focus Disabling Cross-Play for Personal Zen</u></a></li>
+</ul></div>
 

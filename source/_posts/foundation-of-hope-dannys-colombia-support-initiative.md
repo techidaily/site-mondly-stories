@@ -1,7 +1,7 @@
 ---
 title: "Foundation of Hope: Danny's Colombia Support Initiative"
-date: 2024-07-29T06:45:08.867Z
-updated: 2024-07-30T06:45:08.867Z
+date: 2024-11-18T18:09:11.985Z
+updated: 2024-11-24T18:04:03.344Z
 tags:
   - speak
   - english
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/971916a4fd1f7dd57973936b37ec8e66ff6e047a0
 
  **One of the causes dearest to our heart is [Fundación Danny](http://www.fundaciondanny.org/) from Colombia to whom we donated 150 Premium subscriptions in an effort to help them make language learning accessible for Colombian children.**
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![fundacion danny mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/fundacion-danny-mondly-600x450.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 2")
 
  Colombian children attending the Danny Foundation courses.
@@ -34,16 +31,18 @@ thumbnail: https://thmb.techidaily.com/971916a4fd1f7dd57973936b37ec8e66ff6e047a0
  **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Unlocking the power of social good
 
  When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Graduation at the Danny Foundation.
 
@@ -61,8 +60,9 @@ thumbnail: https://thmb.techidaily.com/971916a4fd1f7dd57973936b37ec8e66ff6e047a0
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Learn a new language in just 10 minutes a day
 
  If the story of the Colombian children from the Danny Foundation inspired you to invest in yourself, you can start learning a new language right now with Mondly.
@@ -81,8 +81,6 @@ thumbnail: https://thmb.techidaily.com/971916a4fd1f7dd57973936b37ec8e66ff6e047a0
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -90,4 +88,20 @@ thumbnail: https://thmb.techidaily.com/971916a4fd1f7dd57973936b37ec8e66ff6e047a0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-the-art-of-combining-multiple-iphone-photos/"><u>[New] The Art of Combining Multiple iPhone Photos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-fabric-of-future-cutting-edge-vr-technology/"><u>[New] The Fabric of Future Cutting-Edge VR Technology</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-examining-the-perks-and-pitfalls-of-vr/"><u>2024 Approved Examining the Perks and Pitfalls of VR</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-prime-tv-streaming-and-local-channel-bundles/"><u>2024 Approved Prime TV Streaming & Local Channel Bundles</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-crashes-in-star-citizen-when-running-on-windows-pcs/"><u>How to Fix Crashes in Star Citizen When Running on Windows PCs</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-itel-p55-5g-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Itel P55 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-makes-multilingual-interaction-more-natural-on-quest/"><u>Mondly Makes Multilingual Interaction More Natural on Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-teaching-techniques-unveiled/"><u>Mondly's Teaching Techniques Unveiled</u></a></li>
+<li><a href="https://windows11.techidaily.com/seamlessly-downloading-pictures-from-icloud-onto-various-devices-comprehensive-instructions/"><u>Seamlessly Downloading Pictures From iCloud Onto Various Devices: Comprehensive Instructions</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/snapdragon-x-demonstrating-its-capability-to-compete-with-apples-advanced-silicon-architecture/"><u>Snapdragon X: Demonstrating Its Capability to Compete with Apple's Advanced Silicon Architecture</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/superior-tools-for-group-online-calls/"><u>Superior Tools for Group Online Calls</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-basics-of-chinese-orthography/"><u>The Basics of Chinese Orthography</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-francophone-reading-journey-starts-with-these-novels/"><u>Your Francophone Reading Journey Starts with These Novels</u></a></li>
+</ul></div>
 

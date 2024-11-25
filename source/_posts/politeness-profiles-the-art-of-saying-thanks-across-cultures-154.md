@@ -1,7 +1,7 @@
 ---
 title: "Politeness Profiles: The Art of Saying Thanks Across Cultures (154)"
-date: 2024-11-08T16:19:29.572Z
-updated: 2024-11-15T12:26:12.757Z
+date: 2024-11-21T22:28:49.086Z
+updated: 2024-11-24T16:45:34.482Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
 
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
 
@@ -56,13 +60,14 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +94,7 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,24 +127,19 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/erfecting-yt-thumbnails-with-aspect-ratios-for-2024/"><u>[New] Perfecting YT Thumbnails with Aspect Ratios for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-unlocking-mac-recording-capabilities/"><u>[Updated] In 2024, Unlocking Mac Recording Capabilities</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-rapid-techniques-to-separate-genuine-from-fake-on-insta-for-2024/"><u>[Updated] Rapid Techniques to Separate Genuine From Fake on Insta for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-kickstarting-with-a-gopro-unbox-the-perfect-add-ons/"><u>2024 Approved Kickstarting with a GoPro Unbox the Perfect Add-Ons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apex-communicator-the-business-linguistic-blueprint/"><u>Apex Communicator: The Business Linguistic Blueprint</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/busting-ai-chatbot-fallacies-insights-into-9-prevalent-myths/"><u>Busting AI Chatbot Fallacies: Insights Into 9 Prevalent Myths</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Realme 10T 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciding-on-the-next-ideal-linguistic-journey-to-pursue/"><u>Deciding on the Next Ideal Linguistic Journey to Pursue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hablar-de-semana-en-espanol-descubrimiento-desde-lunes-al-domingo/"><u>Hablar De Semana en Español: Descubrimiento Desde Lunes Al Domingo</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-youthful-minds-conquer-linguistic-barriers/"><u>How Youthful Minds Conquer Linguistic Barriers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-non-native-language-curriculum-for-us-students/"><u>Leading Non-Native Language Curriculum for U.S. Students</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/manejo-de-horas-un-principio-de-lectura-en-espanol/"><u>Manejo De Horas: Un Principio De Lectura En Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/may-the-words-be-with-you-exploring-the-fascinating-languages-of-star-wars/"><u>May The Words Be With You: Exploring The Fascinating Languages Of Star Wars</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210932908-9781855842830-rosicrucian-wisdom/"><u>Rosicrucian Wisdom | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782241-9781594779510-sanctuary-of-the-divine-presence/"><u>Sanctuary of the Divine Presence | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-prime-strategies-to-pick-up-languages-digitally/"><u>Step-by-Step Guide: Prime Strategies to Pick up Languages Digitally</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-slang-lexicon-common-expressions-in-todays-tongue/"><u>The Slang Lexicon: Common Expressions in Today's Tongue</u></a></li>
-<li><a href="https://win-dash.techidaily.com/ultimate-vob-editing-techniques-unveiled-master-the-art-of-slicing-and-merging-video-footage/"><u>Ultimate VOB Editing Techniques Unveiled: Master the Art of Slicing and Merging Video Footage</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-essential-choice-10-budget-friendly-caption-tools/"><u>[New] 2024 Approved Essential Choice 10 Budget-Friendly Caption Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-cutting-edge-chapter-tactics-to-complement-your-youtube-presentations/"><u>[Updated] Cutting-Edge Chapter Tactics to Complement Your YouTube Presentations</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-day-after-evaluation-new-approaches/"><u>2024 Approved Day After Evaluation New Approaches</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-fixes-for-your-stubborn-usb-to-hdmi-connection-problems/"><u>Expert Fixes for Your Stubborn USB to HDMI Connection Problems</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-bring-your-vision-to-life-youtube-trailers-using-filmoras-magic/"><u>In 2024, Bring Your Vision to Life YouTube Trailers Using Filmora's Magic</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-x50-gt-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor X50 GT to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/main-tongue-in-croatia/"><u>Main Tongue in Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-merges-with-pearson-edu-connectivity/"><u>Mondly Merges With Pearson Edu-Connectivity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionary-performance-unveiled-in-depth-analysis-of-the-2020-apple-mac-mini-m1/"><u>Revolutionary Performance Unveiled: In-Depth Analysis of the 2020 Apple Mac Mini (M1)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-progress-to-japanese-numerical-fluency/"><u>Swift Progress to Japanese Numerical Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-path-to-fluency-unveil-8-superior-benefits-of-learning-hindi-online-with-mondly/"><u>The Path to Fluency: Unveil 8 Superior Benefits of Learning Hindi Online with Mondly!</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-showdown-twitchs-challenge-to-youtubes-market-for-2024/"><u>The Ultimate Showdown Twitch's Challenge to YouTube's Market for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-deep-emotions-in-hungarian-speech/"><u>Understanding Deep Emotions in Hungarian Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-turkish-language-learning-a-concise-alphabet-and-pronunciation-guide/"><u>Unlocking Turkish Language Learning: A Concise Alphabet & Pronunciation Guide</u></a></li>
 </ul></div>
 

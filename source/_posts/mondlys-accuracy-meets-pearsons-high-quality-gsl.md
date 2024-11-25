@@ -1,7 +1,7 @@
 ---
 title: Mondly's Accuracy Meets Pearson’s High-Quality GSL
-date: 2024-10-30T18:43:24.464Z
-updated: 2024-11-04T19:28:14.524Z
+date: 2024-11-19T18:09:44.961Z
+updated: 2024-11-24T16:22:03.409Z
 tags:
   - speak
   - english
@@ -31,10 +31,7 @@ thumbnail: https://thmb.techidaily.com/93cb6ac8ec609718de42842a42295e1ee84908cc0
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Introducing the Global Scale of Languages (GSL)**
@@ -44,6 +41,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  The GSL is an extension and expansion of the principles laid down by the GSE. While the GSE enjoys international recognition and remains crucial to numerous Pearson offerings, the GSL builds upon its legacy by incorporating a broader range of languages.
 
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **How Pearson created the GSL**
 
@@ -56,10 +57,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Why start with French, Spanish, and Italian?**
@@ -71,10 +69,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Language learning backed by unparalleled global research**
@@ -89,10 +84,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Fast-track your progress with Mondly by Pearson**
@@ -116,22 +108,16 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-critical-asmr-series-to-experience/"><u>[Updated] In 2024, Critical ASMR Series to Experience</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-ad-free-earning-on-youtube-strategies-for-self-reliance-creators/"><u>[Updated] The Art of Ad-Free Earning on YouTube Strategies for Self-Reliance Creators</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-artists-guide-to-dynamic-palette-alteration/"><u>[Updated] The Artist's Guide to Dynamic Palette Alteration</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-leading-apps-to-monitor-facebook-twitter-and-instagram-tags/"><u>2024 Approved Leading Apps to Monitor Facebook, Twitter and Instagram Tags</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/breeze-past-a-frozen-100-windows-update-solutions-explored/"><u>Breeze Past a Frozen 100% Windows Update - Solutions Explored</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/comparative-analysis-of-winx-dvd-ripper-and-handbrake-determining-the-ultimate-free-dvd-converter/"><u>Comparative Analysis of WinX DVD Ripper and HandBrake: Determining the Ultimate Free DVD Converter</u></a></li>
-<li><a href="https://win-special.techidaily.com/copia-de-seguridad-perfecta-como-duplicar-tus-documentos-sin-cerrar-la-ventana-de-windows-instrucciones-detalladas/"><u>Copia De Seguridad Perfecta: Cómo Duplicar Tus Documentos Sin Cerrar La Ventana De Windows – Instrucciones Detalladas</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/high-performance-tools-in-multilingual-education/"><u>High-Performance Tools in Multilingual Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/inaugural-app-fusing-voice-and-augmented-reality/"><u>Inaugural App Fusing Voice & Augmented Reality</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/les-courses-au-francophone/"><u>Les Courses Au Francophone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-non-verbal-nuances-italian-gestures/"><u>Navigating Non-Verbal Nuances: Italian Gestures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polish-study-fast-track-to-proficiency/"><u>Polish Study: Fast Track to Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/precision-in-pronunciation-ultimate-speech-coaching/"><u>Precision in Pronunciation: Ultimate Speech Coaching</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sultry-storytelling-in-silk-like-languages/"><u>Sultry Storytelling in Silk-Like Languages</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-9-vivo-s18-pro-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Vivo S18 Pro Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-non-responsive-utorrent-with-these-7-techniques/"><u>Troubleshooting Non-Responsive Utorrent with These 7 Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldly-connections-creating-bridges-across-cultures/"><u>Worldly Connections: Creating Bridges Across Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-key-to-unlocking-linguistic-adventures-on-oculus-quest/"><u>'Mondly': The Key to Unlocking Linguistic Adventures on Oculus Quest</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-10-recording-tips-to-record-audio-in-high-quality-for-2024/"><u>[Updated] 10 Recording Tips to Record Audio in High Quality for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-tecno-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Tecno</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/flask-dashboard-mastery-with-material-design-and-bootstrap-n4-by-creative-tim-ultimate-admin-interface-tutorial/"><u>Flask Dashboard Mastery with Material Design & Bootstrap N4 by Creative Tim – Ultimate Admin Interface Tutorial</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-leave-a-life360-group-on-honor-magic-5-lite-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Honor Magic 5 Lite Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-nokia-g42-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Nokia G42 5G Without PUK Codes</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/reviving-your-corsair-hs50-expert-solutions-for-a-broken-microphone/"><u>Reviving Your Corsair HS50: Expert Solutions for a Broken Microphone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-bengali-language-bootcamp/"><u>Speedy Bengali Language Bootcamp</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fundamentals-of-pronouncing-french-words-rightly/"><u>The Fundamentals of Pronouncing French Words Rightly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-sweetest-syntax-how-to-say-chocolate-everywhere/"><u>The Sweetest Syntax: How To Say 'Chocolate' Everywhere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-choice-todays-top-ios-app/"><u>Worldwide Choice: Today's Top iOS App</u></a></li>
 </ul></div>
 

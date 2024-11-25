@@ -1,7 +1,7 @@
 ---
 title: "Your Israel Travel Plan: Key Insights & Essential Dialogue"
-date: 2024-11-09T05:08:56.354Z
-updated: 2024-11-14T18:33:42.615Z
+date: 2024-11-17T23:39:25.972Z
+updated: 2024-11-24T22:01:36.680Z
 tags:
   - speak
   - english
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/a6447bd693f6fb9dde0232f0bf2efa222cd309687
  In addition to Hebrew, you will also hear [Arabic](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) (about one-fifth of the population is constituted by the Arab minority) and, of course, English. Not everybody speaks perfect English in Israel, but they certainly try. Since tourism is a central part of the country’s economy, shop, pub and restaurant owners try to keep the channel of communication open with the tourists.
 
 ![hebrew phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/09/hebrew-phrases-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Mahane Yehuda Market, Jerusalem, Israel” by Roxanne Desgagnés©
 
@@ -82,13 +86,6 @@ thumbnail: https://thmb.techidaily.com/a6447bd693f6fb9dde0232f0bf2efa222cd309687
 
  Even if you are not a believer, Jerusalem and Nazareth are still a must. In addition to their great religious value, these cities are rich in art, culture and thousands of years of history. You’ll undoubtedly love every minute spend exploring their streets and never forget your experience there.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Tel-Aviv
 
  If you are a sucker for beaches, parties, museums and 1930 Bauhaus buildings, Tel-Aviv is the place to go. With its open-minded, diverse society, you’ll find Tel-Aviv surprisingly different than what you may have had in mind. For example, some of the most important events taking place in Tel-Aviv yearly are Gay Pride Parade, Purim Street Party and Tel Aviv Fashion Week. Cool, isn’t it?
@@ -103,17 +100,22 @@ thumbnail: https://thmb.techidaily.com/a6447bd693f6fb9dde0232f0bf2efa222cd309687
 
 ![travel to israel](https://edge.mondly.com/blog/wp-content/uploads/2019/09/travel-to-israel-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “The Dead Sea” by Dave Herring©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Haifa
 
  When you’ll first see Bahá’í Gardens, you’ll feel like you’ve stepped out of reality. That’s how beautiful this place is. Spread almost a kilometer up Mount Carmel, The Terraces of the Bahá’í Faith include design elements inspired from the [Persian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) gardens in Iran, the Nishat Bagh gardens in India and English gardens.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Ramon Crater
@@ -124,14 +126,11 @@ thumbnail: https://thmb.techidaily.com/a6447bd693f6fb9dde0232f0bf2efa222cd309687
 
 ![israel hebrew](https://edge.mondly.com/blog/wp-content/uploads/2019/09/israel-hebrew-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 6")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Bahá’í Gardens, Haifa” by Denis Vdovin©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Get ready to enjoy Israel with these basic Hebrew travel phrases
 
@@ -140,6 +139,10 @@ thumbnail: https://thmb.techidaily.com/a6447bd693f6fb9dde0232f0bf2efa222cd309687
  Traveling can be both amazing and stressful. What if you lose your luggage? What if you need to go to the toilet but you don’t know where to find one? What if nobody speaks English? Avoid stressful situation like these. Language should never be a barrier. Learn these basic Hebrew phrases beforehand and enjoy your trip to the fullest.
 
  First, we will explore Hebrew greetings, continue with some common ways to ask for help in Hebrew, basic phrases for when you’ll go to an Israeli restaurant and some basic phrases for shopping sprees. Happy learning!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hebrew Greetings and other basics
 
@@ -165,10 +168,7 @@ thumbnail: https://thmb.techidaily.com/a6447bd693f6fb9dde0232f0bf2efa222cd309687
  “Ein Gedi Oasis, Israel” by Robert Bye©
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Common Hebrew phrases for travelers that need help
@@ -191,13 +191,6 @@ thumbnail: https://thmb.techidaily.com/a6447bd693f6fb9dde0232f0bf2efa222cd309687
 * I would like a salad. –_אני רוצה סלט. – Anee rotseh salat._
 * I would like a soup. –_אני רוצה מרק. – Anee rotseh marak._
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Basic Hebrew phrases for shopping sprees
 
 * How much does it cost? –_כמה זה עולה? – Kama zeh oleh?_
@@ -210,13 +203,6 @@ thumbnail: https://thmb.techidaily.com/a6447bd693f6fb9dde0232f0bf2efa222cd309687
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Here’s how to speak Hebrew in just 10 minutes a day
 
@@ -243,24 +229,16 @@ thumbnail: https://thmb.techidaily.com/a6447bd693f6fb9dde0232f0bf2efa222cd309687
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-best-gopro-video-processing-apps/"><u>[New] 2024 Approved Best GoPro Video Processing Apps</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-effective-measures-to-block-pesky-video-ads-online/"><u>[New] 2024 Approved Effective Measures to Block Pesky Video Ads Online</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-step-up-your-storytelling-effortless-text-addition-for-video-clips-with-photos/"><u>[New] Step Up Your Storytelling Effortless Text Addition for Video Clips with Photos</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-digital-recorder-snap-your-screen-upload-to-youtube-onlinepcmac/"><u>[Updated] 2024 Approved Digital Recorder Snap Your Screen, Upload to YouTube Online/PC/Mac</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/10-ways-mondly-has-improved-my-language-learning/"><u>10 Ways Mondly Has Improved My Language Learning</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-lightroom-crafting-breathtaking-hdr-photos/"><u>2024 Approved Mastering Lightroom Crafting Breathtaking HDR Photos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beginning-french-novels-selection-the-ultimate-starter-list/"><u>Beginning French Novels Selection: The Ultimate Starter List</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brit-english-for-beginners-easier-ways-to-learn/"><u>Brit English for Beginners: Easier Ways to Learn</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/descubre-el-corazon-humano-en-espanol-un-viaje-intrigante-desde-el-niveles-superiores-al-subterraneo/"><u>Descubre El Corazón Humano en Español: Un Viaje Intrigante Desde El Niveles Superiores Al Subterráneo</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discover-the-best-8-travel-planning-apps-you-cant-miss/"><u>Discover the Best 8 Travel Planning Apps You Can't Miss</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581493296-explore-the-benefits-of-learning-croatian-here-are-the-top-7-for-you/"><u>Explore the Benefits of Learning Croatian – Here Are The Top 7 For You</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-bilingual-superpowers-6-highlighted/"><u>Exploring Bilingual Superpowers: #6 Highlighted</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressive-eloquence-top-tutors-for-articulation-skills/"><u>Expressive Eloquence: Top Tutors for Articulation Skills</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-podcasts-the-comprehensive-iphone-download-method/"><u>In 2024, Mastering Podcasts The Comprehensive iPhone Download Method</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/sky-high-savings-alert-secure-your-4tb-samsung-usb-drive-for-less-than-half-price-on-amazon-this-labor-day-zdnet/"><u>Sky-High Savings Alert! Secure Your 4TB Samsung USB Drive for Less Than Half Price on Amazon This Labor Day | ZDNET</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-art-of-communication-top-ten-ways-learning-another-language-helps/"><u>The Art of Communication: Top Ten Ways Learning Another Language Helps</u></a></li>
-<li><a href="https://some-skills.techidaily.com/transforming-novices-into-reddit-masterminds-for-maximum-engagement-for-2024/"><u>Transforming Novices Into Reddit Masterminds for Maximum Engagement for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-first-ar-chat-app/"><u>Unveiling the First AR Chat App</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1728486203801-ssd2/"><u>データ損失を心配しない！SSDシステムドライブの完璧なクリア方法2つ</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-efficient-movie-file-management-in-windows-11-six-approaches/"><u>[New] 2024 Approved Efficient Movie File Management in Windows 11 Six Approaches</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-brand-visibility-boosted-by-instagram-photowatermarking-for-2024/"><u>[New] Brand Visibility Boosted by Instagram Photowatermarking for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-photographic-precision-against-shake/"><u>[New] Photographic Precision Against Shake</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-must-have-filmmaking-tools-for-aspiring-youtubers/"><u>[Updated] 2024 Approved Must-Have Filmmaking Tools for Aspiring YouTubers</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-complete-guide-to-audiovideo-settings-in-win11s-zoom-app/"><u>2024 Approved The Complete Guide to Audio/Video Settings in Win11's Zoom App</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-best-top-intro-makers-for-pc-both-online-and-offline/"><u>In 2024, Best Top Intro Makers for PC, Both Online and Offline</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-from-base-to-pro-gopro-hero5-blacks-clash-with-hero4-silver/"><u>In 2024, From Base to Pro GoPro Hero5 Black's Clash with Hero4 Silver</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/majority-fluent-in-french-an-international-overview/"><u>Majority Fluent in French: An International Overview</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-years-linguistic-achievement-goal/"><u>New Year's Linguistic Achievement Goal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reconhecer-abrecos-e-boas-vindas-em-portugues/"><u>Reconhecer Abreços E Boas-Vindas Em Português</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-linguistic-edge-mondlys-victory-as-2022s-best-app/"><u>The Linguistic Edge: Mondly's Victory as 2022’S Best App</u></a></li>
 </ul></div>
 

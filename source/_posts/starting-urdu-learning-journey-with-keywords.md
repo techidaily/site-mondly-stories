@@ -1,7 +1,7 @@
 ---
 title: Starting Urdu Learning Journey with Keywords
-date: 2024-11-13T13:42:28.195Z
-updated: 2024-11-15T08:27:25.145Z
+date: 2024-11-21T17:00:57.299Z
+updated: 2024-11-24T18:05:09.886Z
 tags:
   - speak
   - english
@@ -85,6 +85,10 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * who — _کون (kon)_
 * stop — _رکو (ruko)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The most popular Urdu words searches
 
  While we’re at it, why not also learn some of the most popular words for which people want an Urdu translation? If they are so popular in searches, I’m sure they can also be useful to you on your way to speaking Urdu.
@@ -108,10 +112,7 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * hope — _امید (umeed)_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Urdu words related to food and drink
@@ -121,10 +122,7 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 ![words in urdu by Sumeet B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/words-in-urdu-960x735.jpg "100+ Core Urdu Words – Learn The Most Common Words In Urdu 3")
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Meanwhile, let’s add some flavor to your Urdu vocabulary. What are the best words to learn if not the words related to food and drink?
@@ -153,10 +151,7 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * pepper — _مرچ (mirch)_
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Urdu words related to body and health
@@ -183,6 +178,10 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * pain — _درد (dard)_
 * medicine — _دوا (dawa)_
 * pharmacy — _دواخانہ (dawakhana)_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Urdu words related to transportation and places
 
@@ -235,13 +234,6 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Learn Urdu in just 10 minutes a day
 
  Do you want to see the Urdu words in action? Get Mondly, the award-winning language learning app that will help you speak Urdu from day 1.
@@ -271,22 +263,22 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-probing-instagrams-max-video-length-rule/"><u>[New] Probing Instagram's Max Video Length Rule</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-pioneers-in-online-mastery-meet-up/"><u>[Updated] Pioneers in Online Mastery Meet-Up</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/101plus-powerful-phrases-for-smooth-russian-travels/"><u>101+ Powerful Phrases for Smooth Russian Travels</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/aomei-backupper-professionelle-kostenfreie-tools-fur-die-effiziente-wiederherstellung-ihrer-daten/"><u>AOMEI Backupper: Professionelle, Kostenfreie Tools Für Die Effiziente Wiederherstellung Ihrer Daten.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/auf-den-ersten-blick-1-100-in-deutscher-zahlweise/"><u>Auf Den Ersten Blick: 1-100 in Deutscher Zählweise</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-language-gaps-essential-expressions-and-vocabulary-for-south-american-travelers/"><u>Bridging Language Gaps: Essential Expressions and Vocabulary for South American Travelers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comenzar-con-la-manera-correcta-de-anotar-tiempo-en-espanol/"><u>Comenzar Con La Manera Correcta De Anotar Tiempo en Espaňol</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/corporate-success-through-innovative-linguistic-applications/"><u>Corporate Success Through Innovative Linguistic Applications</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-mosaic-benefits-of-embracing-multiple-languages/"><u>Cultural Mosaic: Benefits of Embracing Multiple Languages</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/discover-how-to-fine-tune-game-audio-on-ps-console/"><u>Discover How to Fine-Tune Game Audio on PS Console</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-ks-unveil-squid-games-secrets-in-hangul/"><u>Discovering KS: Unveil Squid Game's Secrets in Hangul</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/empfindliche-bitte-um-verzeihung-in-deutsch/"><u>Empfindliche Bitte Um Verzeihung in Deutsch</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-dolby-premium-issue-how-to-restart-the-dolby-digital-audio-driver-on-windows-10/"><u>Fixing Dolby Premium Issue: How To Restart The Dolby Digital Audio Driver On Windows 10</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-tecno-spark-10-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Tecno Spark 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-samsung-galaxy-f14-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Samsung Galaxy F14 5G to iPhone Easily | Dr.fone</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-in-2024-dub-like-a-pro-top-6-video-dubbing-apps-for-funny-videos/"><u>New In 2024, Dub Like a Pro Top 6 Video Dubbing Apps for Funny Videos</u></a></li>
-<li><a href="https://techtrends.techidaily.com/protect-your-system-with-these-15-free-pre-installed-antivirus-apps/"><u>Protect Your System with These 15 Free, Pre-Installed Antivirus Apps</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-cutting-edge-methods-for-capturing-your-playtime/"><u>[New] Cutting-Edge Methods for Capturing Your Playtime</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-huawei-nova-y91-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/enriching-your-social-media-footprint-live-streaming-via-wirecast-for-2024/"><u>Enriching Your Social Media Footprint Live Streaming via Wirecast for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-call-logs-from-your-find-n3-by-fonelab-android-recover-call-logs/"><u>How to recover old call logs from your Find N3?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-xiaomi-civi-3-disney-100th-anniversary-edition-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Xiaomi Civi 3 Disney 100th Anniversary Edition to PC? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-samsung-galaxy-xcover-7-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Samsung Galaxy XCover 7 Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lyric-learning-labyrinas-accelerated-speech-through-song/"><u>Lyric Learning Labyrinas: Accelerated Speech Through Song</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mindfullinguist-cognitive-development-through-virtual-realms/"><u>MindfulLinguist: Cognitive Development Through Virtual Realms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-collaborates-with-pearson-academic-union/"><u>Mondly Collaborates With Pearson Academic Union</u></a></li>
+<li><a href="https://fox-info.techidaily.com/overcoming-srt-transfer-issues-from-premiere-for-2024/"><u>Overcoming SRT Transfer Issues From Premiere for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semana-hispana-descifrando-los-dias-en-espanol/"><u>Semana Hispana: Descifrando Los Días en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speed-up-french-color-pronunciation/"><u>Speed Up French Color Pronunciation</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722890928749-tackling-noisy-tech-a-guide-to-quieting-down-an-overbearing-computer-fan/"><u>Tackling Noisy Tech: A Guide to Quieting Down an Overbearing Computer Fan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-endless-enigma-of-earths-ultimate-term/"><u>The Endless Enigma of Earth's Ultimate Term</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-journey-through-a-decade-with-mondly/"><u>The Journey Through a Decade with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/where-is-thanksgiving-celebrated-globally/"><u>Where Is Thanksgiving Celebrated Globally?</u></a></li>
+<li><a href="https://windows11.techidaily.com/windows-1011-users-guide-to-text-files-and-secure-passwords/"><u>Windows 10/11 Users' Guide to Text Files & Secure Passwords</u></a></li>
 </ul></div>
 

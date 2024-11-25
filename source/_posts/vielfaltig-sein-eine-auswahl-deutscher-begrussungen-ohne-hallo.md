@@ -1,7 +1,7 @@
 ---
 title: "Vielfältig Sein: Eine Auswahl Deutscher Begrüßungen Ohne Hallo"
-date: 2024-10-31T01:09:22.504Z
-updated: 2024-11-04T16:15:18.026Z
+date: 2024-11-18T17:21:41.282Z
+updated: 2024-11-24T17:17:53.139Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/052918d3e56b96021eca7b3225588078d8b2ee409
 _Hallo!_ It’s nice to be properly greeted, isn’t it? Everywhere in the world. Not just in Germany. Now, the only challenge is to find the best way to say ‘hello’ in German depending on the social context. Are you meeting friends? Have a job interview?_Hallo_ is not entirely suitable for all social settings. So let’s see what other German greetings are there.
 
  Meanwhile, don’t forget that ‘hello’ is probably the simplest way to sound fluent. Throw in a smile and you’ll also look like one!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Hallo – the universal ‘hello’ in German
 
@@ -52,6 +56,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -60,31 +68,11 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  If you want to be as word-efficient as a native, you can also just say the shortened_wie geht’s?_ version.
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Alles klar? – “Everything alright?”
 
  While_alles klar_ can also mean “everything is clear?” or “all fine?”, in the context of greetings is the same as saying “what’s up?” in English.
 
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Was ist los? – “What’s up?”
 
@@ -94,16 +82,13 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
 
@@ -122,6 +107,10 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** mostly northern Germany.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Moin moin – “Hi”
 
  The ‘harsh’ German language strikes again. Imagine you’re in Hamburg and people are cheerfully saying_moin_ or_moin moin_ or even_moinsten_ to you. What do you do? You say_moin_ back, of course!
@@ -136,13 +125,6 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
 
 **Localization:** Switzerland.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Grüß Gott – “God bless you”
 
  Mainly used by the older generations,_Grüß Gott_ is a very formal greeting that literally means “greetings (from) God” or “God greets you”.
@@ -150,6 +132,10 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
  A variation of this is_Grüß dich,_ which can be interpreted as “greetings to you”. This one is less formal, but it is still mostly used by seniors.
 
 **Localization:** Bavaria (south-eastern Germany) and Austria.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Servus – “At your service”
 
@@ -199,19 +185,22 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-mastering-fast-forward-on-snapchat-a-starters-manual/"><u>[New] Mastering Fast-Forward on Snapchat A Starter's Manual</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-cutting-edge-tools-for-online-subtitle-editing/"><u>[Updated] 2024 Approved Cutting-Edge Tools for Online Subtitle Editing</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-unleash-creativity-with-ease-streamlined-ways-to-change-tiktok-backgrounds/"><u>2024 Approved Unleash Creativity with Ease Streamlined Ways to Change TikTok Backgrounds</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/1728502411396-crucial-ssd/"><u>最も信頼性の高いCrucial SSDバックアップソフトウェア - 快適、安全、簡単操作</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-4-ways-to-mirror-apple-iphone-12-pro-to-laptop-via-usb-or-wi-fi-drfone-by-drfone-ios/"><u>In 2024, 4 Ways to Mirror Apple iPhone 12 Pro to Laptop via USB or Wi-Fi | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-from-apple-iphone-15-pro-max-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server From Apple iPhone 15 Pro Max</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interactive-latino-education-made-easy/"><u>Interactive Latino Education Made Easy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latin-leaps-with-educational-fun-facts/"><u>Latin Leaps with Educational Fun Facts</u></a></li>
-<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-tecno-pova-5-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Tecno Pova 5? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-excellence-recognized-germanys-top-linguistic-haven/"><u>Mondly’s Excellence Recognized - Germany’s Top Linguistic Haven</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/propel-team-development-selecting-top-language-apps/"><u>Propel Team Development: Selecting Top Language Apps</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-art-of-transcribing-top-4-tactics-for-fb-chat-recordings-for-2024/"><u>The Art of Transcribing Top 4 Tactics for FB Chat Recordings for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-ultimate-companion-for-srt-to-xml-ssa-ttml-file-transformation/"><u>The Ultimate Companion for SRT-to-XML, SSA, TTML File Transformation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-3-most-popular-asian-languages/"><u>Top 3 Most Popular Asian Languages</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-dark-side-of-digital-content-profitability/"><u>[New] In 2024, The Dark Side of Digital Content Profitability</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-enhancing-gopro-footage-minimizing-motion-blur/"><u>[Updated] 2024 Approved Enhancing GoPro Footage Minimizing Motion Blur</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-prime-naturalist-screen-recording-systems-explained-for-2024/"><u>[Updated] Prime Naturalist Screen Recording Systems Explained for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-your-portal-into-creation-easy-metaverse-personas/"><u>2024 Approved Your Portal Into Creation Easy Metaverse Personas</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/come-eseguire-il-ripristino-di-sistema-con-lenovo-onekey-recovery-su-un-pc-con-windows-10/"><u>Come Eseguire Il Ripristino Di Sistema Con Lenovo OneKey Recovery Su Un PC Con Windows 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introductory-urdu-fundamental-words-and-phrases/"><u>Introductory Urdu: Fundamental Words & Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jeringas-linguisticos-en-ingles-espanol-conjunto-de-50/"><u>Jeringas Lingüísticos en Inglés-Español: Conjunto De 50</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-celebrates-victory-as-germanys-linguistic-champion/"><u>Mondly Celebrates Victory as Germany's Linguistic Champion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-collaborates-with-pearson-back-on-filter-feature/"><u>Mondly Collaborates with Pearson Back on Filter Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-learning-revolution-a-new-era-for-over-70-million-users/"><u>Mondly's Learning Revolution: A New Era for Over 70 Million Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/original-vocal-augmented-reality-platform/"><u>Original Vocal Augmented Reality Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/planifier-pour-la-vie-semaine-en-7-jours/"><u>Planifier Pour La Vie: Semaine en 7 Jours</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/retrieve-missing-chrome-bookmarks-from-file-explorer-a-step-by-step-guide/"><u>Retrieve Missing Chrome Bookmarks From File Explorer: A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saghe-numeriche-in-italiano-comunicazione-e-lettura-intermedia/"><u>Saghe Numeriche in Italiano: Comunicazione E Lettura Intermedia</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-steps-for-hdmi-sound-problems-after-attaching-computer-with-monitortv/"><u>Troubleshooting Steps for HDMI Sound Problems After Attaching Computer with Monitor/TV</u></a></li>
+<li><a href="https://driver-install.techidaily.com/update-system-sound-on-windows-7-using-idt-drivers/"><u>Update System Sound on Windows 7 Using IDT Drivers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/zentralisierte-digitale-transformation-der-rechtspraxis-erleben-sie-die-innovation-von-norton-rose-llp-mit-abbyy-foto-und-handschriftserkennung/"><u>Zentralisierte Digitale Transformation Der Rechtspraxis: Erleben Sie Die Innovation Von Norton Rose LLP Mit ABBYY Foto- Und Handschriftserkennung</u></a></li>
 </ul></div>
 

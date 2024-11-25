@@ -1,7 +1,7 @@
 ---
 title: The Fundamentals of Fluent Russian Communication
-date: 2024-11-09T20:05:59.696Z
-updated: 2024-11-15T09:09:20.935Z
+date: 2024-11-19T16:39:42.951Z
+updated: 2024-11-24T21:55:45.119Z
 tags:
   - speak
   - english
@@ -54,10 +54,7 @@ Good job, you!
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Russian Greetings: Common Phrases And Basic Words 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Learn Russian today
@@ -67,10 +64,7 @@ Good job, you!
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2406&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2406%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Additional Russian greetings Russians use
@@ -84,20 +78,6 @@ Good job, you!
 * **Приветствую (Privetstvuyu):** This is a Russian word that means “I greet” or “I welcome”. Being more formal makes it perfect for official settings. For instance, you can use it when interacting with business associates or when the degree of formality is unclear. This greeting works for both formal and informal situations, setting it apart from all the other greetings we listed here.
 
 ![hi in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hi-in-russian.jpg "Russian Greetings: Common Phrases And Basic Words 3")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Russian farewells
 
@@ -132,10 +112,7 @@ Good job, you!
  Found this interesting? You might want to learn about the [Russian alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [Russian numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) too.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cultural insights on Russian greetings
@@ -151,9 +128,17 @@ Good job, you!
 
  If you feel like you need more information on Russian greetings, here are some frequently asked questions. Maybe you’ll find your answer here.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How can I learn to pronounce Russian words correctly?
 
  Use transliteration. It can be tricky to get the hang of Russian words using the Cyrillic alphabet, so resources that use transliteration will always come in handy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How do Russians say “hello” and “goodbye”?
 
@@ -197,21 +182,16 @@ Good job, you!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-exploring-the-top-8-facebook-extractors-for-films/"><u>[New] In 2024, Exploring the Top 8 Facebook Extractors for Films</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nlocking-user-generated-content-harnessing-community-influence/"><u>[New] Unlocking User-Generated Content Harnessing Community Influence</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-playing-fb-videos-on-your-apple-device/"><u>[Updated] 2024 Approved Playing FB Videos on Your Apple Device</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-crafting-memorable-titles-a-comprehensible-ae-approach/"><u>[Updated] Crafting Memorable Titles A Comprehensible AE Approach</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-top-10-best-flvto-alternatives-youtube-converter/"><u>[Updated] In 2024, Top 10 Best Flvto Alternatives YouTube Converter</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-how-to-live-without-the-temptation-of-youtube-shorts/"><u>2024 Approved How To Live Without the Temptation of YouTube Shorts</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-erase-apple-iphone-6-plus-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>3 Ways to Erase Apple iPhone 6 Plus When Its Locked Within Seconds | Dr.fone</u></a></li>
-<li><a href="https://win-web3.techidaily.com/1728487048923-windows-1187/"><u>最佳技術解決方案：在不影響原始設定下從Windows 11、8及7進行系統克隆至外接存儲</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/be-a-polyglot-in-minutes-enjoy-a-staggering-95-savings/"><u>Be a Polyglot in Minutes - Enjoy a Staggering 95% Savings!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-the-ice-in-france-mastering-27-engaging-idioms/"><u>Break the Ice in France: Mastering 27 Engaging Idioms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprender-el-corazon-humano-en-espanol-dentro-desde-el-estomago-a-los-nudillos/"><u>Comprender El Corazón Humano en Español: Dentro Desde El Estómago A Los Nudillos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/descobrir-gritos-de-saudade-em-portugal-tudo-que-pensa/"><u>Descobrir Gritos De Saudade Em Portugal: Tudo Que Pensa</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dialogues-without-barriers-techniques-in-cross-cultural-discussion/"><u>Dialogues Without Barriers: Techniques in Cross-Cultural Discussion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embracing-change-and-growth-with-new-language-learning/"><u>Embracing Change and Growth With New Language Learning</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-inside-camstudios-updated-screen-recorder-techniques/"><u>In 2024, Inside CamStudio's Updated Screen Recorder Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579465163-language-learning-made-simple-and-super-affordable-this-new-year/"><u>Language Learning Made Simple and Super Affordable This New Year</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-shadowed-observers-playbook-engaging-with-instagram-stories-anonymously-free/"><u>2024 Approved The Shadowed Observer's Playbook Engaging with Instagram Stories Anonymously [Free]</u></a></li>
+<li><a href="https://os-tips.techidaily.com/download-premium-white-hd-backgrounds-for-iphones-at-no-cost/"><u>Download Premium White HD Backgrounds for iPhones at No Cost</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fixing-steam-error-on-windows-no-more-blank-screens/"><u>Fixing Steam Error on Windows: No More Blank Screens</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hone-your-tagalog-skills-in-just-15-minutes-daily/"><u>Hone Your Tagalog Skills in Just 15 Minutes Daily</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Honor Magic V2? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-cooking-essential-techniques-for-aspiring-cuisine-enthusiasts/"><u>Mastering the Art of Cooking: Essential Techniques for Aspiring Cuisine Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/melodic-multitasking-efficient-language-acquisition-through-song/"><u>Melodic Multitasking: Efficient Language Acquisition Through Song</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/social-connection-in-multilingualism-top-four-benefits-for-adults-learning-a-new-language/"><u>Social Connection in Multilingualism: Top Four Benefits for Adults Learning a New Language</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshoot-and-triumph-a-comprehensive-guide-to-resolving-among-us-game-crashes/"><u>Troubleshoot and Triumph: A Comprehensive Guide to Resolving Among Us Game Crashes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-worlds-love-without-a-common-tongue/"><u>Uniting Worlds: Love Without a Common Tongue</u></a></li>
 </ul></div>
 

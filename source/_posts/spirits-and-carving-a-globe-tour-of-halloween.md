@@ -1,7 +1,7 @@
 ---
 title: "Spirits and Carving: A Globe Tour of Halloween"
-date: 2024-11-07T20:19:24.667Z
-updated: 2024-11-14T21:54:28.729Z
+date: 2024-11-17T19:49:45.565Z
+updated: 2024-11-24T20:44:50.672Z
 tags:
   - speak
   - english
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
  The leaves have all turned yellow, red and brown. Everywhere in the neighborhood smells like pumpkin pie, roasted chestnuts and mulled wine. Everyone is wearing warmer clothes and brighter smiles. Kids are carrying their heavy schoolbags back home to a delicious lunch and scary jack-o’-lanterns have begun popping up here and there. It’s glaringly obvious:**Halloween is almost here!** Soon enough houses will be covered in black and orange decorations and children will shout excitedly:**“Trick or treat?! Give me something good to eat!”.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Origins of Halloween
 
  Celebrated yearly on October 31, Halloween, Hallowe’en or All Hallows’ Eve is a world-old holiday whose origins date back to the ancient Celtic festival of Samhain that took place on the lands that are now Ireland, the United Kingdom, and northern France. For hundreds – or even thousands – of years, people have celebrated this holiday, but it was never as loved and as notorious as it is today.
@@ -25,26 +29,10 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  Nevertheless, there are many countries around the world that have their own Halloween-like traditions celebrating the afterlife. For example, in some parts of the world, on All Hallows’ Eve, people visit the graveyards of their loved ones to pray and place flowers. But let’s dive in already and look at **four of the most fascinating Halloween-like traditions from different corners of the world.**
 
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Halloween-like Traditions Worldwide
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Mexico: Día de Muertos (Day of the Dead)
 
@@ -58,13 +46,6 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### China: The Hungry Ghost Festival
 
  The Ghost Festival, also known as the Hungry Ghost Festival, Zhongyuan Jie (中元節), or Gui Jie (鬼節) is a traditional Buddhist and Taoist celebration during which the deceased are believed to visit the living.
@@ -72,6 +53,10 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  Celebrated yearly during the seventh month in the lunar calendar (September, also known as the Ghost Month) with a peak on the 15th day (also known as Ghost Day), one of the most interesting traditions of the Hungry Ghost Festival is serving meals (often vegetarian) with empty seats for each deceased in the family and treating the deceased as if they are still living.
 
 ![Traditional practices during the Hungry Ghost Festival in China](https://edge.mondly.com/blog/wp-content/uploads/2019/09/9609227445_5a2c7c2f90_o-960x640.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 7")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “The Hungry Ghost Festival” by Matthew Kang©
 
@@ -83,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
 
  Moving to Europe, we discover that although American Halloween is even more notorious here than in other parts of the world, people still have their own traditional ways of celebrating the afterlife. For example, Italy has_Tutti i Morti,_ a public day celebrated on the 1st and 2nd of November by remembering and praying for the deceased.
@@ -90,6 +79,10 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  A few days before the celebration, people visit the cemeteries so their loved ones will have fresh flowers on the grave on the day of the actual ceremonies. Then, they continue with all the other preparations involving different rituals depending on the region. For [example](https://www.italyheritage.com/traditions/calendar/november/ognissanti.htm) , in Puglia, Orsara, it is believed that the souls return from Purgatory, so the Orsaresi decorate the town with_cocce priatorje_ (pumpkins) that symbolize the spirits and lit bonfires to console them. In Sicily, children wake up on the morning of_Giorno dei Morti_ and find small gifts from their deceased relatives, in Abruzzo, children go door to door to ask for gifts for the souls of the dead and in Veneto, the carved pumpkins are called lumère (lanterns) or_suche dei morti_ (deads’ pumpkins) and represent the resurrection.
 
 ![halloween in different countries](https://edge.mondly.com/blog/wp-content/uploads/2019/09/neonbrand-A59lWOrZVnw-unsplash-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 8")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Halloween party” by NeONBRAND©
 
@@ -100,13 +93,6 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  Thanks to Dracula, Romania is now one of the most well-known Halloween destinations. Everyone dreams of partying at Dracula’s Castle. In reality, both Catholic and Orthodox churches in Romania discourage Halloween celebrations. Instead, they advocate for the celebrations of the Day of the Dead on 1 November, when special religious ceremonies are held for the souls of the deceased.
 
 ![dracula's castle](https://edge.mondly.com/blog/wp-content/uploads/2019/09/draculas-castle-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 9")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Dracula’s Castle in Romania” by Nomadic Julien©
 
@@ -150,24 +136,20 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-elevate-your-lone-broadcast-tips-from-single-source-experts/"><u>[New] 2024 Approved Elevate Your Lone Broadcast Tips From Single-Source Experts</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-capture-without-capsule-the-no-limit-story-saving-app/"><u>[Updated] 2024 Approved Capture Without Capsule The No-Limit Story Saving App</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-top-entry-editor-for-seamless-edits-across-all-platforms/"><u>[Updated] Top Entry Editor for Seamless Edits Across All Platforms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-dialects-turkey-and-korea/"><u>Deciphering Dialects: Turkey and Korea</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-global-patterns-in-french-speaking-populations/"><u>Deciphering Global Patterns in French-Speaking Populations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-the-secrets-of-speed-in-language-acquisition/"><u>Decoding the Secrets of Speed in Language Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/distinctions-in-british-and-american-dialects/"><u>Distinctions in British and American Dialects</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/diversity-in-dialogue-macaus-three-major-tongues/"><u>Diversity in Dialogue: Macau’s Three Major Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embark-on-a-new-language-expedition/"><u>Embark on a New Language Expedition!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580251708-embrace-hindi-learning-mondly-unveils-top-8-reasons-online/"><u>Embrace Hindi Learning: Mondly Unveils Top 8 Reasons Online!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580825709-enhance-communication-skills-in-hindi-discover-7-powerful-mondly-advantages/"><u>Enhance Communication Skills in Hindi - Discover 7 Powerful Mondly Advantages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580367068-enhancing-your-life-in-hindi-mondly-highlights-8-key-benefits/"><u>Enhancing Your Life in Hindi: Mondly Highlights 8 Key Benefits!</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/essential-speaker-and-microphone-drivers-for-your-pc-running-on-windows-7/"><u>Essential Speaker and Microphone Drivers for Your PC Running on Windows 7</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/guide-casting-content-from-chromecast-to-firestick-seamlessly/"><u>Guide: Casting Content From Chromecast to Firestick Seamlessly</u></a></li>
-<li><a href="https://video-capture.techidaily.com/how-to-archive-video-team-hangouts-effectively/"><u>How to Archive Video Team Hangouts Effectively</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Samsung Galaxy A54 5G | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/techniques-to-boost-periscope-live-video-speed-for-2024/"><u>Techniques to Boost Periscope Live Video Speed for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1723808088070-this-site-cant-provide-a-secure-connection-in-chrome-solved/"><u>This Site Can't Provide a Secure Connection in Chrome [Solved]</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Motorola Razr 40 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-strategic-trailer-planning-for-increased-channels-profitability/"><u>[New] In 2024, Strategic Trailer Planning for Increased Channels' Profitability</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-subtle-techniques-make-unwanted-backgrounds-disappear-in-videos-for-2024/"><u>[Updated] Subtle Techniques Make Unwanted Backgrounds Disappear in Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-video-excellence-mirrorless-cameras-vs-traditional-dslrs/"><u>[Updated] Video Excellence Mirrorless Cameras vs Traditional DSLRs</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-linux-screenshot-solutions-the-ultimate-guide/"><u>2024 Approved Linux Screenshot Solutions The Ultimate Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-mastering-youtube-monetization-minimum-required-views-to-profit/"><u>2024 Approved Mastering YouTube Monetization Minimum Required Views to Profit</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-tecno-spark-10-pro-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Tecno Spark 10 Pro to Roku | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-compreenasive-look-the-new-era-of-vr-cams-by-samsung/"><u>In 2024, Compreenasive Look The New Era of VR Cams by Samsung</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-labyrinth-korean-turkish-roots/"><u>Language Labyrinth: Korean-Turkish Roots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lovers-guide-key-ways-to-embrace-a-new-tongue/"><u>Language Lovers' Guide: Key Ways to Embrace a New Tongue</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-infinix-smart-8-hd-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Infinix Smart 8 HD? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-daily-master-urdu-in-10-mins/"><u>Quick Daily: Master Urdu in 10 Mins!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-delayed-sms-issues-top-9-solutions-for-lagging-iphones/"><u>Solving Delayed SMS Issues: Top 9 Solutions for Lagging iPhones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-pathway-to-mastering-finnish-online/"><u>The Ultimate Pathway to Mastering Finnish Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-the-mysteries-of-german-alphabetic-system/"><u>Unraveling the Mysteries of German Alphabetic System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zahlenreimlernen-sprachlehre-zu-1-100-in-deutsch/"><u>Zahlenreimlernen: Sprachlehre Zu 1-100 in Deutsch</u></a></li>
 </ul></div>
 

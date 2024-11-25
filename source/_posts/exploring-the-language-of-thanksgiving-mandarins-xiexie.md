@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Language of Thanksgiving: Mandarin's Xièxiè"
-date: 2024-07-29T06:47:22.250Z
-updated: 2024-07-30T06:47:22.250Z
+date: 2024-11-21T16:26:50.338Z
+updated: 2024-11-24T20:23:55.487Z
 tags:
   - speak
   - english
@@ -23,8 +23,9 @@ thumbnail: https://thmb.techidaily.com/1dfe303424f8c396237c03340e93195a76a2eb051
  **So here are 12 of the most important ways to say thank you in Chinese.**
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Xièxiè – the most common Chinese thanks
 
  As already mentioned, **the most common way to say “thanks” or “thank you” in Chinese is_xièxiè_ (谢谢) or_xièxie._**  A rough [Chinese pronunciation](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) of that is_syeh-syeh,_ but while it sounds like the same words repeated twice, there is actually a very subtle difference between the two. Because the first syllable is a fourth tone and the second is a neutral, you should start the pronunciation high with the first syllable and then say the second one more lightly and without any emphasis.
@@ -39,16 +40,10 @@ thumbnail: https://thmb.techidaily.com/1dfe303424f8c396237c03340e93195a76a2eb051
 * **Thanks a lot! – 多谢! –_Duō xiè!_**  (used mainly in texting between friends, but teenagers tend to use it in speaking as well)
 * **Thanks! – 谢了! –_Xiè le!_**  (commonly used between close friends)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ![thanks in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/thanks-in-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 2")
 
  “Xiangxi, China” by Theodor Lundqvist©
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Thank you very much in Chinese
 
  Just like in any other language, the way you say “thank you” in Chinese can alter its meaning. If you say it harshly and keep a straight face, Chinese speakers may perceive your attitude as sarcastic. So smile, act as you would in your native country and nod respectfully (don’t bow as you would do in Japan). Even if your pronunciation is not perfect, your message will certainly be conveyed correctly.
@@ -66,6 +61,10 @@ Other variations include:
 * (I’m) really grateful! – 非常感谢你!_Fēi cháng gǎn xiè nǐ!_ (slightly more formal than the previous)
 * Thank you SO much! – 太谢谢你了! –_Tài xiè xiè nǐ le!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Thank you for… in Chinese
 
  Just as important as the simple, plain “thank you” is the “thank you for something” thank you. Because sometimes you need to be more specific. What are you thanking them for? So here’s how to thank someone in Chinese for the gift they gave you and some more [Chinese phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that might come in handy next time you visit China.
@@ -79,21 +78,27 @@ Other variations include:
 * Thank you for your consideration. – 谢谢您的关心。-_Xièxiè nín de guānxīn._
 * Thank you for spending time with us. – 谢谢您花时间和我们在一起。-_Xièxiè nín huā shíjiān hé wǒmen zài yìqǐ._
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![xiexie chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/xiexie-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Jiaxing, China” by Jay©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Other ways to express your gratitude in Chinese
 
  Depending on the social context, in some cases, you might want to vary your answers. For example, when someone compliments you, instead of saying 谢谢_xièxiè_ – which may sound a little arrogant, you could say 哪里哪里_nǎlǐ nǎlǐ_ . In English, that translates to “no, no” or “where, where” as in “you’re flattering me” or “you’re too kind”.
 
  In fact, Chinese culture is known for its preference for modesty and humility. Deflecting a compliment rather than accepting it with a plain “thank you” is much more appreciated. Thus, another way to deflect a compliment (while secretly enjoying it) is to say 没有没有_méiyǒu méiyǒu_ – meaning “no, no, that’s nonsense”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## BONUS: You’re welcome in Chinese
 
@@ -108,9 +113,6 @@ Other variations include:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Here’s how to speak Chinese in just 10 minutes a day
 
  It can be really tricky to master Chinese pronunciation if you don’t actively live in China. But with [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3462&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3462?mother%5Flang=en%5Fus?target%5Flang=zh&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3462?mother%5Flang=en%5Fus?target%5Flang=zh) , the award-winning language learning app, **you can learn Chinese naturally with practical topics and authentic Chinese conversations** recorded by fluent voice artists so you can tackle day-to-day situations.
@@ -129,8 +131,6 @@ Other variations include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -138,4 +138,23 @@ Other variations include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/2024-approved-top-strategies-for-zoom-use-with-a-chrome-os-device/"><u>2024 Approved Top Strategies for Zoom Use with a Chrome OS Device</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unlocking-success-with-youtube-on-facebook/"><u>2024 Approved Unlocking Success with YouTube on Facebook</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-unlock-icloud-account-without-password-from-apple-iphone-8-by-drfone-ios/"><u>3 Effective Ways to Unlock iCloud Account Without Password From Apple iPhone 8</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-oppo-a59-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Oppo A59 5G to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/do-vhs-effect-with-final-cut-pro-in-the-right-way-for-2024/"><u>Do VHS Effect with Final Cut Pro in the Right Way for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/effective-solutions-for-handling-amd-fx-8350-graphics-driver-issues-in-windows/"><u>Effective Solutions for Handling AMD FX 8350 Graphics Driver Issues in Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-confidently-with-these-9-speaking-up-techniques/"><u>Engage Confidently with These 9 Speaking Up Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-communication-tools-for-vietnam-tours/"><u>Essential Communication Tools for Vietnam Tours</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-french-social-norms-through-greetings-and-etiquette/"><u>Exploring French Social Norms Through Greetings and Etiquette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-fluency-in-the-polska-language/"><u>Fast-Track Fluency in the Polska Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-the-best-new-language-option-for-me/"><u>Finding The Best New-Language Option for Me</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-social-etiquette-for-travelers-mastering-the-art-of-saying-hello/"><u>French Social Etiquette for Travelers: Mastering the Art of Saying Hello</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fumbling-to-fluency-the-learning-curve/"><u>From Fumbling To Fluency - The Learning Curve</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723000543307-how-to-stop-your-forza-horizon-npc-game-from-crashing/"><u>How to Stop Your Forza Horizon N_pc Game From Crashing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-editmaster-app/"><u>In 2024, EditMaster App</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/whats-the-potential-of-using-chatgpt-for-generating-custom-designed-safe-and-highly-effective-exercpertise-programmes-just-for-me/"><u>What's The Potential Of Using ChatGPT For Generating Custom-Designed, Safe, And Highly Effective Exercpertise Programmes Just For Me?</u></a></li>
+</ul></div>
 

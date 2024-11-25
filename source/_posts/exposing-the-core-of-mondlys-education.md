@@ -1,7 +1,7 @@
 ---
 title: Exposing the Core of Mondly's Education
-date: 2024-07-29T06:46:06.415Z
-updated: 2024-07-30T06:46:06.415Z
+date: 2024-11-21T17:50:07.674Z
+updated: 2024-11-24T21:07:05.638Z
 tags:
   - speak
   - english
@@ -20,13 +20,8 @@ thumbnail: https://thmb.techidaily.com/39b1aa90cbe15af25eeef086af2b40b5abbe4ea0e
 
  The answer is simpler than you think. They learn by doing. And that’s the best approach for you too.
 
-
-
  After years of working abroad and learning several languages, the founders of what would soon become Mondly made a decision. They needed to bring this amazing approach to an app. And they did.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![language learning app](https://edge.mondly.com/blog/wp-content/uploads/2021/01/language-learning-app-960x761.png "The Learning Method Behind Mondly 4")
 
  Practice daily with Mondly
@@ -36,8 +31,9 @@ thumbnail: https://thmb.techidaily.com/39b1aa90cbe15af25eeef086af2b40b5abbe4ea0e
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Minimum effort, maximum results
 
  Think about those endless pages of rules you had to memorize in high school. That was no easy task. But once in a while, there was a teacher that really enjoyed the job and took the time to properly explain all the thinking behind them. Only then the rules would stick.
@@ -51,19 +47,20 @@ thumbnail: https://thmb.techidaily.com/39b1aa90cbe15af25eeef086af2b40b5abbe4ea0e
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
 
 [Studies](https://academic.oup.com/applij/article-abstract/34/4/457/199564?redirectedFrom=fulltext) have shown that knowing as little as 100 words helps you understand 50% of any text in the language you’re learning. Surprising as it may seem, it’s true. Knowing 1,000 words will give you a high coverage of 75% of any text. Here’s how much lexical coverage you need to reach fluency in almost any language:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lexical coverage overview
 
@@ -77,8 +74,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Take Mondly for a test drive
 
  Take your language learning experience to the next level. With Mondly, you’ll learn by doing.
@@ -95,8 +93,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -104,4 +100,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-intensive-analysis-sonys-high-def-action-cam/"><u>[New] Intensive Analysis Sony's High-Def Action Cam</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snap-your-way-unique-discover-over-120-private-story-creation-tips-and-tricks-for-2024/"><u>[New] Snap Your Way Unique Discover over 120 Private Story Creation Tips and Tricks for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/fix-the-d3dx927dll-file-not-found-issue-on-your-pc/"><u>Fix the 'd3dx9_27.dll' File Not Found Issue on Your PC</u></a></li>
+<li><a href="https://games-able.techidaily.com/get-the-best-picture-on-your-console-with-simple-adjustments/"><u>Get the Best Picture on Your Console with Simple Adjustments</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-apple-id-activation-lock-on-iphone-6s-plus-by-drfone-ios/"><u>How to Unlock Apple ID Activation Lock On iPhone 6s Plus?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-m1-explored-apples-leap-in-computational-innovation/"><u>In 2024, M1 Explored Apple's Leap in Computational Innovation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-ropes-of-japenese-social-dialogue/"><u>Learn the Ropes of Japenese Social Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-top-8-motivational-factors-to-learn-hindi-online/"><u>Mondly Unveils: Top 8 Motivational Factors to Learn Hindi Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-fluent-latvian-in-under-an-hours-practice/"><u>Speak Fluent Latvian in Under an Hour's Practice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-best-25-german-phrases/"><u>Speak Like a Local: Best 25 German Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spooky-festivities-a-cultural-insight/"><u>Spooky Festivities: A Cultural Insight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-talk-tracks-enhance-enterprise-eloquence-strategies/"><u>Transform Talk Tracks: Enhance Enterprise Eloquence Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-english-potential-with-oxford-3000-and-mondly/"><u>Unlock Your English Potential with Oxford 3000 and Mondly</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/unveiling-the-secrets-of-mysql-repair-a-sysadmins-journey/"><u>Unveiling the Secrets of MySQL Repair: A SysAdmin's Journey</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/votre-guide-definitif-les-meilleurs-lecteurs-video-4k-uhd-pcmac-installer-and-partager-des-critiques/"><u>Votre Guide Definitif : Les Meilleurs Lecteurs Vidéo 4K UHD PC/Mac - Installer & Partager Des Critiques</u></a></li>
+</ul></div>
 

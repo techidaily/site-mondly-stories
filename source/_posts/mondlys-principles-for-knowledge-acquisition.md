@@ -1,7 +1,7 @@
 ---
 title: Mondly's Principles for Knowledge Acquisition
-date: 2024-11-13T10:03:24.185Z
-updated: 2024-11-15T02:48:29.130Z
+date: 2024-11-22T21:36:21.284Z
+updated: 2024-11-24T18:27:24.711Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Minimum effort, maximum results
 
  Think about those endless pages of rules you had to memorize in high school. That was no easy task. But once in a while, there was a teacher that really enjoyed the job and took the time to properly explain all the thinking behind them. Only then the rules would stick.
@@ -43,10 +47,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -58,10 +59,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -76,10 +74,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -107,19 +102,17 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-lg-360-camera-full-review/"><u>[New] In 2024, LG 360 Camera Full Review</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-inside-the-arsenal-the-complete-review-of-sj-cam-s6/"><u>[Updated] Inside the Arsenal The Complete Review of SJ-CAM S6</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-boosting-income-via-youtube-ads-and-analytics-across-platforms/"><u>2024 Approved Boosting Income via YouTube Ads & Analytics Across Platforms</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-vivo-v29e-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Vivo V29e</u></a></li>
-<li><a href="https://extra-information.techidaily.com/bright-ideas-for-android-video-mastery-for-2024/"><u>Bright Ideas for Android Video Mastery for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/comprehensive-12-video-live-viewing-platform/"><u>Comprehensive 12-Video Live Viewing Platform</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprendiendo-los-botones-para-tiempo-en-aplicaciones/"><u>Comprendiendo Los Botones Para Tiempo en Aplicaciones</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivating-chinese-etiquette-saying-thank-you/"><u>Cultivating Chinese Etiquette: Saying Thank You</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-fluency-for-the-mature-mind-four-reasons-to-learn-languages-in-your-forties/"><u>Cultural Fluency for the Mature Mind: Four Reasons to Learn Languages in Your Forties</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-squid-game-through-language-study/"><u>Decoding Squid Game Through Language Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-the-ultimate-way-learning-languages-on-the-web/"><u>Discover the Ultimate Way: Learning Languages on the Web</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-on-the-apple-iphone-6s-plus-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock On the Apple iPhone 6s Plus Without Previous Owner?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-11x-5g-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Realme 11X 5G Phone without Any Data Loss</u></a></li>
-<li><a href="https://review-topics.techidaily.com/unveiling-the-latest-in-computing-equipment-with-toms-hardware-reviews/"><u>Unveiling the Latest in Computing Equipment with Tom's Hardware Reviews</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-scrutinizing-the-specifications-of-djis-flight-model-3/"><u>[Updated] In 2024, Scrutinizing the Specifications of DJI's Flight Model 3</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-tecno-spark-10-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Tecno Spark 10 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/best-dvd-to-digital-format-converters-for-2024/"><u>Best DVD to Digital Format Converters for 2024</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/decouvrez-les-deux-facons-de-gerer-le-programme-dinstallation-et-laccueil-sous-windows-11/"><u>Découvrez Les Deux Façons De Gérer Le Programme D'Installation Et L'Accueil Sous Windows 11</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-ideas-on-boosting-gopro-energy-retention/"><u>In 2024, Ideas on Boosting GoPro Energy Retention</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/mp4-file-optimization-removing-unwanted-audio-tracks/"><u>MP4 File Optimization Removing Unwanted Audio Tracks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-rivalry-unpacking-spanish-and-portuguese-linguistics/"><u>Romance Rivalry: Unpacking Spanish & Portuguese Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slang-evolution-in-american-vs-british-english-over-time/"><u>Slang Evolution in American vs British English Over Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-counting-1-10-for-starters/"><u>Spanish Counting 1-10 For Starters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-savvy-the-evolution-of-multilingualism-today/"><u>Speaking Savvy: The Evolution of Multilingualism Today</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/two-weeks-with-remarkables-colorful-e-ink-why-i-wont-settle-for-bland-traditional-papers-anymore/"><u>Two Weeks with Remarkable's Colorful E-Ink: Why I Won’t Settle for Bland Traditional Papers Anymore</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/united-learners-unstoppable-mondly/"><u>United Learners, Unstoppable Mondly</u></a></li>
 </ul></div>
 

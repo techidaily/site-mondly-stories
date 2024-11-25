@@ -1,7 +1,7 @@
 ---
 title: Where Do People Feast on Thanksgiving?
-date: 2024-10-29T00:42:20.993Z
-updated: 2024-11-05T05:55:43.576Z
+date: 2024-11-23T22:14:06.615Z
+updated: 2024-11-24T18:12:21.043Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  Let’s learn more about these celebrations and discover seven of the most surprising countries that celebrate Thanksgiving (besides the US).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Canada
 
  The Canadian version of Thanksgiving is very similar to its American relative. You’ve got the turkey (though some choose ham or chicken instead), the mashed potatoes, the legendary gravy, the corn, and the pumpkin pie. Then there’s the name which is also ‘Thanksgiving’ – except for Quebec; there you’d call it ‘Action de Grâce’. Moreover, both [Americans and Canadians](https://www.bustle.com/life/canadian-thanksgiving-vs-american-thanksgiving) like to watch football and spend time with family on Thanksgiving. Everything seems familiar. Except for the date, of course. Canadian Thanksgiving is celebrated on the second Monday in October, much earlier than the United States which celebrates it on the fourth Thursday in November.
@@ -37,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  Yet Canadians and Americans don’t celebrate the same event. While the US celebrates the ‘feast’ shared by Pilgrims and Wampanoags in 1621, Canadian Thanksgiving goes back to 1578 (earlier than the first US celebration), when British explorer Arthur Frobisher and his crew returned from their search of the Northwest Passage. To [give thanks](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) for their safe return, they organized a feast.
 
  Other sources trace the Canadian Thanksgiving to the French settlers who came to North America in the 17th century and held feasts to celebrate their successful harvests.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Germany, Austria, and Switzerland
 
@@ -50,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Grenada
 
  Although it rhymes with Canada, you should know that Grenada is actually a Caribbean country and its Thanksgiving celebration is one of the youngest in the world. Every year, on the 25th of October, Grenadians commemorate the events that took place in 1983, when Grenada’s deputy prime minister executed the prime minister and seized the power. Only nine days later, the United States military came to the rescue and restored order in a matter of weeks.
@@ -59,19 +71,13 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 ![thanksgiving turkey](https://edge.mondly.com/blog/wp-content/uploads/2021/11/canadian-thanksgiving-960x641.jpg "What Countries Celebrate Thanksgiving? 3")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanksgiving turkey” by Claudio Schwarz©
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Japan
@@ -90,13 +96,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  During pre-Christian times in Britain, the Saxons would offer the first sheaf of cereals to fertility gods then come together and celebrate the harvest with a supper. Many traditions remained even though Christianity arrived in Britain so the present-day Harvest Festival is celebrated even by churches.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 8\. Brazil
 
  This is kind of a funny one. Apparently, sometime in the 1940s, Brazilian ambassador Joaquim Nabuco returned home from a trip to the US very enthusiastic about the commemorations he saw in St. Patrick’s Cathedral on Thanksgiving Day. So he suggested to President Gaspar Dutra to institute the celebration in Brazil as well.
@@ -107,13 +106,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Learn to give thanks in over 40 languages
 
@@ -145,20 +137,21 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-transform-your-instagram-vocal-identity-today/"><u>[New] 2024 Approved Transform Your Instagram Vocal Identity Today</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-2023-guide-to-top-value-streaming-tools-for-all-platform-users/"><u>[Updated] The 2023 Guide to Top Value Streaming Tools for All Platform Users</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unveiled-the-premier-places-to-obtain-snapchat-audio/"><u>[Updated] Unveiled The Premier Places to Obtain Snapchat Audio</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/advanced-tools-for-efficient-language-learning/"><u>Advanced Tools for Efficient Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bangla-in-bits-master-in-minutes-max-out-days/"><u>Bangla in Bits: Master in Minutes, Max Out Days</u></a></li>
-<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-samsung-galaxy-xcover-6-pro-tactical-edition-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Samsung Galaxy XCover 6 Pro Tactical Edition in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engage-and-learn-spanish-in-multiplayer-virtual-reality/"><u>Engage and Learn Spanish in Multiplayer Virtual Reality</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576799927-expand-your-reach-mondly-support-on-oculus-quest-now/"><u>Expand Your Reach: Mondly Support on Oculus Quest Now!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-loves-linguistic-tapestry/"><u>Exploring Love's Linguistic Tapestry</u></a></li>
-<li><a href="https://article-helps.techidaily.com/from-current-applications-to-future-drone-horizons-for-2024/"><u>From Current Applications to Future Drone Horizons for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/maximizing-ai-in-bing-an-android-guide/"><u>Maximizing AI in Bing: An Android Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580594459-popular-new-years-resolutions-and-how-you-can-achieve-them/"><u>Popular New Year's Resolutions And How You Can Achieve Them</u></a></li>
-<li><a href="https://techtrends.techidaily.com/seamless-smart-living-accessing-and-controlling-google-home-via-desktop-interface/"><u>Seamless Smart Living: Accessing and Controlling Google Home via Desktop Interface</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/securing-your-work-top-10-photo-watermark-solutions/"><u>Securing Your Work Top 10 Photo Watermark Solutions</u></a></li>
-<li><a href="https://techtrends.techidaily.com/understanding-why-your-automobiles-power-source-may-keep-depleting-a-closer-look-at-6-common-factors/"><u>Understanding Why Your Automobile's Power Source May Keep Depleting: A Closer Look at 6 Common Factors</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-examining-the-efficiency-of-screenrecorderelite-for-2024/"><u>[New] Examining the Efficiency of ScreenRecorderElite for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unveiling-the-practicality-of-smoothing-in-camera-jitters/"><u>[Updated] 2024 Approved Unveiling the Practicality of Smoothing In-Camera Jitters</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-unlocking-viral-potential-in-instagram-videos/"><u>2024 Approved Unlocking Viral Potential in Instagram Videos</u></a></li>
+<li><a href="https://apple-account.techidaily.com/3-ways-of-how-to-get-someones-apple-id-off-apple-iphone-15-without-password-by-drfone-ios/"><u>3 Ways of How to Get Someones Apple ID Off Apple iPhone 15 without Password</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-12-pro-to-pc-via-usb-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 12 Pro to PC via USB? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-take-your-english-to-the-next-level-mondly/"><u>How To Take Your English To The Next Level - Mondly</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-expertly-calculated-earnings-tiktoks-finest-tools/"><u>In 2024, Expertly Calculated Earnings TikTok's Finest Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lexicon-origins-shakespearean-words-in-modern-chatter/"><u>Lexicon Origins: Shakespearean Words in Modern Chatter</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/nvidia-quadro-graphics-drivers-for-win10-direct-download-from-official-site/"><u>Nvidia Quadro Graphics Drivers for Win10 - Direct Download From Official Site</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/orators-oasis-premier-training-for-verbal-proficiency/"><u>Orator’s Oasis: Premier Training for Verbal Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-filters-the-mondly-pearson-collaboration/"><u>Pioneering Filters: The Mondly-Pearson Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-policy-just-updated/"><u>Privacy Policy Just Updated</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-catalan-mastery-daily-10-minute-routine/"><u>Quick Catalan Mastery: Daily 10-Minute Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-balance-between-accuracy-and-understanding/"><u>The Balance Between Accuracy and Understanding</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-perfect-fit-discovering-the-apple-watch-ultra-2-at-an-unbeatable-labor-day-price-a-personal-review-by-zdnet/"><u>The Perfect Fit: Discovering the Apple Watch Ultra 2 at an Unbeatable Labor Day Price - A Personal Review by ZDNet</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-step-by-step-tutorial-adding-subtitles-to-films-and-videos-a-complete-guide/"><u>Ultimate Step-by-Step Tutorial: Adding Subtitles to Films and Videos - A Complete Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Mastering French Social Dynamics: A Guide to Intricate Greetings"
-date: 2024-11-13T22:45:01.322Z
-updated: 2024-11-14T18:56:45.830Z
+date: 2024-11-20T22:10:33.958Z
+updated: 2024-11-24T16:09:32.010Z
 tags:
   - speak
   - english
@@ -26,13 +26,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  But everyone wants to make a change from time to time. So let’s dive into 12 ways to say hello in French that are not_Bonjour._
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. “Hi” in French –_Salut!_
 
  Just as commonly used, but a bit more informal,_Salut_ is what we could call_Bonjour_ ’s cool kid.
@@ -45,18 +38,15 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  However, if you are in Quebec, you are free to use_Bon matin_ until 10 or 11 AM.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. “Good afternoon” in French –_Bon après-midi!_
 
  While it’s used less often than its brothers,_Bon après-midi_ is a nice twist to_Bonjour_ .
 
  But take notice! French speakers generally use it when they are saying goodbye, so you should follow their lead and avoid using it at the beginning of a conversation.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. “Good evening” in French –_Bonsoir!_
 
@@ -69,13 +59,14 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 ![french greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/11/french-greetings-scaled-722x960.jpg "How To Say Hello In French: 12 Useful French Greetings 2")
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “French fashion” by Charles 🇵🇭©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Hello? –_Allô?_
 
@@ -86,6 +77,10 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 ## 7\. Excuse me? –_Excusez-moi?_
 
  Looking for a polite way to get someone’s attention in French? Maybe there’s someone blocking your way in the store or maybe you want to get noticed by the office clerk. In these situations, a classic greeting would be a bit redundant. So instead you could use this “question-like”_Excusez-moi?_ that has a double meaning and works as both a greeting and a way to get someone’s attention.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. “How are you” in French –_Comment ça va?_
 
@@ -106,10 +101,7 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 11\. The cute Bonjour:_Coucou!_
@@ -132,10 +124,7 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s how to learn French in just 10 minutes a day
@@ -167,18 +156,17 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-the-future-in-flight-djis-mavic-pro-breakdown-for-2024/"><u>[New] The Future in Flight DJI's Mavic Pro Breakdown for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-leveraging-likeability-strategies-for-going-viral-on-facebook/"><u>[Updated] 2024 Approved Leveraging Likeability Strategies for Going Viral on Facebook</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-iphone-tips-achieve-softened-images-in-4-easy-steps/"><u>[Updated] IPhone Tips Achieve Softened Images in 4 Easy Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-journey-through-the-language-of-italian-gestures/"><u>A Journey Through the Language of Italian Gestures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-legacy-in-progress-mondlylanguages-daring-visionary-journey/"><u>A Legacy in Progress: MondlyLanguages - Daring Visionary Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conversing-with-confidence-mastering-japanese-salutations/"><u>Conversing with Confidence: Mastering Japanese Salutations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/digital-pathway-learn-lithuanian-effectively/"><u>Digital Pathway: Learn Lithuanian Effectively</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/elevating-brand-presence-a-guide-to-influencer-marketing-on-instagram-for-2024/"><u>Elevating Brand Presence A Guide to Influencer Marketing on Instagram for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-realme-c53-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Realme C53 Without the Home Button | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/microsoft-introduces-first-ever-arm-based-windows-desktops-powered-by-qualcomm/"><u>Microsoft Introduces First-Ever Arm-Based Windows Desktops Powered by Qualcomm</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/preventing-vids-from-going-bad/"><u>Preventing Vids From Going Bad</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ultimate-guide-enhance-development-with-chatgpt-powered-vs-code/"><u>Ultimate Guide: Enhance Development with ChatGPT-Powered VS Code</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-ideal-online-audio-equipment-top-7-picks-2023/"><u>[Updated] 2024 Approved Ideal Online Audio Equipment Top 7 Picks 2023</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/guide-pratique-comment-graver-un-dvd-sur-une-cle-usb-pour-pc-et-mac/"><u>Guide Pratique : Comment Graver Un DVD Sur Une Clé USB Pour PC Et Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ignite-cultural-curiosity-with-hindi-experience-7-exciting-mondly-benefits/"><u>Ignite Cultural Curiosity with Hindi - Experience 7 Exciting Mondly Benefits!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lineage-the-genesis-of-the-dutch-language/"><u>Linguistic Lineage: The Genesis of the Dutch Language</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-the-ultimate-guide-to-movie-trailer-apps-for-iphone-and-ipad-users/"><u>New 2024 Approved The Ultimate Guide to Movie Trailer Apps for iPhone and iPad Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rogues-repertoire-diving-into-sea-slang-lexicon/"><u>The Rogue's Repertoire: Diving Into Sea Slang Lexicon</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-verdict-on-the-groundbreaking-lenovo-thinkpad-x1-fold-remarkable-yet-imperfect-laptop-innovation/"><u>The Verdict on the Groundbreaking Lenovo ThinkPad X1 Fold: Remarkable Yet Imperfect Laptop Innovation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-fluency-mastering-phrases-in-minutes-92-chars/"><u>Ukrainian Fluency: Mastering Phrases in Minutes (92 Chars)</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ultimate-guide-to-hp-dock-g2-thunderbolt-setup-obtain-the-essential-120w230w-device-drivers-today/"><u>Ultimate Guide to HP Dock G2 Thunderbolt Setup: Obtain the Essential 120W/230W Device Drivers Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiled-dialogues-the-complete-guide-to-african-linguistics/"><u>Unveiled Dialogues: The Complete Guide to African Linguistics</u></a></li>
+<li><a href="https://program-issues.techidaily.com/why-is-my-cyberpunk-2077-game-keep-crashing-find-out-here/"><u>Why Is My Cyberpunk 2077 Game Keep Crashing? Find Out Here</u></a></li>
 </ul></div>
 

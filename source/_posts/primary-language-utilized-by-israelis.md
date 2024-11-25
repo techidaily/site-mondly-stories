@@ -1,7 +1,7 @@
 ---
 title: Primary Language Utilized by Israelis?
-date: 2024-11-14T11:27:28.838Z
-updated: 2024-11-14T18:19:55.311Z
+date: 2024-11-22T20:45:51.550Z
+updated: 2024-11-24T18:33:22.067Z
 tags:
   - speak
   - english
@@ -20,11 +20,19 @@ thumbnail: https://thmb.techidaily.com/981f5aab13809d22943cf0e3715f6a9d6dac906b3
 
  Following a tumultuous and often violent history, the nation of Israel now has a [population](https://en.wikipedia.org/wiki/Israel#Demographics) of more than 9 million people. Out of this, 74.2% are Jews, 20.9% Arabs and 4.8% are Christians and people who have no religion listed in the civil registry. Despite the cultural diversity, almost the entire population speaks Hebrew, the country’s official language, either as a first or second language. However, this is not the full story of the languages of Israel. Let’s take a closer look at the country’s current linguistic landscape.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Israel language mosaic – what language is spoken in Israel?
 
  **Hebrew is the everyday and official language of Israel and roughly everyone speaks it, but the Arab minority which accounts for about one-fifth of the population, also speaks Arabic. Additionally, a high percentage of Israelis know English and over a million of them speak Russian as a result of immigration from the Soviet Union.**
 
  Although Hebrew can be seen and heard everywhere, Israel’s laws are officially published in Arabic and English as well. The same is true for most road signs, food labels, medicine brochures, safety regulations and messages published by the government.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hebrew
 
@@ -33,13 +41,6 @@ thumbnail: https://thmb.techidaily.com/981f5aab13809d22943cf0e3715f6a9d6dac906b3
  What’s fascinating about [Hebrew](https://books.google.ro/books?id=EZCgpaTgLm0C&pg=PA1&redir%5Fesc=y#v=onepage&q&f=false) is that it ceased to be an everyday spoken language somewhere between the 2nd and 4th century CE. During the medieval period it survived only as a sacred language of Jewish liturgy and rabbinic literature. But then, toward the end of the 19th century and into the 20th century, with the rise of Zionism, it was revived as a spoken and literary language. Its renaissance is considered by many a linguistic miracle.
 
  Modern Hebrew is what you’ll hear on [the streets of Israel](https://link.springer.com/referenceworkentry/10.1007%2F978-3-030-02438-3%5F125) (and what you can [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5614&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he) ) and premodern Hebrew is now used only for prayer or study in Jewish communities.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Arabic
 
@@ -52,10 +53,7 @@ thumbnail: https://thmb.techidaily.com/981f5aab13809d22943cf0e3715f6a9d6dac906b3
  “Dome of the Rock, Jerusalem, Israel” by Stacey Franco©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Russian
@@ -66,16 +64,13 @@ thumbnail: https://thmb.techidaily.com/981f5aab13809d22943cf0e3715f6a9d6dac906b3
 
 So, as you can see, Russian is surprisingly widespread in Israel.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Other languages
 
  Other languages you’re likely to hear in Israel are Yiddish, French (which was used as a diplomatic language in Israel until the 1990s when the Israeli-French alliance was undermined), German, Spanish and Romanian.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Can you speak English in Israel?
 
@@ -93,10 +88,7 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Speak Hebrew or Arabic fluently in just 10 minutes a day
@@ -124,22 +116,24 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-from-inquiry-to-insight-best-practices-for-story-based-polls/"><u>[New] From Inquiry to Insight Best Practices for Story-Based Polls</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-freeze-your-favorite-moves-explore-these-top-9-windows-gif-recipes/"><u>[New] In 2024, Freeze Your Favorite Moves! Explore These Top 9 Windows GIF Recipes</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-instant-messaging-guide-start-a-skype-group-talk/"><u>[New] In 2024, Instant Messaging Guide Start a Skype Group Talk</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-ignite-conversations-tactics-for-facebook-impact/"><u>[Updated] Ignite Conversations Tactics for Facebook Impact</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-essential-guide-for-every-aspiring-snapchat-editor-for-2024/"><u>[Updated] The Essential Guide for Every Aspiring Snapchat Editor for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-glacial-glory-spectacous-moments-from-2022s-olympic-snowboard-races/"><u>2024 Approved Glacial Glory Spectacous Moments From 2022'S Olympic Snowboard Races</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-decade-mondlyback-buttonfilter-triumph/"><u>A Decade: MondlyBack ButtonFilter Triumph</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apple-and-mondly-pioneering-the-future-of-education-with-top-10-recognition/"><u>Apple & Mondly: Pioneering the Future of Education with Top 10 Recognition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/babel-fish-reimagined-uncovering-the-top-6-advantages/"><u>Babel Fish Reimagined: Uncovering the Top 6 Advantages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boosting-bilingualism-3-mind-stimulating-language-drills/"><u>Boosting Bilingualism: 3 Mind-Stimulating Language Drills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conocer-la-pantalla-del-reloj-pasos-para-comenzar/"><u>Conocer La Pantalla Del Reloj - Pasos Para Comenzar</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivating-a-natural-french-accent-with-idioms/"><u>Cultivating a Natural French Accent with Idioms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/danish-films-your-gateway-to-authentic-linguistic-fluency/"><u>Danish Films: Your Gateway to Authentic Linguistic Fluency</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-5-innovative-approaches-to-choosing-a-dynamic-podcast-name/"><u>In 2024, 5 Innovative Approaches to Choosing a Dynamic Podcast Name</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-apple-watch-or-apple-iphone-15-by-drfone-ios/"><u>In 2024, How To Bypass Activation Lock On Apple Watch Or Apple iPhone 15?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576891755-jumpstart-your-2023-save-big-and-gain-lifetime-access-to-mondly-premium/"><u>Jumpstart Your 2023: Save Big & Gain Lifetime Access to Mondly Premium</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unveiling-the-specs-hp-envy-27s-4k-capabilities/"><u>Unveiling the Specs HP Envy 27'S 4K Capabilities</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-leading-software-lineup-8-linux-editing-sleuths/"><u>[New] Leading Software Lineup 8 Linux Editing Sleuths</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-thors-quest-battle-for-valhalla-for-2024/"><u>[New] Thor’s Quest Battle for Valhalla for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-cutting-edge-psd-drop-shadows-for-2024/"><u>[Updated] Cutting-Edge PSD Drop Shadows for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-mastering-the-marketplace-30-advanced-fb-techniques-explored/"><u>[Updated] In 2024, Mastering the Marketplace 30 Advanced FB Techniques Explored</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-bypass-youtube-and-shine-with-these-5-next-gen-editing-software/"><u>2024 Approved Bypass Youtube and Shine with These 5 Next-Gen Editing Software</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-now-updated-nvidia-rtx-3080-ti-drivers-supporting-windows-11-8-and-7-systems/"><u>Download Now: Updated NVIDIA RTX 3080 Ti Drivers Supporting Windows 11, 8, and 7 Systems</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/effortless-data-protection-discover-the-best-buffalo-nas-backup-app-for-windows-systems-11-10-8-and-t7/"><u>Effortless Data Protection: Discover the Best Buffalo NAS Backup App for Windows Systems (11, 10, 8 & T7)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/greetings-galore-a-journey-through-japans-language/"><u>Greetings Galore: A Journey Through Japan's Language</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-resolve-windows-10-stalls-and-hiccups-at-boot-up/"><u>How to Resolve Windows 10 Stalls and Hiccups at Boot Up</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-from-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock from iPhone 11 Pro Max</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/innovative-methods-for-enhancing-testimonial-video-authenticity/"><u>Innovative Methods for Enhancing Testimonial Video Authenticity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-haste-to-learning-urdu-online/"><u>Introducing Haste to Learning Urdu Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-top-10-dynamic-ways-to-say-hello-in-spanish/"><u>Learning Top 10 Dynamic Ways To Say Hello In Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-named-one-of-google-plays-best-apps-of-2017back-buttonfilter-button/"><u>Mondly Kids App Named One Of Google Play's Best Apps Of 2017Back ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-benefits-of-learning-croatian-7-reasons-to-start-today/"><u>The Benefits Of Learning Croatian: 7 Reasons To Start Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-polyglot-symphony-global-teaching-day/"><u>The Polyglot Symphony: Global Teaching Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukraines-access-to-language-mastery-via-mondly-free-of-charge/"><u>Ukraine's Access to Language Mastery via Mondly, Free-of-Charge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-aussie-tongue-100plus-terms-guide/"><u>Unlock the Aussie Tongue: 100+ Terms Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-guru-guide-to-lithuanian-mastery/"><u>Virtual Guru Guide to Lithuanian Mastery</u></a></li>
 </ul></div>
 

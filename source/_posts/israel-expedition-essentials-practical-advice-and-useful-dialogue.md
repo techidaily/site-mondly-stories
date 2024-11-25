@@ -1,7 +1,7 @@
 ---
 title: "Israel Expedition Essentials: Practical Advice & Useful Dialogue"
-date: 2024-11-10T20:26:26.923Z
-updated: 2024-11-14T22:47:33.823Z
+date: 2024-11-17T18:45:19.637Z
+updated: 2024-11-24T17:37:27.780Z
 tags:
   - speak
   - english
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
  Of course, as you already know, every travel destination has its downsides. You won’t like every aspect of traveling to Israel. But that’s only natural. To voice your concerns: yes, knowing the history of Israel, it’s important to keep safety in mind, but you must not let it control you.
 
  So here are some tips and all the basic Hebrew phrases you need to know before packing your bags for the long-awaited trip to Israel.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Here’s what you should know before traveling to Israel
 
@@ -74,13 +78,6 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 * supermarket –_כלבו – kolbo_
 * souvenir –_מזכרת – mazkeret_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Top 5 places you must visit in Israel
 
  Before moving on to the Hebrew travel phrases that will make your vacation ten times better (yes, learning the language of the natives does that!), let’s discover the top five most beautiful places in Israel. Like we already mentioned, this country is a dream. From beaches to gardens and holy sanctuaries. So let’s discover the most beautiful of them.
@@ -96,10 +93,7 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 ![hebrew words](https://edge.mondly.com/blog/wp-content/uploads/2019/09/hebrew-words-1024x767.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Tel Aviv-Yafo, Israel” by Shai Pal©
@@ -111,13 +105,6 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 ![travel to israel](https://edge.mondly.com/blog/wp-content/uploads/2019/09/travel-to-israel-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 5")
 
  “The Dead Sea” by Dave Herring©
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Haifa
 
@@ -131,14 +118,11 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 ![israel hebrew](https://edge.mondly.com/blog/wp-content/uploads/2019/09/israel-hebrew-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 6")
 
- “Bahá’í Gardens, Haifa” by Denis Vdovin©
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ “Bahá’í Gardens, Haifa” by Denis Vdovin©
 
 ## Get ready to enjoy Israel with these basic Hebrew travel phrases
 
@@ -147,6 +131,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
  Traveling can be both amazing and stressful. What if you lose your luggage? What if you need to go to the toilet but you don’t know where to find one? What if nobody speaks English? Avoid stressful situation like these. Language should never be a barrier. Learn these basic Hebrew phrases beforehand and enjoy your trip to the fullest.
 
  First, we will explore Hebrew greetings, continue with some common ways to ask for help in Hebrew, basic phrases for when you’ll go to an Israeli restaurant and some basic phrases for shopping sprees. Happy learning!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hebrew Greetings and other basics
 
@@ -169,14 +157,11 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 ![learn hebrew](https://edge.mondly.com/blog/wp-content/uploads/2019/09/learn-hebrew-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 7")
 
- “Ein Gedi Oasis, Israel” by Robert Bye©
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ “Ein Gedi Oasis, Israel” by Robert Bye©
 
 ### Common Hebrew phrases for travelers that need help
 
@@ -198,6 +183,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 * I would like a salad. –_אני רוצה סלט. – Anee rotseh salat._
 * I would like a soup. –_אני רוצה מרק. – Anee rotseh marak._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Basic Hebrew phrases for shopping sprees
 
 * How much does it cost? –_כמה זה עולה? – Kama zeh oleh?_
@@ -212,10 +201,7 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Here’s how to speak Hebrew in just 10 minutes a day
@@ -243,18 +229,20 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-beyond-the-surface-10-under-the-radar-facts-about-reels/"><u>[New] Beyond the Surface 10 Under-the-Radar Facts About Reels</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-elite-8-android-multiparty-conferencing-solutions/"><u>[Updated] In 2024, Elite 8 Android Multiparty Conferencing Solutions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/4-popular-ways-to-say-youre-welcome-in-french/"><u>4 Popular Ways To Say You’re Welcome In French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/age-and-agility-in-language-learning/"><u>Age and Agility in Language Learning</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/avoiding-constant-printer-service-interruptions-on-win7win10/"><u>Avoiding Constant Printer Service Interruptions on Win7/Win10</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bringing-classrooms-to-the-future-with-mondly-and-apple/"><u>Bringing Classrooms to the Future with Mondly & Apple</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/crucial-aspects-of-revamping-your-windows-setup/"><u>Crucial Aspects of Revamping Your Windows Setup</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/explore-the-elite-circle-the-creme-de-la-creme-of-popular-sites-on-the-internet/"><u>Explore the Elite Circle: The Crème De La Crème of Popular Sites on the Internet</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Motorola Moto G73 5G? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580284583-learn-hindi-like-a-native-speaker-explore-7-compelling-benefits-from-mondly-online-study/"><u>Learn Hindi Like a Native Speaker: Explore 7 Compelling Benefits From Mondly Online Study!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577979806-speak-anywhere-everytime-meet-mondlyar/"><u>Speak Anywhere, Everytime - Meet MondlyAR</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842751-9781881098447-the-witches-almanac-issue-37-spring-2018-to-2019/"><u>The Witches' Almanac: Issue 37, Spring 2018 to 2019 | Free Book</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/understanding-codecs-definition-and-how-they-work/"><u>Understanding Codecs: Definition and How They Work</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-luminances-stand-in-the-hdr-landscape/"><u>[New] Luminance's Stand in the HDR Landscape</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-new-frontiers-in-immersive-experiences-the-best-metaverse-insights/"><u>[New] New Frontiers in Immersive Experiences The Best Metaverse Insights</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-complete-process-to-document-real-time-chats/"><u>[New] The Complete Process to Document Real-Time Chats</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-streamline-your-sound-key-audio-interfaces-for-podcasters/"><u>[Updated] Streamline Your Sound Key Audio Interfaces for Podcasters</u></a></li>
+<li><a href="https://win-dash.techidaily.com/canon-mf743cdw-free-downloads-of-updated-windows-printing-software/"><u>Canon MF743CDW: Free Downloads of Updated Windows Printing Software</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enhancing-system-functionality-context-menu-for-swift-software-removal/"><u>Enhancing System Functionality: Context Menu for Swift Software Removal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-portuguese-and-other-basic-portuguese-greetings-you-need-to-know/"><u>Hello in Portuguese and Other Basic Portuguese Greetings You Need to Know</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-v30t-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Realme V30T PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-htc-u23-pro-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On HTC U23 Pro? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interacting-with-global-teachers-at-bett-2022/"><u>Interacting with Global Teachers at BETT 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-tenses-and-verb-patterns/"><u>Mastering Spanish: Tenses & Verb Patterns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-digital-bridge-to-learning-and-growth-for-70-millionplus-users/"><u>Mondly: The Digital Bridge to Learning & Growth for 70 Million+ Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-toward-my-ideal-next-learning-lingual-journey/"><u>Navigating Toward My Ideal Next-Learning Lingual Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/refined-user-policies-for-modern-times/"><u>Refined User Policies for Modern Times</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/1728473506065-windows-11/"><u>Windows 11 : システムファイル容量オーバー防止ガイド</u></a></li>
 </ul></div>
 

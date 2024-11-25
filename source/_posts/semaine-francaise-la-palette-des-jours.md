@@ -1,7 +1,7 @@
 ---
 title: "Semaine Française: La Palette Des Jours"
-date: 2024-10-30T17:06:26.416Z
-updated: 2024-11-04T17:12:13.249Z
+date: 2024-11-17T17:56:10.917Z
+updated: 2024-11-24T19:53:40.700Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/d02ecec5426e8e1f2da5e128e095f9718e5fc3c11
  Mastering something as essential as the**days of the week in French** may prove more practical than you think. Paris is always a good idea, but what if you miss your_mardi_ reservation at the #1 restaurant in Paris because you show up on_mercredi_ instead? We don’t want that to happen. That’s why it’s always best to dive into [learning French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) by mastering the essentials first: how to say “[hello](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ”, “[you’re welcome](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ” and the days of the week.
 
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Days of the week in French
 
@@ -74,10 +78,7 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -124,18 +125,22 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-easy-guide-to-blur-background-in-google-meet-laptop-and-mobile/"><u>[New] 2024 Approved Easy Guide to Blur Background in Google Meet [Laptop and Mobile]</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-quintet-of-top-10-royale-battles/"><u>[New] 2024 Approved Quintet of Top 10 Royale Battles</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-perfect-your-virtual-meeting-vibes-google-meet-background-tips/"><u>[New] Perfect Your Virtual Meeting Vibes Google Meet Background Tips</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-top-5-audio-to-video-makers-online/"><u>2024 Approved Top 5 Audio to Video Makers Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/early-forms-a-look-at-old-dutchs-origin/"><u>Early Forms: A Look at Old Dutch's Origin</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enthusiastic-educational-approaches-to-latin/"><u>Enthusiastic Educational Approaches to Latin</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On OnePlus Nord N30 SE | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-vivo-t2x-5g-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Vivo T2x 5G</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-unlocking-vanished-videos-watching-youtubes-forgotten-gems-online/"><u>In 2024, Unlocking Vanished Videos Watching YouTube's Forgotten Gems Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-and-german-a-pinnacle-of-online-language-education/"><u>Mondly & German: A Pinnacle of Online Language Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/stellar-scripts-a-study-of-dialogue-in-star-wars-narratives/"><u>Stellar Scripts: A Study of Dialogue in Star Wars Narratives</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/unmasking-bogus-apple-id-cons-protective-measures-by-malwarefox/"><u>Unmasking Bogus Apple ID Cons: Protective Measures by MalwareFox</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-experience-advanced-note-organization-on-mematic/"><u>[New] Experience Advanced Note Organization on Mematic</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-odins-legacy-destiny-of-ragnarok/"><u>[New] Odin's Legacy Destiny of Ragnarök</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-snapchat-soundtrack-sourcebook-choosing-from-the-best-websites/"><u>[Updated] 2024 Approved Snapchat Soundtrack Sourcebook Choosing From the Best Websites</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-social-network-power-play-understanding-igtv-vs-youtubes-dynamics/"><u>[Updated] Social Network Power Play Understanding IGTV Vs. YouTube's Dynamics</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-step-by-step-recording-slideshow-via-webcam-for-2024/"><u>[Updated] Step-by-Step Recording Slideshow via Webcam for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-nokia-g310-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/auto-translate-youtube-videos-into-different-languages-for-2024/"><u>Auto Translate YouTube Videos Into Different Languages for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/expert-insights-evaluating-the-samsung-galaxy-a71-5g-as-a-cost-effective-competitor-to-premium-phones/"><u>Expert Insights: Evaluating the Samsung Galaxy A71 5G as a Cost-Effective Competitor to Premium Phones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immerse-in-the-german-language-via-popular-dark-series/"><u>Immerse in the German Language via Popular Dark Series</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-infinix-note-30-vip-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Infinix Note 30 VIP? Fixed | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-nuances-between-american-and-british-cultures/"><u>Language Nuances Between American and British Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/population-and-prevalence-of-french-speaking-societies/"><u>Population & Prevalence of French-Speaking Societies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-bengali-lessons-daily/"><u>Rapid Bengali Lessons (Daily)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-it-like-you-mean-it-how-to-say-i-love-you-in-32-different-languages/"><u>Say It Like You Mean It: How to Say “I Love You” In 32 Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-urdu-learning-journey-with-keywords/"><u>Starting Urdu Learning Journey with Keywords</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-enterprise-via-advanced-linguistic-education/"><u>Transform Your Enterprise via Advanced Linguistic Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-for-beginners-short-daily-dumps-of-talk-94-chars/"><u>Ukranian for Beginners: Short Daily Dumps of Talk (94 Chars)</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Essential Language Tools for International Engagement
-date: 2024-07-29T06:46:14.031Z
-updated: 2024-07-30T06:46:14.031Z
+date: 2024-11-19T18:56:50.177Z
+updated: 2024-11-24T21:29:07.000Z
 tags:
   - speak
   - english
@@ -21,8 +21,9 @@ thumbnail: https://thmb.techidaily.com/0217ab2f78f4ec22b4e817c364c8596747881cd4c
  Learning as much as a simple **_Konnichiwa_ (“hello” in Japanese)** or **_Arigato_ (“thank you” in Japanese)** can work wonders. So here’s a guide to all the**Japanese greetings** you’ll need in your Japanese adventure: from**“hello” in Japanese** to**_Moshi Moshi_** (used to say “hello” on the phone), goodbye and other**common Japanese greetings.**
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. “Hello” in Japanese
 
  If you ever watched at least one anime series, you probably already know this: **“hello” in Japanese is_Konnichiwa_ .** Rings any bell? It most probably does since**_Konnichiwa_** is undeniably the most**common Japanese greeting.** Thanks to some of the most influential anime of all time such as Dragon Ball Z, Death Note, and Naruto, a lot of people living outside Japan know at least a few [**words in Japanese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and_Konnichiwa_ is definitely one of them.
@@ -36,10 +37,11 @@ thumbnail: https://thmb.techidaily.com/0217ab2f78f4ec22b4e817c364c8596747881cd4c
 * _ossu_ – used exclusively between male friends and relatives around the same age. It’s similar to “hey dude” or “hey man” in English
 * _yaho_ – extremely informal, typically used by girls (boys more often say_yo_) but suitable for all the young people
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![honnichiwa](https://edge.mondly.com/blog/wp-content/uploads/2019/08/honnichiwa-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Kyoto, Japan” by Sorasak©
 
@@ -51,16 +53,10 @@ thumbnail: https://thmb.techidaily.com/0217ab2f78f4ec22b4e817c364c8596747881cd4c
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. Good morning in Japanese and other relevant greetings
 
 **Good morning in Japanese**   **– O_hayō gozaimasu_**  (おはよう ございます) is the best choice for greeting someone in the early morning hours (before 10:00 a.m.). Unlike_Konnichiwa_ ,   **O_hayō gozaimasu_**  a little more formal, so it’s safe to use it with people you don’t know or when you are meeting people in a position of authority (such as your boss or your teacher).
@@ -78,6 +74,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Japanese
 
@@ -99,8 +99,9 @@ This greeting is used both as a “hello” and as a “goodbye”.
  “See you soon, human” by Alain Pham©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
  We already settled that the Japanese culture is a culture of respect and politeness. Thus, learning to say**“thank you” in Japanese** is probably one of your most important tasks to complete before visiting Japan. Lucky for you, there’s nothing difficult about that.
@@ -123,12 +124,13 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * _Dou itashi mashite_ (どういたしまして) – translates to “you’re welcome”
 * _Iie_ (いいえ) – instead of_Dou itashi mashite,_ you can say_Iie,_ which means “no” as in “it was nothing”.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
  “Kyoto, Japan” by Andre Benz©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Don’t forget about the Japanese bow
 
@@ -190,8 +192,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -199,4 +199,26 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-cutting-edge-techniques-in-3d-lut-making/"><u>[New] Cutting-Edge Techniques in 3D LUT Making</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-ultimate-audio-guide-to-the-top-5-4k-recording-microphones/"><u>[New] Ultimate Audio Guide to the Top 5 4K Recording Microphones</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/choosing-the-right-device-chromebook-or-laptop-find-what-suits-you-best/"><u>Choosing the Right Device: Chromebook or Laptop - Find What Suits You Best</u></a></li>
+<li><a href="https://win-blog.techidaily.com/convert-music-files-at-no-cost-mpgmpeg-to-mp4-online-via-movavi/"><u>Convert Music Files at No Cost: MPG/MPEG to MP4 Online via Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-on-this-day-enhancing-nostalgia-and-connection/"><u>Facebook On This Day: Enhancing Nostalgia and Connection</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/identify-some-outdated-your-hardware-drivers-with-windows-device-manager-on-windows-11107-by-drivereasy-guide/"><u>Identify some outdated your hardware drivers with Windows Device Manager on Windows 11/10/7</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-oppo-a56s-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Oppo A56s 5G online without jailbreak</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-vmix-vs-wirecast-which-is-the-best-professional-live-streaming-software/"><u>In 2024, VMix VS Wirecast Which Is the Best Professional Live Streaming Software?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intrigue-italian-locals-20plus-vocabulary-guide/"><u>Intrigue Italian Locals - 20+ Vocabulary Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-on-japanese-number-acumen-today/"><u>Jumpstart on Japanese Number Acumen Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thank-you-in-chinese-xiexie-and-12-other-thank-you-chinese-phrases/"><u>Thank You in Chinese: Xièxiè and 12 Other Thank You Chinese Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-inspirational-journey-of-johannes-honterus/"><u>The Inspirational Journey of Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-power-of-music-when-learning-a-new-language-sing-that-language/"><u>The Power Of Music When Learning A New Language – Sing That Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/time-saving-tricks-for-language-proficiency/"><u>Time-Saving Tricks for Language Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timing-your-way-to-linguistic-excellence/"><u>Timing Your Way to Linguistic Excellence</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-tips-getting-your-zoom-camera-back-in-action/"><u>Troubleshooting Tips: Getting Your Zoom Camera Back in Action</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whispers-of-love-the-art-of-italian-pick-up-lines/"><u>Whispers Of Love: The Art Of Italian Pick Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-invest-in-your-future-with-german/"><u>Why Invest in Your Future with German</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Gearing Up for an AI Colleague in Communication
-date: 2024-07-29T06:46:16.434Z
-updated: 2024-07-30T06:46:16.434Z
+date: 2024-11-17T22:52:00.501Z
+updated: 2024-11-25T00:02:00.179Z
 tags:
   - speak
   - english
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/298329c51bf36530c944afd2311460eb93803d5bd
 
  Ever wished for a tutor that’s available 24/7 and helps you build your confidence when speaking English? We’ve got good news for you. **Soon you’ll have the opportunity to practice your English language skills with your new AI Conversation Partner.** The waitlist is now open and you can register to be among the first learners to meet LUNA.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Get Ready To Meet Your New Ai Conversation Partner 2")
 
 ##### Join the waitlist now
@@ -40,8 +37,9 @@ thumbnail: https://thmb.techidaily.com/298329c51bf36530c944afd2311460eb93803d5bd
  Mondly by Pearson’s new AI conversation partner changes all of this. An innovative new way to take you one step closer to achieving your language goals. Say hello to LUNA.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why LUNA?
 
 * LUNA is powered by AI. So she will not judge you, speak over you, try to complete your sentence, or get bored. She will listen, respond, help you understand when you don’t get it 100% right, and she will do that as many times as you need to build your confidence.
@@ -57,8 +55,9 @@ thumbnail: https://thmb.techidaily.com/298329c51bf36530c944afd2311460eb93803d5bd
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### About Mondly by Pearson
 
  Mondly by Pearson is a leading online language learning platform that enables over 100 million learners from 190 countries to learn 41 languages. Launched in 2014, it quickly became a household name in the mobile space, reaching the #1 position in Education in most European countries, LATAM and Asia. Mondly is also a pioneer in VR Education, with its most recent launch on Meta Quest being in the top 10 VR apps worldwide.
@@ -73,8 +72,6 @@ thumbnail: https://thmb.techidaily.com/298329c51bf36530c944afd2311460eb93803d5bd
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -82,4 +79,24 @@ thumbnail: https://thmb.techidaily.com/298329c51bf36530c944afd2311460eb93803d5bd
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-your-complete-breakdown-of-youtube-short-content/"><u>[New] 2024 Approved Your Complete Breakdown of YouTube Short Content</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-a-guide-to-blurring-and-eliminating-photo-borders/"><u>[Updated] 2024 Approved A Guide to Blurring and Eliminating Photo Borders</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-a-gamers-guide-to-seamless-ps4-recording-and-streaming-via-obs-for-2024/"><u>[Updated] A Gamer's Guide to Seamless PS4 Recording and Streaming via OBS for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/captivate-crowds-social-media-growth-hacks-for-youtube-for-2024/"><u>Captivate Crowds Social Media Growth Hacks for YouTube for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/elevate-your-search-experience-in-windows-11/"><u>Elevate Your Search Experience in Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-accent-intense-tongue-twister-training/"><u>Enhance Accent: Intense Tongue Twister Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enrich-teams-with-highest-rated-language-development-apps/"><u>Enrich Teams with Highest Rated Language Development Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entry-points-to-arabic-language-exploration/"><u>Entry Points to Arabic Language Exploration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/express-with-authority-top-50-latin-expressions-revealed/"><u>Express with Authority: Top 50 Latin Expressions Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fifty-something-language-learning-why-it-matters-now/"><u>Fifty-Something Language Learning: Why It Matters Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fondamentaux-danatomie-composition-du-corps-en-francais/"><u>Fondamentaux D'Anatomie : Composition Du Corps en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/francais-du-lunis-a-dimanche/"><u>Français Du Lunis À Dimanche</u></a></li>
+<li><a href="https://extra-information.techidaily.com/googles-portal-for-efficient-podcast-submission/"><u>Google's Portal for Efficient Podcast Submission</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-install-updated-nvidia-1080-drivers-on-your-windows-11-machine-effortlessly/"><u>How to Install Updated NVIDIA 1080 Drivers on Your Windows 11 Machine Effortlessly</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/playing-avi-files-on-your-ipad-without-the-need-for-conversion/"><u>Playing AVI Files on Your iPad Without the Need for Conversion</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/revolutionize-customer-interaction-using-cookiebot-features/"><u>Revolutionize Customer Interaction Using Cookiebot Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eyxh-kalwn-piatwn-gkreman/"><u>Ευχή Καλών Πιάτων Γκρεμάν</u></a></li>
+</ul></div>
 

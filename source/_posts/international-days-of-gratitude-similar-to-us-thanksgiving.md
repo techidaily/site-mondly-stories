@@ -1,7 +1,7 @@
 ---
 title: International Days of Gratitude Similar to US Thanksgiving
-date: 2024-11-01T16:22:21.548Z
-updated: 2024-11-05T01:30:44.119Z
+date: 2024-11-17T21:57:59.406Z
+updated: 2024-11-24T22:22:53.322Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
  Let’s learn more about these celebrations and discover seven of the most surprising countries that celebrate Thanksgiving (besides the US).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Canada
 
  The Canadian version of Thanksgiving is very similar to its American relative. You’ve got the turkey (though some choose ham or chicken instead), the mashed potatoes, the legendary gravy, the corn, and the pumpkin pie. Then there’s the name which is also ‘Thanksgiving’ – except for Quebec; there you’d call it ‘Action de Grâce’. Moreover, both [Americans and Canadians](https://www.bustle.com/life/canadian-thanksgiving-vs-american-thanksgiving) like to watch football and spend time with family on Thanksgiving. Everything seems familiar. Except for the date, of course. Canadian Thanksgiving is celebrated on the second Monday in October, much earlier than the United States which celebrates it on the fourth Thursday in November.
@@ -37,13 +41,6 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
  Yet Canadians and Americans don’t celebrate the same event. While the US celebrates the ‘feast’ shared by Pilgrims and Wampanoags in 1621, Canadian Thanksgiving goes back to 1578 (earlier than the first US celebration), when British explorer Arthur Frobisher and his crew returned from their search of the Northwest Passage. To [give thanks](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) for their safe return, they organized a feast.
 
  Other sources trace the Canadian Thanksgiving to the French settlers who came to North America in the 17th century and held feasts to celebrate their successful harvests.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2\. Germany, Austria, and Switzerland
 
@@ -57,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Grenada
 
  Although it rhymes with Canada, you should know that Grenada is actually a Caribbean country and its Thanksgiving celebration is one of the youngest in the world. Every year, on the 25th of October, Grenadians commemorate the events that took place in 1983, when Grenada’s deputy prime minister executed the prime minister and seized the power. Only nine days later, the United States military came to the rescue and restored order in a matter of weeks.
@@ -65,26 +66,10 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
 ![thanksgiving turkey](https://edge.mondly.com/blog/wp-content/uploads/2021/11/canadian-thanksgiving-960x641.jpg "What Countries Celebrate Thanksgiving? 3")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Thanksgiving turkey” by Claudio Schwarz©
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Japan
@@ -97,18 +82,15 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
  However, the freed slaves from the United States who returned to the country around 1820, brought something back from the US: the Thanksgiving celebration. By the 1880s, it was declared a national holiday and nowadays, Liberia is probably the only other country in the world that celebrates the American Thanksgiving.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. the United Kingdom
 
  Yes, Thanksgiving is celebrated in the United Kingdom. Similar to the Erntedankfest celebration in German-speaking countries, Thanksgiving in the UK is actually a [Harvest Festival](https://en.wikipedia.org/wiki/Harvest%5Ffestival) held in late September or early October.
 
  During pre-Christian times in Britain, the Saxons would offer the first sheaf of cereals to fertility gods then come together and celebrate the harvest with a supper. Many traditions remained even though Christianity arrived in Britain so the present-day Harvest Festival is celebrated even by churches.
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 8\. Brazil
 
@@ -120,6 +102,10 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Learn to give thanks in over 40 languages
 
@@ -151,24 +137,20 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-voice-of-action-crafting-moving-screenplay-conversations/"><u>[New] 2024 Approved The Voice of Action Crafting Moving Screenplay Conversations</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-converting-zip-to-subrip-srt-format-a-step-by-step-guide/"><u>[New] Converting ZIP to SubRip (SRT) Format A Step-by-Step Guide</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-captureit-all-revisiting-recordmax-users/"><u>[Updated] CaptureIt All! Revisiting 'RecordMax' Users</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-unleashing-your-ads-potential-maximizing-revenue-with-fb-animation-strategies-for-2024/"><u>[Updated] Unleashing Your Ad's Potential Maximizing Revenue with FB Animation Strategies for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unraveling-untethered-art-top-public-domain-gems/"><u>[Updated] Unraveling Untethered Art Top Public Domain Gems</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/avoid-the-quake-optimal-tripod-placement-for-stellar-vlogs/"><u>Avoid the Quake Optimal Tripod Placement for Stellar Vlogs</u></a></li>
-<li><a href="https://network-issues.techidaily.com/elevate-gaming-nvidias-rtx210-win11-driver-upgrade/"><u>Elevate Gaming: NVIDIA's RTX210 Win11 Driver Upgrade</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-vernacular-intersections-with-english/"><u>Global Vernacular Intersections with English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/harmonizing-diversity-techniques-for-effective-multicultural-engagement/"><u>Harmonizing Diversity: Techniques for Effective Multicultural Engagement</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-honor-v-purse-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Honor V Purse Phone? Unlock It Now</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-mastery-after-age-50-motivation-and-meaning/"><u>Language Mastery After Age 50: Motivation and Meaning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/puedes-expresarte-como-decir-colores/"><u>Puedes Expresarte: Cómo Decir Colores</u></a></li>
-<li><a href="https://win-info.techidaily.com/simple-one-step-process-erasing-your-data-from-an-iphone-prior-to-resale/"><u>Simple One-Step Process: Erasing Your Data From an iPhone Prior to Resale</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spelling-slip-ups-exposed-englands-leading-lexical-errors/"><u>Spelling Slip-Ups Exposed: England's Leading Lexical Errors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/svenska-hjartefar-ditt-avstand/"><u>Svenska Hjärtefär: Ditt Avstånd</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-giant-whatsapp-sues-over-indian-it-regulation-concerns/"><u>Tech Giant WhatsApp Sues Over Indian IT Regulation Concerns</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-importance-of-learning-a-foreign-language/"><u>The Importance of Learning a Foreign Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-mastery-in-international-language-testing/"><u>Unlocking Mastery in International Language Testing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-israel-travel-plan-key-insights-and-essential-dialogue/"><u>Your Israel Travel Plan: Key Insights & Essential Dialogue</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-the-essential-filmmakers-toolkit-a-guide-to-audio-recording/"><u>[New] 2024 Approved The Essential Filmmaker's Toolkit A Guide to Audio Recording</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-frolics-of-fun-dissecting-the-goofy-movie/"><u>[Updated] 'Frolics of Fun' - Dissecting 'The Goofy Movie'</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-facebook-copyright-what-if-my-videos-removed-immediately-due-to-copyright/"><u>[Updated] 2024 Approved Facebook Copyright | What If My Videos Removed Immediately Due to Copyright?</u></a></li>
+<li><a href="https://change-location.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/dearmob-user-manual-effortlessly-move-music-from-ios-device-to-pc-with-windows-os/"><u>DearMob User Manual: Effortlessly Move Music From iOS Device to PC with Windows OS</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/explore-the-enhanced-self-service-repair-functionality-by-apple-integrating-remote-diagnostic-tools-for-new-models-like-iphone-15-and-m2-mac-insights-on-zdn154/"><u>Explore the Enhanced Self Service Repair Functionality by Apple, Integrating Remote Diagnostic Tools for New Models Like iPhone 15 and M2 Mac - Insights on ZDNET</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/impact-of-grammar-on-linguistic-acquisition/"><u>Impact of Grammar on Linguistic Acquisition</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-prime-steadicam-devices-for-excellence-in-filmmaking-aviation/"><u>In 2024, Prime Steadicam Devices for Excellence in Filmmaking Aviation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-systemes-du-corps-humain-introduction-et-explication-en-francais/"><u>Les Systèmes Du Corps Humain: Introduction Et Explication en Français</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/simple-steps-how-to-bridge-your-laptop-and-tv-using-an-hdmi-link/"><u>Simple Steps: How To Bridge Your Laptop and TV Using an HDMI Link</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-for-the-playful-and-curious-minds-of-kids/"><u>Spanish for the Playful and Curious Minds of Kids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ranking-of-studied-languages-outside-us-borders/"><u>The Ranking of Studied Languages Outside U.S. Borders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-compendium-of-basic-russian-dialogues/"><u>The Ultimate Compendium of Basic Russian Dialogues</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-monitor-not-receiving-signal-easy-fixes-walkthrough/"><u>Troubleshooting Monitor Not Receiving Signal: Easy Fixes Walkthrough</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vital-russian-communication-tools-for-explorers/"><u>Vital Russian Communication Tools for Explorers</u></a></li>
 </ul></div>
 

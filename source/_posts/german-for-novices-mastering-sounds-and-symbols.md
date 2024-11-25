@@ -1,7 +1,7 @@
 ---
 title: "German for Novices: Mastering Sounds & Symbols"
-date: 2024-07-29T06:46:36.167Z
-updated: 2024-07-30T06:46:36.167Z
+date: 2024-11-23T21:13:19.555Z
+updated: 2024-11-25T00:01:27.936Z
 tags:
   - speak
   - english
@@ -27,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/dfca7fb0aa6438e6377385ff2f472549907a4325f
  Considering you’re already familiar with all the other letters, let’s continue by taking a closer look at these four special letters: ß, ä, ö and ü.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### ß also known as ‘sharp S’, ‘eszett’ or ‘scharfes S’
 
  Although it looks different from everything you’ve ever seen in English, ß shouldn’t intimidate you. Vaguely resembling a capital ‘B’,**the letter ß is pronounced like a sharp S** (like the ‘s’ in ‘see’) – hence its name ‘eszett’ or ‘scharfes S’.
@@ -38,8 +39,9 @@ thumbnail: https://thmb.techidaily.com/dfca7fb0aa6438e6377385ff2f472549907a4325f
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### German umlauts: ä, ö, ü
 
  While highly representative for the German language, the German umlauts are ‘guilty’ of making the most uncommon sounds to English speakers.
@@ -54,14 +56,16 @@ thumbnail: https://thmb.techidaily.com/dfca7fb0aa6438e6377385ff2f472549907a4325f
 
 Now round off your lips and start practicing!
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## German pronunciation guide for single letters
 
  Now that we’ve settled the matters with ß, ä, ö and ü, it’s time to move on to more familiar letters and see how their pronunciation differs from English.
@@ -77,8 +81,9 @@ Now round off your lips and start practicing!
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## German pronunciation guide for letter combinations
 
  Just a few more examples and you’ll soon be ready to speak like a German! Let’s see how you should pronounce certain letter combinations in German:
@@ -96,9 +101,6 @@ Now round off your lips and start practicing!
 
  Did you recognize_ze rules_ in this example?
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to pronounce long German words
 
 _Ja,_ the German language is famous for its very long words, but once again – this shouldn’t intimidate you. Most [German words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are, in fact, compounds.
@@ -136,8 +138,6 @@ _Tschüss!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -145,4 +145,22 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-rise-to-stardom-on-instagram-adopting-tiktoks-winning-strategies/"><u>[Updated] In 2024, Rise to Stardom on Instagram Adopting TikTok's Winning Strategies</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-a-comprehensive-guide-to-understanding-and-using-slug-lines/"><u>2024 Approved A Comprehensive Guide to Understanding and Using Slug Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eternal-value-with-mondlys-premium-access/"><u>Eternal Value with Mondly's Premium Access</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expand-your-mind-benefits-of-multilingualism-in-todays-world/"><u>Expand Your Mind: Benefits of Multilingualism in Today's World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expand-your-verbal-horizons/"><u>Expand Your Verbal Horizons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expert-recommended-5-tech-for-linguists-and-instructors/"><u>Expert Recommended 5 Tech for Linguists & Instructors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-frontiers-exceptional-language-workshops/"><u>Fluent Frontiers: Exceptional Language Workshops</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-days-lalphabet-de-la-semaine/"><u>French Days: L’Alphabet De La Semaine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/futureling-mastering-languages-at-dubai-expo-2020/"><u>FutureLing: Mastering Languages at Dubai Expo 2020</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-amd-radeon-hd-ebt-7700-graphics-card-drivers-for-seamless-performance/"><u>Get the Newest AMD Radeon HD Ebt 7700 Graphics Card Drivers for Seamless Performance</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-the-funniest-memes-download-now/"><u>In 2024, The Funniest Memes, Download Now</u></a></li>
+<li><a href="https://techtrends.techidaily.com/nintendo-switch-photography-101-taking-plus-sharing-your-game-snaps-with-ease/"><u>Nintendo Switch Photography 101: Taking + Sharing Your Game Snaps with Ease</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-manual-the-art-of-digital-sound-note-taking-for-2024/"><u>Ultimate Manual The Art of Digital Sound Note-Taking for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-recent-user-drop/"><u>Understanding Facebook's Recent User Drop</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210313844-9781401963514-you-are-the-medicine/"><u>You Are the Medicine | Free Book</u></a></li>
+</ul></div>
 

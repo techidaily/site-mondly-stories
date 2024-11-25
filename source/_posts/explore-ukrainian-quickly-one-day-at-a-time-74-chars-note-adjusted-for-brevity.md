@@ -1,7 +1,7 @@
 ---
 title: "Explore Ukrainian Quickly, One Day at a Time (74 Chars) - Note: Adjusted for Brevity."
-date: 2024-07-29T06:48:14.490Z
-updated: 2024-07-30T06:48:14.490Z
+date: 2024-11-22T16:32:58.254Z
+updated: 2024-11-24T18:56:09.677Z
 tags:
   - speak
   - english
@@ -19,8 +19,9 @@ thumbnail: https://thmb.techidaily.com/230adad01721806c33e8b8bec3c60db44af37ad23
  Ukrainian is a fascinating language with a long history of foreign influences. Due to it being profoundly different from English, many people consider learning Ukrainian a personal triumph. And so should you. Here’s everything you need to know if you want to learn Ukrainian fast.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Ukrainian language in a nutshell
 
  Ukrainian, known as_украї́нська мо́ва_ (romanized:[_Ukraïns’ka mova_](https://www.britannica.com/topic/Ukrainian-language) ) to Ukrainians, is the official language of Ukraine and the descendant of the colloquial language used in Kievan Rus between the 10th and the 13th century. From there on, the language developed into what was called ‘the Ruthenian language’. As a result of Ukraine’s long political subordination, Ukrainian had almost no literary expression until the 18th century when the modern literary Ukrainian language was born.
@@ -30,8 +31,9 @@ thumbnail: https://thmb.techidaily.com/230adad01721806c33e8b8bec3c60db44af37ad23
  Additionally, Ukrainian’s vocabulary also includes a large number of words borrowed from [Polish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) during the Polish rule from the 13th to the 17th centuries.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Ukrainian hard to learn?
 
  Due to being a Slavic language, Ukrainian is one of the hardest languages to learn by native English speakers. In fact, according to [the FSI](https://www.state.gov/foreign-language-training/) (Foreign Service Institute) of the US government, an English speaker would need about 1100 class hours or 44 weeks of practice to become fluent in Ukrainian. This makes Ukrainian as hard to learn as Polish, Icelandic or Finnish. However, you don’t have to get discouraged. Japanese, Chinese and Korean are still much harder to learn than Ukrainian.
@@ -39,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/230adad01721806c33e8b8bec3c60db44af37ad23
  Besides, choosing the right [Ukrainian course](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6604&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6604?mother%5Flang=en%5Fus?target%5Flang=ua&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6604?mother%5Flang=en%5Fus?target%5Flang=ua) can work wonders. Read on to discover what is the best way to learn Ukrainian fast.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Start with the Ukrainian alphabet
 
  One of the reasons why Ukrainian is a little bit harder to learn is its alphabet. As you probably already know, the Ukrainian language uses the same alphabet as Russian – the Cyrillic alphabet.
@@ -52,8 +55,9 @@ thumbnail: https://thmb.techidaily.com/230adad01721806c33e8b8bec3c60db44af37ad23
  And you know what’s the best thing about it? Almost all the words in Ukrainian can be pronounced the same way they are written. As soon as you will know how to pronounce each individual Ukrainian letter, you will also be able to read out loud in Ukrainian.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10 basic Ukrainian words and phrases you can learn right now
 
  Are you excited to learn Ukrainian? Let’s start small. Here are the top 10 basic Ukrainian words and phrases that everyone should know:
@@ -72,8 +76,9 @@ thumbnail: https://thmb.techidaily.com/230adad01721806c33e8b8bec3c60db44af37ad23
  Here’s a glimpse of how some of these Ukrainian words sound when spoken by a fluent speaker:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to learn Ukrainian fast with Mondly
 
  Now let’s discuss the real reason why you’re here: how to learn Ukrainian fast.
@@ -103,8 +108,6 @@ thumbnail: https://thmb.techidaily.com/230adad01721806c33e8b8bec3c60db44af37ad23
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -112,4 +115,19 @@ thumbnail: https://thmb.techidaily.com/230adad01721806c33e8b8bec3c60db44af37ad23
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-14-effective-methods-zero-budget-webinar-recording-tips-for-2024/"><u>[New] 14 Effective Methods Zero Budget Webinar Recording Tips for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-amplify-engagement-a-compilation-of-powerful-30-freegame-tags/"><u>[New] 2024 Approved Amplify Engagement A Compilation of Powerful 30 FreeGame Tags</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-crucial-steps-in-archiving-lol-matchups/"><u>[Updated] In 2024, Crucial Steps in Archiving LOL Matchups</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-the-path-to-perfect-presence-on-zoom-platforms/"><u>[Updated] In 2024, The Path to Perfect Presence on Zoom Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adopt-global-communication-skills-with-mondlys-virtual-reality-app/"><u>Adopt Global Communication Skills with Mondly's Virtual Reality App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ar-in-language-learning-mondlys-innovative-approach/"><u>AR in Language Learning: Mondly's Innovative Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-glossary-giants-most-favored-language-troika/"><u>Asia's Glossary Giants: Most Favored Language Troika</u></a></li>
+<li><a href="https://common-error.techidaily.com/definitive-fixes-for-non-responsive-print-screen-on-pcs-running-windows-11-or-10/"><u>Definitive Fixes for Non-Responsive Print Screen on PCs Running Windows 11 or 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empower-your-english-with-oxfords-simplified-approach/"><u>Empower Your English with Oxford's Simplified Approach</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-honor-magic-6-pro-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Honor Magic 6 Pro to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016709446-solving-sound-difficulties-on-a-windows-10-system-try-these-5-simple-steps/"><u>Solving Sound Difficulties on a Windows 10 System? Try These 5 Simple Steps</u></a></li>
+</ul></div>
 

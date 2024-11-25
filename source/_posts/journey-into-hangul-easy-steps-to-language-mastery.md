@@ -1,7 +1,7 @@
 ---
 title: "Journey Into Hangul: Easy Steps to Language Mastery"
-date: 2024-11-11T04:42:10.650Z
-updated: 2024-11-15T00:55:14.720Z
+date: 2024-11-17T22:56:35.872Z
+updated: 2024-11-24T19:44:40.637Z
 tags:
   - speak
   - english
@@ -40,16 +40,13 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
 
 ![hangul sejong](https://edge.mondly.com/blog/wp-content/uploads/2020/05/hangul-sejong-600x400.jpg "Korean Alphabet – A Quick Guide To Hangul 8")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “King Sejong the Great, creator of Hangul” by Mathew Schwartz©
 
  A document published in 1446 and discovered in 1940 explains that the design of the Korean consonants mimics their articulator’s shape and phonetic features when pronouncing them and the vowels are based on the principles of vowel harmony and yin and yang.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Opposition and revival**
 
@@ -62,6 +59,10 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
  Then, thanks to Korean nationalism and Western missionaries’ promotion of the Korean alphabet,**Hangul** (a term coined by linguist Ju Si-gyeong in 1912)**was adopted in official documents for the first time in 1894.**
 
  The use of Hangul met even more opposition and reforms under Japanese rule, but it eventually became the exclusive writing system in both North and South Korea after 1950.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Guide to the Korean Alphabet
 
@@ -83,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
  As mentioned earlier,**Hangul is a featural writing system.** This means that Korean symbols mimic the shape of the mouth made when the corresponding sound is created. Absolutely fascinating! Let’s go into a little more detail and see how to pronounce the letters of the Korean alphabet.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Korean Alphabet – A Quick Guide To Hangul 9")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Do you want to learn Korean? 🫰
 
@@ -114,13 +119,6 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
 
  It may seem a bit overwhelming now, but with some study, you’ll eventually master all these rules. The secret is to see all the Korean symbols in action in an actual context. Just make sure you start practicing [Korean with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5015&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5015?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5015?mother%5Flang=en%5Fus?target%5Flang=ko) and you won’t be sorry. Speaking your first words in Korean takes just 10 minutes a day.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Comprehensive Guide to Korean Vowel Pronunciation
 
  The Korean vowels are generally separated into two categories: monophthongs and diphthongs. While monophthongs are produced with a single articular movement, diphthongs feature an articulatory change and typically consist of two elements: a glide (or a semivowel) and a monophthong.
@@ -128,6 +126,10 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
  The best part about Korean vowels is that they are easier to learn because **they don’t change depending on their position in the syllable.** Here’s a Korean alphabet chart to help you with vowel pronunciation:
 
 ![korean vowels chart](https://edge.mondly.com/blog/wp-content/uploads/2020/05/korean-vowels-chart-600x291.jpg "Korean Alphabet – A Quick Guide To Hangul 11")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Korean vowels chart for beginners
 
@@ -137,18 +139,15 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
 
 ![bts](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdHFmbmtibDFnOHU4YnM0YnQ5Y2VxNDBtbW9sMXZ5MGRodTY3bWI3dCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/McOXfLCpYA6mAQkKDj/giphy-downsized-large.gif "Korean Alphabet – A Quick Guide To Hangul 12")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Korean Letters Design
 
  The alphabetic order of the Korean alphabet is called_ganada_ (가나다 순) and it does not mix consonants and vowels. Rather, consonants come first and vowels come next.
 
  Now, when you’re learning Korean for beginners, it is sometimes useful to know the names of the Korean letters. If you don’t know how to pronounce a word, you could spell it using these names. However, they should only be used as a guide in the beginning. Don’t rely on this kind of trick for a long period of time, or you’ll risk never mastering the art of the Hangul.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Korean Alphabet Chart: Consonant Names
 
@@ -175,6 +174,10 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
 | ㅎ                | 히읗                    | hieut              |
 
  As you can see, the table also includes the complex consonants. Let’s move on to vowels and see what their names are!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Korean Alphabet Chart: Vowel Names
 
@@ -243,17 +246,7 @@ Moving to vowels, their design is based on three elements:
 ![korean alphabet hangul](https://edge.mondly.com/blog/wp-content/uploads/2020/05/korean-alphabet-hangul-e1590392634824-600x600.jpg "Korean Alphabet – A Quick Guide To Hangul 13")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Additional Tips for Learning Hangul
@@ -286,19 +279,6 @@ Before you go, make sure you check out these frequently asked questions.
 
 ---
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Speak Korean fluently in just 10 minutes a day
 
  Do you want to speak Korean fluently? Get Mondly, the award-winning language learning app that will help you speak Korean as if it were your first language.
@@ -324,18 +304,22 @@ Before you go, make sure you check out these frequently asked questions.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-quick-step-by-step-turning-pictures-into-youtube-desktop-thumbnails/"><u>[New] Quick Step-By-Step Turning Pictures Into YouTube Desktop Thumbnails</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-understanding-the-key-of-youtube-aspect-ratios-for-success/"><u>[New] Understanding the Key of YouTube Aspect Ratios for Success</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-ultimate-tutorial-from-webp-to-jpeg/"><u>2024 Approved Ultimate Tutorial From WebP to JPEG</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-linguists-guide-to-croatia-mastering-114-key-phrases-for-your-exciting-journey/"><u>A Linguist’s Guide to Croatia: Mastering 114 Key Phrases for Your Exciting Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conocimiento-basico-de-tiempo-en-espanol/"><u>Conocimiento Básico De Tiempo en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-conduits-pathways-to-effective-international-dialogue/"><u>Cultural Conduits: Pathways to Effective International Dialogue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-latvian-mastering-in-under-an-hour/"><u>Daily Dose of Latvian: Mastering in Under an Hour</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effortlessly-learn-korean-a-guide-to-the-leading-6-resources/"><u>Effortlessly Learn Korean: A Guide to the Leading 6 Resources</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevating-your-professional-lexicon-a-strategy/"><u>Elevating Your Professional Lexicon: A Strategy</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-tecno-spark-10-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Tecno Spark 10 Pro without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/mastery-in-making-gifs-into-stickers-on-messaging-platforms-with-this-guide-for-2024/"><u>Mastery in Making Gifs Into Stickers on Messaging Platforms with This Guide for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/samsung-unboxed-preordering-process-for-galaxy-z-fold-tab-s9-and-watch-6-at-rock-bottom-prices/"><u>Samsung Unboxed: Preordering Process for Galaxy Z Fold, Tab S9 & Watch #6 at Rock-Bottom Prices!</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/solutions-for-dealing-with-a-missing-fm20dll-in-windows-systems/"><u>Solutions for Dealing with a Missing fm20.dll in Windows Systems</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-elevate-your-reality-best-of-samsung-gear-vr-titles/"><u>[Updated] In 2024, Elevate Your Reality Best of Samsung Gear VR Titles</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-odins-last-hope-the-ragnarok-revelation/"><u>[Updated] Odin's Last Hope The Ragnarok Revelation</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/assembly-station-for-2024/"><u>Film Assembly Station for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-classroom-heroes-vocabulary-mosaic/"><u>Global Classroom Heroes: Vocabulary Mosaic</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-honor-magic-5-lite-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Honor Magic 5 Lite to Another | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-communication-standouts/"><u>International Communication Standouts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/latest-updates-and-features-movavi-video-converter-for-macos/"><u>Latest Updates and Features: Movavi Video Converter for macOS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/memorable-pick-up-lines-in-german-for-every-occasion/"><u>Memorable Pick-Up Lines in German for Every Occasion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestone-1500-days-of-priceless-education/"><u>Milestone: 1,500 Days of Priceless Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-offering-free-mobile-language-courses-for-millions-of-ukrainian-refugees/"><u>Mondly Is Offering Free Mobile Language Courses for Millions of Ukrainian Refugees</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ps5s-sole-proprietor-godfall-an-underwhelming-debut-for-exclusive-gaming-experience/"><u>PS5's Sole Proprietor, Godfall - An Underwhelming Debut for Exclusive Gaming Experience</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/quick-troubleshooting-tips-for-magic-mouse-tracking-glitches/"><u>Quick Troubleshooting Tips for Magic Mouse Tracking Glitches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thrilling-techniques-for-latin-learning/"><u>Thrilling Techniques for Latin Learning</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-amazonbasics-6-sheets-shredder-on-a-shoestring-budget-our-unbiased-review/"><u>Top Rated AmazonBasics 6-Sheets Shredder on a Shoestring Budget: Our Unbiased Review</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/uncover-the-secrets-to-quieting-tiktoks-background-noise-simple-tricks-revealed-for-2024/"><u>Uncover the Secrets to Quieting TikToks Background Noise Simple Tricks Revealed for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-belgian-language-etiquette/"><u>Understanding Belgian Language Etiquette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unfolding-horizons-at-mondlylanguages-a-visionary-saga/"><u>Unfolding Horizons at MondlyLanguages - A Visionary Saga</u></a></li>
 </ul></div>
 

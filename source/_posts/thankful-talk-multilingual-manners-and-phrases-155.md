@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2024-11-08T23:28:06.056Z
-updated: 2024-11-15T06:23:16.051Z
+date: 2024-11-21T16:49:41.614Z
+updated: 2024-11-24T17:21:36.726Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
 
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
 
@@ -56,13 +60,14 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -89,10 +94,7 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -125,19 +127,22 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagram-engagement-strategies-with-these-powerful-25-hashtags/"><u>[Updated] In 2024, Instagram Engagement Strategies with These Powerful 25 Hashtags</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-insta-flip-techniques-rotate-videos-for-max-impact/"><u>2024 Approved Insta-Flip Techniques Rotate Videos for Max Impact</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-masterclass-guide-15-tripods-perfect-for-gopro/"><u>2024 Approved Masterclass Guide 15 Tripods Perfect for GoPro</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-unlocking-the-art-of-iphone-podcast-downloads-with-ease/"><u>2024 Approved Unlocking the Art of iPhone Podcast Downloads with Ease</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprender-y-leer-la-hora-el-primer-paso-en-espanol/"><u>Comprender Y Leer La Hora: El Primer Paso en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-the-heart-of-uk-vernacular/"><u>Discovering the Heart of UK Vernacular</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578993417-dive-into-a-new-culture-mastering-croatian-here-are-the-top-7-reasons/"><u>Dive Into a New Culture - Mastering Croatian: Here Are The Top 7 Reasons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-haste-make-fluent-urdu-within-minutes/"><u>Embrace Haste: Make Fluent Urdu Within Minutes</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-oneplus-nord-ce-3-5g-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring OnePlus Nord CE 3 5G to PC? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-from-the-iphone-12-pro-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock From the iPhone 12 Pro Without Previous Owner?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576640752-learn-slovak-swiftly-with-our-quick-10-minute-online-methods/"><u>Learn Slovak Swiftly with Our Quick 10-Minute Online Methods</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/mastering-ai-defense-nightshade-for-authentic-art-preservation/"><u>Mastering AI Defense: Nightshade for Authentic Art Preservation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580674820-mondly-merges-with-pearson-academics-inc/"><u>Mondly Merges with Pearson Academics Inc.</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/step-by-step-approach-to-crafting-3d-text-in-photoshop-for-2024/"><u>Step-by-Step Approach to Crafting 3D Text in Photoshop for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-journey-into-the-enigma-discovering-hidden-emoji-messages/"><u>[New] 2024 Approved Journey Into the Enigma Discovering Hidden Emoji Messages</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-harmonic-hues-infusing-your-social-media-content-with-tunes/"><u>[Updated] In 2024, Harmonic Hues Infusing Your Social Media Content with Tunes</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-pixelprofiler-yearly-review-of-best-screen-capturing-tools/"><u>[Updated] In 2024, PixelProfiler Yearly Review of Best Screen Capturing Tools</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-installation-secure-your-brother-hl-l2340dw-printer-with-windows-drivers-download/"><u>Easy Installation - Secure Your Brother HL-L2340DW Printer with Windows Drivers Download</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-5-solutions-for-motorola-edge-40-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Motorola Edge 40 Unlock Without Password</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-branded-content-collaborations-on-streaming-services/"><u>In 2024, Branded Content Collaborations on Streaming Services</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-youtube-titles-crafted-by-ai/"><u>In 2024, Top YouTube Titles Crafted by AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-love-jargon-for-a-special-day/"><u>International Love Jargon for a Special Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridge-salutations-across-nations/"><u>Language Bridge: Salutations Across Nations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-in-flux-popular-slang-words-and-their-meanings/"><u>Language in Flux: Popular Slang Words and Their Meanings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-pronunciation-via-intense-tongue-twisters/"><u>Mastering English Pronunciation via Intense Tongue Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-croatian-conversation-travels-must-have-skillset/"><u>Mastering the Art of Croatian Conversation: Travel's Must-Have Skillset</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/practica-controlada-como-decir-colores/"><u>Práctica Controlada: Cómo Decir Colores</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/scaling-down-macos-from-sierra-to-el-capitan-os-for-2024/"><u>Scaling Down MacOS From Sierra To El Capitan OS for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/skyrim-on-nintendo-switch-a-deep-dive-into-an-enchanting-rpg-experience/"><u>Skyrim on Nintendo Switch: A Deep Dive Into an Enchanting RPG Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-dance-of-dialogues-across-dialectal-divides/"><u>The Dance of Dialogues Across Dialectal Divides</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-future-of-user-assistance-with-mondlys-qanda-update/"><u>Unveiling the Future of User Assistance with Mondly’s Q&A Update</u></a></li>
 </ul></div>
 

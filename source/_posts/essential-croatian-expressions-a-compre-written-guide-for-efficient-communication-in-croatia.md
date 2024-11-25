@@ -1,7 +1,7 @@
 ---
 title: Essential Croatian Expressions – A Compre Written Guide for Efficient Communication in Croatia
-date: 2024-07-29T06:47:59.601Z
-updated: 2024-07-30T06:47:59.601Z
+date: 2024-11-23T16:28:56.300Z
+updated: 2024-11-24T20:44:30.714Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/ac052320a70f53cd4defac365f581dfb457a1cc20
 6. [Croatian phrases about love](#croatian-love)
 7. [Learn Croatian for your shopping sprees](#croatian-shopping)
 8. [Days of the week and numbers in Croatian](#numbers-in-croatian)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Hello in Croatian and other useful greetings
 
@@ -60,10 +64,11 @@ thumbnail: https://thmb.techidaily.com/ac052320a70f53cd4defac365f581dfb457a1cc20
 * Yes –_Da_
 * No –_Ne_
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![croatian phrasebook](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-phrasebook-1024x683.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Plitvice Lakes National Park” by Jonatan Pie©
 
@@ -90,9 +95,6 @@ thumbnail: https://thmb.techidaily.com/ac052320a70f53cd4defac365f581dfb457a1cc20
 
  Food is all that some of us can think about. Yep. We all know that one friend who has to try every new food when visiting a new country. We sometimes are that friend. But who can blame the gourmand? Food is soooo good! And Croatia is nothing short of delightful food. You’ll absolutely need to try Peka (baking meat, seafood, and veggies), Brudet (fish stew), Stuffed peppers, Zagreb Schnitzel and the addictive Fritule dessert. So here’s**how to order drinks or food in Croatian restaurants:**
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![croatian translation](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-translation-1024x694.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 3")
 
  “Delicious” by Cel Lisboa©
@@ -123,14 +125,15 @@ thumbnail: https://thmb.techidaily.com/ac052320a70f53cd4defac365f581dfb457a1cc20
 * Very pleasant, thank you. –_Vrlo ugodan, hvala Vam._
 * Here is your bill, please look it over. –_Izvolite Vas Racun, molimo pregledajte ga._
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Croatian to English for tourists who want to have fun
 
  You’ll have to admit that parties connect people. Phones used to do that, but not anymore. Now going to a party is the best way to connect with people and get to know a new culture. Thus, if you have already planned your trip to Croatia, also squeeze in a night out to party and enjoy the Old Town from another perspective. It may reveal itself differently.
 
 ![croatian to english](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-to-english-960x766.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Cavtat, Croatia” by Conor Rees©
 
@@ -142,6 +145,10 @@ thumbnail: https://thmb.techidaily.com/ac052320a70f53cd4defac365f581dfb457a1cc20
 * How much does a ticket cost? –_Kolika je cijena karte?_
 * One ticket, please. –_Jednu kartu bih Vas molio._
 * Are there seats available? –_Ima li slobodnih mjesta?_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Croatian phrases about love
 
@@ -162,16 +169,14 @@ thumbnail: https://thmb.techidaily.com/ac052320a70f53cd4defac365f581dfb457a1cc20
 * Would you like to have dinner with me? –_Bi li htio sa mnom na večeru?_
 * I love you. –_Volim te._
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![croatian words](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-words-1024x682.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Primošten, Croatia” by Hrvoje Klaric©
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## 7\. Learn Croatian for your shopping sprees
 
  Choosing souvenirs for the entire family is the most atrocious punishment the humanity has ever seen. The stress of shopping for souvenirs often gets to ruin our sleep until very last evening of our vacation. But there’s a solution! Plan your shopping spree for the first day of the trip and just get it over with.
@@ -183,9 +188,6 @@ thumbnail: https://thmb.techidaily.com/ac052320a70f53cd4defac365f581dfb457a1cc20
 * What would you like? –_Što bi željela?_
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. Days of the week and numbers in Croatian
 
  The days of the week and the numbers are absolutely essential words in any language. Sooner or later you’ll need them when roaming the world. So here are the days of the week and the**numbers in Croatian.**
@@ -245,8 +247,6 @@ thumbnail: https://thmb.techidaily.com/ac052320a70f53cd4defac365f581dfb457a1cc20
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -254,4 +254,20 @@ thumbnail: https://thmb.techidaily.com/ac052320a70f53cd4defac365f581dfb457a1cc20
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-identifying-causes-for-disappearing-youtube-shorts-thumbnails/"><u>[New] 2024 Approved Identifying Causes for Disappearing YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-boost-your-creativity-on-instagram-with-free-filters/"><u>[New] Boost Your Creativity on Instagram with Free Filters</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-boost-your-views-optimal-hashtags-for-video-success/"><u>[New] In 2024, Boost Your Views Optimal Hashtags for Video Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendendo-a-falar-portugues-com-todas-as-variedades-de-saudacoes/"><u>Aprendendo a Falar Português Com Todas as Variedades De Saudações</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-5-multilingual-learning-tools-for-educators/"><u>Best 5 Multilingual Learning Tools for Educators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-flag-banter-understanding-pirate-language-basics/"><u>Black Flag Banter: Understanding Pirate Language Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/communicating-thanks-a-language-explorer-point-of-view-148-under-156-but-original-concept/"><u>Communicating Thanks: A Language Explorer' Point of View (148) [Under 156 but Original Concept]</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-vivo-s17-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Vivo S17</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/creative-writing-revolution-with-chatgpt-uncovering-its-strengths-and-weaknesses/"><u>Creative Writing Revolution with ChatGPT – Uncovering Its Strengths and Weaknesses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579855799-mondlys-lifetime-plan-zero-price/"><u>Mondly's Lifetime Plan: Zero Price!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/study-smart-save-harder-the-ultimate-guide-to-tidal-student-rebates/"><u>Study Smart, Save Harder: The Ultimate Guide to Tidal Student Rebates</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-holy-sees-modern-correspondence-can-you-email-pope-francis/"><u>The Holy See's Modern Correspondence: Can You Email Pope Francis?</u></a></li>
+<li><a href="https://windows11.techidaily.com/top-5-ways-copernic-enhances-your-work-from-home-experience/"><u>Top 5 Ways Copernic Enhances Your Work-From-Home Experience</u></a></li>
+</ul></div>
 

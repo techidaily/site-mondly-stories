@@ -1,7 +1,7 @@
 ---
 title: Introducing the First Augmented Reality Language App with Speech Recognition
-date: 2024-10-30T16:54:57.608Z
-updated: 2024-11-05T06:44:41.056Z
+date: 2024-11-20T00:15:00.884Z
+updated: 2024-11-24T18:58:27.404Z
 tags:
   - speak
   - english
@@ -26,11 +26,19 @@ Here’s a video showcasing Mondly AR:
 
 ##
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## We take learning out of the books and bring it to life into your living room using augmented reality
 
  The new experience we created helps you develop a strong sense of the language you want to learn through highly realistic visual lessons and purposeful conversations. This approach is aiming to stimulate you to learn languages not because you have to, but because [it’s genuinely fun.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
 
@@ -38,16 +46,13 @@ Here’s a video showcasing Mondly AR:
 
 ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
 
@@ -65,16 +70,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -91,10 +87,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -126,16 +119,24 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-precision-techniques-for-high-quality-overwatch-saves/"><u>[New] In 2024, Precision Techniques for High-Quality Overwatch Saves</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-perfect-your-youtube-experience-add-timestamps-efficiently/"><u>[Updated] In 2024, Perfect Your YouTube Experience Add Timestamps Efficiently</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-smart-strategies-for-entrepreneurial-video-marketing/"><u>2024 Approved SMART Strategies for Entrepreneurial Video Marketing</u></a></li>
-<li><a href="https://win-answers.techidaily.com/increasing-frame-rate-and-reducing-lag-optimizing-gameplay-on-the-ascent/"><u>Increasing Frame Rate & Reducing Lag: Optimizing Gameplay on 'The Ascent'</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapid-learners-rise-top-three-cognitive-language-drills/"><u>Rapid Learners Rise: Top Three Cognitive Language Drills</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/recovering-files-on-a-hitachi-hard-drive-a-step-by-step-guide-with-four-strategies/"><u>Recovering Files on a Hitachi Hard Drive: A Step-by-Step Guide with Four Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-with-confidence-selecting-the-best-6-websites-for-korean-learning/"><u>Speak With Confidence: Selecting the Best 6 Websites for Korean Learning</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/step-by-step-guide-inserting-text-into-your-images/"><u>Step-by-Step Guide: Inserting Text Into Your Images</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-unseen-language-threads-between-anatolia-and-hanguk/"><u>The Unseen Language Threads Between Anatolia & Hanguk</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-for-resolving-ethernet-connectivity-problems-in-windows-11-and-7/"><u>Troubleshooting Steps for Resolving Ethernet Connectivity Problems in Windows 11 and 7</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unraveling-everyday-vernacular-a-guide-to-prevalent-colloquialisms-and-definitions/"><u>Unraveling Everyday Vernacular: A Guide to Prevalent Colloquialisms & Definitions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-showcasing-iconic-ae-templates-for-social-media/"><u>[New] In 2024, Showcasing Iconic AE Templates for Social Media</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-how-to-use-supplemental-video-sequences-effectively/"><u>[Updated] How to Use Supplemental Video Sequences Effectively</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/adobe-validation-skip-pop-ups-on-pc/"><u>Adobe Validation: Skip Pop-Ups on PC</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/breezy-collage-creation-with-picshots-innovations/"><u>Breezy Collage Creation with Picshot's Innovations</u></a></li>
+<li><a href="https://driver-install.techidaily.com/bridge-your-gadgetrances-with-easy-driver-downloads/"><u>Bridge Your Gadget'rances with Easy Driver Downloads</u></a></li>
+<li><a href="https://games-able.techidaily.com/bypass-xbox-ultimate-price-hike-with-smart-strategies/"><u>Bypass Xbox Ultimate Price Hike with Smart Strategies</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/chatgpt-plus-is-it-a-smart-move-explore-5-key-advantages/"><u>ChatGPT Plus: Is It a Smart Move? Explore 5 Key Advantages</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-itel-s23-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Itel S23? Try These Fixes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-halloween-festivities-and-customs/"><u>Global Halloween Festivities & Customs</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-korean-writing-system-a-simplified-approach/"><u>Mastering Korean Writing System: A Simplified Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-gsl-now-mondly-infused-exactitude/"><u>Pearson's GSL Now: Mondly-Infused Exactitude</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saudar-a-portugal-com-flauta-dos-dialetos/"><u>Saudar a Portugal Com Flauta Dos Dialetos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simultaneous-sentence-synthesis/"><u>Simultaneous Sentence Synthesis</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-process-to-perform-a-full-reset-on-any-version-of-your-ipad-device/"><u>Step-by-Step Process to Perform a Full Reset on Any Version of Your iPad Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-science-behind-mondlys-learning/"><u>The Science Behind Mondly's Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncover-the-joys-of-arabic-learning-with-mondly-online/"><u>Uncover the Joys of Arabic Learning with Mondly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-five-misconceptions-in-acquiring-new-tongues/"><u>Unraveling Five Misconceptions in Acquiring New Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whispers-of-love-the-art-of-italian-pick-up-linesback-buttonfilter-button/"><u>Whispers Of Love: The Art Of Italian Pick Up LinesBack ButtonFilter Button</u></a></li>
 </ul></div>
 

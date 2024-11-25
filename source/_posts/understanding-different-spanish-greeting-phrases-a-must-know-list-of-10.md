@@ -1,7 +1,7 @@
 ---
 title: Understanding Different Spanish Greeting Phrases - A Must Know List Of 10
-date: 2024-11-03T19:43:26.502Z
-updated: 2024-11-04T19:18:10.781Z
+date: 2024-11-19T20:42:48.644Z
+updated: 2024-11-24T23:32:43.804Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 
  Let’s break down the most important Spanish greetings and introductions you’ll need for a basic conversation in Spanish. As Speedy Gonzales used to say:_¡Arriba, arriba! ¡Ándale, ándale!_ – meaning “Go, go! Come on, come on!”
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## “Hello” in Spanish: ¡Hola
 
 **¡Hola!** – pronounced without the “h” – is your safety net wherever you’ll go: to a date, meeting or a Spanish-speaking country. This is the absolute basic greeting you need to know in Spanish and it can be used to salute any person regardless of the circumstance: formal or informal.
@@ -28,24 +32,15 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 
 ![spanish greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/05/spanish-greetings-1024x720.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Hello” by Pablo Gentile©
 
 **Pro tip:** All you need is a simple “hola” to spark a**conversation in Spanish** with people from Spain, Mexico, Argentina or Colombia. They are generally very nice and chatty people and they will be extremely happy to find out you are trying to [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . From my experience, they will probably start talking to you right away with the speed of a Bugatti. Your safety net in this situation will certainly be_Yo no hablo Español_ –_I don’t speak Spanish_ .
 
 **Bonus dating tip:** “Hello, beautiful” in Spanish is “Hola, hermosa” and “Hello, handsome” in Spanish is “Hola, hermoso”. Good luck! (wink wink)
-
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Spanish greetings for certain moments of the day
 
@@ -59,7 +54,15 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 
 ![hi in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/04/hi-in-spanish-600x463.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  ¡Hola, señor! by Bruce Jastrow©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## “How are you?” in Spanish
 
@@ -74,10 +77,7 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## “Yes”, “please” and “thank you” in Spanish
@@ -92,13 +92,6 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 * I’m sorry – Lo siento
 * I have/I don’t have – Tengo/No tengo
 * Nice to meet you – Encantado/Encantada de conocerte
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Goodbye in Spanish
 
@@ -116,13 +109,6 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
  Or as The Terminator would say:**Hasta la vista, baby!**
 
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
@@ -156,24 +142,18 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-enhancing-video-discoverability-with-ideal-thumbnail-widths-and-height/"><u>[New] In 2024, Enhancing Video Discoverability with Ideal Thumbnail Widths and Height</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-record-internal-audio-in-android-without-root-4-ways/"><u>[New] In 2024, Record Internal Audio in Android without Root [4 Ways]</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-itel-p40-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Itel P40 without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-public-resentment-towards-internet-socialization-sites/"><u>Dissecting Public Resentment Towards Internet Socialization Sites</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/fastest-time-lapse-capturing-system-5/"><u>Fastest Time-Lapse Capturing System #5</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-learn-ukrainian-fast-in-just-10-minutes-a-day/"><u>How to Learn Ukrainian Fast in Just 10 Minutes a Day</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-poco-c65-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Poco C65? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/immerse-in-cultures-and-conversations-powered-by-mondlyar/"><u>Immerse in Cultures and Conversations, Powered by MondlyAR</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-locked-samsung-galaxy-s23-tactical-edition-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Samsung Galaxy S23 Tactical Edition Phone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lifelong-learning-top-4-benefits-for-multilingual-adults/"><u>Lifelong Learning: Top 4 Benefits for Multilingual Adults</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/making-latin-learning-fun-and-engaging-for-students/"><u>Making Latin Learning Fun And Engaging For Students</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/paso-a-paso-entender-la-hora-y-segundo-en-espanol/"><u>Paso a Paso: Entender La Hora Y Segundo en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/reasons-to-dive-into-german-top-10-facts/"><u>Reasons to Dive Into German: Top 10 Facts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/slovak-in-a-flash-online-learning-for-busy-lives/"><u>Slovak in a Flash - Online Learning for Busy Lives</u></a></li>
-<li><a href="https://win-able.techidaily.com/solved-issue-nier-replicante-game-no-longer-experiences-crashes/"><u>Solved Issue: NieR: Replicante Game No Longer Experiences Crashes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/start-speaking-filipino-today-with-easy-10-minute-lessons/"><u>Start Speaking Filipino Today with Easy 10-Minute Lessons</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/strategies-for-keeping-calc-always-on-windows/"><u>Strategies for Keeping Calc Always On Windows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/temps-de-la-semaine-en-france/"><u>Temps De La Semaine en France</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-master-2-screen-grab-tools-for-2024/"><u>[New] Master 2 Screen Grab Tools for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-entering-virtual-realms-with-lgs-vr-technology/"><u>[Updated] 2024 Approved Entering Virtual Realms with LG's VR Technology</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpt-versus-bing-ai-10-crucial-variances/"><u>ChatGPT Versus Bing AI: 10 Crucial Variances</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/como-mover-rapidamente-fotos-del-disco-local-al-dispositivo-usb-en-windows/"><u>Cómo Mover Rápidamente Fotos Del Disco Local Al Dispositivo USB en Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-weekdays-eine-sprachubung/"><u>German Weekdays: Eine Sprachübung</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-bridging-the-web-with-instagram-a-url-tutorial/"><u>In 2024, Bridging the Web with Instagram A URL Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israelian-journey-essentials-must-know-guide-and-dialogue-tools/"><u>Israelian Journey Essentials: Must-Know Guide & Dialogue Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/propelled-progress-the-role-of-ai-in-scholarly-pursuits/"><u>Propelled Progress: The Role of AI in Scholarly Pursuits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-alluring-saga-and-advantages-of-persian-study/"><u>The Alluring Saga and Advantages of Persian Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-way-to-learn-french-at-home/"><u>The Best Way to Learn French at Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-sweet-speech-guide-to-chocolate-in-many-languages/"><u>The Sweet Speech Guide to Chocolate in Many Languages</u></a></li>
+<li><a href="https://change-location.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-get-the-perfect-frame-top-vignette-apps-for-ios-and-android-devices/"><u>Updated Get the Perfect Frame Top Vignette Apps for iOS and Android Devices</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "From Quills to Keystrokes: Enduring Elizabethan Expressions"
-date: 2024-07-29T06:48:05.092Z
-updated: 2024-07-30T06:48:05.092Z
+date: 2024-11-21T16:28:35.760Z
+updated: 2024-11-24T23:24:32.078Z
 tags:
   - speak
   - english
@@ -33,9 +33,6 @@ thumbnail: https://thmb.techidaily.com/81ac4ba09f7fbb502f897ca0c55434cc97c04fe41
 
  And these are just a few of the words Shakespeare introduced to the world during his life in the Elizabethan England. Whether you’re a fan of Shakespeare or simply enjoy learning about the evolution of the English language, this article is sure to captivate and entertain you. So stick around and read on to discover some more of the words Shakespeare invented.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How many words did Shakespeare invent?
 
 **Most sources agree that Shakespeare invented around 1700 words.** However, it seems there’s more to this story. While the playwright was indeed very productive in this field, some say that not all these words were created by him. Instead, he was just the first one to document these words in writing. And that’s entirely possible.
@@ -48,9 +45,6 @@ thumbnail: https://thmb.techidaily.com/81ac4ba09f7fbb502f897ca0c55434cc97c04fe41
 
  Be that as it may, we’re not suggesting Shakespeare was not a genius of words. We’re simply stating we should take numbers with a grain of salt.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### How did Shakespeare invent words?
 
  The master storyteller famously invented new words pretty much the same way we do today: through prefixes, suffixes, conversion and compounds. Simply put, Shakespeare’s words were created by:
@@ -63,20 +57,18 @@ thumbnail: https://thmb.techidaily.com/81ac4ba09f7fbb502f897ca0c55434cc97c04fe41
 
 ![Shakespeare words](https://edge.mondly.com/blog/wp-content/uploads/2023/02/shakespeare-words.jpg "Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today 2")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ## Cool words Shakespeare invented
 
 _To invent new words, or not to invent new words?_ Clearly, William Shakespeare did not ask himself that. He just went with it and invented new words so he could properly tell his stories. In the end, he was so good at both storytelling and coining words that today it is impossible to have an English curriculum without Shakespeare. But enough tittle-tattle.**Let’s see what other words Shakespeare invented:**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **1\. Addiction**
 
 _Henry V_ , Act I, Scene II
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **2\. Arch-villain**
 
 _Timon of Athens_ , Act V, Scene I
@@ -86,8 +78,9 @@ _Timon of Athens_ , Act V, Scene I
 _King Henry VI_ , Part II, Act IV, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **4.** Cold-blooded
 
 _King John_ , Act III, Scene I
@@ -108,6 +101,10 @@ _Hamlet_ , Act I, Scene V
 
 _The Comedy of Errors_ , Act V, Scene I
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **9\. Hint**
 
 _Othello_ , Act I, Scene III
@@ -120,70 +117,73 @@ _The Merchant of Venice_ , Act I, Scene I
 
 _Julius Caesar_ , Act I, Scene II
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **12.** Marketable
 
 _As You Like It_ , Act I, Scene II
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **13.** Mimic
 
 _A Midsummer Night’s Dream_ , Act III, Scene II
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **14.** Monumental
 
 _Troilus and Cressida_ , Act III, Scene III
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### **15.** Obscene
 
 _Love’s Labour’s Lost_ , Act I, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **16\. Ode**
 
 _Love’s Labour’s Lost_ , Act IV, Scene III
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **17.** Olympian
 
 _King Henry VI_ , Part III, Act II, Scene III
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **18.** Outbreak
 
 _Hamlet_ , Act II, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **19\. Puking (disputed)**
 
 _As You Like It_ , Act II, Scene VII
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **20\. Radiance**
 
 _All’s Well That Ends Well_ , Act I, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **21\. (to) Rant**
 
 _Hamlet_ , Act V, Scene I
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **22\. (to) Swagger**
 
@@ -193,9 +193,6 @@ _A Midsummer Night’s Dream_ , Act III, Scene I
 
 _Othello_ , Act III, Scene III
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ### **24.** Unreal
 
 _Macbeth_ , Act III, Scene IV
@@ -211,10 +208,6 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ### Improve thy English with speed
 
  Dost thou desire to improve thy English with speed and ease? Look no further than Mondly, the award-winning language app that doth make learning a joy.
@@ -237,8 +230,6 @@ The ultimate burning program for all your needs!</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -246,4 +237,21 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-capture-the-moment-finding-quick-ways-to-lens-crafting/"><u>[New] 2024 Approved Capture the Moment Finding Quick Ways to Lens Crafting</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-green-screen-mastery-essential-free-lessons-from-youtubes-best-4-channels-for-2024/"><u>[New] Green Screen Mastery Essential Free Lessons From YouTube's Best 4 Channels for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nwind-with-youtube-tricks-for-reducing-playback-velocity-49-chars/"><u>[New] Unwind with YouTube Tricks for Reducing Playback Velocity (49 Chars)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-magix-composition-wizard-an-audio-editing-experience/"><u>[Updated] Magix Composition Wizard An Audio Editing Experience</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-transforming-in-game-audio-identity-for-a-unique-competitive-advantage-no-charge/"><u>2024 Approved Transforming In-Game Audio Identity for a Unique Competitive Advantage (No Charge!)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/american-and-british-spoken-slang/"><u>American and British Spoken Slang</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengali-learning-just-10-mins-a-day/"><u>Bengali Learning, Just 10 Mins a Day</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-oneplus-11-5g-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best OnePlus 11 5G Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/criptografando-um-conhecimento-em-portugues-greves-gerais/"><u>Criptografando Um Conhecimento Em Português - Greves Gerais</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empower-yourself-through-language-mastery/"><u>Empower Yourself Through Language Mastery</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-dell-xps-13-2-in-1-a-superior-computing-experience-unveiled/"><u>Exploring the Dell XPS 13 2-in-1: A Superior Computing Experience Unveiled</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-xiaomi-redmi-k70-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Xiaomi Redmi K70 Lock Screen Password?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719574908150-norges-lexicon-leapfrogging-10-minutes-a-day/"><u>Norge's Lexicon Leapfrogging, 10 Minutes A Day!</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/patch-tuesday-explained-keeping-your-software-up-to-date/"><u>Patch Tuesday Explained: Keeping Your Software Up-to-Date</u></a></li>
+</ul></div>
 

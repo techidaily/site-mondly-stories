@@ -1,7 +1,7 @@
 ---
 title: "From Fan to Fluent: Korean Lessons on Squid Game"
-date: 2024-07-29T06:47:06.705Z
-updated: 2024-07-30T06:47:06.705Z
+date: 2024-11-17T19:42:26.892Z
+updated: 2024-11-24T21:12:03.097Z
 tags:
   - speak
   - english
@@ -20,8 +20,6 @@ thumbnail: https://thmb.techidaily.com/7ac5f26a6db87f846700248f8f73ccc48783db9e1
 
  It’s Netflix’s biggest ever series launch and it’s bloody… splendid. The world loves it. In fact, people love it so much that more and more of them want to learn Korean. It’s not just me or just you. It’s the whole world. Squid Game literally took the world by storm.
 
-
-
  The only problem is that the meaning of some scenes in Squid Game seems to have been changed by subtitles. Ever since the show’s official release in September, Korean-speaking fans have been sharing Squid Game mistranslations all over Twitter and TikTok.
 
 So what’s there to be done?
@@ -29,8 +27,9 @@ So what’s there to be done?
  Easy. What everybody else has been doing:**learn Korean and never get lost in translation ever again.**
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## There’s an entire ‘Korean wave’ behind Squid Game, Parasite and BTS
 
  This is not the first time Korean culture blew our minds. If you haven’t lived under a rock, you already know that there’s so much more to it. Just two years ago, we marveled at the brilliance of Parasite, the Korean masterpiece that won four Oscars.
@@ -39,15 +38,6 @@ So what’s there to be done?
 
  The list could go on and on with the **fascinating craze around Korean skincare products, the K-dramas, the K-pop songs and the Korean comics also known as manhwa.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ![squid game korean netflix](https://edge.mondly.com/blog/wp-content/uploads/2021/10/squid-game-korean-960x539.jpg "Obsessed With Squid Game, But Lost In Translation? Learn Korean 5")
 
  ‘Squid Game on Netflix’ by Jonas Augustin©
@@ -55,6 +45,10 @@ So what’s there to be done?
  So with Squid Game, all that the Korean culture did was to prove once again its hypnotic power over us. If you think about it, this is a whole new world beyond our own. Beyond the pop culture we already know. A whole new world we’re all eager to explore. For me, it’s all about the movies. My passion for cinema has never been the same again after watching the Korean film Oldboy. And this is just an example. Korean cinema is more than rich in masterpieces.
 
  Now, this global phenomenon even has its own name. **The cultural boom coming from South Korea since the 1990s is known today as the Korean wave or [hallyu](https://en.wikipedia.org/wiki/Korean%5Fwave) .** Basically, everything we love about Korean pop culture is embedded in hallyu.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Squid Game got lost in translation
 
@@ -66,10 +60,11 @@ So what’s there to be done?
 
  The question remains: if not even Netflix, the billion-dollar streaming service, could offer viewers a top-notch translation from Korean, then who can?
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ![korean culture](https://edge.mondly.com/blog/wp-content/uploads/2021/10/learn-korean-960x640.jpg "Obsessed With Squid Game, But Lost In Translation? Learn Korean 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  ‘Korean women’ by zero take©
 
@@ -79,13 +74,14 @@ So there’s only one conclusion we can draw from this…
 
 **Like Thanos, getting lost in translation is inevitable.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Learn Korean and overcome the one-inch-tall barrier of subtitles
 
  It’s amazing how people learn languages for love. There’s no greater drive than love. And I’m not talking just about romantic love. The fact that so many people are learning Korean after they watched Squid Game, it’s an act of love. All these people learn Korean out of love for this show. Others have been learning the language out of love for BTS. You could even go so far as to say that love makes us smarter. Or better.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ![squid game love](https://media.giphy.com/media/USVF7ZnGqVuoABCBUr/giphy.gif "Obsessed With Squid Game, But Lost In Translation? Learn Korean 7")
 
  **Would you [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) out of love for hallyu?** In 2020, in his Oscar acceptance speech, ‘Parasite’ director Bong Joon Ho said something the world will never forget:
@@ -97,8 +93,9 @@ So there’s only one conclusion we can draw from this…
  And you know what’s the second-best thing about this? You’ll be in great company. Since the launch of Squid Game, Mondly has seen a massive increase in people starting to learn Korean. You can join them all **[here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko)**  .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Even the English language wants to learn Korean
 
  Do you need an extra reason to start learning? Here’s a good one: even the English language started to learn Korean.
@@ -110,18 +107,6 @@ So there’s only one conclusion we can draw from this…
 
 ---
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## From 0 to conversational in Korean
 
  Here’s the best way to up your Korean game fast. Get Mondly, the award-winning language learning app, put your enthusiasm to work and speak Korean like a pro in no time. It can be really tricky to master the Korean pronunciation if you don’t actively live in South Korea. But with Mondly, you’ll have access to a fast and highly efficient learning method that allows you to learn Korean naturally with:
@@ -141,8 +126,6 @@ So there’s only one conclusion we can draw from this…
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -150,4 +133,26 @@ So there’s only one conclusion we can draw from this…
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-ultimate-guide-to-cheap-subtitles-and-downloaders/"><u>[New] Ultimate Guide to Cheap Subtitles & Downloaders</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-precision-photography-dampening-disarray/"><u>[Updated] Precision Photography Dampening Disarray</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-nubia-red-magic-8s-proplus-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Nubia Red Magic 8S Pro+ is off? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-updated-nvidia-rtx-2060-drivers-compatible-with-windows-111087/"><u>Download Updated NVIDIA RTX 2060 Drivers Compatible with Windows 11/10/8/7</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/easily-create-compelling-fb-video-ads-with-no-cost-kit-for-2024/"><u>Easily Create Compelling FB Video Ads with No-Cost Kit for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entertain-edoardo-discover-20plus-authentic-italian-slang-words/"><u>Entertain Edoardo: Discover 20+ Authentic Italian Slang Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expand-your-mind-enhance-your-job-prospects/"><u>Expand Your Mind, Enhance Your Job Prospects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-porque-vs-por-que-a-linguistic-dive/"><u>Exploring 'Porque' Vs 'Por Que': A Linguistic Dive</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-language-of-thanksgiving-mandarins-xiexie/"><u>Exploring the Language of Thanksgiving: Mandarin's Xièxiè</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-romance-in-spanish-best-pick-up-lines/"><u>Expressing Romance in Spanish: Best Pick-Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-idioms-unveiled-defining-current-english-slang/"><u>Expressive Idioms Unveiled: Defining Current English Slang</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/free-ways-to-change-m4v-files-into-mp4-format-mac-and-windows-11-support/"><u>Free Ways to Change M4V Files Into MP4 Format: Mac & Windows 11 Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-greetings-how-to-say-hello-in-french/"><u>French Greetings: How To Say Hello In French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-latin-to-modern-expressions-romance-languages/"><u>From Latin to Modern Expressions: Romance Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fueling-dreams-with-johannes-honterus/"><u>Fueling Dreams with Johannes Honterus</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/guide-setting-up-a-dual-synchronization-using-aomei-backupper-on-macos/"><u>Guide: Setting Up a Dual Synchronization Using AOMEI Backupper on macOS</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Oppo A38? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-oppo-reno-10-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Oppo Reno 10 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/removing-device-from-apple-id-for-your-apple-iphone-se-2020-by-drfone-ios/"><u>Removing Device From Apple ID For your Apple iPhone SE (2020)</u></a></li>
+</ul></div>
 

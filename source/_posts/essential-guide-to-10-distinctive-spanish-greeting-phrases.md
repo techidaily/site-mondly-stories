@@ -1,7 +1,7 @@
 ---
 title: Essential Guide to 10 Distinctive Spanish Greeting Phrases
-date: 2024-07-29T06:47:26.439Z
-updated: 2024-07-30T06:47:26.439Z
+date: 2024-11-18T18:28:00.607Z
+updated: 2024-11-24T16:55:30.658Z
 tags:
   - speak
   - english
@@ -21,17 +21,15 @@ thumbnail: https://thmb.techidaily.com/3a45d2f58796a5984d88b42acb22f94c8f8721b15
  Let’s break down the most important Spanish greetings and introductions you’ll need for a basic conversation in Spanish. As Speedy Gonzales used to say:_¡Arriba, arriba! ¡Ándale, ándale!_ – meaning “Go, go! Come on, come on!”
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## “Hello” in Spanish: ¡Hola
 
 **¡Hola!** – pronounced without the “h” – is your safety net wherever you’ll go: to a date, meeting or a Spanish-speaking country. This is the absolute basic greeting you need to know in Spanish and it can be used to salute any person regardless of the circumstance: formal or informal.
 
 **“Hola”, the cooler brother of “hello”** – as I like to call it – is so short, sweet & simple you’ll simply love using it even as a part of your English greetings.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![spanish greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/05/spanish-greetings-1024x720.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 2")
 
  “Hello” by Pablo Gentile©
@@ -39,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/3a45d2f58796a5984d88b42acb22f94c8f8721b15
 **Pro tip:** All you need is a simple “hola” to spark a**conversation in Spanish** with people from Spain, Mexico, Argentina or Colombia. They are generally very nice and chatty people and they will be extremely happy to find out you are trying to [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . From my experience, they will probably start talking to you right away with the speed of a Bugatti. Your safety net in this situation will certainly be_Yo no hablo Español_ –_I don’t speak Spanish_ .
 
 **Bonus dating tip:** “Hello, beautiful” in Spanish is “Hola, hermosa” and “Hello, handsome” in Spanish is “Hola, hermoso”. Good luck! (wink wink)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish greetings for certain moments of the day
 
@@ -50,16 +52,14 @@ thumbnail: https://thmb.techidaily.com/3a45d2f58796a5984d88b42acb22f94c8f8721b15
 
  While in English, we use “good evening” to greet someone and “good night” to say goodbye to someone when it’s nighttime, the Spanish language uses “buenas noches” in both contexts.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![hi in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/04/hi-in-spanish-600x463.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 3")
 
  ¡Hola, señor! by Bruce Jastrow©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## “How are you?” in Spanish
 
  In many places around the world, you can also greet people by asking, “how are you?” or “what’s up?”. Particularly in informal situations.  
@@ -72,9 +72,6 @@ thumbnail: https://thmb.techidaily.com/3a45d2f58796a5984d88b42acb22f94c8f8721b15
 **¿Qué hay?** – generally used in Spain; it is used the same way we use “hey!” or “what’s up” in English  
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ## “Yes”, “please” and “thank you” in Spanish
 
  If you want to [learn Spanish colors](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , “yes”, “no”, “please” and “thank you” together with the above-mentioned greetings are the absolute basics you’ll need to master before moving forward. Here’s how to say these basic but at the same time crucial [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :
@@ -89,8 +86,9 @@ thumbnail: https://thmb.techidaily.com/3a45d2f58796a5984d88b42acb22f94c8f8721b15
 * Nice to meet you – Encantado/Encantada de conocerte
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Goodbye in Spanish
 
  At the end of your rendezvous, you will probably need to say “goodbye” so as to maintain the good first impression you managed to make with your flawless Spanish greetings and introductions. Let’s see how you can do that:
@@ -107,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/3a45d2f58796a5984d88b42acb22f94c8f8721b15
  Or as The Terminator would say:**Hasta la vista, baby!**
 
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
@@ -131,8 +133,6 @@ thumbnail: https://thmb.techidaily.com/3a45d2f58796a5984d88b42acb22f94c8f8721b15
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -140,4 +140,22 @@ thumbnail: https://thmb.techidaily.com/3a45d2f58796a5984d88b42acb22f94c8f8721b15
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-correcting-muted-voice-in-obs-broadcasts/"><u>[New] 2024 Approved Correcting Muted Voice in OBS Broadcasts</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-mastering-mac-the-guide-to-dancing-tiktok-videos/"><u>[New] Mastering Mac The Guide to Dancing TikTok Videos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-how-to-fix-obs-full-screen-not-working-issue-in-2024/"><u>[Updated] How To Fix OBS Full Screen Not Working Issue, In 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-productivity-boosters-while-binge-listening-to-podcasts-for-2024/"><u>[Updated] Productivity Boosters While Binge-Listening to Podcasts for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-from-audience-to-advocate-strategies-for-powerful-fb-covers/"><u>2024 Approved From Audience to Advocate Strategies for Powerful FB Covers</u></a></li>
+<li><a href="https://media-tips.techidaily.com/binge-your-favorite-shows-effortlessly-discovering-airplayer-plus-affordable-alternatives/"><u>Binge Your Favorite Shows Effortlessly: Discovering AirPlayer Plus Affordable Alternatives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everyday-wisdom-in-spanish-the-best-17-sayings/"><u>Everyday Wisdom in Spanish: The Best 17 Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everywheres-top-app-today-apple-edition/"><u>Everywhere's Top App: Today, Apple Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/featured-by-apple-mondly-is-in-top-10-education-apps-worldwide/"><u>Featured by Apple: Mondly Is in Top 10 Education Apps Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/five-motivational-reasons-for-late-life-linguists/"><u>Five Motivational Reasons for Late-Life Linguists</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fostering-fluency-mondlys-global-learning-mission/"><u>Fostering Fluency: Mondly's Global Learning Mission</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gaining-english-proficiency-perks-unveiled/"><u>Gaining English Proficiency: Perks Unveiled</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Samsung Galaxy A15 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/superior-smartphones-that-dominate-in-video-recording/"><u>Superior Smartphones That Dominate in Video Recording</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/unlocking-epson-scan-communication-issues/"><u>Unlocking Epson Scan Communication Issues</u></a></li>
+</ul></div>
 

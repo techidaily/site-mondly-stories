@@ -1,7 +1,7 @@
 ---
 title: Vermeidung Von Falschen Deutschen Entschuldigungen
-date: 2024-11-08T01:01:45.894Z
-updated: 2024-11-15T08:24:32.398Z
+date: 2024-11-21T20:44:50.398Z
+updated: 2024-11-24T19:26:16.506Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
 
  Let’s look at the most important ways to say “sorry” in German and when to use each of them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## When should you say you’re sorry?
 
  What you need to remember is that learning how to say “sorry” in German also has a cultural component. It’s not enough to learn how to say you’re sorry; you also have to learn_when_ to say you’re sorry. Unlike Americans and even Brits who apologize quite a lot,**Germans tend to keep their sorrys to a minimum.** In fact, they say sorry so rarely that they can come off as rude to people of other nationalities.
@@ -27,10 +31,7 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to apologize in German
@@ -46,10 +47,7 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say sorry in German – the “Excuse me” sorry
@@ -61,10 +59,7 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Other ways to say sorry in German
@@ -110,10 +105,7 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in German
@@ -147,14 +139,14 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-essential-techniques-for-making-and-tweaking-multi-snap-chats/"><u>[New] Essential Techniques for Making & Tweaking Multi-Snap Chats</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/el-arte-de-comprender-el-corazon-humano-en-espanol-desde-el-ojo-a-las-unas/"><u>El Arte De Comprender El Corazón Humano en Español: Desde El Ojo A Las Uñas</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-made-easy-with-mondlyar/"><u>Multilingual Mastery Made Easy with MondlyAR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/portuguese-parallelism-brazilians-vs-europeans/"><u>Portuguese Parallelism: Brazilians Vs. Europeans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/redefining-fluency-tomorrows-techniques-for-todays-students/"><u>Redefining Fluency: Tomorrow's Techniques for Today's Students</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/step-by-step-guide-live-broadcast-of-recorded-videos-on-fb-for-2024/"><u>Step-by-Step Guide Live Broadcast of Recorded Videos on FB for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/techniques-to-halt-live-streams-in-qt-player/"><u>Techniques to Halt Live Streams in QT Player</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Motorola Edge+ (2023) | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-stepwise-guide-to-uploading-and-livestreaming-video-recordings/"><u>[New] 2024 Approved Stepwise Guide to Uploading and Livestreaming Video Recordings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-dos-and-donts-of-adding-tags-to-youtube-videos/"><u>[New] In 2024, The Do's and Don'ts of Adding Tags to YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unleash-potential-the-finest-yoga-series-for-all-ages/"><u>[New] In 2024, Unleash Potential The Finest Yoga Series for All Ages</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/en-ligne-et-gratuit-convertissez-vos-images-dng-en-jpeg-rapidement-grace-a-movavi/"><u>En Ligne Et Gratuit : Convertissez Vos Images DNG en JPEG Rapidement Grâce À Movavi</u></a></li>
+<li><a href="https://driver-error.techidaily.com/identifying-missing-seagate-external-hd-in-windows-11/"><u>Identifying Missing Seagate External HD in Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-playfully-unlocked-through-education/"><u>Latin Playfully Unlocked Through Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythmic-recall-enhancing-memory-with-musical-language-lessons/"><u>Rhythmic Recall: Enhancing Memory with Musical Language Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/secrets-for-successful-linguistic-assessments/"><u>Secrets for Successful Linguistic Assessments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/traveling-to-israel-tips-and-phrases-for-your-trip/"><u>Traveling To Israel? Tips And Phrases For Your Trip</u></a></li>
 </ul></div>
 

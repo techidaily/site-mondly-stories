@@ -1,7 +1,7 @@
 ---
 title: "Exploring Slavic Bonds: Ukrainian & Russian Language Analysis"
-date: 2024-07-29T06:45:45.768Z
-updated: 2024-07-30T06:45:45.768Z
+date: 2024-11-17T16:53:37.261Z
+updated: 2024-11-24T23:00:43.727Z
 tags:
   - speak
   - english
@@ -26,13 +26,10 @@ thumbnail: https://thmb.techidaily.com/dcd52c68a0261301dc49a434565ff933798115ab3
 
  Contrary to what some people believe, Ukrainian and Russian are not the same language. Despite sharing a common ancestor and the Cyrillic script, Ukrainian and Russian are two distinct languages. They are somehow similar, yes, but not one and the same. To help you understand the relationship between the two, we are going to look at their shared history and both their differences and similarities.
 
-
-
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Was Ukrainian really called Little Russian?
 
  In short, yes. The Ukrainian language was formerly called Little Russian, but the term is now considered pejorative. Let’s see how all the events leading to this name unfolded.
@@ -52,17 +49,14 @@ The powerful video editing program for your Windows PC</a>
 
  **Due to heavy borrowings from so many languages, by the mid-17th century, Ukrainian and Russian became so different that the negotiations for the Treaty of Pereyaslav had to be done using translators.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 !['Ukrainian language' by Gleb Albovsky©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/ukrainian-language-960x600.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  As a result of Ukraine’s centuries-long political subordination, Ukrainian had almost no literary expression until de 18th century when the modern literary Ukrainian language was born.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Russian language – a short history
 
  Russian, known as Русский язык (romanized:_Russkiy yazyk_) to Russians, is the official language of Russia, Belarus, Kazakhstan, and Kyrgyzstan and it is also used as a second language in other former Soviet countries. Additionally, Russian is one of the six official United Nations languages and the 8th most spoken language in the world with a total of 260 million speakers.
@@ -75,6 +69,10 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  Later, the Soviet period brought Russian worldwide prestige which declined after the 1991 collapse. Despite each USSR constituent republic having its own official language, Russian had a unified role and superior status. This is why there are so many people speaking Russian outside Russia.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How similar are Ukrainian and Russian?
 
  The misconception that Russian and Ukrainian are the same sometimes stems from the fact that Russian is widely spoken in Ukraine. The numbers can differ slightly according to various sources, but it’s generally agreed that 60% of Ukrainians consider Ukrainian their native language, while 15% consider Russian to be their native language. Moreover, 22% consider both to be their native languages.
@@ -83,9 +81,6 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  So how similar are Ukrainian and Russian?**They share about 62% lexical similarity.** What many people don’t know is that Ukrainian has a higher lexical similarity with Polish,[Slovak](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Belarusian, than it does with Russian – especially with Belarusian.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 !['Russian language' by Dimitry B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/russian-language-960x639.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 5")
 
  Since most Ukrainian speakers also speak Russian or have extensive exposure to it, ‘asymmetric intelligibility’ is the best term to describe the relationship between the two languages. In other words, Ukrainian speakers can often understand Russian, while Russian speaker doesn’t understand Ukrainian, especially Russian speakers from outside Ukraine.
@@ -100,9 +95,6 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  Both Ukrainian and Russian use the 33-letter [Cyrillic alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but there are four letters in Ukrainian missing from Russian (ґ, є, і, ї), and four letters in Russian missing from Ukrainian (ё, ъ, ы, э).
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Vocabulary
 
  Learning Russian thinking you will easily understand Ukrainian it’s not a great strategy. While they share a lot of words, some of them are ‘false friends’ and can mean completely different things:
@@ -123,6 +115,10 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  Showing 1 to 6 of 6 entries
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Sounds and pronunciation
 
  While to a non-trained ear Russian and Ukrainian might sound the same, they actually have several differences when it comes to pronunciation. For example, Ukrainian has a specific sound for “Г г” (similar to \[h\] in ‘aha!’) which Russian doesn’t have. For this letter, Russian uses the \[g\] sound which is similar to the ‘g’ in ‘go’ or ‘guard’. As a consequence, it’s very easy to differentiate a Ukrainian speaker from a Russian speaker as Ukrainians sometimes overlook the usage of \[g\] instead of \[h\].
@@ -134,9 +130,6 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 * Ukrainian uses more soft consonants compared to Russian;
 * Russian \[ы\] is deeper than Ukrainian \[и\] and Russian \[э\] is more open than Ukrainian \[е\].
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ### Grammar
 
  When it comes to grammar, Russian and Ukrainian have similar principles and categories:
@@ -158,6 +151,10 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Learn Ukrainian, Russian and more in just 10 minutes a day
 
  Do you want to learn languages fast? Get Mondly, the award-winning language app that will help you speak Ukrainian, Russian and more from day 1.
@@ -178,8 +175,6 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -187,4 +182,26 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-from-laggard-to-lightning-pick-8-apps-now/"><u>[New] 2024 Approved From Laggard to Lightning Pick 8 Apps Now</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-high-definition-magic-cutting-edge-camcorders-reviewed/"><u>[Updated] 2024 Approved High-Definition Magic Cutting-Edge Camcorders Reviewed</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/1726222086988-vob-m2ts-movavi/"><u>網路直接無條件 VOB 到 M2TS 過渡 - 使用 Movavi 解決方案</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-photos-from-samsung-galaxy-a54-5g-by-fonelab-android-recover-photos/"><u>Best Android Data Recovery - Retrieve Lost Photos from Samsung Galaxy A54 5G.</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/diagnosing-your-vehicles-power-problems-the-six-culprits-for-a-drained-car-battery/"><u>Diagnosing Your Vehicle's Power Problems: The Six Culprits for a Drained Car Battery</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-vivo-v29-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Vivo V29 FRP Locks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-variations-america-vs-britain/"><u>Language Variations: America vs Britain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lovemaking-selecting-subtle-pickup-lines/"><u>Linguistic Lovemaking: Selecting Subtle Pickup Lines</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/1723082155548-maximize-your-safety-on-the-road-with-the-pruveeo-1080p-full-hd-action-camera-reviews-inside/"><u>Maximize Your Safety on the Road with the Pruveeo 1080P Full HD Action Camera - Reviews Inside!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-initiative-groundbreaking-ukraine-language-learning-without-cost/"><u>Mondly's Initiative: Groundbreaking Ukraine Language Learning Without Cost</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/nextgen-youtuber-tools-studio-vs-beta-version-for-2024/"><u>NextGen YouTuber Tools Studio Vs. Beta Version for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/opencl-dll-access-resolution-approach/"><u>OpenCL DLL Access: Resolution Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/precision-in-speech-french-pronunciation-for-newcomers/"><u>Precision in Speech: French Pronunciation for Newcomers</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/rip-and-enjoy-wonderfox-on-your-smartphone-with-the-new-release-of-version-20/"><u>Rip and Enjoy WonderFox on Your Smartphone with the New Release of Version 2.0!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semanas-completas-conoce-todos-los-dias-del-mes/"><u>Semanas Completas: Conoce Todos Los Dias Del Mes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/solved-overcoming-challenges-when-using-older-usb-composite-device-models/"><u>Solved: Overcoming Challenges When Using Older USB Composite Device Models</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sonic-synchronicity-100-tongue-twister-triumphs/"><u>Sonic Synchronicity: 100 Tongue Twister Triumphs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-world-communication-with-a-95-discount-on-language-learning/"><u>Unlock World Communication with a 95% Discount on Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-countries-celebrate-thanksgiving/"><u>What Countries Celebrate Thanksgiving?</u></a></li>
+</ul></div>
 

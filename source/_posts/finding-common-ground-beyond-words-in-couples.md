@@ -1,7 +1,7 @@
 ---
 title: Finding Common Ground Beyond Words in Couples
-date: 2024-07-29T06:46:24.402Z
-updated: 2024-07-30T06:46:24.402Z
+date: 2024-11-18T21:54:44.064Z
+updated: 2024-11-24T23:10:49.056Z
 tags:
   - speak
   - english
@@ -18,29 +18,24 @@ thumbnail: https://thmb.techidaily.com/6ea4b6540cbc9defac45234e6794ae14daad67ae8
 
  Dating is fun, but what do you do when there’s a**language barrier** involved? There sure are communication problems in every relationship at some point. Even Daenerys and Khal Drogo had their issues before she learned to communicate in Dothraki. I mean… we’ve all been through that “what did he or she mean by that?” phase, didn’t we? And imagine having a**multilingual relationship** ! That must be 10 times tougher!
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![language barrier](https://media.giphy.com/media/Yuu7gZ9edi3zW/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 2")
 
  Jokes aside (or not), life is meant to be lived. If your love is as strong as the legendary Nokia 3310, no language barrier can destroy it. Besides, **Mondly has your back with a wide range of languages you can learn for love** . 41 – to be more specific.
 
  Back to the fun side of dating**someone who doesn’t speak your native tongue** , here are 10 funny or just downright real situations you’ll understand only if you ever dated a foreigner.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## 1\. You get frustrated. A lot
 
  If your name is not Harry Potter, chances are you won’t magically wake up one day knowing a foreign language. So, dating someone who doesn’t speak English can get really frustrating sometimes. Especially in the beginning, things can get really complicated because you are never sure if you got them right.
 
 ![dating a foreigner](https://media.giphy.com/media/CmqNynXoenYnm/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  And it’s all fun and games until someone asks, “what are you thinking about?”. If answering this mythical question was hard before, imagine how challenging it becomes now that you are dating someone with bad English or no English at all. So take it from me and don’t go there! Abort mission! Practice some more and only then you’ll be ready for this quest. But you knew that already, didn’t you?
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. You never run out of things to say to each other
 
  On the other hand, you never ever run out of things to say to each other in a multilingual relationship. That’s because both of you are constantly trying to teach the other your native tongue.
@@ -57,10 +52,11 @@ thumbnail: https://thmb.techidaily.com/6ea4b6540cbc9defac45234e6794ae14daad67ae8
 
  The same goes with “embarazada”! “Embarazada” means “pregnant” in Spanish and not “embarrassed” – as one might think. So be careful with that one! Really tricky!
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![dating language barrier](https://media.giphy.com/media/xUA7aYMO79CzQNMfJe/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. You eventually become bilingual
 
@@ -68,12 +64,13 @@ thumbnail: https://thmb.techidaily.com/6ea4b6540cbc9defac45234e6794ae14daad67ae8
 
  But if that’s not the case,[Mondly – the amazing language learning app](https://play.google.com/store/apps/details?id=com.atistudios.mondly.languages&hl=ro) – has an entire Romance category dedicated to your love. Just take it from there and see where you can get in just a few months.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## 5\. Your fights are… sooo fun to watch
 
  Well… obviously! Do you know what a [hullabaloo](https://dictionary.cambridge.org/dictionary/english/hullabaloo) is? Because that’s how you’ll look like if you fight in public. What can I say?! An absolute delight for strangers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. The idea of meeting “the friends” suddenly becomes way more intimidating
 
@@ -81,32 +78,31 @@ thumbnail: https://thmb.techidaily.com/6ea4b6540cbc9defac45234e6794ae14daad67ae8
 
  Good Lord! It sends shivers down my spine only when I think of it. Good luck with that!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ![overcoming language barriers](https://media.giphy.com/media/12nfFCZA0vyrSw/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 6")
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. You come up with a sign language of your own
 
  If there’s no language bridge between you two, you have to come up with creative ideas. That’s how your secret communication code got created.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![dating bad english](https://media.giphy.com/media/6tNOhcNvvynPa/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 7")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. You focus less on words and more on action
 
  Language barriers are not actually barriers. You know that, don’t you? They are actually the absolute and ultimate cure for overthinking. “What did he or she mean by that?” becomes “well, I can’t put up with all that thinking now. Let’s make up… or out?”
 
 ![flirting language barrier](https://media.giphy.com/media/LoJjkPAVF8UH6/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 8")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 9\. You absolutely love hearing him or her speak
 
@@ -118,9 +114,6 @@ No advertising on the website.
 
 Watch at your own risk! They might steal your heart!
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 10\. You constantly get the reassurance of being truly and honestly loved
 
  Being in a multilingual relationship is a hard business. You either go big or go home. There’s no in-between. If he or she is still there, there must be an enormous quantity of love involved. That’s your reassurance.
@@ -154,8 +147,6 @@ Watch at your own risk! They might steal your heart!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -163,4 +154,18 @@ Watch at your own risk! They might steal your heart!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/2024-approved-a-deep-dive-into-whatsapps-vocal-communication-tools/"><u>2024 Approved A Deep Dive Into WhatsApp's Vocal Communication Tools</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/does-xiaomi-redmi-note-12-pro-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Xiaomi Redmi Note 12 Pro 5G Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/epic-deals-on-global-communication-today-only/"><u>Epic Deals on Global Communication Today Only</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-guide-to-german-sounds-for-newcomers/"><u>Essential Guide to German Sounds for Newcomers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-with-ease-a-handbook-of-the-best-93-travel-spanish-terms/"><u>Explore with Ease: A Handbook of the Best 93 Travel Spanish Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-english-a-gateway-to-success/"><u>Fluent English: A Gateway to Success</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-f54-5g-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy F54 5G Bootloader Easily</u></a></li>
+<li><a href="https://os-tips.techidaily.com/quick-tips-for-background-elimination-in-photos-using-your-iphone-and-macbook/"><u>Quick Tips for Background Elimination in Photos Using Your iPhone and MacBook</u></a></li>
+<li><a href="https://driver-install.techidaily.com/release-notice-updated-drivers-from-amd-graphics/"><u>Release Notice: Updated Drivers From AMD Graphics</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-video-upgrade-pathway-sdr-to-hdri-transformation-techniques/"><u>The Ultimate Video Upgrade Pathway SDR to HDRI Transformation Techniques</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-picks-the-ultimate-selection-of-ces-2024s-finest-laptops-explore-the-leading-tech-reviewed/"><u>Top Picks: The Ultimate Selection of CES 2024'S Finest Laptops - Explore the Leading Tech Reviewed</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Taking Flight in Russian Numeral Recognition
-date: 2024-11-14T10:02:02.587Z
-updated: 2024-11-15T05:28:55.377Z
+date: 2024-11-20T22:21:29.986Z
+updated: 2024-11-24T22:31:11.011Z
 tags:
   - speak
   - english
@@ -47,16 +47,7 @@ If you did manage, good job! You must be a natural.
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian numbers 11-20
@@ -64,10 +55,7 @@ If you did manage, good job! You must be a natural.
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Russian numbers: 21 and onwards
@@ -77,10 +65,7 @@ If you did manage, good job! You must be a natural.
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian tens
@@ -100,10 +85,7 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian hundreds
@@ -111,6 +93,10 @@ And guess what! It works the same with the hundreds.
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
 
 Not as hard as you’d expect, is it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Russian ordinal numbers
 
@@ -157,22 +143,19 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-innovative-approaches-for-logging-online-discussions/"><u>[New] Innovative Approaches for Logging Online Discussions</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-optimize-your-youtube-videos-faster-rendering-smarter-uploads/"><u>[New] Optimize Your YouTube Videos Faster Rendering, Smarter Uploads</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580138450-103-crucial-croatian-expressions-your-translator-on-the-go/"><u>103 Crucial Croatian Expressions: Your Translator On-the-Go</u></a></li>
-<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-oppo-find-x7-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Oppo Find X7 Wont Charge | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/africas-unspoken-language-wealth/"><u>Africa's Unspoken Language Wealth</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578225003-best-family-app-of-year-on-google-play-mondly-kids-with-smart-controls/"><u>Best Family App of Year on Google Play: Mondly Kids with Smart Controls</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boost-your-fluency-explore-top-6-strategies-to-mastering-portuguese/"><u>Boost Your Fluency - Explore Top 6 Strategies to Mastering Portuguese</u></a></li>
-<li><a href="https://win-info.techidaily.com/experience-next-gen-display-with-the-acer-swift-edge-reviewing-the-worlds-leanest-4k-oled-notebook-on-zdnet/"><u>Experience Next-Gen Display with the Acer Swift Edge: Reviewing the World's Leanest 4K OLED Notebook on ZDNET</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lerne-deutsche-wochenabschnitte-verinnerlichen/"><u>Lerne Deutsche Wochenabschnitte Verinnerlichen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/never-pay-more-mondly-premium-forever-free/"><u>Never Pay More: Mondly Premium - Forever Free</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/overcoming-network-hurdles-a-users-manual-to-fixing-surface-pro-wi-fi-problems/"><u>Overcoming Network Hurdles: A User's Manual to Fixing Surface Pro Wi-Fi Problems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/reinforce-revenue-with-robust-rhetorical-capacity-building/"><u>Reinforce Revenue with Robust Rhetorical Capacity Building</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ten-minute-bulgaria-language-learning-fast/"><u>Ten-Minute Bulgaria: Language Learning Fast</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Infinix Hot 30i | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-am-i-viewed-with-these-certain-facebook-promotions/"><u>Why Am I Viewed with These Certain Facebook Promotions?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/3gpflv/"><u>オンラインでの簡単3GP/FLVファイル変換 - ムーヴェイビ | 無料サービス</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-from-novice-to-expert-mastering-movie-maker-in-windows-8-systems/"><u>[Updated] In 2024, From Novice to Expert Mastering Movie Maker in Windows 8 Systems</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/from-concepts-to-shares-your-guide-to-metaverse-meme-creation/"><u>From Concepts to Shares Your Guide to Metaverse Meme Creation</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-honor-play-7t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-the-ultimate-guide-to-instagram-looping-videos/"><u>In 2024, The Ultimate Guide to Instagram Looping Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-urdu-swiftly-with-daily-10-minute-intervals/"><u>Learn Urdu Swiftly with Daily 10-Minute Intervals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lexicon-exploration-grey-matter-development/"><u>Lexicon Exploration, Grey Matter Development</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/open-doors-new-perspectives-the-value-of-multilingualism/"><u>Open Doors, New Perspectives: The Value of Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pledges-to-self-steps-to-fruition/"><u>Pledges to Self: Steps to Fruition</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Google Pixel 7a? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-balance-of-cost-and-performance-expert-review-on-the-zte-blade-a3-y-model/"><u>The Balance of Cost and Performance: Expert Review on the ZTE Blade A3 Y Model</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-cognitive-kick-unlock-6-bilingual-advantages/"><u>The Cognitive Kick: Unlock 6 Bilingual Advantages</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-ultimate-guide-to-finding-instagram-filters-for-no-cost-for-2024/"><u>The Ultimate Guide to Finding Instagram Filters for No Cost for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/winning-against-windows-10s-constant-interruption-by-learning-how-to-avoid-unwanted-restarting/"><u>Winning Against Windows 10'S Constant Interruption by Learning How to Avoid Unwanted Restarting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-next-best-friend-in-conversation-is-ai/"><u>Your Next Best Friend in Conversation Is AI</u></a></li>
 </ul></div>
 

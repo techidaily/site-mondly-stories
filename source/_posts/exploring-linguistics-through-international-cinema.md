@@ -1,7 +1,7 @@
 ---
 title: Exploring Linguistics Through International Cinema
-date: 2024-07-29T06:46:11.378Z
-updated: 2024-07-30T06:46:11.378Z
+date: 2024-11-20T18:27:14.024Z
+updated: 2024-11-24T21:51:34.782Z
 tags:
   - speak
   - english
@@ -23,8 +23,9 @@ thumbnail: https://thmb.techidaily.com/45fa216ed9179ff239c54a97ced9b6daebc95dcdc
  As an English speaker, you probably have a variety of favorite films come to mind when you think of the holiday season. You might even have a list of favorites that you and your family watch every year as a tradition. They don’t necessarily have to be Christmas movies. Some families like to binge comedies, and others prefer to focus on action or historical films. No matter what your preferences are if your current focus is language learning, you might want to add a few foreign films to your movie list for this year.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Listen to Native Speakers
 
  When learning a language, it can be helpful to listen to native speakers. Watching foreign movies is an easy way to do that.
@@ -37,55 +38,42 @@ thumbnail: https://thmb.techidaily.com/45fa216ed9179ff239c54a97ced9b6daebc95dcdc
 
  In any film, there will be plenty of visual cues to help provide further details on how certain words are used. Along with paying attention to the overall story, you can also watch for small things, like the way a character refers to the beer in their hand or the way they comment on the weather, to increase your understanding of the language.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Take Advantage of Subtitles
 
  When all else fails, the subtitles are there to help. If you’re getting good at the language, you might want to try watching the film without the subtitles. However, there is no shame in using them either. They’re a good way to measure how far along you are in the learning process.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![Language movies to watch with your friends on holidays - Mondly](https://edge.mondly.com/blog/wp-content/uploads/2017/12/205065-OZ78PV-98-min-scaled.jpg "The 10 Best Foreign Films To Watch This Holiday Season To Improve Your Language Skills 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Adventures from Around the World: Movies in the Languages You Love
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1. Italian
 
  When seven close friends get together for a dinner one evening, they all decide to place their phones on the table and share any incoming messages, comments, or phone calls with the group. As the notifications begin to arrive, it quickly becomes apparent that these lifelong friends don’t know each other as well as they might have thought.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2. Spanish
 
  This is an Argentinian film that contains six short films in one. Each film examines the extreme ways that humans will behave when faced with various distressing situations. Filled with themes of revenge and complete with crazy twists and turns, this film is sure to give you and your family something to talk about.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3. German
 
  Set in East Berlin in 1984, this film follows an agent of the secret police as he conducts surveillance on a man and his lover. As time goes by, he finds himself growing attached to the people he is spying on.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ### 4. Russian
 
  Sometimes, you need a little horror to balance out all the holiday cheer. In this Russian film, a young woman goes with her fiancé to meet his family for the first time. When she begins having frightening visions and noticing odd behavior from some of the family members, she realizes she might have made a horrible mistake.
@@ -98,17 +86,10 @@ Key features:
 
  This is another fun and lighthearted romantic comedy to enjoy. It follows the love story between two seemingly polar opposites, a fashion blogger and a gaming nerd.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ### 7. Turkish
 
  This sweet and sensitive Turkish tearjerker examines a relationship stressed to the limits by a terrible disease. It’s a remake of a similar Korean film called “A Moment to Remember”.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 8. Arabic
 
  This film follows Adam and his wife Lamia, progressive Christians who live in Nazareth. When Adam sets out to start a new business selling “holy air” from the area, we see his interactions with members of various religions and cultures in his local community.
@@ -116,6 +97,10 @@ DbSchema database designer for all databases, schema design in the team, schema 
 ### 9. Norwegian
 
  This thrilling and high-budget action film details a frightening rockslide that causes a tidal wave to annihilate a small Norwegian village. A local scientist tries to warn of the impending doom, but it might be too late for him to save his family and the rest of the locals from disaster.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 10. Korean
 
@@ -126,9 +111,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Learning Languages: Get the Most Out of Your Holiday Break
 
  Along with watching foreign films and squeezing in a little solo language study when you have time, you can also sneak in some practice this holiday season by asking a family member to quiz you on your language skills. Language learning is an interesting conversation starter at holiday parties, and many of your loved ones are likely to be fascinated by your progress.
@@ -143,8 +125,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -152,4 +132,20 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-crafting-video-magic-with-imovie-directed-to-youtube/"><u>[Updated] In 2024, Crafting Video Magic with iMovie, Directed to YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-complete-beginners-manual-to-using-final-cut-pro/"><u>2024 Approved The Complete Beginner's Manual to Using Final Cut Pro</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/clearframew11-easy-instant-screen-recording-for-windows-for-2024/"><u>ClearFrameW11 Easy, Instant Screen Recording for Windows for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722887670144-eliminate-code-groovyerrors-with-these-proven-repair-methods-and-hacks/"><u>Eliminate Code groovyErrors with These Proven Repair Methods and Hacks</u></a></li>
+<li><a href="https://win-dash.techidaily.com/ensuring-compatibility-updating-brother-mfc-j480dw-windows-drivers/"><u>Ensuring Compatibility: Updating Brother MFC-J480DW Windows Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guide-to-overcoming-call-of-duty-wwii-error-code-4128-glitches/"><u>Guide to Overcoming Call of Duty: WWII Error Code 4128 Glitches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kid-app-sundae-mondly-plus-back-button-magic-on-play/"><u>Kid-App Sundae - Mondly + Back Button Magic on Play</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-updating-problem-error-x8019/"><u>Overcoming Updating Problem: Error X8019</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-powershot-sx720hs-a-compact-versatile-zoomer-revealed/"><u>The PowerShot SX720HS: A Compact, Versatile Zoomer Revealed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-360-live-streaming-cameras-for-youtube-and-facebook/"><u>Top 360 Live Streaming Cameras for YouTube and Facebook</u></a></li>
+<li><a href="https://fox-links.techidaily.com/understanding-slug-lines-essentials-and-application-guide/"><u>Understanding Slug Lines Essentials & Application Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-verbal-journey-transform-flingish-to-fluent/"><u>Virtual Verbal Journey: Transform Flingish to Fluent!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/warm-salutations-in-indonesia-the-essential-guide/"><u>Warm Salutations in Indonesia: The Essential Guide</u></a></li>
+</ul></div>
 

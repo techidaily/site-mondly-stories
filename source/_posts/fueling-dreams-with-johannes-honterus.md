@@ -1,7 +1,7 @@
 ---
 title: Fueling Dreams with Johannes Honterus
-date: 2024-07-29T06:47:19.733Z
-updated: 2024-07-30T06:47:19.733Z
+date: 2024-11-21T18:15:23.045Z
+updated: 2024-11-24T18:52:04.655Z
 tags:
   - speak
   - english
@@ -19,8 +19,9 @@ thumbnail: https://thmb.techidaily.com/28c82805d5aad2753ba2e86c5bd215ad19bda09a5
  We at [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5187) are beyond proud to be able to pave the way to innovation and help millions of people worldwide learn languages from the very heart of Romania, in idyllic Transylvania. Although miles away from important high technology and innovation centers such as Berlin, London or Silicon Valley, we find inspiration everywhere around us – in people, places, art or even history. For example, one of the local historical figures who inspires us to be better every day is [Johannes Honterus](https://en.wikipedia.org/wiki/Johannes%5FHonter) .
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The first humanist gymnasium in Southeast Europe
 
  Born in 1498, in Brașov, right on the street where our headquarters lies today, Johannes Honterus was a Renaissance humanist, Protestant reformer, theologian and author. Honterus, also known as Honter or Johann Hynter (Latinized as Johann Honterus or Ioannes Honterus), is best known for implementing the Lutheran reform in Transylvania and establishing the Evangelical Church of Augustan Confession in Romania.
@@ -30,26 +31,29 @@ thumbnail: https://thmb.techidaily.com/28c82805d5aad2753ba2e86c5bd215ad19bda09a5
  In our journey to help those who need it most, we draw inspiration from Honterus and pledge to give students the tools to succeed and the opportunity to learn in ways they never could have imagined. This is why we unveiled multiple state-of-the-art [iMac labs](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) at the Transilvania University of Brașov and several other high schools. In total, there are now 60 brand new iMacs helping young minds innovate in schools all over Brașov.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Rudimenta Cosmographica, the first European-wide manual
 
  After graduating from the University of Vienna between 1520 and 1525 with a_magister artium_ title, Honterus moved to Poland to teach at the Kraków’s Jagiellonian University. During his stay, he published two of his most important works: a Latin grammar and_Rudimenta Cosmographica_ , a cosmography manual. Then, he moved to Basel and practiced printing, publishing and wood engraving. This is where he came into contact with printers Heinrich Petri, Johann Bebel and Michael Isengrin. His connections with all four printing workshops in Basel at that time prove to be especially relevant when he returns to native Transylvania and decides to set up a printing press.
 
  In the following years, Honterus printed a large number of books, some of which he authored himself. Then, in 1542, he printed a new version of his cosmography manual,_Rudimenta Cosmographica_ , this time in verse. Honterus believed that verses will help students remember the information in his manual faster.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![honterus map](https://edge.mondly.com/blog/wp-content/uploads/2020/06/honterus-map-600x467.jpeg "Great Personalities Who Inspire Us: Johannes Honterus 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The map of the world by Johannes Honterus
 
  Additionally,_Rudimenta Cosmographica_ contained 13 maps of all known parts of the world engraved by Honterus himself. The book proved to be so successful that there were printed 39 editions of it in Brașov, Basel, Prague, Zürich, Antwerp and Cologne. Many consider_Rudimenta Cosmographica_ to be the first European-wide manual and the first Minor Atlas in Central and South-Eastern Europe.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Draw inspiration from the best
 
  Everything Johannes Honterus did throughout his life is an inspiration for us at Mondly. He literally put Romania on the map before the unified nation was even born and our ambition is to continue his endeavor.
@@ -71,18 +75,17 @@ thumbnail: https://thmb.techidaily.com/28c82805d5aad2753ba2e86c5bd215ad19bda09a5
 
  Start using Mondly for free on your computer or download the app and learn Spanish, French, German and more anytime, anywhere.
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Get Mondly now and speak any language like you never dreamed you would ![Get Mondly now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-5187%26mt%3D8 "Get Mondly now")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -91,4 +94,22 @@ Get Mondly now and speak any language like you never dreamed you would ![Get Mon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-masterclass-softening-auditory-peaks-gently-in-logic-pro/"><u>[New] 2024 Approved Masterclass Softening Auditory Peaks Gently in Logic Pro</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-blending-photos-into-a-kaleidoscopic-visual-symphony/"><u>[New] Blending Photos Into a Kaleidoscopic Visual Symphony</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-best-webp-converter-how-to-convert-webp-to-jpg/"><u>[Updated] 2024 Approved Best WebP Converter How to Convert WebP to JPG</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-hdr-tech-review-auroras-place-among-leaders/"><u>2024 Approved HDR Tech Review Aurora's Place Among Leaders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-and-enhance-spanish-eloquently-online-and-offline/"><u>Engage and Enhance Spanish Eloquently Online & Offline</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-lexicon-faux-pas-ranking-common-errors-in-usage/"><u>English Lexicon Faux Pas - Ranking Common Errors in Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-russian-terms-unveiled-for-any-globetrotters-use/"><u>Essential Russian Terms Unveiled: For Any Globetrotter's Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-and-exploit-mondly-to-perfection/"><u>Explore and Exploit Mondly to Perfection</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/formulating-flashy-podcast-announcements/"><u>Formulating Flashy Podcast Announcements</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-playwright-to-pundit-common-expressions-of-yore/"><u>From Playwright to Pundit: Common Expressions of Yore</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fusion-of-foreign-fluency/"><u>Fusion of Foreign Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gentlemans-guide-to-spanish-charm-offenses/"><u>Gentleman's Guide to Spanish Charm Offenses</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-on-apple-iphone-xs-max-by-drfone-ios/"><u>How To Remove the Two Factor Authentication On Apple iPhone XS Max</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-realme-c53-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of Realme C53 using Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-affordable-mobile-plans-the-ultimate-guide/"><u>Top Affordable Mobile Plans : The Ultimate Guide</u></a></li>
+</ul></div>
 

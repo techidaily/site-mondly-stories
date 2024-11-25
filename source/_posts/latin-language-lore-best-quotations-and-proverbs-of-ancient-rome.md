@@ -1,7 +1,7 @@
 ---
 title: "Latin Language Lore: Best Quotations & Proverbs of Ancient Rome"
-date: 2024-11-08T17:16:14.511Z
-updated: 2024-11-14T18:24:09.074Z
+date: 2024-11-21T16:11:16.558Z
+updated: 2024-11-24T23:39:08.052Z
 tags:
   - speak
   - english
@@ -27,10 +27,7 @@ These are nearly as famous as Julius Caesar himself.
  Famously attributed to Julius Caesar in a message he supposedly sent to the Roman Senate to describe his swift, conclusive victory against King Pharnaces II of Pontus near Zela in 47 BC.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Alea iacta est. —** _The die has been cast._
@@ -38,15 +35,16 @@ These are nearly as famous as Julius Caesar himself.
  Another Latin phrase said by Julius Caesar upon crossing the Rubicon to enter Italy and begin the long civil war against Pompey and the Optimates. The meaning of this phrase refers to the point of no return.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Carpe diem. —** _Seize the day._
 
  Probably the most popular Latin phrase of modern times. Luckily, we have an even better one:_carpe vinum_ . Literally ‘seize the wine’. The only Latin phrase you’ll ever need on a Friday night out. And speaking of night, you should also remember the_carpe noctem_ variation which literally translates to ‘seize the night’. Either way, the general meaning is to make the most of everything.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Cogito, ergo sum. —** _I think, therefore I am._
 
@@ -58,25 +56,11 @@ These are nearly as famous as Julius Caesar himself.
 
  Be careful if you_carpe vinum_ on that Friday night out we talked about. This Latin saying suggests that you’ll probably spill all your secrets if you drink too much alcohol.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Et tu, Brute? —** _“And you, Brutus?”_
 
  Or “You too, Brutus?”. This Latin quote appears in William [Shakespeare](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ‘s play “Julius Caesar” at the very moment of Caesar’s assassination. Upon recognizing his friend, Marcus Junius Brutus, as one of the assassins, Julius Caesar utters these last words.
 
  That scene is very tragic indeed, but nowadays, the phrase can be used jokingly to condemn a friend’s change of heart.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Acta, non verba. —** _Deeds, not words._
 
@@ -154,13 +138,14 @@ Every student’s favorite. We all know what this one means, don’t we?
 
 ![in vino veritas](https://edge.mondly.com/blog/wp-content/uploads/2021/07/in-vino-veritas-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “In vino veritas” by Daniel Vogel©
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cool Latin that are still used today
@@ -190,13 +175,6 @@ Get ready to bring your Roman alter ego to life in 3… 2… 1\. Go!
  Or so Lucretius said. Originally meaning “work is required to succeed”, the modern reinterpretation suggests that “everything has its origins in something”.
 
 ![common latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/common-latin-phrases-960x720.jpg "50 Popular Latin Phrases To Impress Your Friends 8")
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Laughing” by Peter Lloyd©
 
@@ -298,13 +276,6 @@ Different phrase, same story. You’re welcome.
 
  “Roman statue” by engin akyurt©
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Latin Words and Phrases for Love
 
  To conclude our exploration of the Latin phrases in a positive tone, let’s see what the Romans had to say about love. It’s true they talked more about wars, but you don’t need that kind of negativity in your life, do you? Why [learn Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) about war, when love wins no matter what?
@@ -329,6 +300,10 @@ Different phrase, same story. You’re welcome.
 
 From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why should you learn these cool Latin phrases?
 
  In all seriousness, Latin phrases, words and sayings are a fun way to boost your vocabulary and learn more about the origin of the words we use every day. While Latin is the common ancestor of the Romance languages, it has also influenced the Germanic languages (of which English is a part). So it might prove most illuminating to take inspiration from the master orators and use Latin words and phrases in your day-to-day conversations.
@@ -351,6 +326,10 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Speak Latin like Julius Caesar
 
@@ -377,22 +356,24 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-turbulence-tamer-for-mobile-cinematography/"><u>[New] 2024 Approved Turbulence Tamer for Mobile Cinematography</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-expert-reviews-on-top-6-hdmi-21-display-models/"><u>[Updated] Expert Reviews on Top 6 HDMI 2.1 Display Models</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-vertical-vs-horizontal-deciding-facebook-video-orientation/"><u>[Updated] In 2024, Vertical vs Horizontal Deciding Facebook Video Orientation</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-thrill-seekers-challenge-hero5b-vs-hero5-session-in-action/"><u>[Updated] Thrill Seekers Challenge Hero5B Vs Hero5 Session in Action</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-realme-c55-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Realme C55 to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brussels-chatter-multilingualism-at-work/"><u>Brussels Chatter: Multilingualism at Work</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-realme-c51-frp-by-drfone-android/"><u>Full Guide to Bypass Realme C51 FRP</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honoring-the-legacy-of-a-school-for-life/"><u>Honoring the Legacy of a School for Life</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-oppo-find-x6-pro-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Oppo Find X6 Pro Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-english-communication-skills/"><u>International English Communication Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jour-de-la-france-jour-de-la-semaine/"><u>Jour De La France, Jour De La Semaine</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-nippons-script-a-comprehensive-handbook/"><u>Mastering Nippon's Script: A Comprehensive Handbook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578605036-norwegian-prosperity-in-quick-regular-doses/"><u>Norwegian Prosperity in Quick, Regular Doses</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/playful-pathways-in-modern-latin-studies/"><u>Playful Pathways in Modern Latin Studies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-challenge-extremely-long-words-unveiled/"><u>The Ultimate Challenge: Extremely Long Words Unveiled</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-the-infamous-google-chrome-black-screen-tips-and-solutions/"><u>Troubleshooting the Infamous Google Chrome Black Screen: Tips & Solutions</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/webcam-troubles-tune-up-your-windows-7-drivers-in-no-time-here/"><u>Webcam Troubles? Tune-Up Your Windows 7 Drivers in No Time Here!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/re-there-restrictions-in-saving-youtube-videos/"><u>[New] Are There Restrictions in Saving YouTube Videos?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-excellence-exchange-global-creators/"><u>[New] In 2024, Excellence Exchange Global Creators</u></a></li>
+<li><a href="https://win-blog.techidaily.com/cyberpunk-2077s-frames-per-second-performance-issues-resolved/"><u>Cyberpunk 2077'S Frames Per Second Performance Issues Resolved</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-samsung-galaxy-s23-tactical-edition-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Samsung Galaxy S23 Tactical Edition.</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-nokia-c210-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Nokia C210 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Vivo V29e? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-removing-device-from-apple-id-for-your-apple-iphone-12-pro-by-drfone-ios/"><u>In 2024, Removing Device From Apple ID For your Apple iPhone 12 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-spanish-learning-and-socializing-in-vr-realm/"><u>Interactive Spanish Learning & Socializing In VR Realm</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/jacos-smartpro-digital-tyre-inflator-reviewed-an-unmatched-blend-of-power-and-portability/"><u>Jaco's SmartPro Digital Tyre Inflator Reviewed: An Unmatched Blend of Power and Portability</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lerne-die-deutschen-wochen-abschnitte-verstehen/"><u>Lerne Die Deutschen Wochen Abschnitte Verstehen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestone-1500-no-cost-daily-learning-sessions/"><u>Milestone: 1,500 No-Cost Daily Learning Sessions</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/obtain-ft232-direct-rs-232rs-485-driver-in-a-flash/"><u>Obtain FT232 Direct RS-232/RS-485 Driver in a Flash!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-arabic-for-first-time-learners/"><u>Pioneering Arabic for First-Time Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pumpkin-lore-from-around-the-world/"><u>Pumpkin Lore From Around the World</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/resolving-the-d3dx939dll-file-missing-issue-a-step-by-step-guide/"><u>Resolving the 'd3dx9_39.dll' File Missing Issue: A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-to-the-soul-africas-multilingual-identity/"><u>Speaking to the Soul: Africa’s Multilingual Identity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/surpassing-corporate-communication-barriers-with-skills/"><u>Surpassing Corporate Communication Barriers with Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-your-israeli-expedition-key-expressions-and-guidance/"><u>Unraveling Your Israeli Expedition: Key Expressions & Guidance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-take-up-the-challenge-of-learning-a-new-language-at-40-and-beyond-four-compelling-points/"><u>Why Take Up the Challenge of Learning a New Language at 40 and Beyond? Four Compelling Points</u></a></li>
 </ul></div>
 

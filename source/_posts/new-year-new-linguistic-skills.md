@@ -1,7 +1,7 @@
 ---
 title: New Year, New Linguistic Skills!
-date: 2024-11-10T16:10:57.984Z
-updated: 2024-11-15T14:31:12.738Z
+date: 2024-11-22T22:42:21.997Z
+updated: 2024-11-24T21:41:52.426Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
  It’s that time of the year again! No, not Christmas. Fast-forward a bit. I’m talking about that time of the year when you make unrealistic New Year’s resolutions – like [learning a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) – that won’t probably make it to the end of January. You know it. I know it. Let’s be honest. But that doesn’t mean you shouldn’t focus on personal growth and make a list of resolutions for the upcoming year. Whether it’s language learning or getting in shape, New Year’s resolutions can become a reality with good planning and SMART goals.
 
  Many of us give up early on our New Year’s resolutions because we’re busy and demoralized. We’re only humans, after all. Still, this can change. So, let’s see how you can take up language learning in the new year and keep doing it until December.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Are New Year’s Resolutions?
 
@@ -39,10 +43,7 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 ![language learning 2024](https://edge.mondly.com/blog/wp-content/uploads/2019/01/language-learning-2024-600x600.png "New Year, New Language: Your New Year Aspirations 5")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### A SMART Goal is
@@ -55,13 +56,6 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
  Studies show that breaking down your SMART goals into even smaller steps, like learning 1,000 French words by March, further boosts motivation and reward. Achieving this will let you understand 75% of written French without a dictionary. Moreover, involving a friend enhances motivation through competition, unlike sharing goals on social media. According to a [2019 research](https://as.nyu.edu/faculty/peter-m-gollwitzer.html/09%5FGollwitzer%5FSheeran%5FSeifert%5FMichalski%5FWhen%5FIntentions%5F.pdf) , public goal-sharing may diminish determination, as early social recognition acts as a premature reward. In contrast, friendly competition in learning a language or losing weight can spur your competitive spirit, with the reward being your improvement.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Mental Health Benefits of Language Learning
 
  Why should learning a new language be included in your New Year’s resolutions list? Because language learning is [good for your brain](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . According to multiple studies, the benefits for your cognitive health and well-being are undeniable.
@@ -73,10 +67,7 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
  Moreover, language learning will give a great boost to your memory. In fact, it can increase the size of your brain! This is what [Swedish scientists discovered](https://www.theguardian.com/education/2014/sep/04/what-happens-to-the-brain-language-learning) when they used brain scans to monitor what happens when someone learns a second language.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Mental Well-Being Benefits
@@ -85,18 +76,15 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "New Year, New Language: Your New Year Aspirations 6")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Start 2024 with a bang 🎆
 
  Make this the year you learn a new language with Mondly.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2519&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2519%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Economic Advantages of Language Learning
 
@@ -130,6 +118,10 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## New Year, New Language
 
  The time to start learning a new language is now. Not next year, not tomorrow, and not on Monday. Luckily, the award-winning language app Mondly makes language learning fun and helps you avoid procrastination.
@@ -160,18 +152,22 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-device-to-platform-a-comprehensive-guide-to-uploading-vids-on-ios/"><u>[Updated] 2024 Approved From Device to Platform A Comprehensive Guide to Uploading Vids on iOS</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-rgbs-role-in-modern-color-standards-compared-to-srgb/"><u>[Updated] 2024 Approved Rgb's Role in Modern Color Standards Compared to Srgb</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-crafting-powerful-instagram-content-top-strategies-for-video-marketing-for-2024/"><u>[Updated] Crafting Powerful Instagram Content Top Strategies for Video Marketing for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/comprehensive-recap-of-apples-let-loose-event-launching-ipad-pro-m4-13-inch-ipad-air-and-the-advanced-apple-pencil-pro/"><u>Comprehensive Recap of Apple's 'Let Loose' Event - Launching iPad Pro M4, 13-Inch iPad Air & the Advanced Apple Pencil Pro</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dawn-dictionaries-10-languages-one-sunrise-salutation/"><u>Dawn Dictionaries: 10 Languages, One Sunrise Salutation</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-vivo-y100a-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Vivo Y100A Without PUK Codes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-lifelines-top-ten-ways-for-a-better-future/"><u>Language Learning Lifelines: Top Ten Ways for a Better Future</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/milestones-in-a-decade-mondlybacks-button-innovations/"><u>Milestones in a Decade: MondlyBack’s Button Innovations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-and-apples-the-future-of-educational-excellence/"><u>Mondly and Apples: The Future of Educational Excellence</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/step-by-step-saving-and-storing-your-gpt-conversations/"><u>Step-by-Step: Saving and Storing Your GPT Conversations</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-pictures-from-asus-rog-phone-8-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from Asus ROG Phone 8.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-your-potential-in-fifties-through-foreign-language-study/"><u>Unlocking Your Potential in Fifties Through Foreign Language Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/virtual-voyage-speak-a-foreign-language-effortlessly/"><u>Virtual Voyage: Speak a Foreign Language Effortlessly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ailoring-titles-and-tags-for-top-youtube-performance/"><u>[New] Tailoring Titles and Tags for Top YouTube Performance</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ethereal-escapades-vr-film-adventures/"><u>[Updated] 2024 Approved Ethereal Escapades VR Film Adventures</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-transform-your-ideas-into-videos-with-the-power-of-movie-maker-windows-11-edition/"><u>[Updated] In 2024, Transform Your Ideas Into Videos with the Power of Movie Maker, Windows 11 Edition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-transform-videos-into-stories-discover-the-top-10-reactions/"><u>2024 Approved Transform Videos Into Stories Discover the Top 10 Reactions</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/4-unrooted-ways-to-log-internal-android-audio/"><u>4 Unrooted Ways to Log Internal Android Audio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-ghouls-celebrating-all-hallows-evening/"><u>Global Ghouls: Celebrating All Hallows' Evening</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Nokia C300? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-linguistics-top-50-phrases-for-social-enthusiasts/"><u>Latin Linguistics: Top 50 Phrases for Social Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leap-elevating-speech-with-challenging-terms/"><u>Linguistic Leap: Elevating Speech with Challenging Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearson-engage-in-languages-worldwide/"><u>Pearson Engage in Languages Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pinnacle-languages-certifications-and-effective-preparation/"><u>Pinnacle Languages Certifications & Effective Preparation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romanian-language-mastery-a-locals-guide/"><u>Romanian Language Mastery: A Local's Guide</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/step-by-step-solution-making-your-windows-11-boot-applications-visible-again/"><u>Step-by-Step Solution: Making Your Windows 11 Boot Applications Visible Again</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Vivo Y02T? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-narrative-nebula-deciphering-the-viking-dialect/"><u>The Narrative Nebula: Deciphering the Viking Dialect</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-secret-guide-browsing-instagram-as-a-non-member/"><u>The Secret Guide: Browsing Instagram as a Non-Member</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-challenging-phonetics-precise-wording-mastery/"><u>Unraveling Challenging Phonetics: Precise Wording Mastery</u></a></li>
 </ul></div>
 

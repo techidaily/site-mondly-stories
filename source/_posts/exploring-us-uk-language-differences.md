@@ -1,7 +1,7 @@
 ---
 title: Exploring US-UK Language Differences
-date: 2024-07-29T06:48:08.575Z
-updated: 2024-07-30T06:48:08.575Z
+date: 2024-11-19T22:15:03.522Z
+updated: 2024-11-24T19:50:46.912Z
 tags:
   - speak
   - english
@@ -25,8 +25,9 @@ thumbnail: https://thmb.techidaily.com/d63b36b5c666fd9de9fccce4561bf07299ad84d39
 ![British vs American](https://media.giphy.com/media/SqmkZ5IdwzTP2/giphy.gif "British English Vs American English Differences: Spelling, Pronunciation And More 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The English language in the Americas
 
  Before diving into the most important differences between [British English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and American English, let’s put some historical context around the matter.
@@ -38,8 +39,9 @@ thumbnail: https://thmb.techidaily.com/d63b36b5c666fd9de9fccce4561bf07299ad84d39
  Let’s dive into a little more detail and analyze each point of differentiation.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## British vs American: most common vocabulary differences
 
  Although the accent represents the most noticeable difference between British and American English, there are also words that differ completely depending on whether you are in Europe or across the Atlantic ocean. For example, as already mentioned, what Americans call a “sweater” is known as “jumper” or “pullover” in the United Kingdom. In the same fashion, what is known as football across the European continent Americans call soccer.
@@ -97,16 +99,10 @@ thumbnail: https://thmb.techidaily.com/d63b36b5c666fd9de9fccce4561bf07299ad84d39
 
  If you speak English as a second language and you are not sure which is the correct spelling for the type of English you use, install a spell checker and let it do the job for you. In time, you’ll get used to the fitting spelling and learn to write correctly on your own.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Grammar differences
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Collective nouns
 
  In American English, collective nouns such as “band”, “team”, “family” or “crew” are considered plural. In contrast, British English considers collective nouns either singular or plural, but more often plural as a way to emphasize the members of the group.
@@ -114,8 +110,9 @@ thumbnail: https://thmb.techidaily.com/d63b36b5c666fd9de9fccce4561bf07299ad84d39
  Thus, while**“The band is playing”** in the US, in the UK**“The band are playing”** . Likewise, if I’m in the US,**“My team is winning”** . But if I’m in the UK,**“My team are winning”** .
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Learned or learnt?
 
 **Learned** and**learnt** are both the correct past participle and past tense forms of the verb “to learn”. Easily overlooked in speech, but much more obvious in writing, this subtle difference addresses verbs.
@@ -136,6 +133,10 @@ thumbnail: https://thmb.techidaily.com/d63b36b5c666fd9de9fccce4561bf07299ad84d39
 
  Thus, in Britain, you’ll say**“I’ve been to the supermarket”** and in the US you’ll say**“I went to the supermarket”** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Prepositions
 
  In British English, “at” is generally used in relation to time and place. In contrast, in American English, “on” is used in relation to time and “in” is used in relation to place.
@@ -145,17 +146,15 @@ thumbnail: https://thmb.techidaily.com/d63b36b5c666fd9de9fccce4561bf07299ad84d39
  British English vs American English
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Other grammar differences
 
  Generally, the British are more likely to use formal speech, while Americans will rather go with informal expressions. For instance, Brits will use “shall” where Americans use “will” or “should”.
 
  Additionally, in Britain, you are likely to hear “needn’t” a lot and in the US not at all. In its place, Americans use “don’t need to”.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## British accent vs American accent
 
  The biggest difference between British English and American English is, undoubtedly, the accent. The reason why these two variations sound so different is known as rhotacism, the change of a particular consonant into a rhotic consonant. In this case, the consonant is “r”.
@@ -193,8 +192,6 @@ thumbnail: https://thmb.techidaily.com/d63b36b5c666fd9de9fccce4561bf07299ad84d39
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -202,4 +199,24 @@ thumbnail: https://thmb.techidaily.com/d63b36b5c666fd9de9fccce4561bf07299ad84d39
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-pioneering-the-pathway-personal-youtube-videos-in-google-accounts/"><u>[New] 2024 Approved Pioneering the Pathway Personal YouTube Videos in Google Accounts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-6-best-linkedin-video-downloaders-to-save-videos-from-linkedin/"><u>[Updated] 6 Best Linkedin Video Downloaders to Save Videos From LinkedIn</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-is-just-a-number-for-multilingualism-advantages/"><u>Age Is Just a Number for Multilingualism Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprender-a-contar-el-tiempo-y-las-horas-en-espanol/"><u>Aprender a Contar El Tiempo Y Las Horas en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengali-boost-learn-efficiently-live-linguistically/"><u>Bengali Boost: Learn Efficiently, Live Linguistically</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/boost-your-spreadsheet-skills-by-integrating-chatgpt-for-effortless-excel-formula-generation/"><u>Boost Your Spreadsheet Skills by Integrating ChatGPT for Effortless Excel Formula Generation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-barriers-learn-languages-anywhere-mondlys-vr-language-program/"><u>Break Barriers, Learn Languages Anywhere - Mondly's VR Language Program</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-country-leader-apples-choice-of-the-day/"><u>Cross-Country Leader: Apple's Choice of the Day</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/discover-snapchats-artistic-side-with-anime-inspired-effects/"><u>Discover Snapchat’s Artistic Side with Anime-Inspired Effects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-conversations-with-these-top-50-latin-quotables/"><u>Elevate Conversations with These Top 50 Latin Quotables</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581366510-huaweis-appgallery-unveils-new-player-mondly/"><u>Huawei's AppGallery Unveils New Player, Mondly!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/in-2024-your-first-steps-in-online-broadcasting-via-obs/"><u>In 2024, Your First Steps in Online Broadcasting via OBS</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/minds-eye-marvels-da-vinci-3s-top-30-ai-image-ideas/"><u>Mind’s Eye Marvels: Da Vinci 3'S Top 30 AI Image Ideas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581331881-mondly-by-pearson/"><u>Mondly by Pearson</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/next-watching-choice-made-easy-a-step-by-step-guide-using-chatgpt/"><u>Next Watching Choice Made Easy: A Step-by-Step Guide Using ChatGPT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-sound-sanctuary-earphones-2024/"><u>Ultimate Sound Sanctuary Earphones 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unboxing-ions-pro-3-a-new-era-for-action-cameras/"><u>Unboxing ION's Pro 3 A New Era for Action Cameras</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Expressing Thanks: Universal Language Lessons (156)"
-date: 2024-07-29T06:47:48.546Z
-updated: 2024-07-30T06:47:48.546Z
+date: 2024-11-22T22:16:28.587Z
+updated: 2024-11-24T21:23:37.099Z
 tags:
   - speak
   - english
@@ -21,8 +21,9 @@ thumbnail: https://thmb.techidaily.com/f2db6799877945629968cd53153eb704a207aecfe
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to say “thank you” in 30 languages
 
 * **Thank you in Afrikaans:** _Dankie_
@@ -57,16 +58,18 @@ thumbnail: https://thmb.techidaily.com/f2db6799877945629968cd53153eb704a207aecfe
 * **Thank you in Ukrainian:** _Дякую (Dyakuyu)_
 * **Thank you in Vietnamese:** _Cảm ơn_
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The origin of saying “thank you”
 
  The mere act of expressing gratitude sits at the core of human interaction, so it should be interesting to analyze it a bit more. As the [Oxford Dictionaries](https://en.oxforddictionaries.com/definition/thank%5Fyou) explain, “thank you” is “a polite expression used when acknowledging a gift, service, or compliment, or accepting or refusing an offer”. “Thank you” is basically the general expression of gratitude or politeness to someone for an act of kindness that he or she has done.
@@ -91,8 +94,9 @@ thumbnail: https://thmb.techidaily.com/f2db6799877945629968cd53153eb704a207aecfe
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in over 40 languages
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -114,8 +118,6 @@ thumbnail: https://thmb.techidaily.com/f2db6799877945629968cd53153eb704a207aecfe
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -123,4 +125,23 @@ thumbnail: https://thmb.techidaily.com/f2db6799877945629968cd53153eb704a207aecfe
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-ideal-cameras-boosting-podcast-clarity/"><u>[New] 2024 Approved Ideal Cameras Boosting Podcast Clarity</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-twitch-replay-magic-stream-control-secrets-for-2024/"><u>[New] Twitch Replay Magic Stream Control Secrets for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-elevate-your-meetings-best-tools-to-record-zoom/"><u>[Updated] Elevate Your Meetings Best Tools to Record Zoom</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-diving-into-instagrams-restriction-for-video-content/"><u>[Updated] In 2024, Diving Into Instagram's Restriction for Video Content</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-years-echoing-europes-language-babel-revealed/"><u>50 Years Echoing - Europe's Language Babel Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-guide-to-french-greetings-navigating-cultural-norms/"><u>A Beginner's Guide to French Greetings: Navigating Cultural Norms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-guide-to-expressing-thanks-16-essential-german-terms/"><u>A Guide To Expressing Thanks: 16 Essential German Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basic-anatomy-the-parts-of-the-body-in-french/"><u>Basic Anatomy: The Parts of the Body in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-language-barriers-masterful-grammar-insights-from-a-pro-esl-communicator/"><u>Bridging Language Barriers: Masterful Grammar Insights From a Pro ESL Communicator</u></a></li>
+<li><a href="https://facebook.techidaily.com/clarifying-the-selection-of-personalized-facebook-ads/"><u>Clarifying the Selection of Personalized Facebook Ads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-narratives-of-a-korean-week/"><u>Daily Narratives of a Korean Week</u></a></li>
+<li><a href="https://win-guides.techidaily.com/guide-complet-pour-remettre-les-pieds-sur-terre-comment-reinitialiser-vos-touches-de-clavier-facilement/"><u>Guide Complet Pour Remettre Les Pieds Sur Terre : Comment Réinitialiser Vos Touches De Clavier Facilement</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/1728474466745-microsoft-edge/"><u>Microsoft Edge バージョン更新後に失われたダウンロードファイルの復元手順</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solved-fixing-the-issue-that-interrupted-your-programs-performance/"><u>Solved: Fixing the Issue That Interrupted Your Program's Performance</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/streamline-multimedia-with-pip-in-apple-browsers/"><u>Streamline Multimedia with PIP in Apple Browsers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581018092-this-is-the-best-way-to-learn-finnish-online/"><u>This Is The Best Way To Learn Finnish Online</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Top 9 Challenging Tongues: Overcoming Language Barriers"
-date: 2024-10-30T22:15:09.450Z
-updated: 2024-11-04T18:36:45.329Z
+date: 2024-11-21T19:47:00.146Z
+updated: 2024-11-24T19:37:19.725Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/3da10c18ed5eb1d81fc33e9b77c3f37bbadf61804
 
  And the award for**the most difficult language to learn** by the native English speakers goes to…**Arabic, Chinese, Japanese and Korean** ! So yeah, not just one, but four languages! As the FSI confirms, the native English speaker would need about**2200 hours or 88 weeks of study to achieve fluency** in one of these languages. Read on for more information about the hardest languages to learn for English speakers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Arabic
 
 ![book in arabic](https://edge.mondly.com/blog/wp-content/uploads/2019/02/book-in-arabic-960x640.jpg "The 9 Hardest Languages To Learn 2")
@@ -32,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/3da10c18ed5eb1d81fc33e9b77c3f37bbadf61804
 
  Talking about its difference to English,[Encyclopedia Britannica](https://www.britannica.com/topic/Arabic-language) explains that the sound system of Arabic is very different from English. It comprises of distinctive guttural sounds and a series of velarized consonants (that are pronounced with accompanying constriction of the pharynx and raising of the back of the tongue). That sounds fairly difficult to pronounce, but not impossible since this is also the [4th most spoken language in the world](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . If you fancy the biggest challenge from the top hardest languages to learn, start by [learning Arabic](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) !
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Chinese – the most spoken language in the world and the hardest language to learn for English speakers
 
 **One of the best languages to learn** if you want to travel to Asia, Chinese is a part of the Sino-Tibetan family of languages. Occupying the**1st place in the “most spoken languages in the world” top** , Chinese is a macro language consisting of other thirteen languages – Mandarin being the most widely spoken. All these languages are considered “Chinese” due to a shared writing system and literature. Other well-known examples include Wu and Cantonese.
@@ -39,13 +47,6 @@ thumbnail: https://thmb.techidaily.com/3da10c18ed5eb1d81fc33e9b77c3f37bbadf61804
  The [same sources](https://www.britannica.com/topic/Chinese-languages) explain that the sound system of Chinese is distinctive by the use of tones to indicate different meanings between words that are otherwise identical in sound (i.e., have the same consonants and vowels). Modern Standard Chinese has four tones, while the more archaic Cantonese language uses six tones. What’s fascinating about Chinese is that its words often have only one syllable! Awesome, isn’t it?
 
  Also, why is written Chinese one of the most difficult languages to learn? If you’re eager to discover, [start learning Chinese online](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  ! Don’t worry, we’ll begin with something easy like [“hello”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and [“thank you”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Japanese
 
@@ -67,16 +68,13 @@ thumbnail: https://thmb.techidaily.com/3da10c18ed5eb1d81fc33e9b77c3f37bbadf61804
 
 [Polish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is the most spoken Western Slavic language and the second-largest Slavic language after Russian. It has 9 letters that English does not have (ą ć ę ł ń ś ó ź ż) and it contains a great number of words borrowed from Latin,[Czech](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , German, Belarusian, and Ukrainian. Along with the other West Slavic languages, it has a fixed stress accent. In contrast to the others, however, Polish has nasalized vowels (spelled ę and ą), indirectly continuing the nasalized vowels of early Slavic.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Finnish
 
  Coming in at number six is Finish, which does sound a bit similar to English, but is as complex as [Hungarian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Don’t even get me started on old or classical [Finnish and the way](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) contemporary Finns speak. Let’s just say these two are wildly different and call it a day. And the grammar… needless to say: it’s also complicated. Learning the official language of Finland will be no picnic, but it will feel very rewarding!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 7\. Hungarian
 
@@ -87,10 +85,7 @@ thumbnail: https://thmb.techidaily.com/3da10c18ed5eb1d81fc33e9b77c3f37bbadf61804
  Popular but hard to learn, Turkish is not only used by native Turks but also has its place in countries like Cyprus, Bulgaria, and Greece. English speakers will find it difficult to tackle on account of its grammar and pronunciation, with listening also not quite being a walk in the park. However, it uses the Latin alphabet and it is actually a phonetic language, so there’s that.[Learn Turkish online](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and you’ll soon discover the appeal of a language-rich in cultural and historical undertones.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. Russian
@@ -106,10 +101,7 @@ thumbnail: https://thmb.techidaily.com/3da10c18ed5eb1d81fc33e9b77c3f37bbadf61804
 ![danish flag](https://edge.mondly.com/blog/wp-content/uploads/2019/02/danish-flag-960x640.jpg "The 9 Hardest Languages To Learn 4")
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Danish flag at sea” by LEMUR©
@@ -146,19 +138,18 @@ thumbnail: https://thmb.techidaily.com/3da10c18ed5eb1d81fc33e9b77c3f37bbadf61804
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/updated-ultimate-manual-the-art-of-digital-sound-note-taking/"><u>[Updated] Ultimate Manual The Art of Digital Sound Note-Taking</u></a></li>
-<li><a href="https://win-data.techidaily.com/1-choosing-the-ideal-output-format-html-zip-exe-or-dvd-a-comprehensive-guide-flipbuildercom/"><u>1) Choosing the Ideal Output Format: HTML, ZIP, EXE, or DVD - A Comprehensive Guide [FlipBuilder.com]</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/defining-output-impedance-in-electronics-and-audio-systems/"><u>Defining Output Impedance in Electronics and Audio Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-perspective-on-countries-dominating-in-french-speaking/"><u>Global Perspective on Countries Dominating in French Speaking</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/introduzione-al-divx-che-cose-e-come-gode-di-una-vista-ottimale/"><u>Introduzione Al DivX: Che Cos'È E Come Gode Di Una Vista Ottimale</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/island-innovators-handbook-a-new-era-of-habitat-happiness/"><u>Island Innovators' Handbook: A New Era of Habitat Happiness</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/italian-dialogues-key-phrases-to-enhance-your-visit/"><u>Italian Dialogues: Key Phrases to Enhance Your Visit</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/navigating-the-best-quadcopter-engine-landscape-for-2024/"><u>Navigating the Best Quadcopter Engine Landscape for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-year-new-linguistic-skills/"><u>New Year, New Linguistic Skills!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pearsons-diverse-linguistic-programming/"><u>Pearson's Diverse Linguistic Programming</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/reinventing-yourself-through-linguistic-skills-at-50plus/"><u>Reinventing Yourself Through Linguistic Skills at 50+</u></a></li>
-<li><a href="https://extra-information.techidaily.com/revolutionizing-art-sales-7-top-generators-for-turning-images-into-nfts/"><u>Revolutionizing Art Sales - 7 Top Generators for Turning Images Into NFTs</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/speculations-surrounding-the-apple-ring-insights-on-expected-value-coming-soon-timeline-and-key-features/"><u>Speculations Surrounding the Apple Ring: Insights on Expected Value, Coming Soon Timeline & Key Features</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-how-to-effortlessly-access-and-apply-instagrams-best-filters/"><u>[New] In 2024, How to Effortlessly Access and Apply Instagram's Best Filters</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/amazon-original-elite-social-favorites-and-watch-count-hits-for-2024/"><u>Amazon Original Elite Social Favorites and Watch Count Hits for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-crafting-content-12-best-for-insta-edits/"><u>In 2024, Crafting Content 12 Best for Insta Edits</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-how-to-make-your-archive-pop-with-instagrams-vibrant-filter-options/"><u>In 2024, How to Make Your Archive Pop with Instagram's Vibrant Filter Options</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-vivo-y100i-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Vivo Y100i? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://video-capture.techidaily.com/invisible-listeners-guide-6-clandestine-recording-apps-androidios/"><u>Invisible Listeners Guide 6 Clandestine Recording Apps (Android/iOS)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/launching-the-all-new-faq-facility-for-mondly-users/"><u>Launching the All-New FAQ Facility for Mondly Users</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/making-waves-in-the-social-media-world-via-fb/"><u>Making Waves in the Social Media World via FB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-british-slang-quick-and-effective-learning/"><u>Navigating British Slang: Quick & Effective Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parallel-linguistic-proficiency/"><u>Parallel Linguistic Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-eloquent-enthusiasts-handbook-to-french-greeting-expressions/"><u>The Eloquent Enthusiast's Handbook to French Greeting Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-saying-hello-in-spanish-with-top-10-methods/"><u>The Ultimate Guide To Saying 'Hello' In Spanish With Top 10 Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-benefits-with-these-10-german-lessons/"><u>Unlock Benefits with These 10 German Lessons</u></a></li>
 </ul></div>
 

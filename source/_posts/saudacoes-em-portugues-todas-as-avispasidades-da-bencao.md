@@ -1,7 +1,7 @@
 ---
 title: "Saudações Em Português: Todas as Avispasidades Da Bênção"
-date: 2024-11-12T10:01:28.159Z
-updated: 2024-11-14T20:32:30.271Z
+date: 2024-11-21T22:23:01.226Z
+updated: 2024-11-24T22:00:21.262Z
 tags:
   - speak
   - english
@@ -24,18 +24,15 @@ thumbnail: https://thmb.techidaily.com/85ea88a283ba15f13d63e8eaf5823127ecc1dabd5
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### “Hi” in Portuguese – Oi
 
@@ -60,16 +57,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
@@ -80,6 +74,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  **Good night in Portuguese –_Boa noite!_**  – The Portuguese language does not make any difference between evening and night. Thus, “goodnight” and “good evening” have the same translation in Portuguese. While in Brazil you will say “boa NOEE-tsh”, in Portugal you will say “boa NOEE-t”.
 
  All three of these are safe to use in any kind of interaction (formal or informal).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
 
@@ -96,13 +94,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -129,10 +120,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
@@ -141,6 +129,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
 
@@ -173,21 +165,17 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-transform-your-channels-with-any-of-the-top-11-budget-friendly-naming-solutions/"><u>[New] Transform Your Channels With Any of the Top 11 Budget-Friendly Naming Solutions</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-visualvault-overview-in-depth-assessment/"><u>[Updated] In 2024, VisualVault Overview – In-Depth Assessment</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-step-by-step-guide-to-using-instagram-filters-and-icons/"><u>[Updated] Step-by-Step Guide to Using Instagram Filters and Icons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/10-intriguing-motivations-for-studying-german/"><u>10 Intriguing Motivations for Studying German</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/wma-m4b-movavi/"><u>網路直接無限制下載 WMA到 M4B - 使用 Movavi音頻格式改變工具</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/advance-your-company-dialogue-leadership-and-influence/"><u>Advance Your Company Dialogue, Leadership & Influence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beginning-your-second-tongue-get-95-off-and-start-now/"><u>Beginning Your Second Tongue? Get 95% Off and Start Now</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/celebrating-europe-day-a-decade-of-dialectal-diversity/"><u>Celebrating Europe Day - A Decade of Dialectal Diversity</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/childhood-as-a-unique-time-for-language-learning-leap/"><u>Childhood as a Unique Time for Language Learning Leap</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprehensive-list-of-japanese-welcomes/"><u>Comprehensive List of Japanese Welcomes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dawn-of-dialectics-the-greek-linguistic-saga/"><u>Dawn of Dialectics: The Greek Linguistic Saga</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/error-404-unable-to-locate-pages/"><u>Error 404: Unable To Locate Pages</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/horizon-zero-dawn-pc-performance-errors-fixed-no-more-crashes/"><u>Horizon Zero Dawn PC Performance Errors Fixed – No More Crashes!</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/how-to-perform-live-backups-of-your-files-on-windows-7810-systems/"><u>How to Perform Live Backups of Your Files on Windows 7/8/10 Systems</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-going-back-in-space-and-time-rewind-your-instagram-video/"><u>In 2024, Going Back in Space and Time Rewind Your Instagram Video</u></a></li>
-<li><a href="https://techtrends.techidaily.com/troubleshooting-steps-for-resolving-binkw32dll-file-not-found-issues/"><u>Troubleshooting Steps for Resolving binkw32.dll File Not Found Issues</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-apples-m1-performance-enhancing-video-editing-in-2024/"><u>[New] Apple’s M1 Performance Enhancing Video Editing, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-to-use-dslr-for-facebook-live-on-your-pc-in-2024/"><u>[New] How to Use DSLR for Facebook Live on Your PC, In 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-the-soundscape-strategy-incorporating-melodies-into-vimeo-videos/"><u>[Updated] In 2024, The Soundscape Strategy Incorporating Melodies Into Vimeo Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-96-off-now-begin-a-global-language-adventure/"><u>Get 96% Off Now: Begin a Global Language Adventure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/glorious-gratitude-for-us-national-day/"><u>Glorious Gratitude for U.S. National Day</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-8-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 8 without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-oneplus-nord-ce-3-lite-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost OnePlus Nord CE 3 Lite 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/instant-guide-photos-to-powerful-youtube-channel-thumbnails-in-a-flash/"><u>Instant Guide Photos to Powerful YouTube Channel Thumbnails in a Flash</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-favorite-apples-day-app/"><u>International Favorite: Apple's Day App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-and-smart-brain-boosts/"><u>Language Mastery and Smart Brain Boosts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-tongue-acquisition-top-10-simple-language-list/"><u>Quick Tongue Acquisition: Top 10 Simple Language List</u></a></li>
+<li><a href="https://win11.techidaily.com/right-click-rescue-6-fixes-to-reactivate-menu-items/"><u>Right-Click Rescue: 6 Fixes to Reactivate Menu Items</u></a></li>
 </ul></div>
 

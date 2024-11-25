@@ -1,7 +1,7 @@
 ---
 title: Engaging the Mind Through Playful Latin
-date: 2024-07-29T06:48:26.674Z
-updated: 2024-07-30T06:48:26.674Z
+date: 2024-11-23T19:17:05.734Z
+updated: 2024-11-24T23:39:13.454Z
 tags:
   - speak
   - english
@@ -21,8 +21,9 @@ thumbnail: https://thmb.techidaily.com/b50fe0cbd9cbb19ed8809a46e26fef3c1e35eecf8
  I know you are excited. I am too. “How is this even possible?” – you’ll ask. Well, here’s a hint: brilliant minds invented very cool and immensely useful pieces of software called “language learning apps” that can make language learning fun. The problem is that most language learning apps ignore Latin. But not this one. This [language learning app](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5440&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5440?mother%5Flang=en%5Fus?target%5Flang=la&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5440?mother%5Flang=en%5Fus?target%5Flang=la) will change the way we learn Latin forever. Read on to find out more and you won’t be disappointed.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How I learned Latin like a pro (and how you can too!)
 
  I know your pain. I’ve been there too. I hated Latin when I was in high school. I could not see the point of learning a dead language.
@@ -40,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/b50fe0cbd9cbb19ed8809a46e26fef3c1e35eecf8
 Here’s how.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Veni, vidi, vici
 
  “I came; I saw; I conquered” – that’s exactly what happened when I started learning Latin with Mondly. And you know what? It took me about 5 minutes to fall in love with Latin in Mondly. It’s so fun it becomes addictive! I now get Julius Caesar and how good it feels to win and finally achieve a goal that seemed impossible a few years ago.
@@ -63,8 +65,9 @@ Here’s how.
  Latin made fun with language learning app Mondly
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## _Carpe diem_ and learn Latin the fun way
 
  Life’s too short to learn Latin the boring way. That’s why Mondly made it fun.
@@ -73,10 +76,11 @@ Here’s how.
 
  **I mean, how cool is it to be able to learn a 2,000 years old language on a device that literally fits in your pocket?**
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![carpe diem latin](https://edge.mondly.com/blog/wp-content/uploads/2020/09/carpe-diem-latin-960x641.jpg "Back To School: Latin Made Fun And Easy For Students Of All Ages 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Carpe diem” by Mr Autthaporn Pradidpong©
 
@@ -90,8 +94,9 @@ Here’s how.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Speak Latin fluently in just 10 minutes a day
 
  The Latin language is no longer is secret code meant only for scholars or the Catholic Church. Starting right now, you can learn Latin with Mondly using bite-sized lessons and practical topics to help you discover how Romans conversed in their day-to-day life.
@@ -108,8 +113,6 @@ Here’s how.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -117,4 +120,22 @@ Here’s how.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-quick-tips-for-capturing-online-video-conversations/"><u>[Updated] In 2024, Quick Tips for Capturing Online Video Conversations</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-is-photoshops-shake-control-a-game-changer/"><u>[Updated] Is Photoshop's Shake Control a Game Changer?</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Vivo V30 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-top-ranked-danish-movies-for-mastering-dialect/"><u>6 Top-Ranked Danish Movies for Mastering Dialect</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-your-journey-top-tactics-for-learning-languages-online/"><u>Accelerate Your Journey: Top Tactics for Learning Languages Online</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-vivo-y36-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Vivo Y36? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-beat-quick-10-minute-daily-study-routine/"><u>Bangla Beat: Quick 10-Minute Daily Study Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577899357-how-to-talk-like-a-pirate-20-pirate-words/"><u>How To Talk Like A Pirate: 20 Pirate Words</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-xiaomi-redmi-note-12-pro-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Xiaomi Redmi Note 12 Pro 5G Devices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-top-8-gratis-video-cutting-tools-for-online-content-creation/"><u>In 2024, Top 8 Gratis Video Cutting Tools For Online Content Creation</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-through-popular-sites-facebook-to-youtube/"><u>Navigating Through Popular Sites: Facebook to YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580240078-quick-bokmal-breakthrough-with-daily-practice/"><u>Quick Bokmål Breakthrough with Daily Practice!</u></a></li>
+<li><a href="https://tools.techidaily.com/smart-seo-tool/products/"><u>Smart-seo-tool's Products</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-teen-dramas-and-comedies-streaming-on-netflix-today/"><u>Top-Rated Teen Dramas and Comedies Streaming on Netflix Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579747841-why-learn-croatian-discover-these-7-remarkable-advantages-immediately/"><u>Why Learn Croatian? Discover These 7 Remarkable Advantages Immediately!</u></a></li>
+</ul></div>
 

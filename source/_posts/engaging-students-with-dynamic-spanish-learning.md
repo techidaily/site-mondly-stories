@@ -1,7 +1,7 @@
 ---
 title: Engaging Students with Dynamic Spanish Learning
-date: 2024-07-29T06:46:57.642Z
-updated: 2024-07-30T06:46:57.642Z
+date: 2024-11-18T23:27:16.595Z
+updated: 2024-11-24T20:06:53.351Z
 tags:
   - speak
   - english
@@ -21,9 +21,9 @@ thumbnail: https://thmb.techidaily.com/e773ad143d0e6a181e98946175694e64ba11aabb2
  I know you are excited. I am too. “How is this even possible?” – you’ll ask. Well, here’s a hint: brilliant minds invented very cool and immensely useful pieces of software called “language learning apps” that can make language learning fun. The problem is that most language learning apps ignore Latin. But not this one. This [language learning app](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5440&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5440?mother%5Flang=en%5Fus?target%5Flang=la&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5440?mother%5Flang=en%5Fus?target%5Flang=la) will change the way we learn Latin forever. Read on to find out more and you won’t be disappointed.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How I learned Latin like a pro (and how you can too!)
 
  I know your pain. I’ve been there too. I hated Latin when I was in high school. I could not see the point of learning a dead language.
@@ -41,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/e773ad143d0e6a181e98946175694e64ba11aabb2
 Here’s how.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Veni, vidi, vici
 
  “I came; I saw; I conquered” – that’s exactly what happened when I started learning Latin with Mondly. And you know what? It took me about 5 minutes to fall in love with Latin in Mondly. It’s so fun it becomes addictive! I now get Julius Caesar and how good it feels to win and finally achieve a goal that seemed impossible a few years ago.
@@ -64,8 +65,9 @@ Here’s how.
  Latin made fun with language learning app Mondly
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## _Carpe diem_ and learn Latin the fun way
 
  Life’s too short to learn Latin the boring way. That’s why Mondly made it fun.
@@ -74,10 +76,11 @@ Here’s how.
 
  **I mean, how cool is it to be able to learn a 2,000 years old language on a device that literally fits in your pocket?**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![carpe diem latin](https://edge.mondly.com/blog/wp-content/uploads/2020/09/carpe-diem-latin-960x641.jpg "Back To School: Latin Made Fun And Easy For Students Of All Ages 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Carpe diem” by Mr Autthaporn Pradidpong©
 
@@ -91,8 +94,9 @@ Here’s how.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Speak Latin fluently in just 10 minutes a day
 
  The Latin language is no longer is secret code meant only for scholars or the Catholic Church. Starting right now, you can learn Latin with Mondly using bite-sized lessons and practical topics to help you discover how Romans conversed in their day-to-day life.
@@ -109,8 +113,6 @@ Here’s how.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -118,4 +120,23 @@ Here’s how.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-say-goodbye-to-stumbles-in-your-instagram-stream/"><u>[New] In 2024, Say Goodbye to Stumbles in Your Instagram Stream</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-win11s-best-videography-applications-explored-for-2024/"><u>[New] Win11's Best Videography Applications Explored for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-novice-to-pro-the-essentials-in-zooming-for-youtube-broadcasts/"><u>[Updated] From Novice to Pro The Essentials in Zooming for YouTube Broadcasts</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/3-ways-to-unlock-your-apple-iphone-15-plus-for-free-by-drfone-ios/"><u>3 Ways to Unlock Your Apple iPhone 15 Plus for Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enlightenment-without-cost-celebrating-1500-daily-no-fee-lessons/"><u>Enlightenment Without Cost: Celebrating 1500 Daily No-Fee Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-tactics-mastering-a-second-or-third-language-online/"><u>Essential Tactics: Mastering a Second (or Third) Language Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everyday-language-explained-slang-terms-uncovered/"><u>Everyday Language Explained: Slang Terms Uncovered</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-ukrainian-quickly-one-day-at-a-time-74-chars-note-adjusted-for-brevity/"><u>Explore Ukrainian Quickly, One Day at a Time (74 Chars) - Note: Adjusted for Brevity.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expo-polyglotia-2020-paving-the-way-for-new-speakers/"><u>Expo Polyglotia 2020: Paving the Way for New Speakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expotonguequest-discovering-the-future-of-language/"><u>ExpoTongueQuest: Discovering the Future of Language</u></a></li>
+<li><a href="https://driver-download.techidaily.com/free-download-newest-sapphire-graphics-driver-version-compatible-with-windows-os/"><u>Free Download: Newest Sapphire Graphics Driver Version Compatible with Windows OS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-best-to-extraordinary-mondlys-journey-in-german-linguistics/"><u>From Best to Extraordinary: Mondly’s Journey in German Linguistics</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-honor-magic-6-pro-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Honor Magic 6 Pro Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlocking-secretly-hidden-apps-on-your-iphone-a-comprehensive-guide/"><u>Unlocking Secretly Hidden Apps on Your iPhone – A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/upcoming-google-pixel-9-details-revealed-find-out-the-latest-on-pricing-release-timeline-and-features/"><u>Upcoming Google Pixel 9 Details Revealed! Find Out the Latest on Pricing, Release Timeline & Features</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/walmart-halts-unmanned-aerial-vehicle-deliveries-across-california-arizona-and-south-carolina/"><u>Walmart Halts Unmanned Aerial Vehicle Deliveries Across California, Arizona and South Carolina</u></a></li>
+</ul></div>
 

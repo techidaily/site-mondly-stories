@@ -1,7 +1,7 @@
 ---
 title: The Eerie Origins of Halloween Customs
-date: 2024-10-29T04:10:29.077Z
-updated: 2024-11-04T23:07:09.737Z
+date: 2024-11-23T21:08:09.487Z
+updated: 2024-11-24T19:17:53.953Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 
 ## Halloween-like Traditions Worldwide
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Mexico: Día de Muertos (Day of the Dead)
 
  Inscribed in the UNESCO Representative List of the Intangible Cultural Heritage of Humanity,_Día de los Muertos_ is celebrated yearly on October 31, November 1, and November 2 to coincide with the celebration the Allhallowtide: All Saints’ Eve, All Saints’ Day, and All Souls’ Day.
@@ -35,22 +39,12 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Calaveras” by Valeria Almaraz©
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### China: The Hungry Ghost Festival
 
@@ -61,10 +55,7 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 ![Traditional practices during the Hungry Ghost Festival in China](https://edge.mondly.com/blog/wp-content/uploads/2019/09/9609227445_5a2c7c2f90_o-960x640.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 7")
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “The Hungry Ghost Festival” by Matthew Kang©
@@ -77,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
 
  Moving to Europe, we discover that although American Halloween is even more notorious here than in other parts of the world, people still have their own traditional ways of celebrating the afterlife. For example, Italy has_Tutti i Morti,_ a public day celebrated on the 1st and 2nd of November by remembering and praying for the deceased.
@@ -84,13 +79,6 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
  A few days before the celebration, people visit the cemeteries so their loved ones will have fresh flowers on the grave on the day of the actual ceremonies. Then, they continue with all the other preparations involving different rituals depending on the region. For [example](https://www.italyheritage.com/traditions/calendar/november/ognissanti.htm) , in Puglia, Orsara, it is believed that the souls return from Purgatory, so the Orsaresi decorate the town with_cocce priatorje_ (pumpkins) that symbolize the spirits and lit bonfires to console them. In Sicily, children wake up on the morning of_Giorno dei Morti_ and find small gifts from their deceased relatives, in Abruzzo, children go door to door to ask for gifts for the souls of the dead and in Veneto, the carved pumpkins are called lumère (lanterns) or_suche dei morti_ (deads’ pumpkins) and represent the resurrection.
 
 ![halloween in different countries](https://edge.mondly.com/blog/wp-content/uploads/2019/09/neonbrand-A59lWOrZVnw-unsplash-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 8")
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Halloween party” by NeONBRAND©
 
@@ -101,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
  Thanks to Dracula, Romania is now one of the most well-known Halloween destinations. Everyone dreams of partying at Dracula’s Castle. In reality, both Catholic and Orthodox churches in Romania discourage Halloween celebrations. Instead, they advocate for the celebrations of the Day of the Dead on 1 November, when special religious ceremonies are held for the souls of the deceased.
 
 ![dracula's castle](https://edge.mondly.com/blog/wp-content/uploads/2019/09/draculas-castle-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 9")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Dracula’s Castle in Romania” by Nomadic Julien©
 
@@ -144,17 +136,15 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-toongems-detailed-analysis-24-summary/"><u>[New] 2024 Approved ToonGems Detailed Analysis '24 Summary</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/solved-no-amd-graphics-driver-is-installed-on-windows-1110/"><u>[SOLVED] No AMD Graphics Driver Is Installed on Windows 11/10</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-ideas-on-improving-gopros-energy-management/"><u>2024 Approved Ideas on Improving GoPro's Energy Management</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1725287844736-digiartywinx-dvd/"><u>公式 Digiarty・WinX DVD商品一覧とチェックアウトプロセス - お使い方マニュアル</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lifelong-education-top-four-reasons-to-learn-languages-at-age-40plus-for-enriched-life-experiences/"><u>Lifelong Education: Top Four Reasons to Learn Languages at Age 40+ for Enriched Life Experiences</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-exploring-the-best-audio-blending-software-top-picks-free-of-charge/"><u>New In 2024, Exploring the Best Audio Blending Software - Top Picks , Free of Charge!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/no-budget-no-problem-top-online-solo-journey-to-japan-proficiency/"><u>No Budget? No Problem! Top Online, Solo Journey to Japan Proficiency</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/perfect-iphone-photos-quick-editing-hacks-for-2024/"><u>Perfect iPhone Photos Quick Editing Hacks for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swift-techniques-for-efficient-language-learning/"><u>Swift Techniques for Efficient Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/time-optimization-for-numerical-japanese/"><u>Time Optimization for Numerical Japanese</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-tech-bargains-during-the-amazon-prime-day-sale-of-2024/"><u>Top Tech Bargains During the Amazon Prime Day Sale of 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/virtual-lithuanian-journey-top-tutorial-recommendations/"><u>Virtual Lithuanian Journey: Top Tutorial Recommendations</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-essential-tips-for-designing-engaging-fb-video-covers/"><u>[New] 2024 Approved Essential Tips for Designing Engaging FB Video Covers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-essential-guide-to-youtubes-premier-unboxers/"><u>[New] In 2024, Essential Guide to YouTube's Premier Unboxers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-5-ways-to-record-vr-gameplay/"><u>[Updated] In 2024, 5 Ways to Record VR Gameplay</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-easy-recording-setups-for-lol-enthusiasts-3-ways/"><u>In 2024, Easy Recording Setups for LOL Enthusiasts (3 Ways)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kangaroo-talk-australian-lingo-made-simple/"><u>Kangaroo Talk: Australian Lingo Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-kinship-to-spains-dialect/"><u>Linguistic Kinship to Spain’s Dialect</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/meilleur-encodeur-video-h265-pour-pc-et-mac-convertisseur-hevc-optimise-pour-windows-10/"><u>Meilleur Encodeur Vidéo H.265 Pour PC Et Mac - Convertisseur HEVC Optimisé Pour Windows 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-hospitality-mastering-italys-most-common-greetings/"><u>The Language of Hospitality: Mastering Italy's Most Common Greetings</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/1728498339185-windows-11/"><u>Windows 11 恢復至先前時間版本：使用兩種有效方法</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese/"><u>プレゼンターズの日 (Japanese)</u></a></li>
 </ul></div>
 

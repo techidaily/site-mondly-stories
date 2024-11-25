@@ -1,7 +1,7 @@
 ---
 title: Original Vocal Augmented Reality Platform
-date: 2024-10-30T08:22:36.836Z
-updated: 2024-11-04T23:29:03.238Z
+date: 2024-11-23T22:00:17.058Z
+updated: 2024-11-24T19:47:30.112Z
 tags:
   - speak
   - english
@@ -26,11 +26,19 @@ Here’s a video showcasing Mondly AR:
 
 ##
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## We take learning out of the books and bring it to life into your living room using augmented reality
 
  The new experience we created helps you develop a strong sense of the language you want to learn through highly realistic visual lessons and purposeful conversations. This approach is aiming to stimulate you to learn languages not because you have to, but because [it’s genuinely fun.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
 
@@ -43,10 +51,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +70,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +87,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,17 +119,17 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-5-prime-fb-video-extractor-guide/"><u>[Updated] 2024 Approved 5 Prime FB Video Extractor Guide</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-ideal-microphone-logging-software-on-mac-devices-compile-the-best-5-for-2024/"><u>[Updated] Ideal Microphone Logging Software on Mac Devices Compile the Best 5 for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-efficient-methods-for-video-to-dvd-conversion-in-macos/"><u>2024 Approved Efficient Methods for Video-to-DVD Conversion in MacOS</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/choosing-between-ipad-pro-and-ipad-air-the-ultimate-comparison-for-your-perfect-apple-tablet-insights-from-zdnet/"><u>Choosing Between iPad Pro and iPad Air: The Ultimate Comparison for Your Perfect Apple Tablet - Insights From ZDNet</u></a></li>
-<li><a href="https://games-able.techidaily.com/combating-steams-inability-to-validate-games/"><u>Combating Steam's Inability to Validate Games</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/germany-embraces-mondly-the-ultimate-language-portal/"><u>Germany Embraces Mondly - The Ultimate Language Portal</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-motorola-moto-e13-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Motorola Moto E13 in 5 Easy Ways | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jingle-bells-around-the-world-santas-tongue/"><u>Jingle Bells Around the World - Santa's Tongue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-button-new-ways-mondly-enriches-oculus-quest-interactions/"><u>New Button, New Ways: Mondly Enriches Oculus Quest Interactions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-language-journey-with-mondlys-immersive-vr-solutions/"><u>Revolutionize Your Language Journey with Mondly's Immersive VR Solutions</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/toms-comprehensive-hardware-analysis-and-expert-advice/"><u>Tom's Comprehensive Hardware Analysis and Expert Advice</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-easter-greetings-across-languages/"><u>Worldwide Easter Greetings Across Languages</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-framed-fantasies-expert-recommendations-on-software-and-sites/"><u>[Updated] 2024 Approved Framed Fantasies Expert Recommendations on Software & Sites</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-fb-media-migration-tools-for-windowsmacos-users-for-2024/"><u>[Updated] FB Media Migration Tools for Windows/macOS Users for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-streaming-made-simple-free-downloader-to-mp3s-now-for-2024/"><u>[Updated] Streaming Made Simple Free Downloader to MP3s Now for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-effective-ways-to-archive-and-record-youtube-events/"><u>2024 Approved Effective Ways to Archive and Record Youtube Events</u></a></li>
+<li><a href="https://win-blog.techidaily.com/dying-light-optimization-guide-eliminating-frustrating-lag-issues-for-smooth-play/"><u>Dying Light Optimization Guide: Eliminating Frustrating Lag Issues for Smooth Play</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/enhance-your-video-understanding-windows-hdr/"><u>Enhance Your Video Understanding Windows HDR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-romanian-the-locally-developed-way/"><u>Learning Romanian, The Locally-Developed Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-made-my-language-journey-easier-and-more-effective-the-ultimate-10-tips/"><u>Mondly Made My Language Journey Easier and More Effective - The Ultimate 10 Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-outshines-competitors-germanys-language-utopia/"><u>Mondly Outshines Competitors - Germany’s Language Utopia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-turkeys-alphabet-an-intuitive-learning-resource-for-foreigners/"><u>Navigating Turkey's Alphabet: An Intuitive Learning Resource for Foreigners</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/the-comprehensive-guide-to-slowing-video-on-iphone/"><u>The Comprehensive Guide to Slowing Video on iPhone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-reasons-to-stick-with-your-iphone-14-instead-of-upgrading-to-iphone-16-pro-a-deep-dive/"><u>Top Reasons to Stick with Your iPhone 14 Instead of Upgrading to iPhone 16 Pro - A Deep Dive</u></a></li>
 </ul></div>
 

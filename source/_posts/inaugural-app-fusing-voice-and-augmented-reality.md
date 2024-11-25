@@ -1,7 +1,7 @@
 ---
 title: Inaugural App Fusing Voice & Augmented Reality
-date: 2024-11-08T10:29:03.368Z
-updated: 2024-11-15T10:49:29.801Z
+date: 2024-11-20T18:17:29.533Z
+updated: 2024-11-24T23:27:24.313Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ Here’s a video showcasing Mondly AR:
 
 ##
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## We take learning out of the books and bring it to life into your living room using augmented reality
 
  The new experience we created helps you develop a strong sense of the language you want to learn through highly realistic visual lessons and purposeful conversations. This approach is aiming to stimulate you to learn languages not because you have to, but because [it’s genuinely fun.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
@@ -38,15 +42,16 @@ Here’s a video showcasing Mondly AR:
 
 ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +70,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +87,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -120,21 +119,16 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-unveiling-the-world-of-wide-web-watching-via-fb-for-2024/"><u>[New] Unveiling the World of Wide Web Watching via FB for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-edit-away-bloat-organizing-your-overflow-of-tiktok-saves/"><u>[Updated] Edit Away Bloat Organizing Your Overflow of TikTok Saves</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-essential-10-history-youtube-feeds-for-learners/"><u>[Updated] Essential 10 History YouTube Feeds For Learners</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-expert-advice-on-itunes-video-capturing/"><u>2024 Approved Expert Advice on iTunes Video Capturing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/amores-secret-language-italian-flirting-guide/"><u>Amore’s Secret Language: Italian Flirting Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/asias-premier-language-phenomena-quick-backup-feature/"><u>Asia's Premier Language Phenomena: Quick Backup Feature</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beginners-guide-to-essential-russian-salutations-and-vocabulranium-navigating-a-new-world-of-social-interactions-and-expressions-in-latin-america/"><u>Beginner's Guide to Essential Russian Salutations & Vocabulranium: Navigating a New World of Social Interactions and Expressions in Latin America</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bulgaria-unlocked-learn-in-quick-bursts/"><u>Bulgaria Unlocked: Learn in Quick Bursts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/celebrating-dedication-mondlys-ten-year-triumph/"><u>Celebrating Dedication: Mondly's Ten-Year Triumph</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/customizing-your-windows-home-screenscape-at-will/"><u>Customizing Your Windows Home Screenscape at Will</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-slavic-languages-ukraines-ties-with-russ/"><u>Decoding Slavic Languages: Ukraine's Ties with Russ</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-the-latin-legacy-spanish-vs-portuguese/"><u>Decoding the Latin Legacy: Spanish Vs. Portuguese</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/focusing-the-lens-advanced-cinematic-techniques-for-2024/"><u>Focusing the Lens Advanced Cinematic Techniques for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209881195-9781087804842-the-10-laws-of-transmutation/"><u>The 10 Laws of Transmutation | Free Book</u></a></li>
-<li><a href="https://extra-information.techidaily.com/transforming-video-aesthetics-on-tiktok-dual-approach/"><u>Transforming Video Aesthetics on TikTok (Dual Approach)</u></a></li>
-<li><a href="https://win-blog.techidaily.com/ultimate-guide-stop-warno-from-crashing-and-keep-playing-seamlessly/"><u>Ultimate Guide: Stop Warno From Crashing and Keep Playing Seamlessly</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-best-mac-image-sorter/"><u>[New] Best Mac Image Sorter</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-trivia-treasures-2024-best-general-knowledge-streaming-sites/"><u>[New] Trivia Treasures 2024 Best General Knowledge Streaming Sites</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-perfecting-mp4-conversion-ipv-techniques-for-high-quality-videos/"><u>2024 Approved Perfecting MP4 Conversion IPV Techniques for High-Quality Videos</u></a></li>
+<li><a href="https://games-able.techidaily.com/adding-portable-storage-to-your-steam-deck/"><u>Adding Portable Storage to Your Steam Deck</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-educonnect-forum-london-uk/"><u>Global Educonnect Forum - London, UK</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-imovie-photo-slideshow-with-music-in-2024/"><u>How to Make a iMovie Photo Slideshow with Music, In 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-realme-10t-5g-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Realme 10T 5G Pattern Lock Screen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/passionate-phrases-the-heart-of-french-charm/"><u>Passionate Phrases: The Heart of French Charm</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revel-in-advanced-usage-techniques-for-mondly/"><u>Revel in Advanced Usage Techniques for Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-appreciation-multilingual-thank-you-expressions-156/"><u>The Art of Appreciation: Multilingual Thank You Expressions (156)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uss-preferred-foreign-language-study-pathways/"><u>U.S.'s Preferred Foreign Language Study Pathways</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Lexicon Origins: Shakespearean Words in Modern Chatter"
-date: 2024-11-12T09:02:23.711Z
-updated: 2024-11-15T11:49:04.470Z
+date: 2024-11-21T22:13:48.698Z
+updated: 2024-11-24T17:45:21.199Z
 tags:
   - speak
   - english
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/95080ee1192e9ec99602ccecb30de670936b2e86c
 
  And these are just a few of the words Shakespeare introduced to the world during his life in the Elizabethan England. Whether you’re a fan of Shakespeare or simply enjoy learning about the evolution of the English language, this article is sure to captivate and entertain you. So stick around and read on to discover some more of the words Shakespeare invented.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How many words did Shakespeare invent?
 
 **Most sources agree that Shakespeare invented around 1700 words.** However, it seems there’s more to this story. While the playwright was indeed very productive in this field, some say that not all these words were created by him. Instead, he was just the first one to document these words in writing. And that’s entirely possible.
@@ -44,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/95080ee1192e9ec99602ccecb30de670936b2e86c
  According to the [OED](https://public.oed.com/history/oed-editions/) , the most frequently quoted single author in the Second Edition of the Dictionary (published in 1989) is William Shakespeare with approximately 33,300 quotations.
 
  Be that as it may, we’re not suggesting Shakespeare was not a genius of words. We’re simply stating we should take numbers with a grain of salt.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How did Shakespeare invent words?
 
@@ -57,22 +65,12 @@ thumbnail: https://thmb.techidaily.com/95080ee1192e9ec99602ccecb30de670936b2e86c
 
 ![Shakespeare words](https://edge.mondly.com/blog/wp-content/uploads/2023/02/shakespeare-words.jpg "Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today 2")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Cool words Shakespeare invented
 
 _To invent new words, or not to invent new words?_ Clearly, William Shakespeare did not ask himself that. He just went with it and invented new words so he could properly tell his stories. In the end, he was so good at both storytelling and coining words that today it is impossible to have an English curriculum without Shakespeare. But enough tittle-tattle.**Let’s see what other words Shakespeare invented:**
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **1\. Addiction**
@@ -99,22 +97,12 @@ _King Henry VI_ , Part III, Act III, Scene III
 
 _Troilus and Cressida_ , Act III, Scene III
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **7\. (to) Friend**
 
 _Hamlet_ , Act I, Scene V
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **8\. (to) Gossip**
@@ -122,10 +110,7 @@ _Hamlet_ , Act I, Scene V
 _The Comedy of Errors_ , Act V, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **9\. Hint**
@@ -136,6 +121,10 @@ _Othello_ , Act I, Scene III
 
 _The Merchant of Venice_ , Act I, Scene I
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **11\. Majestic**
 
 _Julius Caesar_ , Act I, Scene II
@@ -145,10 +134,7 @@ _Julius Caesar_ , Act I, Scene II
 _As You Like It_ , Act I, Scene II
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **13.** Mimic
@@ -163,16 +149,13 @@ _Troilus and Cressida_ , Act III, Scene III
 
 _Love’s Labour’s Lost_ , Act I, Scene I
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **16\. Ode**
 
 _Love’s Labour’s Lost_ , Act IV, Scene III
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **17.** Olympian
 
@@ -186,13 +169,6 @@ _Hamlet_ , Act II, Scene I
 
 _As You Like It_ , Act II, Scene VII
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **20\. Radiance**
 
 _All’s Well That Ends Well_ , Act I, Scene I
@@ -200,6 +176,10 @@ _All’s Well That Ends Well_ , Act I, Scene I
 ### **21\. (to) Rant**
 
 _Hamlet_ , Act V, Scene I
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **22\. (to) Swagger**
 
@@ -212,6 +192,10 @@ _Othello_ , Act III, Scene III
 ### **24.** Unreal
 
 _Macbeth_ , Act III, Scene IV
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **25\. Zany**
 
@@ -255,22 +239,16 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-elevating-your-teaching-toolkit-how-to-craft-exceptional-videos-for-learning/"><u>[New] Elevating Your Teaching Toolkit How to Craft Exceptional Videos for Learning</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-samsungs-guide-to-crafting-captivating-time-lapses-with-smartphones/"><u>2024 Approved Samsung's Guide to Crafting Captivating Time-Lapses with Smartphones</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578903374-accelerated-norsk-knowledge-daily-dash/"><u>Accelerated Norsk Knowledge - Daily Dash!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/adjusted-terms-and-conditions-notice/"><u>Adjusted Terms & Conditions Notice</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/augment-your-vocabulary-mondlys-ar-learning-method/"><u>Augment Your Vocabulary: Mondly’s AR Learning Method</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/battles-and-ballads-decoding-the-language-of-viking-bards/"><u>Battles & Ballads: Decoding the Language of Viking Bards</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-with-pearson-today/"><u>Break Language Barriers with Pearson Today</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/creating-high-impact-short-waterway-previews/"><u>Creating High-Impact Short Waterway Previews</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dialekte-und-formeln-im-deutschsprachigen-vergeben/"><u>Dialekte Und Formeln Im Deutschsprachigen Vergeben</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-japanese-greeting-culture/"><u>Dive Into Japanese Greeting Culture</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-romance-saying-i-love-you-in-different-languages/"><u>Embrace Romance: Saying I Love You in Different Languages</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/emerging-phoenix-restoring-pdfs/"><u>Emerging Phoenix - Restoring PDFs</u></a></li>
-<li><a href="https://driver-error.techidaily.com/how-to-fix-disconnected-drives-in-windows-1110/"><u>How to Fix Disconnected Drives in Windows 11/10</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-harnessing-the-power-of-slow-motion-pro-level-gopro-hero-10-techniques/"><u>In 2024, Harnessing the Power of Slow Motion Pro-Level GoPro Hero 10 Techniques</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-what-you-missed-a-closer-look-at-facebooks-2023-upgrades/"><u>In 2024, What You Missed A Closer Look at Facebook's 2023 Upgrades</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/premium-portable-switch-game-clones-for-2024/"><u>Premium Portable Switch Game Clones for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/what-does-jailbreaking-apple-iphone-11-pro-i-do-get-answers-here-drfone-by-drfone-ios/"><u>What Does Jailbreaking Apple iPhone 11 Pro i Do? Get Answers here | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-elite-action-cameras-best-15-handheld-choices/"><u>[Updated] In 2024, Elite Action Cameras Best 15 Handheld Choices</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-ultimate-gamers-choices-the-best-mobile-gaming-phones-according-to-zdnet/"><u>Discover the Ultimate Gamer's Choices : The Best Mobile Gaming Phones According to ZDNet</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/full-wsl-disabling-guide-for-windows/"><u>Full WSL Disabling Guide for Windows</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-6-methods-for-switching-from-apple-iphone-se-2020-to-samsung-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 6 Methods for Switching from Apple iPhone SE (2020) to Samsung | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-apple-iphone-14-lock-screen-with-notifications-by-drfone-ios/"><u>In 2024, How to Make the Most of Your Apple iPhone 14 Lock Screen with Notifications?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-seafarer-speak-pirate-vocabulary-guide/"><u>Mastering Seafarer Speak: Pirate Vocabulary Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingualism-an-investment-for-the-fifties-and-beyond/"><u>Multilingualism: An Investment for the Fifties and Beyond</u></a></li>
+<li><a href="https://video-capture.techidaily.com/perfectly-crafted-online-meeting-backdrops/"><u>Perfectly Crafted Online Meeting Backdrops</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplified-hangul-learning-your-guide-to-seamless-script-acquisition/"><u>Simplified Hangul Learning: Your Guide to Seamless Script Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-brit-slang-the-ultimate-guidebook/"><u>Unlocking Brit Slang: The Ultimate Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-santas-international-oratory-skills/"><u>Unveiling Santa's International Oratory Skills</u></a></li>
 </ul></div>
 

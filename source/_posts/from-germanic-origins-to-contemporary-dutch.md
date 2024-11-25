@@ -1,7 +1,7 @@
 ---
 title: From Germanic Origins to Contemporary Dutch
-date: 2024-07-29T06:46:43.319Z
-updated: 2024-07-30T06:46:43.319Z
+date: 2024-11-19T22:41:38.700Z
+updated: 2024-11-24T22:28:30.697Z
 tags:
   - speak
   - english
@@ -29,8 +29,9 @@ thumbnail: https://thmb.techidaily.com/ae11f135f58753564eec93a4a8d775f2e6a724fb4
 **The Dutch people are from the Netherlands.** As unrelated as that may seem, there is a whole history to it.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Why are Dutch people called Dutch?
 
  It seems that the confusion stems from the English-speaking people and the reason can be found by studying **the [etymology](https://www.etymonline.com/word/dutch) of the word ‘dutch’** . I won’t bore you with all the details, but the bottom line is that in the late 14th century the word referred to ‘a German language’ or to ‘German, non-Scandinavian continental Germanic’. Additionally, the word corresponds to the Old English adjective_þeodisc_ (‘belonging to the people’) which was used to refer to the common language of Germanic people (as opposed to Latin).
@@ -46,8 +47,9 @@ thumbnail: https://thmb.techidaily.com/ae11f135f58753564eec93a4a8d775f2e6a724fb4
  So where exactly in Western Europe is the Netherlands? The country borders Germany to the east,[Belgium](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to the south, and the North Sea to the northwest. Its largest city and capital is Amsterdam.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### The Netherlands vs Holland
 
 Okay, bare with me. There’s more.
@@ -56,6 +58,10 @@ Okay, bare with me. There’s more.
 
 ![netherlands vs holland](https://edge.mondly.com/blog/wp-content/uploads/2022/02/netherlands-vs-holland.png "Where Are Dutch People From? Discover The Dutch Language 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The Netherlands vs Holland
 
  It all goes back (again) to Old English. Originally referring to the people from the northern region of the Netherlands, ‘Holland’ literally meant ‘wood-land’. But over time, English speakers began to mistakenly associate it with the entire country.
@@ -63,8 +69,9 @@ Okay, bare with me. There’s more.
  Formerly the County of Holland (the most important county in the Low Countries region), Holland now consists of North and South Holland. These are two of the nation’s twelve provinces.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What language do they speak in the Netherlands?
 
  If you read the above explanations, you probably already understand the rationale.**People in the Netherlands speak the Dutch language.**
@@ -81,10 +88,6 @@ Okay, bare with me. There’s more.
 
  ‘Tulip fields in the Netherlands’ by redcharlie©
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### What other countries speak Dutch?
 
  Having over 24 million speakers worldwide, Dutch is the official language of the Netherlands and, together with French and German, one of the three official languages of Belgium.
@@ -94,8 +97,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  If you travel to South Africa, you may think people speak Dutch, but they actually speak [Afrikaans](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , a language that evolved from Dutch.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is German Dutch?
 
  Are Dutch and_Deutsch_ the same? Given all the evidence we’ve brought forth so far, we can safely say ‘no’.
@@ -109,9 +113,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Start learning Dutch today
 
 Is Dutch easy to learn? It is if you learn it with Mondly.
@@ -132,8 +133,6 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -141,4 +140,21 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-vids-for-cash-a-compreomed-analysis-of-monetization-plays/"><u>[Updated] In 2024, Vids for Cash A Compreomed Analysis of Monetization Plays</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-strategies-for-purchasing-clear-visual-content/"><u>[Updated] Strategies for Purchasing Clear Visual Content</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/advanced-neuroimaging-techniques-provide-detailed-structural-and-functional-information-that-is-critical-for-accurate-diagnosis-and-treatment-planning-in-va309/"><u>Advanced Neuroimaging Techniques Provide Detailed Structural and Functional Information that Is Critical for Accurate Diagnosis and Treatment Planning in Various Neurological Conditions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/endless-freedom-in-mondlys-deal/"><u>Endless Freedom in Mondly's Deal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-leadership-by-mastering-effective-communication-tools/"><u>Enhance Leadership by Mastering Effective Communication Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/epic-discount-lifetime-language-access-at-black-friday/"><u>Epic Discount: Lifetime Language Access at Black Friday!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everywheres-top-app-by-apple/"><u>Everywhere's Top App by Apple</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/experience-cost-free-community-listings-on-oodle-platform/"><u>Experience Cost-Free Community Listings on Oodle Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-variations-in-back-and-filter-buttons-of-portuguese/"><u>Exploring the Variations in Back & Filter Buttons of Portuguese</u></a></li>
+<li><a href="https://win-dash.techidaily.com/hp-m506-printer-driver-free-download-and-latest-updates/"><u>HP M506 Printer Driver: Free Download and Latest Updates</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-the-best-lipos-a-drone-buyers-bible/"><u>In 2024, Unveiling the Best LiPos - A Drone Buyer's Bible</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-through-your-drive-space-a-disc-usage-command-breakdown/"><u>Navigating Through Your Drive Space: A Disc Usage Command Breakdown</u></a></li>
+<li><a href="https://games-able.techidaily.com/ps4-button-blunders-step-by-step-repair-strategies-revealed/"><u>PS4 Button Blunders? Step-by-Step Repair Strategies Revealed</u></a></li>
+<li><a href="https://win-answers.techidaily.com/smooth-gaming-ahead-fixing-bloodhunts-pc-performance-problems/"><u>Smooth Gaming Ahead: Fixing Bloodhunt's PC Performance Problems</u></a></li>
+</ul></div>
 

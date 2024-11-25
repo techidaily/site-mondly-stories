@@ -1,7 +1,7 @@
 ---
 title: Frisian Influence on Dutch Language History
-date: 2024-07-29T06:46:49.463Z
-updated: 2024-07-30T06:46:49.463Z
+date: 2024-11-18T19:08:19.758Z
+updated: 2024-11-24T23:19:24.597Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/bff355a17bbebb56de3c041755295c5c8bf9f4acf
 
  It’s true that Dutch and_Deutsch_ look and sound somehow similar and there \*was\* a connection there. But not anymore. So let’s settle this out once and for all.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Where are Dutch people from?
 
  It’s pretty obvious why this confusion still exists. There’s no surprise that even the reverse of this question (“what are people from the Netherlands called?”) is also a very popular Google inquiry. So what is the answer after all?
@@ -29,8 +33,9 @@ thumbnail: https://thmb.techidaily.com/bff355a17bbebb56de3c041755295c5c8bf9f4acf
 **The Dutch people are from the Netherlands.** As unrelated as that may seem, there is a whole history to it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Why are Dutch people called Dutch?
 
  It seems that the confusion stems from the English-speaking people and the reason can be found by studying **the [etymology](https://www.etymonline.com/word/dutch) of the word ‘dutch’** . I won’t bore you with all the details, but the bottom line is that in the late 14th century the word referred to ‘a German language’ or to ‘German, non-Scandinavian continental Germanic’. Additionally, the word corresponds to the Old English adjective_þeodisc_ (‘belonging to the people’) which was used to refer to the common language of Germanic people (as opposed to Latin).
@@ -39,9 +44,6 @@ thumbnail: https://thmb.techidaily.com/bff355a17bbebb56de3c041755295c5c8bf9f4acf
 
  And this is not everything. Within the Holy Roman Empire, the word ‘Netherlands’ was widely used to indicate people from the low-lying (‘nether’) region (‘land’). That’s how ‘the Kingdom of the Netherlands’ got its name when it became a formal, separate country in 1815.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Where is the Netherlands?
 
  The Netherlands and the Kingdom of the Netherlands are two different entities. While the Netherlands is a country located in Western Europe, the Kingdom of the Netherlands is a comprehensive sovereign state consisting of four constituent countries: the Netherlands, Aruba, Curaçao, and Sint Maarten.
@@ -49,17 +51,15 @@ thumbnail: https://thmb.techidaily.com/bff355a17bbebb56de3c041755295c5c8bf9f4acf
  So where exactly in Western Europe is the Netherlands? The country borders Germany to the east,[Belgium](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to the south, and the North Sea to the northwest. Its largest city and capital is Amsterdam.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### The Netherlands vs Holland
 
 Okay, bare with me. There’s more.
 
  **Many people mistake the Netherland for Holland, but Holland is in fact a region of the Netherlands.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ![netherlands vs holland](https://edge.mondly.com/blog/wp-content/uploads/2022/02/netherlands-vs-holland.png "Where Are Dutch People From? Discover The Dutch Language 2")
 
  The Netherlands vs Holland
@@ -69,8 +69,9 @@ Okay, bare with me. There’s more.
  Formerly the County of Holland (the most important county in the Low Countries region), Holland now consists of North and South Holland. These are two of the nation’s twelve provinces.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What language do they speak in the Netherlands?
 
  If you read the above explanations, you probably already understand the rationale.**People in the Netherlands speak the Dutch language.**
@@ -83,12 +84,13 @@ Okay, bare with me. There’s more.
 
  And become everyone seems to have a different name for Dutch people, their language and their country, it’s good to know that Belgians call the Dutch language ‘Flemish’.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![language in the netherlands](https://edge.mondly.com/blog/wp-content/uploads/2022/02/language-in-the-netherlands-960x573.jpg "Where Are Dutch People From? Discover The Dutch Language 3")
 
  ‘Tulip fields in the Netherlands’ by redcharlie©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What other countries speak Dutch?
 
@@ -131,8 +133,6 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -140,4 +140,23 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-comic-crafting-on-apple-devices/"><u>[New] Comic Crafting on Apple Devices</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-cerebral-quests-the-ultimate-list-of-escape-rooms/"><u>[Updated] In 2024, Cerebral Quests The Ultimate List of Escape Rooms</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-photo-and-video-slideshow-makers-for-macos-sierra/"><u>2024 Approved Top Photo and Video Slideshow Makers for macOS Sierra</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-enhance-the-ultimate-synaptics-touchpad-driver-setup/"><u>Download & Enhance: The Ultimate Synaptics Touchpad Driver Setup</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-ultimate-msi-z37-370-a-driver-bundle-compatible-versions-available/"><u>Download the Ultimate MSI Z37 370-A Driver Bundle - Compatible Versions Available</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-with-locals-understanding-indonesian-salutations/"><u>Engaging with Locals: Understanding Indonesian Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-multilingual-skills-via-researched-musical-techniques/"><u>Enhance Multilingual Skills via Researched Musical Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-terms-and-policies-unveiled/"><u>Enhanced Terms and Policies Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/excellence-in-e-learning-mondly-sets-the-standard/"><u>Excellence in E-Learning: Mondly Sets the Standard</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-windows-cant-find-appropriate-printer-driver-error-easily/"><u>Fixing 'Windows Can't Find Appropriate Printer Driver' Error Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foreign-vocabulary-infusion-into-english-speech/"><u>Foreign Vocabulary Infusion Into English Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/future-proofing-communication-upgrading-your-language-skills/"><u>Future-Proofing Communication: Upgrading Your Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-herzensbedauerndes-ausdrucken/"><u>German: Herzensbedauerndes Ausdrücken</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/herve-laurandin-as-nouveau-directeur-de-abbyy-en-france-une-evolution-strategique/"><u>Hervé Laurandin as Nouveau Directeur De ABBYY en France: Une Évolution Stratégique</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/myrecover-pro-complete-data-restoration-tool-for-windows-and-ios-devices/"><u>MyRecover Pro: Complete Data Restoration Tool for Windows & iOS Devices</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/top-5-ultimate-trojan-eliminators-proven-techniques-and-latest-updates/"><u>Top 5 Ultimate Trojan Eliminators: Proven Techniques & Latest Updates</u></a></li>
+</ul></div>
 

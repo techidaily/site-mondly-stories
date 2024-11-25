@@ -1,7 +1,7 @@
 ---
 title: "From Playwright to Pundit: Common Expressions of Yore"
-date: 2024-07-29T06:45:54.320Z
-updated: 2024-07-30T06:45:54.320Z
+date: 2024-11-20T23:31:00.596Z
+updated: 2024-11-24T20:13:18.950Z
 tags:
   - speak
   - english
@@ -34,8 +34,9 @@ thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36d
  And these are just a few of the words Shakespeare introduced to the world during his life in the Elizabethan England. Whether you’re a fan of Shakespeare or simply enjoy learning about the evolution of the English language, this article is sure to captivate and entertain you. So stick around and read on to discover some more of the words Shakespeare invented.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How many words did Shakespeare invent?
 
 **Most sources agree that Shakespeare invented around 1700 words.** However, it seems there’s more to this story. While the playwright was indeed very productive in this field, some say that not all these words were created by him. Instead, he was just the first one to document these words in writing. And that’s entirely possible.
@@ -58,9 +59,6 @@ thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36d
 * adding prefixes or suffixes;
 * concocting entirely original terms.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Shakespeare words](https://edge.mondly.com/blog/wp-content/uploads/2023/02/shakespeare-words.jpg "Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today 2")
 
 ## Cool words Shakespeare invented
@@ -68,15 +66,17 @@ thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36d
 _To invent new words, or not to invent new words?_ Clearly, William Shakespeare did not ask himself that. He just went with it and invented new words so he could properly tell his stories. In the end, he was so good at both storytelling and coining words that today it is impossible to have an English curriculum without Shakespeare. But enough tittle-tattle.**Let’s see what other words Shakespeare invented:**
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **1\. Addiction**
 
 _Henry V_ , Act I, Scene II
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **2\. Arch-villain**
 
 _Timon of Athens_ , Act V, Scene I
@@ -86,15 +86,17 @@ _Timon of Athens_ , Act V, Scene I
 _King Henry VI_ , Part II, Act IV, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **4.** Cold-blooded
 
 _King John_ , Act III, Scene I
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **5\. Dauntless**
 
 _King Henry VI_ , Part III, Act III, Scene III
@@ -103,9 +105,6 @@ _King Henry VI_ , Part III, Act III, Scene III
 
 _Troilus and Cressida_ , Act III, Scene III
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **7\. (to) Friend**
 
 _Hamlet_ , Act I, Scene V
@@ -127,19 +126,21 @@ _The Merchant of Venice_ , Act I, Scene I
 _Julius Caesar_ , Act I, Scene II
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **12.** Marketable
 
 _As You Like It_ , Act I, Scene II
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **13.** Mimic
 
 _A Midsummer Night’s Dream_ , Act III, Scene II
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ### **14.** Monumental
 
 _Troilus and Cressida_ , Act III, Scene III
@@ -156,23 +157,18 @@ _Love’s Labour’s Lost_ , Act IV, Scene III
 
 _King Henry VI_ , Part III, Act II, Scene III
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **18.** Outbreak
 
 _Hamlet_ , Act II, Scene I
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **19\. Puking (disputed)**
 
 _As You Like It_ , Act II, Scene VII
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **20\. Radiance**
 
 _All’s Well That Ends Well_ , Act I, Scene I
@@ -180,6 +176,10 @@ _All’s Well That Ends Well_ , Act I, Scene I
 ### **21\. (to) Rant**
 
 _Hamlet_ , Act V, Scene I
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **22\. (to) Swagger**
 
@@ -190,20 +190,13 @@ _A Midsummer Night’s Dream_ , Act III, Scene I
 _Othello_ , Act III, Scene III
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **24.** Unreal
 
 _Macbeth_ , Act III, Scene IV
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **25\. Zany**
 
 _Love’s Labour’s Lost_ , Act V, Scene II
@@ -237,8 +230,6 @@ _Love’s Labour’s Lost_ , Act V, Scene II
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -246,4 +237,26 @@ _Love’s Labour’s Lost_ , Act V, Scene II
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-hidden-threat-illegitimate-support-on-digital-platforms-for-2024/"><u>[Updated] The Hidden Threat Illegitimate Support on Digital Platforms for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-new-standard-for-action-footage-yis-4k-camera/"><u>2024 Approved The New Standard for Action Footage - Yi’s 4K Camera</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-the-greatest-free-raw-photography-software-reviewed-by-experts-at-movavi/"><u>Discover the Greatest Free RAW Photography Software , Reviewed by Experts at Movavi</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-fixes-how-to-recover-forgotten-icloud-password-on-your-apple-iphone-xr-by-drfone-ios/"><u>Easy Fixes How To Recover Forgotten iCloud Password On your Apple iPhone XR</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-tecno-spark-10-4g-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Tecno Spark 10 4G Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lundi-a-vendredi-francais/"><u>Lundi À Vendredi Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-language-expedition-two-years-grand-ambitions/"><u>Mondly Language Expedition: Two Years, Grand Ambitions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-daily-urdu-learning-for-language-proficiency/"><u>Quick, Daily Urdu Learning for Language Proficiency</u></a></li>
+<li><a href="https://games-able.techidaily.com/revolutionizing-playstation-5-9-advantages-unveiled/"><u>Revolutionizing PlayStation 5: 9 Advantages Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seven-triumphant-years-mondly-uniting-the-worlds-learners/"><u>Seven Triumphant Years: Mondly, Uniting the World’s Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stellar-data-recovery-win/"><u>Stellar Data Recovery Win 転送可能な無料データ復元ツール</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tecnicas-oralistas-para-colores-en-espanol/"><u>Técnicas Oralistas Para Colores en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-vital-impact-of-ai-on-teaching-and-linguistic-progress/"><u>The Vital Impact of AI on Teaching and Linguistic Progress</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-communication-skills-with-7-essential-afrikaans-tips-on-mondly/"><u>Transform Communication Skills with 7 Essential Afrikaans Tips on Mondly</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-tips-fixing-non-functional-leds-on-corsair-keyboards/"><u>Troubleshooting Tips: Fixing Non-Functional LEDs on Corsair Keyboards</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/ultimate-guide-to-movie-trailer-makers-for-mac-and-windows-users-for-2024/"><u>Ultimate Guide to Movie Trailer Makers for Mac and Windows Users for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/uninterrupted-airdrop-connections-in-the-world-of-iphones-and-macs-for-2024/"><u>Uninterrupted AirDrop Connections in the World of iPhones & Macs for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-global-opportunities-with-languages-after-forty-why-invest-in-multilingualism/"><u>Unlock Global Opportunities with Languages After Forty – Why Invest in Multilingualism</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unraveling-the-packaging-a-marketing-approach/"><u>Unraveling the Packaging A Marketing Approach</u></a></li>
+</ul></div>
 

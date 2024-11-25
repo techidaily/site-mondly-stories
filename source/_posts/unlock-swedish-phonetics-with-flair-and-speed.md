@@ -1,7 +1,7 @@
 ---
 title: Unlock Swedish Phonetics with Flair & Speed
-date: 2024-11-11T05:53:43.233Z
-updated: 2024-11-15T01:55:07.545Z
+date: 2024-11-21T18:35:23.680Z
+updated: 2024-11-24T19:31:35.473Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
  The current alphabet is considered modern because it arrived in Sweden together with the Christianization of Scandinavia that took place between the 8th and the 12th centuries. As a matter of fact, the translation of the New Testament into Swedish in 1526 actually marks the beginning of modern Swedish.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How was Swedish written before the Latin script?
 
  **Swedish used runes before the arrival of the Latin script in Scandinavia.** The [runic alphabet](https://www.britannica.com/topic/runic-alphabet) , also known as Futhark, was the first writing system the Norse and other Germanic people used for centuries. As it happens, isolated communities in a remote part of Sweden only [stopped using runes](https://sciencenordic.com/language-linguistics-runes/isolated-people-in-sweden-only-stopped-using-runes-100-years-ago/1418110) 100 years ago. To this day, the runic alphabet is considered a writing system of uncertain origin as scholars cannot find solid proof to support its ancestry.
@@ -38,22 +42,12 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
  “Swedish runes” by petr sidorov©
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Swedish language in a nutshell
 
  Known in Swedish as**Svenska,** the [Swedish language](https://www.britannica.com/topic/Swedish-language) belongs to the East Scandinavian group of North Germanic languages and is the official language of Sweden and Finland. According to Ethnologue, the total number of Swedish speakers worldwide is over 13 million (both native and non-native speakers).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Mutual intelligibility with the other Scandinavian languages
@@ -65,10 +59,7 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
  Similar to the transformation the [Romance languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) went through over time, Old East Norse dialects were influenced by numerous factors. For example, between 800 and 1100 AD, Runic Swedish was only slightly different from Runic Danish, but they began to diverge during the 12th century. However, some aspects stayed the same. That’s why is easier to learn Swedish when you already know Danish and vice versa.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pronunciation rules and usage
@@ -78,6 +69,10 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
  In other words, the Swedish pronunciation should be a piece of cake for you. Here’s a short sample with the pronunciation of some useful prepositions:
 
  Would you like to have access to more content like this? Get Mondly and master the Swedish pronunciation in no time with real-life conversations recorded by fluent voice actors.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Uncommon letters
 
@@ -108,10 +103,7 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in Swedish
@@ -144,19 +136,20 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-networking-haven-beyond-vidcon/"><u>[New] The Ultimate Networking Haven Beyond VidCon</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-cutting-edge-photography-apps-on-iphones-vs-androids-for-2024/"><u>[Updated] Cutting-Edge Photography Apps on iPhones vs Androids for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/adopt-the-ten-minute-method-to-learn-urdu-online/"><u>Adopt the Ten-Minute Method to Learn Urdu Online!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-the-top-100-words-that-stump-english-learners/"><u>Decoding the Top 100 Words That Stump English Learners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-new-tongues-with-music-scientifically-validated-practices/"><u>Discover New Tongues with Music: Scientifically Validated Practices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effortless-latino-studies-at-home/"><u>Effortless Latino Studies at Home</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-workforce-skills-with-elite-linguistic-apps/"><u>Elevate Workforce Skills with Elite Linguistic Apps</u></a></li>
-<li><a href="https://win11.techidaily.com/elevate-your-workspace-a-guide-to-widget-additions-in-windows-11/"><u>Elevate Your Workspace: A Guide to Widget Additions in Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-the-worlds-diversity-learn-for-just-a-small-price-increase/"><u>Embrace the World's Diversity - Learn for Just a Small Price Increase!</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-samsung-galaxy-f04-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Samsung Galaxy F04 in Minutes | Dr.fone</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/interactive-display-armada-on-lenovo-fixed/"><u>Interactive Display Armada on Lenovo Fixed</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-expert-picks-the-best-video-editing-software-for-mac-in-for-2024/"><u>New Expert Picks The Best Video Editing Software for Mac In for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your OnePlus Nord N30 SE | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/smartcapture-hd-v2-for-2024/"><u>SmartCapture HD V2 for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-navigating-the-nuances-of-snapchat-high-visibility/"><u>[New] Navigating the Nuances of Snapchat High-Visibility</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/dvdfab-hd-decrypter/"><u>効果的にDVDFab HD Decrypterを使う方法：有限期間運用可能</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guida-speciale-ai-conti-italiani-da-1-a-migliaia-di-cifre/"><u>Guida Speciale Ai Conti Italiani - Da 1 a Migliaia Di Cifre</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-landscape-belgiums-native-and-foreign-speeches/"><u>Linguistic Landscape: Belgium's Native and Foreign Speeches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyglot-pursuits-no-time-limit-only-passion/"><u>Polyglot Pursuits: No Time Limit, Only Passion</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/revolutionary-connectivity-awaits-explore-the-newly-launched-apple-iphone/"><u>Revolutionary Connectivity Awaits – Explore the Newly Launched Apple iPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reworked-tandc-now-available/"><u>Reworked T&C Now Available</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/samsung-galaxy-watch-reboot-unveiling-the-costs-launch-timeline-detailed-specs-and-latest-updates/"><u>Samsung Galaxy Watch Reboot: Unveiling the Costs, Launch Timeline, Detailed Specs & Latest Updates</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simultaneous-speech-scholarship/"><u>Simultaneous Speech Scholarship</u></a></li>
+<li><a href="https://windows11.techidaily.com/steps-for-reconnecting-disconnected-printer-on-windows/"><u>Steps for Reconnecting Disconnected Printer on Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-10-minute-bulbarian-challenge/"><u>The 10-Minute Bulbarian Challenge</u></a></li>
+<li><a href="https://os-tips.techidaily.com/transform-your-iphone-into-a-windows-like-device-effortlessly/"><u>Transform Your iPhone Into a Windows-Like Device Effortlessly</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transform-your-live-feed-select-from-the-ultimate-9-filter-list-for-2024/"><u>Transform Your Live Feed Select From the Ultimate 9 Filter List for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/unexpected-rav-virus-on-pc-trace-and-eliminate-steps/"><u>Unexpected Rav Virus on PC: Trace and Eliminate Steps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/price-strategies-for-solo-frame-analysis-in-videos-for-2024/"><u>Zero-Price Strategies for Solo Frame Analysis in Videos for 2024</u></a></li>
 </ul></div>
 

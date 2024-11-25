@@ -1,7 +1,7 @@
 ---
 title: "First of Its Kind: Augmented Reality with Speech Recognition"
-date: 2024-07-29T06:45:25.882Z
-updated: 2024-07-30T06:45:25.882Z
+date: 2024-11-21T18:38:39.273Z
+updated: 2024-11-24T17:37:07.584Z
 tags:
   - speak
   - english
@@ -27,24 +27,23 @@ Here’s a video showcasing Mondly AR:
 ##
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## We take learning out of the books and bring it to life into your living room using augmented reality
 
  The new experience we created helps you develop a strong sense of the language you want to learn through highly realistic visual lessons and purposeful conversations. This approach is aiming to stimulate you to learn languages not because you have to, but because [it’s genuinely fun.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
 
  Just as futuristic, the chatbot experience from Mondly aims to be the closest thing to a real interaction. Mondly understands spoken language, replies with a human voice, changes her outfit to match the topic of discussion and uses gestures and facial expressions to create dynamic dialogues.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 3")
 
 Alex Iliescu, our CEO, spoke about the launch:
@@ -52,8 +51,9 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Here’s what you should know about Mondly AR
 
 * Is available on [Google Play](https://play.google.com/store/apps/details?id=com.atistudios.mondlyar.languages&hl=en)
@@ -70,8 +70,9 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facts and figures about Mondly
 
 * 30 million downloads, in over 190 countries
@@ -86,9 +87,9 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Media mentions about Mondly
 
 * **INC.com** – “The New Way to Learn Languages”
@@ -109,8 +110,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -118,4 +117,23 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-the-screencast-primer-fundamental-knowledge-for-video-enthusiasts/"><u>[Updated] 2024 Approved The Screencast Primer Fundamental Knowledge for Video Enthusiasts</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-capturing-your-xbox-playtime-for-sharing-for-2024/"><u>[Updated] Capturing Your Xbox Playtime for Sharing for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-exploring-lgs-new-tech-horizon-in-bp550-for-2024/"><u>[Updated] Exploring LG's New Tech Horizon in BP550 for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-pinnacle-of-amusement-select-15-laughing-out-loud-channels/"><u>2024 Approved The Pinnacle of Amusement Select 15 Laughing-Out-Loud Channels</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-oneplus-ace-2-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For OnePlus Ace 2</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/complete-walkthrough-setting-up-remote-connectivity-on-your-samsung-smart-tvs/"><u>Complete Walkthrough: Setting Up Remote Connectivity on Your Samsung Smart TVs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-ready-for-unprecedented-conversations-with-ai/"><u>Get Ready for Unprecedented Conversations with AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-linguistic-impacts-anglicized-lexicon-adaptations/"><u>Global Linguistic Impacts: Anglicized Lexicon Adaptations</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-note-12t-pro-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Xiaomi Redmi Note 12T Pro Phone Without Password?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/loves-language-creating-connection-without-confrontation/"><u>Love's Language: Creating Connection without Confrontation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-greetings-10-essential-phrases/"><u>Mastering Spanish Greetings: 10 Essential Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-verb-forms-a-complete-guide/"><u>Mastering Spanish Verb Forms: A Complete Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/premium-sound-collection-no-cost-top-luts-listed-here/"><u>Premium Sound Collection No-Cost, Top LUTs Listed Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verbal-versatility-innovative-language-training-techniques/"><u>Verbal Versatility: Innovative Language Training Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-chatrooms-practice-spanish-mingle-socially/"><u>Virtual Chatrooms: Practice Spanish, Mingle Socially</u></a></li>
+</ul></div>
 

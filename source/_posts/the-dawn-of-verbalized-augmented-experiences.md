@@ -1,7 +1,7 @@
 ---
 title: The Dawn of Verbalized Augmented Experiences
-date: 2024-11-09T01:24:38.986Z
-updated: 2024-11-14T21:43:31.407Z
+date: 2024-11-21T16:07:46.739Z
+updated: 2024-11-24T22:30:42.110Z
 tags:
   - speak
   - english
@@ -26,11 +26,19 @@ Here’s a video showcasing Mondly AR:
 
 ##
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## We take learning out of the books and bring it to life into your living room using augmented reality
 
  The new experience we created helps you develop a strong sense of the language you want to learn through highly realistic visual lessons and purposeful conversations. This approach is aiming to stimulate you to learn languages not because you have to, but because [it’s genuinely fun.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
 
@@ -43,10 +51,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -65,10 +70,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,16 +87,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -126,21 +119,24 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-insta-savvy-the-top-10-tags-that-matter-most-for-2024/"><u>[New] Insta Savvy The Top 10 Tags That Matter Most for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-experts-method-for-timestamping-your-youtube-videos/"><u>[New] The Expert's Method for Timestamping Your YouTube Videos</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-6-ways-to-increase-audience-retention-on-youtube-filmora-for-2024/"><u>[Updated] 6 Ways To Increase Audience Retention on YouTube - Filmora for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-interlinking-giants-a-comprehensible-guide-for-instra-and-tikto/"><u>[Updated] Interlinking Giants A Comprehensible Guide for Instra & Tikto</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/10-cross-cultural-films-that-sharpen-your-vocabulentic-skills/"><u>10 Cross-Cultural Films That Sharpen Your Vocabulentic Skills</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-proven-recorders-ioss-leading-screenshot-tools/"><u>2024 Approved Proven Recorders IOS's Leading Screenshot Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/4-manieres-francaises-oui-bienvenue/"><u>4 Manières Françaises: Oui, Bienvenue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/7-surprising-ways-multilingualism-enriches-life/"><u>7 Surprising Ways Multilingualism Enriches Life</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/a-beginners-guide-to-producing-facebook-reels/"><u>A Beginner's Guide to Producing Facebook Reels</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/complete-guide-on-watching-spider-man-no-way-home-online/"><u>Complete Guide on Watching 'Spider-Man: No Way Home' Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-the-languages-santa-speaks-with-reindeer/"><u>Deciphering the Languages Santa Speaks with Reindeer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dynamic-classroom-dynamics-with-latin-studies/"><u>Dynamic Classroom Dynamics with Latin Studies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-global-communication-with-mondlys-brilliance/"><u>Embrace Global Communication with Mondly's Brilliance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-next-gen-worth-more-than-mid-gen-in-ps5ps4-pro/"><u>Is Next-Gen Worth More Than Mid-Gen in PS5/PS4 Pro?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578409266-unveiling-8-engaging-reasons-to-master-hindi-with-mondly-online/"><u>Unveiling 8 Engaging Reasons to Master Hindi with Mondly Online!</u></a></li>
-<li><a href="https://howto.techidaily.com/why-your-nokia-g42-5g-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Nokia G42 5G Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-subtitle-tactics-for-instagrams-video-feed/"><u>[Updated] 2024 Approved Subtitle Tactics for Instagram's Video Feed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-turbocharging-your-journey-10-must-have-srt-converters/"><u>2024 Approved Turbocharging Your Journey 10 Must-Have SRT Converters</u></a></li>
+<li><a href="https://win-answers.techidaily.com/boost-your-gameplay-solving-forza-horizon-5-frame-drops-on-pc/"><u>Boost Your Gameplay: Solving Forza Horizon 5 Frame Drops on PC</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/different-methods-to-unlock-your-apple-iphone-xs-drfone-by-drfone-ios/"><u>Different Methods To Unlock Your Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-realme-gt-5-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Realme GT 5 to Outlook | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-look-at-microsofts-ergonomic-keyboard-is-it-really-as-high-quality/"><u>In-Depth Look at Microsoft's Ergonomic Keyboard – Is It Really as High Quality?</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/kostenlose-migration-von-windows-10-32-auf-64-bit-schritt-fur-schritt-mit-datenschutz/"><u>Kostenlose Migration Von Windows 10 32 Auf 64 Bit - Schritt Für Schritt Mit Datenschutz</u></a></li>
+<li><a href="https://win-unique.techidaily.com/le-projet-de-recuperation-des-donnees-graphiques-est-avorte-pas-une-seule-bande-magnetique-operationnelle-detectee/"><u>Le Projet De Récupération Des Données Graphiques Est Avorté – Pas Une Seule Bande Magnétique Opérationnelle Détectée</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lexical-exchange-a-universal-story-of-language-adaptation/"><u>Lexical Exchange: A Universal Story of Language Adaptation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-leading-70plus-million-in-international-learning-community/"><u>Mondly: Leading 70+ Million in International Learning Community</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-best-techniques-for-online-language-mastery/"><u>Navigating the Best Techniques for Online Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oui-merci-en-francais-invitations-celebres/"><u>Oui, Merci! En Français: Invitations Célèbres</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/refine-your-query-mastering-the-pre-search-setup-screen/"><u>Refine Your Query: Mastering the Pre-Search Setup Screen</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-art-of-discrete-audio-erosion-in-audacity-for-2024/"><u>The Art of Discrete Audio Erosion in Audacity for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-bards-evergreen-vocabulary-a-study-in-continuity/"><u>The Bard's Evergreen Vocabulary: A Study in Continuity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-historical-roots-of-earths-languages-explored/"><u>The Historical Roots of Earth's Languages Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-teams-with-targeted-language-training-for-success/"><u>Transform Teams with Targeted Language Training for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-tiered-asian-dialects-quick-save-easy-find/"><u>Triple-Tiered Asian Dialects: Quick Save, Easy Find</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-language-leap-with-daily-10-min-segments-86-chars/"><u>Ukrainian Language Leap with Daily 10-Min Segments (86 Chars)</u></a></li>
 </ul></div>
 

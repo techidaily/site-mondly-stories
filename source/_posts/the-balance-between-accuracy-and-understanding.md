@@ -1,7 +1,7 @@
 ---
 title: The Balance Between Accuracy and Understanding
-date: 2024-11-12T03:51:18.450Z
-updated: 2024-11-15T13:35:23.549Z
+date: 2024-11-21T17:37:53.741Z
+updated: 2024-11-24T21:57:44.684Z
 tags:
   - speak
   - english
@@ -18,18 +18,15 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
 
 Language learning is one of the best ways to broaden your horizons and better yourself as a person. It can also be intimidating. Many people would like to learn a foreign language, but they feel the task would be too hard. This is unfortunate because with a little effort and a commitment to the goal, learning a language can happen sooner than most people think.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **The Old Methods: Do They Make It More Difficult to Learn a Foreign Language
 
 Chances are that you probably took language classes at some point in your educational history. Anywhere you live, school curriculums include the study of foreign languages, but the average high-school student does not graduate with fluency in another language.
 
 Many students can manage reading and writing in a foreign language, but they struggle to understand it in conversational form. These situations make it clear that the past methods of language education are lacking. What is the solution?
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Language Learning: What Holds People Back?**
 
@@ -37,22 +34,12 @@ One of the best ways to learn a language is to practice both writing the languag
 
 This is why a focus on grammar is the wrong way to teach and learn a language. Grammar is the art of perfecting the use of a language you already know. When learning a language, it can hold students back in a variety of ways.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **1\. Complexity**
 
 There is a lot to take in when learning a language. The last thing a student needs is to get bogged down in a sea of confusing grammar rules. Of course, there are languages with simpler rules. For example, the [French grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is more difficult than [the German grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875), but unless you’re naturally gifted at learning languages, realizing there are so many grammar rules to figure out might leave you so discouraged that you give up.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **2\. Incorrect Focus**
@@ -65,6 +52,10 @@ The goal for a language student is to become fluent as quickly as possible. Flue
 
 Most of us don’t speak in the exact same way that we write. We choose different words, use slang and sometimes even say things in a different order than we would when writing them down. How many people do you know who speak using perfect grammar? Sure, some might exist, but it isn’t very common regardless what language we are discussing. For this reason, if you insist on studying grammar first and conversational language second, you might struggle to understand people as they speak. Luckily, nowadays, there are [modern solutions available that immerse you in conversations](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1\.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **4\. A Major Lack of Fun**
 
 This might seem like a crazy concept to some, but learning a language should be an enjoyable experience! Too much focus on perfecting grammar can suck all the joy out of learning. Instead, students should make language learning about having pleasant conversations and social interactions. The [new breed of language apps](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-717&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-717%26mt%3D8) made the process fun and even [VR apps that help you learn languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) have made their way to the market.
@@ -72,10 +63,11 @@ This might seem like a crazy concept to some, but learning a language should be 
 ![Learn grammar with Mondly: French grammar, German Grammar, Spanish Grammar and more](https://edge.mondly.com/blog/wp-content/uploads/2017/10/Webp.net-compress-image-1.jpg "Is Grammar Holding You Back From Learning A Language? 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Returning to Our Roots: Learning with the Mind of a Child**
@@ -115,24 +107,20 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-computational-photography-what-are-auto-hdr-smart-hdr-3-and-4-shooting-modes-in-2024/"><u>[New] Computational Photography What Are Auto HDR, Smart HDR 3 & 4 Shooting Modes, In 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-closer-look-at-german-learning-difficulty/"><u>A Closer Look at German Learning Difficulty</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/amorous-artistry-a-guide-to-lines/"><u>Amorous Artistry: A Guide to Lines</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/belgiums-communication-tapestry-unveiled/"><u>Belgium's Communication Tapestry Unveiled</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/best-practices-for-filming-and-sharing-immersive-content-on-fb/"><u>Best Practices for Filming and Sharing Immersive Content on FB</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conversational-prowess-top-17-commonplace-spanish-idioms/"><u>Conversational Prowess: Top 17 Commonplace Spanish Idioms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dominant-croatian-language/"><u>Dominant Croatian Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/early-brain-adaptability-kids-language-learning-advantage/"><u>Early Brain Adaptability: Kids' Language Learning Advantage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/empower-yourself-with-japan-education-for-free/"><u>Empower Yourself with Japan Education, For Free</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579183296-germans-premier-learning-portal-mondly-emerges-victorious/"><u>German's Premier Learning Portal - Mondly Emerges Victorious!</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-demystifying-complex-srt-concepts-for-professionals/"><u>In 2024, Demystifying Complex SRT Concepts for Professionals</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-most-effective-ways-to-bypass-apple-iphone-se-2022-activation-lock-by-drfone-ios/"><u>In 2024, The Most Effective Ways to Bypass Apple iPhone SE (2022) Activation Lock</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-google-pixel-7a-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Google Pixel 7a Device</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-must-have-3d-video-maker-tools-for-stunning-visuals/"><u>New In 2024, Must-Have 3D Video Maker Tools for Stunning Visuals</u></a></li>
-<li><a href="https://windows11.techidaily.com/speedy-boot-streamlining-your-win11-routines/"><u>Speedy Boot: Streamlining Your Win11 Routines</u></a></li>
-<li><a href="https://fox-http.techidaily.com/step-by-step-android-guide-to-enjoy-virtual-reality/"><u>Step-by-Step Android Guide to Enjoy Virtual Reality</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580375581-the-best-way-to-learn-korean-online-6-brilliant-resources/"><u>The Best Way To Learn Korean Online - 6 Brilliant Resources</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/the-ultimate-technique-for-noiseless-iphone-movies/"><u>The Ultimate Technique for Noiseless iPhone Movies</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/troubleshooting-0x80073712-in-windows-update/"><u>Troubleshooting 0X80073712 in Windows Update</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-mirthful-content-extraction-report/"><u>[Updated] 2024 Approved Mirthful Content Extraction Report</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-enhance-gameplay-memories-win10-recording-methods/"><u>[Updated] In 2024, Enhance Gameplay Memories Win10 Recording Methods</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-screensavvy-comprehensive-free-recording-software-for-everyone/"><u>2024 Approved ScreenSavvy Comprehensive, Free Recording Software for Everyone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/compile-and-connect-videos-on-youtv/"><u>Compile and Connect Videos on YouTV</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/comprehensive-guide-to-iphone-junk-removal-software-for-secure-file-purging/"><u>Comprehensive Guide to iPhone Junk Removal Software for Secure File Purging</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nokia-c32-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Nokia C32 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-choice-spotlight-apples-app/"><u>International Choice Spotlight: Apple's App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/loves-lexicon-french-cinematic-masterpieces/"><u>Love's Lexicon: French Cinematic Masterpieces</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nombre-a-entender-60-animales-en-espanol/"><u>Nombre a Entender: 60 Animales en Español</u></a></li>
+<li><a href="https://extra-support.techidaily.com/overcoming-firs-display-issues-in-face-to-face-conferencing-for-2024/"><u>Overcoming Fir's Display Issues in Face-to-Face Conferencing for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-romanian-with-our-app/"><u>Speak Like a Romanian with Our App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-absorption-essential-tips-for-language-lovers/"><u>The Art of Absorption: Essential Tips for Language Lovers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triad-of-asias-favorite-speeches-prioritize-and-archive/"><u>Triad of Asia's Favorite Speeches: Prioritize & Archive</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722853570262-unveiling-the-samsung-galaxy-s2n-prospective-price-points-debut-date-and-specs-revealed/"><u>Unveiling the Samsung Galaxy S2n: Prospective Price Points, Debut Date & Specs Revealed</u></a></li>
+<li><a href="https://win-superb.techidaily.com/windows-10-challenges-loom-ahead-for-microsoft-only-one-year-remaining-to-address-issues-insights-from-zdnet/"><u>Windows 10 Challenges Loom Ahead for Microsoft: Only One Year Remaining to Address Issues - Insights From ZDNet</u></a></li>
 </ul></div>
 

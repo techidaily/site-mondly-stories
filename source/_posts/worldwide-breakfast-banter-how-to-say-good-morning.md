@@ -1,7 +1,7 @@
 ---
 title: "Worldwide Breakfast Banter: How to Say 'Good Morning'"
-date: 2024-11-08T21:05:26.780Z
-updated: 2024-11-15T11:49:05.757Z
+date: 2024-11-22T19:48:10.693Z
+updated: 2024-11-24T22:55:36.842Z
 tags:
   - speak
   - english
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/5d7817aad095517ef8a3802d67c136a4ed2562ac9
 
 _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) – one of the most common travel words around the world. Nothing breaks the cultural ice like a respectful greeting in the local language. This is why the ability to say good morning in different languages is a life skill that is well worth learning. Let’s dive in!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Good morning in Spanish:_¡Buenos días!_
 
 **_Buenos días_ literally means “good days”, but it is used to say “good morning” in Spanish.** Suitable for all social contexts, this greeting can be used with both friends and strangers. If you want to mix things up, you can also add_hola_ and say “hola, buenos días” as it is a very standard and friendly salutation. If you want to say goodbye in the morning, you can say “adiós, buenos días” which is a nice way to wish someone a good day.
@@ -50,6 +54,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  To say “good morning” in German, you can use the phrase “Guten Morgen”. This is a common and polite way to greet someone until noon. It can be used with both friends and strangers which makes it appropriate in both formal and informal social contexts.
 
  As you probably know, Germans like to be efficient, so sometimes greetings tend to be kept short. Therefore, in informal situations, you can simply say “Morgen!”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Good morning in Italian:_Buongiorno!_
 
@@ -75,13 +83,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Additionally, if you want to go the extra mile, it is considered polite to ask about the person’s well-being after greeting them. For example, “как дела?”_(kak dela?)_ which means “how are you?” is often used in conjunction with “доброе утро”_(dobraye utro)_ . This makes the greeting more friendly and personal.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7\. Good morning in Chinese:_早上好！_
 
  早上好_(Zǎoshang hǎo)_ is how you normally say “good morning” in Chinese. However, if you want to keep it short and sound more like a native, you can just simply say 早_(zǎo)_ .
@@ -97,10 +98,11 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 !["Good morning in Spanish" by Dawid Zawiła©](https://edge.mondly.com/blog/wp-content/uploads/2023/01/good-morning-in-spanish-960x640.jpg "How To Say Good Morning In 10 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. Good morning in Arabic:_صباح الخير!_
@@ -111,13 +113,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Careful though! As beautiful as they sound, these last examples can only be used with friends or people who are very close to your heart.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 10\. Good morning in Hindi:_सुप्रभात!_
 
  To say “good morning” in [Hindi](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can use the phrase सुप्रभात_(Suprabhaat) _ . This is a common and polite way to greet someone in the morning and it is appropriate for both formal and informal settings.
@@ -125,10 +120,7 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  If you want to ask about the person’s well-being after greeting them, you can add क्या हाल है?_(kya haal hai?)_ which means “how are you?”.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: Good morning in Romanian:_bună dimineața!_
@@ -173,18 +165,19 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-console-to-computer-a-guide-to-live-game-capture/"><u>[New] 2024 Approved Console to Computer A Guide to Live Game Capture</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-professional-filmmaking-optics-that-elevate-4k-vision/"><u>[New] Professional Filmmaking Optics That Elevate 4K Vision</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-ultimate-guide-to-android-photo-fixes/"><u>[New] Ultimate Guide to Android Photo Fixes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-learning-latin-online-naturally/"><u>Accelerate Learning Latin Online, Naturally</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/arabic-basics-for-first-timers/"><u>Arabic Basics for First-Timers</u></a></li>
-<li><a href="https://solve-info.techidaily.com/como-restaurar-una-papeleria-de-reciclaje-y-archivos-borrados-por-error-en-windows/"><u>Cómo Restaurar Una Papelería De Reciclaje Y Archivos Borrados Por Error en Windows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effortlessly-enhance-your-urdu-skills-in-minutes/"><u>Effortlessly Enhance Your Urdu Skills in Minutes</u></a></li>
-<li><a href="https://article-tips.techidaily.com/enhancing-visuals-on-tiktok-the-digit-editing-guide-for-2024/"><u>Enhancing Visuals on TikTok The Digit Editing Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-secure-every-moment-on-fb-with-these-video-downloader-tools/"><u>In 2024, Secure Every Moment on FB with These Video Downloader Tools</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-take-your-videos-to-the-next-level-3-creative-transition-ideas-in-fcp/"><u>New In 2024, Take Your Videos to the Next Level 3 Creative Transition Ideas in FCP</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577749458-sovac-slovaci-language-journey-unfolding-one-quick-lesson-daily/"><u>Sovac Slováci - Language Journey Unfolding, One Quick Lesson Daily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579536662-unlock-global-communication-now-96-off/"><u>Unlock Global Communication, Now 96% Off!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578897201-zap-up-your-skills-speed-up-slovak-learning-with-micro-lessons/"><u>Zap Up Your Skills: Speed up Slovak Learning with Micro Lessons!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-a-detailed-walkthrough-for-crafting-and-changing-your-videos-covers-on-facebook-for-2024/"><u>[New] A Detailed Walkthrough for Crafting and Changing Your Videos' Covers on Facebook for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-unveiling-the-best-skype-recorders-of-this-year-for-2024/"><u>[Updated] Unveiling the Best Skype Recorders of This Year for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-youtube-seo-mastery-balancing-titles-and-tags/"><u>[Updated] YouTube SEO Mastery Balancing Titles and Tags</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-free-easy-online-downloader-for-your-pin-videos/"><u>2024 Approved Free, Easy Online Downloader for Your Pin Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-leaderships-via-superior-language-learning-platforms/"><u>Global Leaderships via Superior Language Learning Platforms</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-to-fix-chatgpt-when-it-doesnt-save-your-conversations/"><u>How to Fix ChatGPT When It Doesn’t Save Your Conversations</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-basic-shapes-to-complex-realistic-3d-text-in-photos/"><u>In 2024, From Basic Shapes to Complex, Realistic 3D Text in Photos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-adoption-the-integration-of-foreign-words-into-english/"><u>Language Adoption: The Integration of Foreign Words Into English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-distribution-the-belgian-dialect-spectrum/"><u>Language Distribution: The Belgian Dialect Spectrum</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-finnish-language-from-anywhere-better-way/"><u>Mastering Finnish Language From Anywhere, Better Way!</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/restoring-audio-input-on-windows-10-with-troubleshooting-tips-for-airpods-mic-failures/"><u>Restoring Audio Input on Windows 10 with Troubleshooting Tips for AirPods Mic Failures</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-satirists-handbook-video-creation-for-comedy-for-2024/"><u>The Satirist's Handbook Video Creation for Comedy for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wordsmith-chronicles-modern-usage-of-bygone-verbiage/"><u>Wordsmith Chronicles: Modern Usage of Bygone Verbiage</u></a></li>
 </ul></div>
 

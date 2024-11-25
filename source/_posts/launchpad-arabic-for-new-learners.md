@@ -1,7 +1,7 @@
 ---
 title: "Launchpad: Arabic for New Learners"
-date: 2024-10-30T17:14:41.107Z
-updated: 2024-11-04T18:27:00.872Z
+date: 2024-11-17T23:10:02.897Z
+updated: 2024-11-24T23:29:18.363Z
 tags:
   - speak
   - english
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
  We’re not going to sugarcoat it for you, but Arabic is a difficult language to learn, especially for native English speakers. However, [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6418&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6418?mother%5Flang=en%5Fus?target%5Flang=ar&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6418?mother%5Flang=en%5Fus?target%5Flang=ar) ’s got your back, as always! Ever since [we launched Arabic courses for 4 billion people](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  we’ve invested in engaging content to keep you interested day in and day out. Learning Arabic for beginners has never been simpler. But why should you learn Arabic? Here are [6 exciting reasons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  . If you need any more, just keep reading!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why is Arabic such a challenge?
 
  As the sixth most spoken language in the world, with close to 420 million speakers worldwide, it stands to reason that Arabic would be a popular language, one of the [best foreign languages to learn for business](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , actually. But why is it so hard for English speakers to approach this process? Here are the most complicated challenges:
@@ -30,23 +34,9 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
  So, since the elephant is out of the room, you’re ready to [learn Arabic online](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  ! By the way, according to the US Foreign Service Institute, you’ll need roughly 88 weeks or approximately 2200 hours in order to reach fluency. Follow the tips below and you might arrive at your destination a lot faster!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Step by step guide
 
 I’d really stick by these if I were you!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Decision time
 
@@ -56,6 +46,10 @@ I’d really stick by these if I were you!
 
 ![arabic bead necklace](https://edge.mondly.com/blog/wp-content/uploads/2022/01/arabic-bead-necklace-960x640.jpg "Arabic For Beginners: A Step By Step Guide 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  ‘Arabic bead necklace’ by Carlos Eduardo de Meneses©
 
  What’s the first thing you tackle when you want to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ? Interested in reading and speaking Arabic as a beginner? Start with the Arabic alphabet! Then, as you progress from letters to words, you may be on the lookout for some [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) for beginners. The Arabic alphabet is what you would call an [abjad](https://en.wikipedia.org/wiki/Abjad)  , meaning that it’s primarily made up of consonants and no vowels. Keep in mind that there are 28 letters in the alphabet, only one of them being a vowel.
@@ -63,10 +57,7 @@ I’d really stick by these if I were you!
  So, when you encounter a written word there will be no way of knowing how to pronounce it unless you’ve heard it before. And this is where Mondly comes in handy! We provide you with real-life conversations, a speech recognition chatbot, and quality recordings. You’ll get used to Arabic words in no time. Ok, final note, you write from left to right, not the other way around.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Learn how to use an Arabic dictionary
@@ -76,21 +67,16 @@ I’d really stick by these if I were you!
  In order to find a word, you need to already know its root and the letter that the root starts with, and this letter is not always the first letter in the word. So yeah, learning to use the dictionary will take some practice, but once you’ve mastered it will make things much simpler.
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Start practicing and speaking
 
 ![coworkers talking](https://edge.mondly.com/blog/wp-content/uploads/2022/01/coworkers-talking-960x640.jpg "Arabic For Beginners: A Step By Step Guide 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  ‘Coworkers’ by Mikhail Nilov©
 
@@ -132,24 +118,24 @@ I’d really stick by these if I were you!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-macs-best-gif-capture-tools-ranked-and-reviewed/"><u>[New] Mac's Best GIF Capture Tools Ranked and Reviewed</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-from-beginner-to-expert-the-ultimate-guide-to-hp-screen-recording-for-2024/"><u>[Updated] From Beginner to Expert The Ultimate Guide to HP Screen Recording for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitters-visual-treats-free-video-to-gif-transformation/"><u>[Updated] Twitter's Visual Treats Free Video to Gif Transformation</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/embrace-effortless-storage-our-20-most-trusted-free-cloud-service-choices-up-to-1tb/"><u>Embrace Effortless Storage - Our 20 Most Trusted FREE Cloud Service Choices (Up To 1TB)</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/hot-sale-alert-secure-your-preferred-magsafe-charging-station-now-at-just-60-off-must-read-apple-accessory-guide/"><u>Hot Sale Alert: Secure Your Preferred MagSafe Charging Station Now at Just $60 Off - Must Read Apple Accessory Guide</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-to-engineer-a-bespoke-language-model-with-personalized-training-content/"><u>How to Engineer a Bespoke Language Model with Personalized Training Content</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-boosting-view-speed-for-instagram-media-content/"><u>In 2024, Boosting View Speed for Instagram Media Content</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-nokia-g310-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Nokia G310 Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/launching-the-all-new-faq-facility-for-mondly-users/"><u>Launching the All-New FAQ Facility for Mondly Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-british-slang-quick-and-effective-learning/"><u>Navigating British Slang: Quick & Effective Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/parallel-linguistic-proficiency/"><u>Parallel Linguistic Proficiency</u></a></li>
-<li><a href="https://win11.techidaily.com/preservation-of-windows-safescreensaver-integrity/"><u>Preservation of Windows SafeScreensaver Integrity</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/save-big-on-mondlys-ultimate-offering/"><u>Save Big on Mondly's Ultimate Offering!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/state-of-the-art-platforms-for-language-learning-efficiency/"><u>State-of-the-Art Platforms for Language Learning Efficiency</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/taking-the-first-steps-towards-vr-technology-mobile-based-headsets-vs-cabled-gear-for-2024/"><u>Taking the First Steps Towards VR Technology Mobile-Based Headsets Vs. Cabled Gear for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-eloquent-enthusiasts-handbook-to-french-greeting-expressions/"><u>The Eloquent Enthusiast's Handbook to French Greeting Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-saying-hello-in-spanish-with-top-10-methods/"><u>The Ultimate Guide To Saying 'Hello' In Spanish With Top 10 Methods</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-benefits-with-these-10-german-lessons/"><u>Unlock Benefits with These 10 German Lessons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/win-over-venetians-master-20plus-italian-language-essentials/"><u>Win Over Venetians: Master 20+ Italian Language Essentials</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-updated-dialogue-tools-to-engage-audio-audiences/"><u>[New] Updated Dialogue Tools to Engage Audio Audiences</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-elevate-your-voice-strategies-for-a-standout-solo-podcast-for-2024/"><u>[Updated] Elevate Your Voice Strategies for a Standout Solo Podcast for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/correcting-duo-app-configurations-to-resolve-errors/"><u>Correcting Duo App Configurations to Resolve Errors</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/dvdfab-dvd1121/"><u>DVDFab DVD圧縮手順：11版で2枚ディスクから1枚ディスクへのコンプレッション方法</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/effective-strategies-for-locating-a-persons-email-contact-details/"><u>Effective Strategies for Locating a Person's Email Contact Details</u></a></li>
+<li><a href="https://techidaily.com/galaxy-watch-ultra-vs-apple-watch-ultra-comparing-unique-styles-with-identical-functionality/"><u>Galaxy Watch Ultra Vs. Apple Watch Ultra: Comparing Unique Styles with Identical Functionality</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Lava Storm 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-a-step-by-step-guide-to-easy-video-cuts-on-windows-phones/"><u>In 2024, A Step-by-Step Guide to Easy Video Cuts on Windows Phones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-revolutionary-faqs-for-mondlys-support/"><u>Introducing Revolutionary FAQs for Mondly's Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-asian-tongues-rank-backup-and-navigate/"><u>Leading Asian Tongues: Rank, Backup & Navigate</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-a-language-with-music-scientifically-proven-methods-tips-and-songs/"><u>Learn A Language With Music: Scientifically Proven Methods, Tips & Songs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/norsk-nexus-language-leap-in-ten-mins/"><u>Norsk Nexus: Language Leap in Ten-Mins</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/numerals-for-new-spanish-speakers/"><u>Numerals for New Spanish Speakers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pinnacle-of-proficiency-advanced-english-techniques-by-mondly/"><u>Pinnacle of Proficiency: Advanced English Techniques by Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/scheidungssprache-fur-deutschsprechende/"><u>Scheidungssprache Für Deutschsprechende</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/should-you-buy-videopad-video-editor-a-honest-review-and-analysis/"><u>Should You Buy Videopad Video Editor? A Honest Review and Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-francophiles-checklist-top-103plus-travel-phrases-for-france/"><u>The Francophile's Checklist: Top 103+ Travel Phrases for France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-french-sound-patterns-for-novice-learners/"><u>Unlocking French Sound Patterns: For Novice Learners</u></a></li>
 </ul></div>
 

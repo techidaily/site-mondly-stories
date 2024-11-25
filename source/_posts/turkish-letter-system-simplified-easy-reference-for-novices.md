@@ -1,7 +1,7 @@
 ---
 title: "Turkish Letter System Simplified: Easy Reference for Novices"
-date: 2024-11-01T00:55:01.327Z
-updated: 2024-11-05T02:05:59.630Z
+date: 2024-11-18T22:33:43.892Z
+updated: 2024-11-24T22:11:13.663Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
 
  But Turkish didn’t always use the Latin script. Let’s look a little bit at the history and see how today’s Turkish alphabet was born.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Turkish alphabet – a short history
 
  The Turkik languages have a long history of [writing systems](https://en.wikipedia.org/wiki/Turkish%5Falphabet) . Over time, these languages have been written using different alphabets like Cyrillic, Uyghur, Greek, Arabic, Latin and some other Asiatic writing systems.
@@ -29,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
  But when it comes to Turkish, **the earliest proof of a Turkish alphabet goes back to the 7th century** when the Orkhon script was used. Then, **for over 1,000 years, the Turkish language was written using a Turkish form of the Arabic script.** That is also probably why some people believe that Turks speak Arabic.
 
 ![turkish language](https://edge.mondly.com/blog/wp-content/uploads/2019/10/turkish-language-1024x713.jpg "Turkish Alphabet And Pronunciation: A Quick Guide 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “The Blue Mosque, Istanbul, Turkey” by Adli Wahid©
 
@@ -39,16 +47,7 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
  Fortunately, **in 1928, Mustafa Kemal Atatürk, the founder of the Turkish Republic, finally adopted the 29-letter Latin script as a part of his famous Reforms in Turkey – the same alphabet that Turks use today.**
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The pronunciation of each letter of the Turkish alphabet
@@ -62,19 +61,13 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
 ![turkish alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2019/10/turkish-alphabet-pronunciation-scaled-960x679.jpg "Turkish Alphabet And Pronunciation: A Quick Guide 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The pronunciation of the 29 letters of the Turkish alphabet
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Rules to help you get started with Turkish
@@ -126,19 +119,18 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-exploring-top-ios-psp-emulation-tools-for-gamers-for-2024/"><u>[New] Exploring Top iOS PSP Emulation Tools for Gamers for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-capturing-moments-with-the-best-5-photo-and-video-apps-for-iphonesandroid/"><u>[New] In 2024, Capturing Moments with the Best 5 Photo & Video Apps for iPhones/Android</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-download-your-favorite-shows-anytime-everywhere-with-these-apps-for-2024/"><u>[Updated] Download Your Favorite Shows Anytime, Everywhere with These Apps for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-iphone-x-handbook-for-users/"><u>[Updated] The Ultimate iPhone X Handbook for Users</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-shaping-new-normals-innovative-brands-and-youtube-partnerships/"><u>2024 Approved Shaping New Normals Innovative Brands and YouTube Partnerships</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivate-french-competence-solo-learning-tips/"><u>Cultivate French Competence - Solo Learning Tips</u></a></li>
-<li><a href="https://extra-information.techidaily.com/dive-deep-into-color-science-top-11-essential-editing-techniques/"><u>Dive Deep Into Color Science Top 11 Essential Editing Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-guide-to-spanish-salutations-and-greeting-phrases-top-10-must-know-expressions/"><u>Essential Guide to Spanish Salutations & Greeting Phrases: Top 10 Must-Know Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-kitchen-newbies-to-gourmet-pros-5-must-know-cooking-strategies/"><u>From Kitchen Newbies to Gourmet Pros: 5 Must-Know Cooking Strategies</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Vivo Y100i Power 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-the-art-of-color-in-online-beauty-content/"><u>In 2024, The Art of Color in Online Beauty Content</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-urdu-fast-one-short-session-daily/"><u>Mastering Urdu Fast: One Short Session Daily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/parthenon-prose-ancient-greek-to-present-day-words/"><u>Parthenon Prose: Ancient Greek to Present-Day Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/premier-asian-tongues-leading-three-countries/"><u>Premier Asian Tongues: Leading Three Countries</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/hannel-your-creativity-convert-youtube-clips-into-dynamic-gifs-for-2024/"><u>[New] Channel Your Creativity Convert YouTube Clips Into Dynamic Gifs for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-download-youtube-tunes-without-risk-for-free-for-2024/"><u>[New] How to Download YouTube Tunes Without Risk for Free for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Detect and Stop mSpy from Spying on Your Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-15-to-the-latest-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 15 to the Latest iOS Version? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-mastering-youtube-money-policy-overhaul-details/"><u>In 2024, Mastering YouTube Money Policy Overhaul Details</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-what-does-jailbreaking-iphone-12-mini-i-do-get-answers-here-drfone-by-drfone-ios/"><u>In 2024, What Does Jailbreaking iPhone 12 mini i Do? Get Answers here | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-eloquence-expressing-thanks-worldwide-152-trimmed-to-fit/"><u>International Eloquence: Expressing Thanks Worldwide (152) [Trimmed to Fit]</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-motherboard-selection-critical-7-aspects-for-an-optimal-purchase/"><u>Mastering Motherboard Selection: Critical 7 Aspects for an Optimal Purchase</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pantheons-progeny-ancestral-greek-influence-today/"><u>Pantheon's Progeny: Ancestral Greek Influence Today</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolved-lost-connection-with-battlenet-how-to-restore/"><u>Resolved: Lost Connection with Battle.net - How to Restore</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-syntax-system/"><u>Seamless Syntax System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-vs-english-grammar-understanding-por-que-and-why/"><u>Spanish Vs. English Grammar: Understanding 'Por Que' And 'Why'.</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-addictive-traits-of-the-most-popular-mobile-apps/"><u>Top Addictive Traits of the Most Popular Mobile Apps</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Essential German Thanksgiving Phrases: The Ultimate List"
-date: 2024-07-29T06:46:12.325Z
-updated: 2024-07-30T06:46:12.325Z
+date: 2024-11-18T20:32:19.340Z
+updated: 2024-11-24T23:45:07.062Z
 tags:
   - speak
   - english
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/d998ed1ce4fa21b446a75f0e6c9a8cf84aeb11cbd
 
  “Thank you!” by Dayne Topkin©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1._Danke!_ — The universal “Thank you” in German**
 
 _**Danke**_ translates to “thank you” or “thanks” and it is probably the best and certainly**most common way to say thank you in German.** If you already interacted with the German language, you probably heard “Danke!” before. It’s sweet, short, easy to remember, and suitable for both formal and informal contexts.
@@ -31,15 +35,13 @@ _**Danke**_ translates to “thank you” or “thanks” and it is probably the
  However, if you feel like more formal parlance is required, you can use the expression**“Ich danke Ihnen!”.**
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **2._Danke schön!_ — Thank you kindly!**
 
  Moving on and adding a little more formality to our “Danke!”, we discover_**Danke schön!**_ which is just as short and sweet, but maybe a little bit more formal. Although it is often used in the business environment, **_Danke schön!_ seems suitable for all kinds of formal and informal situations.** My advice would be to trust your gut.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **3._Danke Sehr!_ – Thank you very much!**
 
  This is a more formal variation of_Danke schön_ , but both expressions can be used interchangeably. Like I said: trust your gut. It’s very important to take into consideration your way to talk to other people and your personality.
@@ -52,12 +54,13 @@ _**Danke**_ translates to “thank you” or “thanks” and it is probably the
 
 _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”** and it is generally used in informal situations like talking to friends or relatives.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **6._Danke vielmals!_ – Many thanks!**
 
  This is a variation of_**Vielen Dank!**_ and it can also translate to “thanks very much!”. While “Danke” means “thanks”, “vielmals” translates to “very much.”
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **7._Vergelt’s Gott!_ – God will reward you!**
 
@@ -67,13 +70,18 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 
  We all have moments in our lives when we need to thank the extraordinary people that helped when we were in trouble. Well, “Sehr aufmerksa” is for one of those situations. It’s a heartfelt way of thanking someone that has done something kind for you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **9._Ich bin dir dankbar._ — I’m thankful to you.**
 
  Good to know, but very rarely used. Depending on whom you are talking to, use “dir” and “euch” for friends and colleagues or “Ihnen” for those who you don’t know too well. The key is to use the right pronoun.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **10._Ich sage dir vielen Dank._ – I say many thanks to you.**
 
  Rarely used, but still useful if you want the complete list of ways to say thank you in German.
@@ -83,8 +91,9 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
  “Gleichfalls” is what you should add to your “Danke!” when someone wishes you “Guten Appetit!” (“Good appetite” or “Enjoy your meal”) or something similar.
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **12._Ich danke Ihnen!_ – I give you my thanks!**
 
  Like we said in the beginning, this is one of the most formal ways of thanking someone in German.
@@ -93,9 +102,6 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 
  Although it does not seems so,_**Ich danke dir!**_ is rather informal, but more elegant than just Danke.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **14._Ich möchte mich recht herzlich bedanken._ — I would like to thank you sincerely.**
 
  This is the best “thanks” you can use when you want to thank someone that has helped you a lot in a formal context. Use it with confidence the same way you would use it in English.
@@ -109,15 +115,13 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
  Last but not least, use this standard expression by adding what are you thankful for at the end of it. But use it only with intangible things like**“I’m grateful for your help”** and not objects. Here’s an example:**“I’m thankful that you take care of me”** in German will be **“Ich bin Ihnen sehr dankbar dafür, dass du dich um mich kümmerst”** .
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **17\. Bonus: How to say you’re welcome in German**
 
  Since we are here, let’s also see**how you can respond if someone says thank you in German.** Generally, the same as_Danke_ ,_Bitte_ is the safest and most common way to respond to someone expressing their gratitude. Once you begin to discover the German inside jokes, you’ll see that there’s one going around about_**Bitte**_ being the perfect answer for everything in German (hahaha – I know).
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![you're welcome in German](https://edge.mondly.com/blog/wp-content/uploads/2019/05/youre-welcome-in-german.png "The 16 Best Ways To Say Thank You In German 3")
 
 * **_Bitte_ — You’re welcome**
@@ -136,9 +140,6 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Speak German fluently in just 10 minutes a day
 
  Do you want to speak German fluently fast? Get Mondly, the award-winning language [learning app that will help you speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) with the same ease you speak your native language.
@@ -147,9 +148,6 @@ _Tausend Dank!_ is**the** **German equivalent of our** **“Thanks a million!”
 
  Start using Mondly for free on your computer, tablet, or – better yet – download the Mondly app on your iOS or Android device and learn languages fast anytime, anywhere.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Get Mondly now and speak German like you never dreamed you would ![Learn German now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2929&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2929%26utm%5Fsource%3Dblog-post-id-2929&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2929%26utm%5Fsource%3Dblog-post-id-2929&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-2929%26utm%5Fsource%3Dblog-post-id-2929&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2929%26mt%3D8 "Learn German now")
 
 <ins class="adsbygoogle"
@@ -158,8 +156,6 @@ Get Mondly now and speak German like you never dreamed you would ![Learn German 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -167,4 +163,23 @@ Get Mondly now and speak German like you never dreamed you would ![Learn German 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-elevating-your-tiktoks-dual-effect-adding-methods/"><u>[New] In 2024, Elevating Your TikToks Dual Effect-Adding Methods</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-your-picture-at-a-glance-quick-steps-for-saving-social-media-pics/"><u>[New] Your Picture at a Glance Quick Steps for Saving Social Media Pics</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-uncomplicated-techniques-for-keeping-a-transcript-of-google-voice-calls/"><u>[Updated] 2024 Approved Uncomplicated Techniques for Keeping a Transcript of Google Voice Calls</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-steps-to-instagram-verification-and-fan-growth-in-under-150-characters/"><u>[Updated] In 2024, Steps to Instagram Verification & Fan Growth in Under 150 Characters</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2211821-9780007513246-20-minutes-to-master-your-psychic-potential/"><u>20 MINUTES TO MASTER … YOUR PSYCHIC POTENTIAL | Free Book</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/bypass-reset-motorola-edge-40-phone-screen-passcode-pattern-pin-by-drfone-android-unlock-android-unlock/"><u>Bypass/Reset Motorola Edge 40 Phone Screen Passcode/Pattern/Pin</u></a></li>
+<li><a href="https://common-error.techidaily.com/comprehensive-guide-correcting-loadlibrary-failed-with-error-abortcode-the-parameter-is-incorrect-problem/"><u>Comprehensive Guide: Correcting Loadlibrary Failed with Error Abort_code: The Parameter Is Incorrect Problem</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-practica-para-leer-la-hora-en-espanol/"><u>Guía Práctica Para Leer La Hora en Español</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-a-complete-guide-to-premiere-pro-full-scene-preview/"><u>In 2024, A Complete Guide to Premiere Pro Full Scene Preview</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-high-tide-gear-surfing-camera-innovations-of-2023/"><u>In 2024, High Tide Gear Surfing Camera Innovations of 2023</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interweaving-worlds-vocabularies-today-for-teachers/"><u>Interweaving World's Vocabularies, Today for Teachers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/juvenile-jargon-expansion-kindergarten-elementary-learning-spanish/"><u>Juvenile Jargon Expansion: Kindergarten-Elementary Learning Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/neuroplasticitys-role-in-child-language-mastery/"><u>Neuroplasticity's Role in Child Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-languages-unlocked-with-mondly-the-future-of-gaming/"><u>Oculus Quest Languages Unlocked with 'Mondly' - The Future of Gaming?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/proven-strategies-for-exceptional-mondly-engagement/"><u>Proven Strategies for Exceptional Mondly Engagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-secrets-of-croatias-language-with-our-113-essential-expressions-list/"><u>Unlock the Secrets of Croatia's Language with Our 113 Essential Expressions List</u></a></li>
+</ul></div>
 

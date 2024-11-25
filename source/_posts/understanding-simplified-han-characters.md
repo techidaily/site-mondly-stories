@@ -1,7 +1,7 @@
 ---
 title: Understanding Simplified Han Characters
-date: 2024-11-03T20:08:27.375Z
-updated: 2024-11-05T03:15:35.878Z
+date: 2024-11-22T18:00:03.603Z
+updated: 2024-11-24T21:20:29.038Z
 tags:
   - speak
   - english
@@ -38,13 +38,6 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
  Out of these 13 groups of dialects, there are 7 that are considered major: Mandarin, Yue (Cantonese), Xiang, Min, Gan, Wu and Hakka.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### The history of the Chinese language and its alphabet
 
  Chinese is not what we’d call a new language. Chinese is a language with a long tradition that has touched the lips of many great emperors from many great dynasties before becoming the language we all know (or wished we’d known) today. If we also count in [Old Chinese](https://en.wikipedia.org/wiki/Old%5FChinese) , which is the oldest attested stage of Chinese and the ancestor of all modern varieties of Chinese, we could say that Chinese is around 3200 years old. No less than three millennia of tradition!
@@ -60,10 +53,7 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
  Then, in the early 20th century, written vernacular Chinese based on the Beijing dialect was introduced as the new official written language instead of Classical Chinese. People often refer to this standard language as Mandarin because it is based on the Mandarin dialect of Beijing. Thus, Standard Chinese or Mandarin now fulfills the role that Classical Chinese used to fulfill as the official written language that’s used by speakers of all varieties of Chinese.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Chinese writing system and the Chinese alphabet – an overview
@@ -92,13 +82,6 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
  Do we see why it is so crucial for you to pay attention to tones and pronunciation from your very first [Chinese lesson](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How many Chinese Characters does the Chinese alphabet have?
 
  Many people ask this question because they want an overview of how much will they have to study or simply out of curiosity. However, since there is no Chinese alphabet, there is no definite answer. But there are some statistics that will probably give you an idea.
@@ -107,18 +90,15 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
 ![written Chinese](https://edge.mondly.com/blog/wp-content/uploads/2020/06/written-chinese-600x450.jpg "Quick Introduction To The Chinese Alphabet, Chinese Characters And Pinyin 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Written Chinese” by Cherry Lin
 
  But how many Chinese characters really are there? Well, this is a whole other story. The Great Compendium of Chinese Characters or the_Hànyǔ dà zìdiǎn_ (汉语大字典) has**54,678 characters** . Absolutely incredible number. But wait because The Dictionary of Chinese Variant Form or the_Zhōnghuá zì hǎi_ (中华字海) has no less than…**106,230 characters!**
 
  Don’t let those numbers scare you though. If you really want to do this and you are passionate enough, learning Chinese won’t be about numbers, but about how accomplished you’ll feel when you’ll learn something new.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What is Pinyin?
 
@@ -140,33 +120,31 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
 ![chinese writing system](https://edge.mondly.com/blog/wp-content/uploads/2020/06/chinese-writing-system-600x400.jpg "Quick Introduction To The Chinese Alphabet, Chinese Characters And Pinyin 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Wusheng Temple, Taiwan” by Henry & Co.©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 Chinese characters you can learn right now
 
  Now that you know what to expect if you do decide to learn Chinese, let’s move from theory to practice with a quick Chinese lesson. Here are ten of the most commonly used Chinese characters:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 的 de – used to indicate possession
 
  这是我**的** 朋友。- _Zhè shì wǒ**de** péngyou_ – This is**my** friend.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 一 yī – “one”, “once”, “single”, “first, ”best“, “a little”
 
  再来**一** 轮酒！- _Zàilái**yī** lún jiǔ!_ –**One** more round!
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 是 shì – to be (used to link two nouns together)
 
@@ -182,20 +160,21 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
  现在太晚**了** 。- _Xiànzài tài wǎn**le** ._ – Now it’s not too late.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 人 rén – man, person, people
 
  我们的客人是友好的**人** 。- _Wǒmen de kèrén shì yǒuhǎo de**rén** ._ – Our neighbors are nice**people** .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 我 wǒ – I, myself or me
 
 **我** 准备好要点菜了。- _**Wǒ** zhǔnbèi hǎo yàodiǎn càile._ –**I** am ready to order.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 在 zài – located (at), in
 
@@ -206,10 +185,7 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
  你**有** 一张城市地图吗？- _Nǐ**yǒu** yī zhāng chéngshì dìtú ma?_ – Do you**have** a city map?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 他 tā – he, him, his
@@ -246,24 +222,17 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-instagrams-best-practices-for-video-posts/"><u>2024 Approved Instagram's Best Practices for Video Posts</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>5 Easy Ways to Change Location on YouTube TV On Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-infinix-hot-40i-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Infinix Hot 40i.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprender-relojes-en-espanol-guia-completa-para-principiantes/"><u>Comprender Relojes En Español: Guía Completa Para Principiantes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-squid-game-script-master-korean/"><u>Decoding Squid Game Script - Master Korean</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/editing-excellence-archive-your-qanda-for-2024/"><u>Editing Excellence Archive Your Q&A for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723209900034-elaborate-on-how-solving-problems-aids-personal-growth-and-self-reliance/"><u>Elaborate on How Solving Problems Aids Personal Growth and Self-Reliance</u></a></li>
-<li><a href="https://games-able.techidaily.com/elevating-your-valorant-skills-with-advanced-hrtf-techniques/"><u>Elevating Your Valorant Skills with Advanced HRTF Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-improve-english-speaking-9-tips-and-tricks/"><u>How To Improve English Speaking: 9 Tips And Tricks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-mondlys-dynamic-comprehensive-phrase-list/"><u>Introducing Mondly's Dynamic, Comprehensive Phrase List</u></a></li>
-<li><a href="https://win-great.techidaily.com/master-your-workflow-with-flipoffice-seamless-integration-of-all-office-file-formats-into-one-virtual-desk-space/"><u>Master Your Workflow with FlipOffice: Seamless Integration of All Office File Formats Into One Virtual Desk Space</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-and-pearson-unite-for-next-gen-filtering-tools/"><u>Mondly and Pearson Unite for Next-Gen Filtering Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speedy-bokmal-study-sessions-10-min-dashes/"><u>Speedy Bokmål Study Sessions, 10-Min Dashes!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tackling-language-barriers-in-the-world-of-squid-game/"><u>Tackling Language Barriers in the World of Squid Game</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-importance-of-learning-german-or-french-for-international-affairs/"><u>The Importance of Learning: German or French for International Affairs?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/top-5-ultimate-8k-video-conversion-tools-how-to-transform-high-resolution-footage-into-4k-and-1080p-for-easy-viewing/"><u>Top 5 Ultimate 8K Video Conversion Tools: How to Transform High-Resolution Footage Into 4K and 1080P for Easy Viewing</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-fcp-essentials-creating-engaging-picture-in-picture-effects-for-your-videos-for-2024/"><u>Updated FCP Essentials Creating Engaging Picture-in-Picture Effects for Your Videos for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vintage-wisdom-the-most-influential-50-latin-aphorisms/"><u>Vintage Wisdom: The Most Influential 50 Latin Aphorisms</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/virtulive-suite-next-gen-video-transmission-and-digital-camcorder-platform/"><u>VirtuLive Suite: Next-Gen Video Transmission & Digital Camcorder Platform</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-beyond-the-surface-10-under-the-radar-facts-about-reels/"><u>[New] Beyond the Surface 10 Under-the-Radar Facts About Reels</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-ultimate-guide-to-ios-most-innovative-vr-game-apps/"><u>[Updated] 2024 Approved The Ultimate Guide to iOS' Most Innovative VR Game Apps</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-conduct-a-symphony-on-the-ppt-stage/"><u>[Updated] Conduct a Symphony on the PPT Stage</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-breaking-the-mold-unique-and-compelling-title-themes-over-a-hundred-strong-for-snapstories/"><u>[Updated] In 2024, Breaking the Mold Unique and Compelling Title Themes over a Hundred Strong for Snapstories</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Motorola Edge 40 Neo? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-honor-play-40c-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Honor Play 40C to Roku | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leap-into-latin-top-online-educational-platforms/"><u>Leap Into Latin: Top Online Educational Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/outstanding-5-educational-platforms-for-language-instruction/"><u>Outstanding 5 Educational Platforms for Language Instruction</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/prime-selection-of-top-20-humorous-lockdown-memes-lifting-spirits-on-facebook/"><u>Prime Selection of Top 20 Humorous Lockdown Memes, Lifting Spirits on Facebook</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-to-personalizing-windows-10-with-a-new-taskbar-tone/"><u>Step-by-Step Guide to Personalizing Windows 10 with a New Taskbar Tone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fundamentals-of-fluent-russian-communication/"><u>The Fundamentals of Fluent Russian Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valkommen-till-sverige-svensk-valkomman/"><u>Välkommen Till Sverige: Svensk Välkomman</u></a></li>
 </ul></div>
 

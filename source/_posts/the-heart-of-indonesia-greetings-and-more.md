@@ -1,7 +1,7 @@
 ---
 title: "The Heart of Indonesia: Greetings and More"
-date: 2024-11-12T20:20:54.075Z
-updated: 2024-11-15T02:38:38.076Z
+date: 2024-11-18T23:21:29.023Z
+updated: 2024-11-24T16:26:33.649Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
 
  Besides, you’ll love [learning Indonesian words](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6912&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id) as some of them sound very cute to English speakers. Known as_Bahasa Indonesia_ to Indonesians, Indonesian calls the dolphin_lumba-lumba_ and the teeth_gigi_ . Cute. Told ‘ya!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## When and how should you say hello in Indonesia
 
  Unlike other Asian countries that place a big emphasis on the culture of respect, Indonesia doesn’t necessarily use honorifics. Besides, just like in English, Indonesian greetings don’t have formal variations for elders or those of a higher social status.
@@ -33,10 +37,7 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say ‘hello’ in Indonesian
@@ -48,10 +49,7 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
@@ -61,10 +59,7 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
@@ -85,13 +80,6 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to say goodbye
 
  Similarly, you can use_selamat tinggal_ if you’re ready to say ‘goodbye’ and leave. If you’re the one staying, you should say_selamat jalan,_ which has no direct translation in English.
@@ -102,6 +90,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Start learning Indonesian today
 
@@ -134,24 +126,18 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ashtag-heroes-the-ultimate-list-for-popularizing-your-youtube-snippets/"><u>[New] Hashtag Heroes The Ultimate List for Popularizing Your YouTube Snippets</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-leading-tech-for-group-virtual-engagement-for-2024/"><u>[Updated] Leading Tech for Group Virtual Engagement for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-quick-snapback-to-loss-prevention/"><u>[Updated] Quick Snapback to Loss Prevention</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-video-mastery-without-relying-on-xsplit-for-2024/"><u>[Updated] Video Mastery Without Relying on Xsplit for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-unveiling-the-process-precision-recording-of-roblox-adventures-on-apple-devices/"><u>2024 Approved Unveiling the Process Precision Recording of Roblox Adventures on Apple Devices</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-itel-a70-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Itel A70 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-primer-on-german-speech-sounds-for-beginners/"><u>A Primer on German Speech Sounds for Beginners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/achieving-proficient-ru-phonetics/"><u>Achieving Proficient RU Phonetics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boosting-bilingualism-top-3-cognitive-routines/"><u>Boosting Bilingualism: Top 3 Cognitive Routines</u></a></li>
-<li><a href="https://win-special.techidaily.com/conversione-gratuita-da-ogm-a-wmv-il-guida-completa-di-movavi-per-il-cambio-formati-video/"><u>Conversione Gratuita Da OGM a WMV: Il Guida Completa Di Movavi per Il Cambio Formati Video</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cosmic-conversations-diving-deep-into-star-wars-languages/"><u>Cosmic Conversations: Diving Deep Into Star Wars Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/crescendo-of-comprehension-musical-techniques-for-learning-languages/"><u>Crescendo of Comprehension: Musical Techniques for Learning Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dialects-spoken-in-croatia/"><u>Dialects Spoken in Croatia</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dreaming-in-diversity-mondly-languages-two-year-odyssey/"><u>Dreaming in Diversity: Mondly Languages' Two-Year Odyssey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dubai-expo-2020-shaping-global-polyglots/"><u>Dubai Expo 2020: Shaping Global Polyglots</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embracing-english-for-personal-growth/"><u>Embracing English for Personal Growth</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-comprehensible-guide-to-shifting-photosvideos-in-ios-world/"><u>In 2024, Comprehensible Guide to Shifting Photos/Videos in iOS World</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/1728467699594-sd3/"><u>SDカードデータ復旧方法：王都市で最も人気の3手法</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unlock-fcp-without-paying-tips/"><u>Unlock FCP without Paying - Tips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ontinuous-viewing-setup-your-youtube-clips-for-tv-repetition/"><u>[New] Continuous Viewing Setup Your YouTube Clips for TV Repetition</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-perfecting-projects-through-music-addition-in-premiere-pro/"><u>[Updated] Perfecting Projects Through Music Addition in Premiere Pro</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722958087048-complete-setup-guide-for-nexiq-usb-link-2-drivers-quick-and-easy/"><u>Complete Setup Guide for Nexiq USB Link 2 Drivers - Quick and Easy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-gratitude-day-adopting-thanksgiving/"><u>Global Gratitude Day: Adopting Thanksgiving</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-photos-from-honor-play-40c-by-fonelab-android-recover-photos/"><u>How to Rescue Lost Photos from Honor Play 40C?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-words-with-mondly-top-of-the-language-app-rankings-2022/"><u>Mastering Words with Mondly - Top of the Language App Rankings, 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-reimagines-buttons-with-pearsons-expertise/"><u>Mondly Reimagines Buttons with Pearson's Expertise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-eternal-savings-deal/"><u>Mondly's Eternal Savings Deal</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigate-youtubes-studio-editor-to-master-videography/"><u>Navigate YouTube's Studio Editor to Master Videography</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/never-pay-again-get-mondly-elite/"><u>Never Pay Again - Get Mondly Elite</u></a></li>
+<li><a href="https://techidaily.com/repair-corrupt-pdf-v15-files-on-my-mac-using-tool-by-stellar-guide/"><u>Repair corrupt PDF v1.5 files on my Mac using tool</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-samsung-galaxy-a05-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Samsung Galaxy A05</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zahlenreimlernen-einsteigen-in-die-deutsche-zahlensprache/"><u>Zahlenreimlernen: Einsteigen in Die Deutsche Zahlensprache</u></a></li>
 </ul></div>
 

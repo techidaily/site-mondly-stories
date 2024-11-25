@@ -1,7 +1,7 @@
 ---
 title: English Lexicon Faux Pas - Ranking Common Errors in Usage
-date: 2024-07-29T06:45:55.952Z
-updated: 2024-07-30T06:45:55.952Z
+date: 2024-11-20T22:14:08.218Z
+updated: 2024-11-24T20:22:57.253Z
 tags:
   - speak
   - english
@@ -24,14 +24,23 @@ thumbnail: https://thmb.techidaily.com/a49c2f71f9d056e749c5a574cc37d025a924e06d1
 
  Whether we’re talking about fancy words or downright common ones like “license” (not “lisence”), misspellings are like Thanos: inevitable. But even Thanos was finally defeated, so you, too, can vanquish misspelled words. The first step is to acknowledge them, so let’s do it. We’ll begin with a small but condensed list of the most misspelled words ever and continue with a complete list of the top 100 commonly misspelled words in English. Ready, steady, go!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Top 10 Most Commonly Misspelled Words in English
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Awkward not akward
 
  This one will haunt some of us for the rest of our days because it also describes how we feel when we realize we’ve just misspelled a word.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Believe not belive
 
@@ -39,27 +48,18 @@ thumbnail: https://thmb.techidaily.com/a49c2f71f9d056e749c5a574cc37d025a924e06d1
 
 Careful, though – there are some exceptions to it.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ### 3\. Embarrassed not embarassed
 
 Also commonly misspelled as: embarrased
 
  This is another classic case of two sets of double letters. You’ll reduce the chances of finding yourself in an embarrassing bad spelling situation if you remember this one.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. Entrepreneur not enterpreneur
 
 Also commonly misspelled as: entrepeneur , entreprenur , entreperneur
 
  We honestly can’t blame whoever misspells this one. It’s not only hard to spell but also [hard to pronounce](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . The reason? It’s a French word coming from the root entreprendre (‘undertake’).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Liaison not liasion
 
  There’s a reason why you’re never sure how to spell “liaison”, “bureaucracy”, “manoeuvre”, “questionnaire”, and “connoisseur”. They do not follow the same patterns because they are all [French words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -71,6 +71,10 @@ Your best bet is to just remember the correct spelling.
  This is a special situation. In American English, it’s always spelled “license” – no matter what. On the other hand, in British English, it’s spelled “license” when it’s a verb and “licence” when it’s a noun.
 
  Basically, the only wrong spelling is “lisense”. However, once you decide which spelling you’re going to use – American or British – it’s best to go forward with that one don’t combine both.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. Receive not recieve
 
@@ -87,9 +91,9 @@ Also commonly misspelled as: succesful, sucessful
  You probably heard this tongue twister before: “English can be understood through tough thorough thought, though.” It’s hard not to get confused with so many similar-looking words. You add an O to “through” and its pronunciation changes completely.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 10\. Until not untill
 
  This one is somehow similar to the “successful” situation, but not entirely. As a matter of fact, “until” was spelled with two Ls in the Middle Ages. If it helps you remember, you can think it just lost some weight but getting rid of the last L (unlike “still”).
@@ -97,8 +101,9 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 !["Hard words to spell" by Julia M Cameron©](https://edge.mondly.com/blog/wp-content/uploads/2022/12/hard-words-to-spell-960x641.jpg "Top 100 Most Misspelled Words In English 2")
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Spelling Matters
 
  English has drawn inspiration from many different languages, so it’s perfectly normal to get confused because of its double consonants and silent letters. We all know that moment when you stare at a word for ages and still can’t believe it has two sets of double letters. But it’s true. There are many such examples. In fact, “misspelled” is one of them and people often misspell it.
@@ -249,9 +254,6 @@ Let’s recap. To improve your spelling, you can:
 * **Use spell-checkers:** Grammarly is the best at keeping your written communication tidy, but we can also rely on Word’s built-in spell-checker or even ask ChatGPT or Google when you’re not sure whether your word is spelled right or not.
 * **Memorize challenging words:** We all have some words we keep getting wrong. So, our recommendation would be to take a pen and a piece of paper and write them by hand a few times until they stick. It’s traditional but it works.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ## Why Some Words Are Tricky
 
  When it comes to spelling, the English language is a real maverick. No wonder there are spelling bee competitions organized for young English-speaking students.
@@ -268,22 +270,18 @@ English words can be tricky to spell for several reasons:
 
  Before you leave, make sure to bookmark this article for future reference and check out these FAQs.👇
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ### What Is the Most Commonly Misspelled Word?
 
  The most commonly misspelled words are “receive”, “accommodate”, “separate”, and “definitely”. These are often cited as commonly misspelled due to reasons like silent letters, double letters, and common phonetic errors.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What are most Misspelled Words in America?
 
  Lists of commonly misspelled words in America often include words like “necessary”, “embarrassment”, “maintenance”, “occurrence” and “rhythm”. However, these can differ based on regional dialects, local vernacular, and other influences.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ### Why is the word “misspelled” often misspelt as “misspelt”?
 
  The word “misspelled” is often misspelt as “misspelt” because of the confusion over the correct past tense form of the verb “to spell”. In American English, “misspelled” is the standard past tense and past participle form. However, “misspelt” is commonly used in British English, although “misspelled” is also acceptable.
@@ -315,8 +313,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -324,4 +320,22 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-discovering-the-full-potential-of-toolwiz-app-2023-edition-for-2024/"><u>[New] Discovering the Full Potential of Toolwiz App, 2023 Edition for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhance-visibility-on-yt-key-aspects-of-channel-art-and-banner-size-for-2024/"><u>[New] Enhance Visibility on YT Key Aspects of Channel Art & Banner Size for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-mastering-the-art-of-hashtag-usage-a-primer-for-gamers-yt/"><u>[Updated] Mastering the Art of Hashtag Usage A Primer for Gamers YT</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-open-source-gaming-soundtracks-library/"><u>2024 Approved Open Source Gaming Soundtracks Library</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-dynamics-of-dialing-up-digital-devotees/"><u>2024 Approved The Dynamics of Dialing Up Digital Devotees</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/intellectual-frontier-can-computers-triumph/"><u>Intellectual Frontier: Can Computers Triumph?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstarting-conversations-in-indonesia-phrases/"><u>Jumpstarting Conversations in Indonesia: Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-japanese-numbers-in-just-10-minutes/"><u>Learn Japanese Numbers In Just 10 Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingualism-in-middle-age-the-cognitive-and-social-benefits-that-make-it-worthwhile/"><u>Multilingualism in Middle Age: The Cognitive and Social Benefits That Make It Worthwhile</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/roman-rendezvous-timeless-tactics-to-seduce/"><u>Roman Rendezvous: Timeless Tactics to Seduce</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seafaring-slang-survival-kit-mastering-piratical-vernacular/"><u>Seafaring Slang Survival Kit: Mastering Piratical Vernacular</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seven-years-of-mondly-empowerment-across-globe/"><u>Seven Years of Mondly Empowerment Across Globe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-tongue-of-truth-learning-hangul-for-ks/"><u>The Tongue of Truth: Learning Hangul for KS</u></a></li>
+<li><a href="https://techidaily.com/unlock-iphone-13-mini-lock-with-itunes-by-drfone-ios-unlock-ios-unlock/"><u>Unlock iPhone 13 mini lock with iTunes</u></a></li>
+</ul></div>
 

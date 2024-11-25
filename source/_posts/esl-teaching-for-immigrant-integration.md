@@ -1,7 +1,7 @@
 ---
 title: ESL Teaching for Immigrant Integration
-date: 2024-07-29T06:46:54.420Z
-updated: 2024-07-30T06:46:54.420Z
+date: 2024-11-20T19:48:49.321Z
+updated: 2024-11-24T17:51:08.159Z
 tags:
   - speak
   - english
@@ -30,8 +30,9 @@ thumbnail: https://thmb.techidaily.com/f6e6b4d9497e69403999596a39a3f38ca99f274b0
 10. [TESOL, ESL, and TEFL Certifications](#certifications)
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to become an ESL teacher
 
  I was 17 years old when I discovered I wanted to be a**teacher** . I honestly owe this one to my brother who was 5 at that time. His teacher had this tradition of inviting parents to the classroom on Fridays to read stories. That particular Friday it was my mother’s turn, but she asked me to go instead. And I was simply overwhelmed. Those little kids were more eager to discover new things than Spanish conquistadors ever have been to discover new lands. That was my “Eureka!” moment. The next thing I did was research what I needed to do in order to become an ESL teacher. Depending on the requirements of the country and the institution in which you intend to teach, you may need to complete a pedagogic module and earn an English certification.
@@ -46,9 +47,6 @@ thumbnail: https://thmb.techidaily.com/f6e6b4d9497e69403999596a39a3f38ca99f274b0
 
  I have a lot of friends that learned the basic English vocabulary by watching English cartoons. You might have some too. And I’m actually pretty sure that this is not a government secret: people (regardless of their age) learn faster and better when adding something they really enjoy doing to the learning process.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![english-second-language](https://edge.mondly.com/blog/wp-content/uploads/2018/02/english-second-language-scaled-960x640.jpg "How To Teach English As A Second Language 2")
  Although this is a great teaching tactic, don’t let yourself be carried away. The first thing you want to do is research. The method won’t work if your students don’t like the [movie](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or the cartoons that you have chosen. The secret is to stay anchored in modernity.
 
@@ -58,9 +56,6 @@ thumbnail: https://thmb.techidaily.com/f6e6b4d9497e69403999596a39a3f38ca99f274b0
 * Use English subtitles! This is a must. Listening to**fluent English speakers** might be hard in the beginning.
 * Discuss and review in English. I know they usually don’t have opinions, but if they watched something that was of interest to them, they will want to talk about it. Our desire to express certain opinions makes us more eager to break language barriers.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Teaching English to foreign students: listen to music
 
 **Teaching English to foreign students** becomes a piece of cake when you use music. I know it’s not math, but I still consider it a universal language. As I mentioned before, my brother is 12 years younger than me. That means he hasn’t had a lot of contact with what we call today “old music”. Still, the only [**English lesson**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) he mentions from the 4th grade is one that implied analyzing John Lennon’s “Imagine”.
@@ -79,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/f6e6b4d9497e69403999596a39a3f38ca99f274b0
 
 ![how-to-teach-english-abroad](https://edge.mondly.com/blog/wp-content/uploads/2018/02/how-to-teach-english-abroad-960x640.jpg "How To Teach English As A Second Language 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. How to teach English in a fun way: create
 
  Creation is catharsis. Give your students time and some keywords and you will be amazed.
@@ -93,20 +92,13 @@ thumbnail: https://thmb.techidaily.com/f6e6b4d9497e69403999596a39a3f38ca99f274b0
 
  It’s true that technology made us more choosey. In modern times, tradition bores us. But technology is also the one that electrifies our world and enhances our experiences.[Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-1107&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1107%26utm%5Fsource%3Dblog-post-id-1107&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1107%26utm%5Fsource%3Dblog-post-id-1107&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1107%26utm%5Fsource%3Dblog-post-id-1107&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-1107%26mt%3D8) , for example, is a language learning app that takes language learning to another level using augmented reality (AR),[virtual reality (VR)](https://www.mondly.com/blog/this-virtual-reality-app-helps-you-learn-a-language/) , and [chatbot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) technologies.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![language-learning-app](https://edge.mondly.com/blog/wp-content/uploads/2018/02/language-learning-app-960x640.jpg "How To Teach English As A Second Language 4")
  It sounds futuristic. I know. But that’s exactly the reason why your students will love**learning English as a second language** using this app. Give it a try and enjoy the experience together.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. How to teach English abroad: organize intercultural nights
 
  Love goes through the stomach. You knew that already. What you didn’t know is that language learning works the same.
@@ -115,9 +107,6 @@ thumbnail: https://thmb.techidaily.com/f6e6b4d9497e69403999596a39a3f38ca99f274b0
 
  Food makes us happy. Good food makes us eager to learn more (food) words in a new language. Why shouldn’t we, as teachers, use this info in our own best interest? You can organize intercultural nights and discuss a lot of interesting things about the USA and UK’s cultures, but my guess is that traditional food will still be the star of the night.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. English as a second language for kids: celebrate English holidays
 
  Kids from all over the [world simply love Halloween](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . For them, it makes no difference that this is an American holiday. And trust me: your students are no different. As long as they have fun, it doesn’t matter what holiday you are celebrating.
@@ -126,13 +115,14 @@ thumbnail: https://thmb.techidaily.com/f6e6b4d9497e69403999596a39a3f38ca99f274b0
 
  On a more serious note, I can assure you this is really efficient. One kid in my class was so excited about this task that he handcrafted magic wands for all his colleagues and made a really convincing essay on “why Neville Longbottom is the real hero of Harry Potter”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## teaching-english-to-foreign-students
 
 ![teaching-english-to-foreign-students](https://edge.mondly.com/blog/wp-content/uploads/2018/02/teaching-english-to-foreign-students-960x640.jpg "How To Teach English As A Second Language 5")
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 8\. Read and analyze fiction stories together
 
  This is another great strategy that I learned from one of my teachers. But as I mentioned earlier, you have to be 100% sure that you made the right choice. Harry Potter, as you may have already realized, works like magic in this situation.
@@ -142,8 +132,9 @@ thumbnail: https://thmb.techidaily.com/f6e6b4d9497e69403999596a39a3f38ca99f274b0
 **Bonus tip:** Good teachers may be different from a student’s point of view. Look for inspiration everywhere around you. Even in cinematography! Start with Damien Chazelle’s masterpiece –[Whiplash](http://www.imdb.com/title/tt2582802/?ref%5F=nv%5Fsr%5F2) – and observe how a teacher should not behave. Seriously. That guy was the king of all awful teachers.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 9\. Attend educational shows to get inspired
 
  One of the most inspiring educational shows that you can ever go to is [The Bett Show](https://www.bettshow.com/#/) . Hundreds of companies from all over the world gather at Bett every year to discuss how education can change the future using the latest technologies.
@@ -151,15 +142,20 @@ thumbnail: https://thmb.techidaily.com/f6e6b4d9497e69403999596a39a3f38ca99f274b0
 ![teaching-english-as-a-second-language](https://edge.mondly.com/blog/wp-content/uploads/2018/02/teaching-english-as-a-second-language-1024x576.jpg "How To Teach English As A Second Language 6")
  My guess is that this kind of event can inspire you to be a better teacher to your young students. Every day, technology becomes a bigger part of their worlds and we, as teachers, should keep up with the pace. Until super smartphones or super-smart robots will eventually replace us, we are still a crucial part of the global learning process. Although I find it hard to believe that scientists will ever [be able to create a software](https://financesonline.com/topapps/) so developed that it replicates the energy, dedication, and enthusiasm of a good teacher.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10\. TESOL, ESL, and TEFL Certifications
 
  As any good teacher would, you care about your students. Their great results and knowledge are the sum of your actions as a great teacher. Furthermore, depending on their age, your role as a teacher is similar to that of a parent. In other words, you will always be their teacher. Even when they will become adults, their life will still be influenced by your actions. No pressure!
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![how-to-teach-english](https://edge.mondly.com/blog/wp-content/uploads/2018/02/how-to-teach-english-scaled-960x905.jpg "How To Teach English As A Second Language 7")
  That is why you should advise them to get their English certification before graduating high school. Not only this will be a good exercise, but it will also help them in their careers. English as a second language in your CV isn’t just a plus anymore. It has become a must. Cross this one off their lists before life does it for them. Good luck!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhow-teach-english-second-language-10-valuable-tips-student%2F&t=How+to+Teach+English+as+a+Second+Language "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
@@ -176,8 +172,6 @@ thumbnail: https://thmb.techidaily.com/f6e6b4d9497e69403999596a39a3f38ca99f274b0
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -185,4 +179,17 @@ thumbnail: https://thmb.techidaily.com/f6e6b4d9497e69403999596a39a3f38ca99f274b0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/rom-humble-beginnings-to-sponsored-success-channels-blueprint/"><u>[New] From Humble Beginnings to Sponsored Success Channels' Blueprint</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-crisp-capture-leaders-the-ultimate-list-of-premium-4k-phone-cameras/"><u>[New] In 2024, Crisp Capture Leaders The Ultimate List of Premium 4K Phone Cameras</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-staying-up-to-date-saving-mov-videos-with-the-six-smartest-strategies-in-win-11/"><u>[New] In 2024, Staying Up-to-Date Saving .MOV Videos with the Six Smartest Strategies in Win 11</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-instant-recording-sight-and-sound-fused/"><u>[Updated] 2024 Approved Instant Recording Sight & Sound Fused</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enchant-locals-speak-20plus-italian-idioms-right-away/"><u>Enchant Locals: Speak 20+ Italian Idioms Right Away</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enterprise-grade-data-sanitization-with-bitraser-video-guide/"><u>Enterprise-Grade Data Sanitization with BitRaser Video Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-russian-phrases-your-passport-to-conversation/"><u>Essential Russian Phrases: Your Passport to Conversation</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/exploring-alternatives-the-10-best-non-vimeo-video-tools-for-2024/"><u>Exploring Alternatives The 10 Best Non-Vimeo Video Tools for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-affection-linguistic-love-strategies/"><u>Expressing Affection: Linguistic Love Strategies</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On HTC U23? | Dr.fone</u></a></li>
+</ul></div>
 

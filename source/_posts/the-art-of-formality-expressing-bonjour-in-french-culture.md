@@ -1,7 +1,7 @@
 ---
 title: "The Art of Formality: Expressing 'Bonjour' In French Culture"
-date: 2024-10-29T18:19:23.014Z
-updated: 2024-11-04T18:20:25.486Z
+date: 2024-11-20T23:33:25.760Z
+updated: 2024-11-24T20:50:42.152Z
 tags:
   - speak
   - english
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
 ## The Art of Formality: Expressing 'Bonjour' In French Culture
 
 _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to see you love the French language as much as I do! In some of the previous lessons, we’ve talked about [French phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ,[French movies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [best way to learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but for today’s lesson it’s time to go back to the basics and learn how to say “hello” in French. Of course, we all know and love the classic_Bonjour!_ But what are other French greetings we could use to diversify our French conversations?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The most common way to say “hello” in French:_Bonjour!_
 
@@ -39,10 +43,7 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  However, if you are in Quebec, you are free to use_Bon matin_ until 10 or 11 AM.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. “Good afternoon” in French –_Bon après-midi!_
@@ -56,16 +57,7 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  The same as the_clasique Bonjour_ ,_Bonsoir_ is a universal greeting suitable for most social contexts. The only restriction is the moment of the day. So once the twilight settles in, it is safe to switch from_Bonjour_ to_Bonsoir_ !
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. “Good night” in French –_Bonne nuit!_
@@ -82,9 +74,17 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Usually expressed with the raising tone of a question,_Allô_ is what you could say over the phone to check whether the person you are talking to is still on the other end of the line or not:_Allô?_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Excuse me? –_Excusez-moi?_
 
  Looking for a polite way to get someone’s attention in French? Maybe there’s someone blocking your way in the store or maybe you want to get noticed by the office clerk. In these situations, a classic greeting would be a bit redundant. So instead you could use this “question-like”_Excusez-moi?_ that has a double meaning and works as both a greeting and a way to get someone’s attention.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. “How are you” in French –_Comment ça va?_
 
@@ -104,13 +104,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 11\. The cute Bonjour:_Coucou!_
 
 _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It literally means “cuckoo” and it is used the same way we use “hey!” in English.
@@ -122,10 +115,7 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 12\. How’s it going? –_Ça roule?_
@@ -136,13 +126,6 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Here’s how to learn French in just 10 minutes a day
 
@@ -173,16 +156,24 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-optimal-video-posting-frequency-for-increased-youtube-popularity/"><u>[New] 2024 Approved Optimal Video Posting Frequency for Increased YouTube Popularity</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-inside-outlook-what-youre-missing-as-a-story-viewer-for-2024/"><u>[New] Inside Outlook What You're Missing as a Story Viewer for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-top-7-cost-effective-user-friendly-movie-software/"><u>[Updated] Top 7 Cost-Effective, User-Friendly Movie Software</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-exploring-high-speed-action-a-top-5-game-list/"><u>2024 Approved Exploring High-Speed Action A Top 5 Game List</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/boost-productivity-learn-how-to-use-chatgpt-for-auto-generating-content-in-microsoft-word/"><u>Boost Productivity: Learn How to Use ChatGPT for Auto-Generating Content in Microsoft Word</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/get-into-it-the-next-level-conversation-ai/"><u>Get Into It: The Next-Level Conversation AI</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-expert-6-tech-for-cross-lingual-content-shift/"><u>In 2024, Expert 6 Tech for Cross-Lingual Content Shift</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-the-days-of-the-week-in-german/"><u>Learn the Days of the Week in German</u></a></li>
-<li><a href="https://win-webster.techidaily.com/overcoming-challenges-with-itunes-reading-iphone-content-effective-solutions/"><u>Overcoming Challenges with iTunes Reading iPhone Content – Effective Solutions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/self-driven-japanese-study-explore-free-web-based-tools/"><u>Self-Driven Japanese Study - Explore Free Web-Based Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sprachkurse-fur-die-deutschen-wochentage/"><u>Sprachkurse Für Die Deutschen Wochentage</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-hear-and-heed-free-recognition-and-response-platform/"><u>[Updated] 2024 Approved Hear and Heed Free Recognition & Response Platform</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-iphone-vibration-issues-in-silent-and-ring-modes-8-effective-tips/"><u>Fixing iPhone Vibration Issues in Silent and Ring Modes: 8 Effective Tips</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/halftone-problem-with-color-prints/"><u>Halftone Problem with Color Prints</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-lava-blaze-curve-5g-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Lava Blaze Curve 5G Safely | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-successfully-run-destiny-2-after-fixes-for-initial-pc-launch-glitches/"><u>How to Successfully Run Destiny 2 After Fixes for Initial PC Launch Glitches</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-samsung-galaxy-s21-fe-5g-2023-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Samsung Galaxy S21 FE 5G (2023) online without jailbreak</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-the-ultimate-list-of-9-best-online-mic-recorder-hacks/"><u>In 2024, The Ultimate List of 9 Best Online Mic Recorder Hacks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-days-of-gratitude-similar-to-us-thanksgiving/"><u>International Days of Gratitude Similar to US Thanksgiving</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japenese-expressions-friendliness-and-respect-on-display/"><u>Japenese Expressions: Friendliness & Respect on Display</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-time-with-earths-oldest-language/"><u>Journey Through Time with Earth’s Oldest Language</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-oneplus-ace-2-pro-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on OnePlus Ace 2 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/temps-des-jours-francais/"><u>Temps Des Jours Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-eerie-origins-of-halloween-customs/"><u>The Eerie Origins of Halloween Customs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vielfaltig-sein-eine-auswahl-deutscher-begrussungen-ohne-hallo/"><u>Vielfältig Sein: Eine Auswahl Deutscher Begrüßungen Ohne Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/want-to-understand-the-squid-game-in-korean-learn-the-language/"><u>Want To Understand The Squid Game In Korean? Learn The Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-weaving-worlds-mondlylanguages-2-years-of-ambition/"><u>Words Weaving Worlds - MondlyLanguages, 2 Years of Ambition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ta-sygkrismata-glwttothpeioy-ston-eyxhs/"><u>Τα Συγκρίσματα Γλωττοτηπειού Στον Ευχής</u></a></li>
 </ul></div>
 

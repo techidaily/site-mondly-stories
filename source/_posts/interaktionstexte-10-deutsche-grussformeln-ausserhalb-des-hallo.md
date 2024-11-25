@@ -1,7 +1,7 @@
 ---
 title: "Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'"
-date: 2024-11-10T13:19:19.731Z
-updated: 2024-11-15T04:20:53.707Z
+date: 2024-11-19T20:17:24.986Z
+updated: 2024-11-24T19:13:10.247Z
 tags:
   - speak
   - english
@@ -28,13 +28,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  First, some good news! As it turns out, Germans use_hi_ too. Careful though: as you already know,_hi_ is more informal than_hallo_ so you should keep this one between friends.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Hallöchen – ‘Hello’ (lit. ‘little hello’)
 
  If you want to avoid repetition and diversify your vocabulary, you can also say_hallöchen,_ which is literally a ‘little hello’. It’s best to use_hallöchen_ to greet… whoever says German is a harsh language 🤭.
@@ -59,6 +52,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -74,10 +71,7 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Was ist los? – “What’s up?”
@@ -89,15 +83,16 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
 
@@ -139,10 +134,7 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
 **Localization:** Bavaria (south-eastern Germany) and Austria.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Servus – “At your service”
@@ -193,21 +185,24 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-essential-fixes-to-tackle-fb-story-load-failures/"><u>[New] 2024 Approved Essential Fixes to Tackle Fb Story Load Failures</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-script-to-screen-your-guide-to-youtube-storytelling/"><u>[New] 2024 Approved Script to Screen Your Guide to YouTube Storytelling</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-driving-sales-not-just-views-monetizing-your-social-media-videos/"><u>[New] In 2024, Driving Sales, Not Just Views Monetizing Your Social Media Videos</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-seamlessslide-visual-harmony-on-macsierra/"><u>[New] SeamlessSlide Visual Harmony on MacSierra</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-crack-the-code-of-content-top-6-youtuber-personality-tests-revealed/"><u>2024 Approved Crack the Code of Content Top 6 YouTuber Personality Tests Revealed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-guide-to-effortless-russian-social-communication/"><u>A Guide to Effortless Russian Social Communication</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-romance-race-analyzing-the-similarities-and-differences-in-spanish-and-portuguese/"><u>A Romance Race: Analyzing the Similarities and Differences in Spanish & Portuguese</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/articulating-spanish-accents-a-step-by-step-approach/"><u>Articulating Spanish Accents: A Step-by-Step Approach</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/btns-in-pt-languages-a-cross-continental-study/"><u>BTNs in PT Languages: A Cross-Continental Study</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/constructing-home-made-vr-headgear-with-google-cards/"><u>Constructing Home-Made VR Headgear with Google Cards</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/continental-verbal-preferences-asias-top-3/"><u>Continental Verbal Preferences: Asia's Top 3</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-bengali-dose-ten-minutes-to-fluency/"><u>Daily Bengali Dose: Ten Minutes to Fluency!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579122156-effortless-norsk-acquisition-short-sessions/"><u>Effortless Norsk Acquisition - Short Sessions!</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-realme-c67-4g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Realme C67 4G online without jailbreak</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-htc-u23-pro-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from HTC U23 Pro to Another | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-motorola-moto-g23-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Motorola Moto G23 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-from-simple-to-sophisticated-mastering-zd-softs-video-recording-techniques/"><u>[New] From Simple to Sophisticated Mastering ZD Soft's Video Recording Techniques</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-infinite-playground-top-10-affordable-online-adventures/"><u>[Updated] 2024 Approved Infinite Playground Top 10 Affordable Online Adventures</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-mastering-free-photo-frame-video-downloads/"><u>[Updated] In 2024, Mastering Free Photo Frame Video Downloads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-prime-screen-recording-tech-for-youtube-broadcasts/"><u>[Updated] Prime Screen Recording Tech for YouTube Broadcasts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-interconnecting-your-music-collection-across-services/"><u>2024 Approved Interconnecting Your Music Collection Across Services</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-the-iphone-xs-icloud-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing the iPhone XS iCloud Lock</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Xiaomi Redmi Note 12T Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/galaxy-s8s-ultra-hd-experience-unveiled/"><u>Galaxy S8's Ultra HD Experience Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-impact-on-eng-linguistic-adoption-and-lexicon-expansion/"><u>Global Impact on Eng: Linguistic Adoption and Lexicon Expansion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hustle-and-learn-japanese-numbers-made-easy/"><u>Hustle and Learn: Japanese Numbers Made Easy</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-elevate-your-reddit-presence-with-proactive-tips/"><u>In 2024, Elevate Your Reddit Presence with Proactive Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-instructors-day-language-diverse-tribute/"><u>International Instructors' Day: Language-Diverse Tribute</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-lexicon-influx-enriching-the-english-language/"><u>International Lexicon Influx: Enriching the English Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-languages-effortlessly-with-mondly-googles-choice/"><u>Master Languages Effortlessly with Mondly, Google's Choice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/professional-advancement-in-a-multilingual-world/"><u>Professional Advancement in a Multilingual World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romantic-revelries-in-rue-saint-michel/"><u>Romantic Revelries in Rue Saint-Michel</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-restoring-your-missing-bluetooth-icon-on-windows-11/"><u>Step-by-Step Guide: Restoring Your Missing Bluetooth Icon on Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-shared-lexicon-ukraine-and-russias-speech/"><u>The Shared Lexicon: Ukraine & Russia's Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/time-honored-tongues-ancient-language-guide/"><u>Time-Honored Tongues: Ancient Language Guide</u></a></li>
 </ul></div>
 

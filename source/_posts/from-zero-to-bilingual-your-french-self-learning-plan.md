@@ -1,7 +1,7 @@
 ---
 title: "From Zero to Bilingual: Your French Self-Learning Plan"
-date: 2024-07-29T06:47:05.899Z
-updated: 2024-07-30T06:47:05.899Z
+date: 2024-11-19T16:46:32.167Z
+updated: 2024-11-24T18:58:37.563Z
 tags:
   - speak
   - english
@@ -30,9 +30,6 @@ thumbnail: https://thmb.techidaily.com/77e8784ddc309f16b18e178f4d3e63a6403d2aa17
 
  Featuring bite-sized Daily Lessons, practical topics and authentic French conversations recorded by fluent voice artists so you can tackle day-to-day situations,**Mondly is the main and the best way to learn French at home.**
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![french lessons](https://edge.mondly.com/blog/wp-content/uploads/2019/10/french-lessons-1024x682.jpg "The Best Way To Learn French At Home 2")
 
  “Read books in French” by Aliis Sinisalu©
@@ -43,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/77e8784ddc309f16b18e178f4d3e63a6403d2aa17
 
  It worked for millions of other people that learned French at home with Mondly. And now it will work for you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Read books in French
 
  Now that you know quite a few [French words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and phrases, it’s time to move to the next level. **Continue learning French on your [language learning app](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3480&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3480?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3480?mother%5Flang=en%5Fus?target%5Flang=fr) , but also expand your vocabulary by reading books in French.** You don’t really like to read? Find something you are really passionate about and try reading about that particular subject in French. Whether we are talking about movies, mechanics, drama, history or music, you will surely find an interesting article about it on the world wide web.
@@ -51,16 +52,18 @@ thumbnail: https://thmb.techidaily.com/77e8784ddc309f16b18e178f4d3e63a6403d2aa17
 
  And here’s yet another priceless trick to get you conversational in French: get yourself a Kindle! Kindle has an integrated vocabulary that, with just a simple tap, will show you the definition of any word in the book you are reading. The happiness of discovering new French words by yourself combined with the context of what you are reading will help you remember new words in French much faster than you would normally do.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![learn french](https://edge.mondly.com/blog/wp-content/uploads/2019/10/learn-french-1024x709.jpg "The Best Way To Learn French At Home 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Jardin des Curiosités, Lyon, France” by Léonard Cotte©
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Use flashcards for those French words that don’t stick
 
  Some French words just – won’t – stick. It’s crazy how stubborn they are! Lucky for you, there are ways to literally glue these words into your brain and one of the handiest ideas is flashcards.
@@ -68,8 +71,9 @@ thumbnail: https://thmb.techidaily.com/77e8784ddc309f16b18e178f4d3e63a6403d2aa17
  Start by identifying the words or [phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that won’t stick and write them down on sticky notes (ironic!). Then put them by the bed, in the kitchen, in the bathroom or wherever you spend the most time during a day. Next thing you know, the same French words you used to forget will now follow you everywhere.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Train your ears with French movies, music or videos
 
  Has it ever happened to you to spend time in another country and then hear people at home speak the foreign language you got used to although they weren’t doing so? Strangely enough, that was your brain after it got used to the language you kept hearing. After it accommodates, your brain changes its expectations regarding the sounds that surround you. Isn’t that amazing?
@@ -78,9 +82,6 @@ thumbnail: https://thmb.techidaily.com/77e8784ddc309f16b18e178f4d3e63a6403d2aa17
 
  Need some French music ideas? Here’s one from [Mommy](https://www.imdb.com/title/tt3612616/) , a brilliant film partially spoken in French:
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Talk to yourself in French
 
  That’s exactly right. Not by yourself. To yourself. That may sound a little crazy, but expressing your thoughts in French can help you master the language faster. The idea is to be able to form a line of thought directly into the French language. Just like you would in a conversation in French.
@@ -91,10 +92,11 @@ thumbnail: https://thmb.techidaily.com/77e8784ddc309f16b18e178f4d3e63a6403d2aa17
 
  These methods will work ten times better if you remain positive. Now you know what’s the best way to learn French. The rest is up to you and you can do it! Start by saying_Je peux le faire! Je peux commencer à parler le français couramment!_ (“I can do it! I can start speaking French fluently!”).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![best way to learn French online](https://edge.mondly.com/blog/wp-content/uploads/2019/10/best-way-to-learn-french-online-1024x554.jpg "The Best Way To Learn French At Home 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Valloire, France” by Marc Guellerin
 
@@ -121,8 +123,6 @@ _Bonne chance!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -130,4 +130,26 @@ _Bonne chance!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-youtube-sensation-10-year-olds-remarkable-income-leap/"><u>[New] In 2024, YouTube Sensation, 10-Year-Old's Remarkable Income Leap</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlocking-your-potential-in-free-youtube-transcription-techniques/"><u>[New] Unlocking Your Potential in Free YouTube Transcription Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enrich-perspectives-through-polyglotisms-triumph/"><u>Enrich Perspectives Through Polyglotism's Triumph</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-english-words-unlocked-with-oxford-mondly/"><u>Essential English Words Unlocked with Oxford-Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-guide-to-10-distinctive-spanish-greeting-phrases/"><u>Essential Guide to 10 Distinctive Spanish Greeting Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/european-versus-south-american-phonology/"><u>European versus South American Phonology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exciting-news-mondly-joins-huaweis-platform/"><u>Exciting News! Mondly Joins Huawei's Platform</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exclusive-offers-unmissable-samsung-products-at-steep-discount-rates-this-prime-day/"><u>Exclusive Offers: Unmissable Samsung Products at Steep Discount Rates This Prime Day!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expand-horizons-via-multilingual-training/"><u>Expand Horizons via Multilingual Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-languages-virtually-with-mondlyar/"><u>Explore Languages Virtually, With MondlyAR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/flourish-in-social-settings-mastering-verbal-exchanges/"><u>Flourish in Social Settings: Mastering Verbal Exchanges</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gain-language-confidence-with-daily-10-minute-tagalog-sessions/"><u>Gain Language Confidence with Daily 10-Minute Tagalog Sessions</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-nokia-130-music-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Nokia 130 Music FRP Bypass</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-unlocking-potential-top-tactics-for-medical-ads-on-social-networks/"><u>In 2024, Unlocking Potential Top Tactics for Medical Ads on Social Networks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/perfecting-online-visuals-beauty-focused-color-correction/"><u>Perfecting Online Visuals Beauty-Focused Color Correction</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-windows-sound-problems-no-more-popping-or-hissing/"><u>Solving Windows Sound Problems: No More Popping or Hissing</u></a></li>
+<li><a href="https://fox-that.techidaily.com/step-by-step-solutions-for-non-functioning-guided-access-on-iphones/"><u>Step-by-Step Solutions for Non-Functioning Guided Access on iPhones</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/112408-9781930051195-the-joy-of-weight-loss/"><u>The Joy of Weight Loss | Free Book</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/tripped-nvidia-installation-barrier-tackled/"><u>Tripped: NVIDIA Installation Barrier Tackled</u></a></li>
+</ul></div>
 

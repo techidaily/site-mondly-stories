@@ -1,7 +1,7 @@
 ---
 title: Unlocking Essential Expressions for Daily Conversations in China
-date: 2024-11-14T14:10:15.026Z
-updated: 2024-11-15T02:05:01.608Z
+date: 2024-11-19T16:15:40.940Z
+updated: 2024-11-24T20:34:44.904Z
 tags:
   - speak
   - english
@@ -34,15 +34,16 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
 
  Now that you know the easiest and most popular way to say “hello” in Chinese, let’s move on to more advanced Mandarin Chinese greetings that are guaranteed to make you sound fluent.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. 早！(zǎo) – “Morning!” in Chinese
 
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. 你好吗? (nǐ hǎo ma) – “How are you?” in Chinese
@@ -51,16 +52,13 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. 你吃了吗？(nǐ chī le ma) – “Have you eaten?”
 
@@ -74,13 +72,6 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  If you want something even MORE‌ formal than that, go with 久闻大名 (jiǔwéndàmíng) literally meaning “your name is famous” – a phrase which could translate to something like “I have heard much about you”. But only use this on very special occasions like meeting the president or a person you hold in very high regard.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. 最近好吗？(zuì jìn hào mǎ) – “How are you these days?”
 
  Isn’t this beautiful? It’s very similar to the English “how are you?”, so you can use it accordingly.
@@ -88,6 +79,10 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
 
  “Hello there!” by Theodor Lundqvist©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
 
@@ -97,16 +92,13 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  Want to diversify the way you greet people in Chinese? Then you can go with 下午好 (xiàwǔ hǎo) when it’s the right time of the day.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
@@ -144,19 +136,16 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cultivating-confidence-for-captivating-your-youtube-audience/"><u>[New] In 2024, Cultivating Confidence for Captivating Your YouTube Audience</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-steer-clear-of-virtual-reality-sickness/"><u>[New] Steer Clear of Virtual Reality Sickness</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-streamlining-remote-recordings-a-producers-guide-for-2024/"><u>[New] Streamlining Remote Recordings A Producer’s Guide for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-shoot-igtv-videos-with-smartphonedlsr-cameras-for-2024/"><u>[Updated] How to Shoot IGTV Videos With Smartphone/DLSR Cameras for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-open-source-video-template-ideas-for-youtube/"><u>[Updated] Open Source Video Template Ideas for YouTube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bilingual-in-bread-and-language-learn-romanian/"><u>Bilingual in Bread and Language: Learn Romanian</u></a></li>
-<li><a href="https://win-answers.techidaily.com/boost-your-guilty-gear-strive-playtime-effective-solutions-for-pc-crashes/"><u>Boost Your Guilty Gear Strive Playtime - Effective Solutions for PC Crashes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparing-british-and-american-lexicon/"><u>Comparing British and American Lexicon</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-activation-lock-on-ipod-and-apple-iphone-6s-the-right-way-by-drfone-ios/"><u>In 2024, How To Bypass iCloud Activation Lock On iPod and Apple iPhone 6s The Right Way</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lingual-interactions-international-contribution-to-english/"><u>Lingual Interactions: International Contribution to English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-ar-uses-augmented-reality-to-change-the-way-we-learn-languages/"><u>Mondly AR Uses Augmented Reality To Change The Way We Learn Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/salutations-francaises-la-reponse-idyllique/"><u>Salutations Françaises: La Réponse Idyllique</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/simple-steps-updating-your-lenovos-bios-and-device-drivers-with-no-fuss/"><u>Simple Steps: Updating Your Lenovo's BIOS and Device Drivers with No Fuss</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worlds-thank-you-lexicon-a-comprehensible-guide-155-trimmed-to-fit/"><u>World's Thank-You Lexicon: A Comprehensible Guide (155) [Trimmed to Fit]</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-crafting-cinematic-stories-in-extended-seconds-a-guide-to-creating-spectacularly-long-lasting-video-from-still-images-online/"><u>[Updated] Crafting Cinematic Stories in Extended Seconds A Guide to Creating Spectacularly Long Lasting Video From Still Images Online</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discovering-why-ios-gets-the-preferential-treatment-in-gpt/"><u>Discovering Why iOS Gets the Preferential Treatment in GPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-take-your-english-to-the-next-level/"><u>How to Take Your English to the Next Level</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-troubleshoot-and-repair-driver-power-state-failures-on-pc/"><u>How to Troubleshoot and Repair Driver Power State Failures on PC</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-xs-to-the-latest-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone XS to the Latest iOS Version? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-nokia-g310-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Nokia G310</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/in-depth-analysis-on-the-legality-of-duplicating-dvd-content-a-full-breakdown/"><u>In-Depth Analysis on the Legality of Duplicating DVD Content: A Full Breakdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-bulgarian-in-dashes-10-minute-sessions/"><u>Learn Bulgarian in Dashes - 10-Minute Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-revolutionary-vr-language-learning-experience/"><u>Mondly Unveils: Revolutionary VR Language Learning Experience!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-ciao-right-top-10-italian-welcoming-phrases-unveiled/"><u>Say 'Ciao!' Right: Top 10 Italian Welcoming Phrases Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-hungarian-way-to-declare-your-heart/"><u>The Hungarian Way to Declare Your Heart</u></a></li>
 </ul></div>
 

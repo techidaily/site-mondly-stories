@@ -1,7 +1,7 @@
 ---
 title: From Fumbling To Fluency - The Learning Curve
-date: 2024-07-29T06:45:41.514Z
-updated: 2024-07-30T06:45:41.514Z
+date: 2024-11-17T19:17:33.848Z
+updated: 2024-11-24T21:57:59.532Z
 tags:
   - speak
   - english
@@ -18,13 +18,12 @@ thumbnail: https://thmb.techidaily.com/78573d1d50e3fe1a208211e6210a893de5cb63383
 
  English is the most international language on the globe. If you are a native English speaker, chances are, you can get along quite comfortably in most Western countries without learning a word in another language. In Europe especially, with enough luck, someone out there may know enough English to initiate and sustain basic communication situations.
 
-
-
  But of course, for various other reasons either personal, cultural or work-related, you will find yourself in need of learning a foreign language. The next natural question after deciding to learn a new language is: how many hours does it take to learn a foreign language and achieve fluency?
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Estimated times to learn a new language
 
 * Afrikaans — 575 hours
@@ -48,10 +47,6 @@ thumbnail: https://thmb.techidaily.com/78573d1d50e3fe1a208211e6210a893de5cb63383
 * **Knowing more than one language helps —** languages with shared features with English are generally easier to learn, while those with significant cultural and linguistic differences may take longer to learn;
 * **The time spent learning depends on you** **—** The time it takes to learn a new language varies greatly depending on your motivation and dedication to the task.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ## Interagency Language Roundtable scale or the IRL scale
 
  The Interagency Language Roundtable is a grading scale used by the US government to scale [employees](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and diplomats working for the FSI (Foreign Service Institute). You’ll find this scale to be the most accurate when it comes to native English speakers learning a foreign language. Basically, what this scale does is establish the language difficulty.
@@ -68,18 +63,12 @@ thumbnail: https://thmb.techidaily.com/78573d1d50e3fe1a208211e6210a893de5cb63383
 
  But first, we need to clarify a certain aspect of learning foreign languages as a native English speaker: some languages are more difficult to learn than others. Why? Because English and some other languages haven’t been in contact with one another for thousands of years and have evolved in a totally different way. But studying languages that are completely different from English is not impossible. It takes longer, but you’ll eventually get there.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Easiest language to learn for English speakers
 
  The data presented below reflects a study held by the FSI (Foreign Service Institute) of the US government. Again, this is probably the most accurate data regarding how much time it takes for a native English speaker to become fluent in a particular new language.
 
  The FSI has over 800 language learning courses in more than 70 languages with more than 70 years of experience in training US diplomats and foreign affairs employees.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Tier 1:** Languages that are most closely related to English
 
  The fastest way to learn a language is to learn any language from Tier 1\. These are the easiest languages to learn for English speakers and will take the least amount of time to master.
@@ -112,23 +101,6 @@ thumbnail: https://thmb.techidaily.com/78573d1d50e3fe1a208211e6210a893de5cb63383
 * comparable stress and intonation patterns;
 * already share a number of vocabulary words.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ### **Tier 2:** Similar to English
 
 | Language | Time needed to reach fluency |
@@ -139,10 +111,11 @@ Key features:
 
  The grammar is more complicated and difficult to understand; hence, German gets a tier 2 difficulty score, but of course, there are other Germanic languages out there that are much harder to master, like Icelandic.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 !["Fastest way to learn a language" by RF._.studio©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/fastest-way-to-learn-a-language-960x641.jpg "How Long Does It Take In Hours To Learn A Language? 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Tier 3:** Languages that may have cultural and linguistic differences compared to English
 
@@ -154,6 +127,10 @@ Key features:
 | Haitian Creole | 900 hours or 36 weeks        |
 
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-1364&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Tier 4:** Languages that are profoundly different from English
 
@@ -181,11 +158,19 @@ Key features:
 
  The languages above are just a part of the European languages classified as tier 4 by the FSI. The list goes on with other languages from all over the world, like Mongolian, Nepali, Thai, Xhosa, Zulu or Hebrew. All of them take about 1100 hours or 44 weeks to become fluent in. Thus, when it comes to the difficulty of languages, this list does indeed include hard languages to learn, but not the hardest.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Hardest language to learn for English speakers
 
  All of the tier 5 languages are highly sophisticated and complex compared to English having an average learning curve of up to 4 times the period it takes for the average English speaker to learn Dutch for example. So arm yourself with a lot of patience and plenty of determination.
 
  Based on all the data and testimonies English speakers made over the years, the hardest language to learn award may go to Japanese due to the thousands of characters you need to memorize while having three different writing varieties.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Tier 5:** Extraordinary level of difficulty
 
@@ -230,8 +215,6 @@ Key features:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -239,4 +222,18 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-instagram-hashtag-guide/"><u>[Updated] The Ultimate Instagram Hashtag Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/6-pioneering-nft-creators-spurring-artistic-genius/"><u>6 Pioneering NFT Creators Spurring Artistic Genius</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-m-audio-fast-track-drivers-here-optimized-for-windows-11-7-8-and-81/"><u>Get Your M-Audio Fast Track Drivers Here: Optimized for Windows 11, 7, 8 & 8.1</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-top-10-innovative-yt-reactions-for-engaging-content/"><u>In 2024, Top 10 Innovative YT Reactions for Engaging Content</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-dawns-exchanging-good-mornings-across-languages/"><u>International Dawns: Exchanging Good Mornings Across Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-enchantment-learning-by-playing/"><u>Latin Enchantment: Learning by Playing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifetime-access-to-premium-mondly-zero-price/"><u>Lifetime Access to Premium Mondly: Zero Price</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-the-wasteland-2-reborn-a-directors-cut-review-reveals-a-mesmerizing-turn-based-rpg-gem/"><u>Navigating The Wasteland 2 Reborn: A Director’s Cut Review Reveals a Mesmerizing Turn-Based RPG Gem</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prepare-for-a-new-chapter-in-communication-with-ai/"><u>Prepare for a New Chapter in Communication with AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rediscovering-languages-first-steps/"><u>Rediscovering Language's First Steps</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/revolutionize-your-humor-learn-through-kinemaster-for-2024/"><u>Revolutionize Your Humor Learn Through KineMaster for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Say It Like You Mean It: How to Say “I Love You” In 32 Different Languages"
-date: 2024-11-09T07:30:02.013Z
-updated: 2024-11-15T05:28:45.466Z
+date: 2024-11-17T22:11:08.799Z
+updated: 2024-11-24T19:49:25.367Z
 tags:
   - speak
   - english
@@ -107,6 +107,10 @@ Here are some more ways to say “I love you” in other languages:
 
 **Here’s a short recap with only the correct pronunciations:**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## “I love you” in sign language
 
  To sign “I love you”, put up your thumb, index finger and pinkie finger while keeping your ring finger and your middle finger down. Like this:
@@ -114,17 +118,7 @@ Here are some more ways to say “I love you” in other languages:
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
@@ -134,19 +128,13 @@ Here are some more ways to say “I love you” in other languages:
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### A love poem for your loved one
@@ -201,6 +189,10 @@ _With you, my heart will forever blend._
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### From “I love you” to conversational fast
 
  Do you want to go the extra mile and learn a new language for someone you love? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -232,21 +224,14 @@ _With you, my heart will forever blend._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-digital-identification-showdown-iphone-x-and-galaxy-edition-for-2024/"><u>[New] Digital Identification Showdown IPhone X and Galaxy Edition for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-learn-how-to-redesign-twitters-video-display-settings/"><u>[Updated] Learn How to Redesign Twitter's Video Display Settings</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-game-bar-screen-recorder-alternatives/"><u>2024 Approved Game Bar Screen Recorder Alternatives</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/60-nombres-de-fauna-espanhola-que-debes-saber/"><u>60 Nombres De Fauna Espanhola Que Debes Saber</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/affectionate-innuendos-the-florentine-way/"><u>Affectionate Innuendos: The Florentine Way</u></a></li>
-<li><a href="https://howto.techidaily.com/app-wont-open-on-your-infinix-hot-40i-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Infinix Hot 40i? Here Are All Fixes | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/authenticity-in-speech-dive-into-germanys-top-25-idioms/"><u>Authenticity in Speech: Dive Into Germany's Top 25 Idioms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/become-a-persuasive-speaker-in-english-heres-how/"><u>Become a Persuasive Speaker in English – Here's How</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-motorola-razr-40-ultra-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Motorola Razr 40 Ultra Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/clear-voice-clarity-conquering-hard-lexical-barriers/"><u>Clear Voice Clarity: Conquering Hard Lexical Barriers</u></a></li>
-<li><a href="https://win-blog.techidaily.com/complete-step-by-step-solution-overcoming-battlefield-5-startup-problems/"><u>Complete Step-by-Step Solution: Overcoming Battlefield 5 Startup Problems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-the-characters-of-nihongo-writing-system/"><u>Decoding the Characters of Nihongo Writing System</u></a></li>
-<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-realme-11-pro-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Realme 11 Pro Location Settings | Dr.fone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/exclusive-insight-the-high-end-price-tag-on-the-latest-model-g-electric-dual-zone-bbq/"><u>Exclusive Insight: The High-End Price Tag on the Latest Model G Electric Dual-Zone BBQ</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719574941292-new-years-deal-save-96-on-mondly-pro-indefinitely/"><u>New Year's Deal! Save 96% on Mondly Pro Indefinitely</u></a></li>
-<li><a href="https://fox-pages.techidaily.com/scarica-gratis-myrecover-data-recovery-program-per-windows-11/"><u>Scarica Gratis MyRecover Data Recovery Program per Windows 11</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-apowersoft-screen-record-unveiled-top-alternatives-reviewed/"><u>[New] In 2024, Apowersoft Screen Record Unveiled - Top Alternatives Reviewed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-global-streaming-giants-face-off-facebook-live-youtube-live-periscope/"><u>[Updated] Global Streaming Giants' Face-Off Facebook Live, YouTube Live, Periscope</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-5-solutions-for-samsung-galaxy-a15-5g-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Samsung Galaxy A15 5G Unlock Without Password</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-softening-mix-tracks-incrementally-in-fl/"><u>In 2024, Softening Mix Tracks Incrementally in FL</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-no-cost-language-learning-nationwide/"><u>Mondly: No-Cost Language Learning Nationwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/number-1-10-in-everyday-spanish/"><u>Number 1-10 in Everyday Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pioneers-unveiling-scottish-irish-and-aussie-flair/"><u>Pronunciation Pioneers: Unveiling Scottish, Irish, and Aussie Flair</u></a></li>
+<li><a href="https://fox-info.techidaily.com/step-by-step-tutorial-for-effective-morphvox-audio-changes/"><u>Step-by-Step Tutorial for Effective MorphVOX Audio Changes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-finest-3-online-schools-learn-languages-with-precision-and-passion/"><u>The Finest 3 Online Schools: Learn Languages with Precision & Passion</u></a></li>
 </ul></div>
 

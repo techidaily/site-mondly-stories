@@ -1,7 +1,7 @@
 ---
 title: First Steps in Learning Russian Figures
-date: 2024-07-29T06:45:23.499Z
-updated: 2024-07-30T06:45:23.499Z
+date: 2024-11-23T21:04:54.573Z
+updated: 2024-11-24T21:45:16.753Z
 tags:
   - speak
   - english
@@ -21,17 +21,15 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
  Whether you need to find out what’s the price for a matryoshka, ask a stranger when is the next bus arriving or give someone your phone number, knowing the Russian numbers is definitely essential. On top of that, they are not even that hard to learn. Once you learn how to count to ten, counting to 100 is a piece of cake.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Russian numbers 1-10
 
  In order to understand the logic behind counting in Russian faster, it’s best to break down the information into multiple sections. As you may expect, the Russian numbers from 1 to 10 are the most important. Not only these are the ones you’ll probably use the most, but they also lay the foundations for the bigger numbers in Russian.
 
  Here are the numbers from 1 to 10 in Russian with their respective pronunciations so you can begin practicing right now:
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![russian numbers 1-10](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-1-10-600x424.jpg "Russian Numbers - Learn How To Count In Russian 2")
 
  Russian numbers 1-10
@@ -43,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
 * neuter: одно _(odno)_ ; два _(dva)_
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Learn how to count to 20 in Russian
 
  Did you manage to learn the Russian pronunciation for the first ten numbers? If you are having issues with the accent, you can [get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4729&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4729?mother%5Flang=en%5Fus?target%5Flang=ru&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4729?mother%5Flang=en%5Fus?target%5Flang=ru) now and hear them pronounced by professional Russian speakers.
@@ -53,23 +52,25 @@ If you did manage, good job! You must be a natural.
 
  Let’s move on to the next section: learning how to count to 20 in Russian. As you’ll see, the numbers from 11 to 19 are simply formed by adding “надцать” to the numbers 1-9.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Russian numbers 11-20
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## Russian numbers: 21 and onwards
 
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
 
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Russian tens
 
@@ -94,8 +95,9 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Russian ordinal numbers
 
  Now that you’ve learned the Russian cardinal numbers, let’s end this short lesson with some ordinal numbers. You never know when they may come in handy.
@@ -132,8 +134,6 @@ Not as hard as you’d expect, is it?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -141,4 +141,22 @@ Not as hard as you’d expect, is it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://driver-error.techidaily.com/fast-fix-nvidia-geforce-experience-issue-now-solved/"><u>[Fast Fix] Nvidia GeForce Experience Issue – Now Solved</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-unveiling-the-secrets-of-high-quality-ps4-game-broadcasts-for-2024/"><u>[New] Unveiling the Secrets of High-Quality PS4 Game Broadcasts for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-navigating-the-future-of-fb-advertising-key-predictions/"><u>[Updated] 2024 Approved Navigating the Future of FB Advertising – Key Predictions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-honor-100-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Honor 100</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-icloud-lock-from-your-iphone-8-plus-and-ipad-by-drfone-ios/"><u>How to fix iCloud lock from your iPhone 8 Plus and iPad</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-x-fold-2-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo X Fold 2 To Phone | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-vivo-y27-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Vivo Y27 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-dusks-descent-pre-pro-screen-transitions/"><u>In 2024, Dusk's Descent Pre-Pro Screen Transitions</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-everything-to-know-about-apple-id-password-requirements-for-apple-iphone-13-mini-by-drfone-ios/"><u>In 2024, Everything To Know About Apple ID Password Requirements For Apple iPhone 13 mini</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-expression-essentials/"><u>Intercultural Expression Essentials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-latvian-lessons-achieve-proficiency-fast/"><u>Quick Latvian Lessons - Achieve Proficiency Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-innate-ability-of-children-to-learn-multiple-languages/"><u>The Innate Ability of Children to Learn Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-english-contractions/"><u>The Ultimate Guide To English Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-asian-linguistic-varieties-easy-reordering/"><u>Top Asian Linguistic Varieties: Easy Reordering</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-language-skills-upgrade-in-minutes-a-day-106-chars/"><u>Ukranian Language Skills Upgrade in Minutes a Day (106 Chars)</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Express Yourself: 102+ Indispensable French Phrases"
-date: 2024-07-29T06:45:52.667Z
-updated: 2024-07-30T06:45:52.667Z
+date: 2024-11-19T20:51:57.280Z
+updated: 2024-11-24T16:33:45.512Z
 tags:
   - speak
   - english
@@ -37,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 **P.S.:** Listen to “La vie en rose” in the background while reading this article. The mood can’t get more French than that.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## 1\. Bonjour and other basic French words you’ll need to say hello
 
  When talking about**French travel phrases** , greetings should be no. 1 on your list of priorities. Foreigners regard your attempt to speak their language as a sign of respect towards their culture. Apply this unspoken rule everywhere you go in the world and many doors shall joyously open in your path.
@@ -60,10 +56,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * I’m sorry. –_Je suis désolé._
 * You’re welcome. –_Je vous en prie._
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![basic french words](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-words-770x1024.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 3")
 
  “Bonjour, monsieur pug!” by ©Charles Deluvio
@@ -87,9 +79,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * We are traveling together. –_Nous voyageons ensemble._
 * I’m traveling with a child. –_Je voyage avec un enfant._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![french travel vocabulary](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-travel-vocabulary-scaled-960x540.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 4")
 
  ©Bambi Corro
@@ -102,9 +91,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * I would like to change my seat. –_J’aimerais changer de place._
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Basic French for travelers who need help
 
  Getting lost in Paris, Nice, Marseille, or Cannes wouldn’t be so bad, wouldn’t it? It actually sounds like the perfect vacation, but the harsh reality of having a plane to catch and a boss to make happy will eventually ruin your dream.**Do you know how to say “where is the airport” in French** ? Or “where is a pharmacy”? Switch your survival mode on and learn to ask the best questions in French.
@@ -136,8 +125,9 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 * I’ll be back immediately. –_Je reviens tout de suite._
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. French for tourists who need a place to spend the night
 
  Staying in an Airbnb apartment or at a hotel requires some human interaction as well. The hotel staff is required to know English, but if you rent an apartment via Airbnb, there’s a big chance to bump into locals that don’t speak English at all. It’s simply better to be safe than sorry.
@@ -150,6 +140,10 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
 ![basic french sentences](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-sentences-scaled-960x641.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Paris by night by ©Jez Timms
 
 * Thank you for your help. –_Merci pour votre aide._
@@ -158,8 +152,9 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 * Here is your bill, please look it over. –_Voici votre facture, vérifiez-la, s’il vous plaît._
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. French travel phrases to help you experience French cuisine like a native
 
  There’s an incredible story behind the exquisite French cuisine. Its finesse and flavor are known all around the world and tasting it is a must for every tourist. If you are planning a trip to France, French cuisine should definitely be on your “to do” list. Add a delicious glass of Bordeaux wine and**take your French trip to the next level** !
@@ -205,6 +200,10 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
 ![french for tourists](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-for-tourists-1024x682.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 8")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  ©Diao Darius
 
 * Can you get me a ticket? –_Pouvez-vous me procurer un billet?_
@@ -214,9 +213,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 * Let’s have some fun. –_Amusons-nous._
 * Are there seats available? –_Est-ce qu’il reste des places?_
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Basic French phrases for your shopping adventures
 
  Souvenirs are the cruelest drudgery our loved ones from home put us through while on holiday. The horror of shopping for souvenirs often haunts us until the very last day of our holiday. The best solution? Plan your shopping adventure on the first day of the trip and just get it over with.
@@ -228,9 +224,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 * What would you like? –_Que désirez-vous?_
 * Can I have some ice cream? –_Je peux avoir une glace?_
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ## 8\. French love quotes and expressions for French love stories
 
  A short love story or an unexpected marriage proposal is every girl’s secret dream when traveling to France. Boys, don’t tie your shoelaces in Paris! You’ve been warned!
@@ -251,6 +244,10 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 * You are very handsome. –_Tu es très beau._
 
 ![french love quotes](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-love-quotes-683x1024.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 10")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Love” by ©Cedric Klei
 
@@ -285,8 +282,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -294,4 +289,19 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-navigating-your-way-through-youtube-tvs-unique-offerings/"><u>[Updated] 2024 Approved Navigating Your Way Through YouTube TV's Unique Offerings</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-remedies-for-disabling-obs-fullscreen/"><u>[Updated] In 2024, Remedies for Disabling OBS Fullscreen</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/can-i-master-healthy-cooking-through-chatgpts-lessons/"><u>Can I Master Healthy Cooking Through ChatGPT's Lessons?</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-fixes-for-when-an-aoc-monitor-wont-turn-on-in-windows-11-environment/"><u>Effective Fixes for When an AOC Monitor Won’t Turn On in Windows 11 Environment</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/effortless-techniques-to-archive-google-call-transcripts-for-2024/"><u>Effortless Techniques to Archive Google Call Transcripts for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tart-your-professional-filmmaking-exclusive-cost-free-green-screen-training-from-top-youtube-educators-for-2024/"><u>Jumpstart Your Professional Filmmaking Exclusive, Cost-Free Green Screen Training From Top YouTube Educators for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lovemaking-crafting-romantic-dialogue-in-spanish/"><u>Linguistic Lovemaking: Crafting Romantic Dialogue in Spanish</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-samsung-galaxy-a24-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Samsung Galaxy A24? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/primary-overseas-languages-studied-in-usa/"><u>Primary Overseas Languages Studied in USA</u></a></li>
+<li><a href="https://driver-install.techidaily.com/streamlined-support-for-windows-11-update-your-audio-drivers-today/"><u>Streamlined Support for Windows 11: Update Your Audio Drivers Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-6-danish-movies-for-mastering-danish-language/"><u>Top 6 Danish Movies for Mastering Danish Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-global-availability-a-guide-to-using-chatgpt-anytime-anywhere-with-chatgpt-everywhere/"><u>Unlocking Global Availability: A Guide to Using ChatGPT Anytime, Anywhere with ChatGPT Everywhere</u></a></li>
+</ul></div>
 

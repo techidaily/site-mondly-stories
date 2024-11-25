@@ -1,7 +1,7 @@
 ---
 title: Unlocking the Charm of German Speech - Essential 25 Phrases
-date: 2024-11-01T17:47:40.467Z
-updated: 2024-11-04T16:34:31.404Z
+date: 2024-11-18T18:39:39.352Z
+updated: 2024-11-24T19:23:34.365Z
 tags:
   - speak
   - english
@@ -68,13 +68,6 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 
 !['German idioms in English' by Ron Lach©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-idioms-in-english-960x640.jpg "Top 25 German Idioms To Speak Like A German 2")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **6.** _Die Kirche im Dorf lassen_
 
 **Literal translation:** Leave the church in the village.
@@ -91,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 
  In Germany, when you are blind to what’s happening around you, people could say you have tomatoes on your eyes. Maybe you’re not up to date with the latest news, or you’re not seeing the truth staring you right in the face. Either way, tomatoes seem to affect your vision.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **8.** _Ich verstehe nur Bahnhof_
 
 **Literal translation:** I can only understand ‘train station.’
@@ -100,10 +97,7 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
  The origin of this idiom goes back to World War I when deployed German soldiers would say that the only thing they understood when given orders was ‘train station’ because they hoped to go home. Nowadays, it’s used to say you didn’t comprehend something that was explained to you.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **9.** _Man soll den Tag nicht vor dem Abend lobe_ n
@@ -113,6 +107,10 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 **Actual meaning:** Don’t count your chickens before they hatch.
 
  This idiom is perfect for those who usually celebrate their victories prematurely. Its sentiment is similar to the English equivalent “Don’t count your chickens before they hatch. “
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **10.** _Da kannst du Gift drauf nehmen_
 
@@ -129,6 +127,10 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 **Actual meaning:** You’re annoying me.
 
  Now that’s a fun way of saying someone is getting on your nerves! It’s so cute that we’re actually thinking of making a petition to adopt it in English as well. Are you in?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **12.** _Da steppt der Bär_
 
@@ -148,13 +150,6 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 
 !['Common German idioms' by Gratisography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/common-german-idioms-960x640.jpg "Top 25 German Idioms To Speak Like A German 3")
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **14.** _Das ist Schnee von gestern_
 
 **Literal translation:** That’s yesterday’s snow.
@@ -163,6 +158,10 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 
  Is someone you know constantly talking about an issue that is over and decided? _Das ist Schnee von gestern_ is perfect in this context.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **15.** _Ein Fisch auf dem Trockenen_
 
 **Literal translation:** A fish on the dry.
@@ -170,13 +169,6 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 **Actual meaning:** To feel like a fish out of the water.
 
  It’s interesting how similar this idiom is to our English equivalent. It looks like feeling out of place is finally something more languages can agree on.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **16.** _Die Daumen drücken_
 
@@ -195,10 +187,7 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
  Germans have a unique take on this idiom. Instead of pulling one’s leg, they are taken on someone’s arm. Picture the scene and you can help but giggle! Obviously, both versions are used to express disbelief about someone’s actions or claims.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **18.** _Dumm wie Bohnenstroh_
@@ -218,10 +207,7 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
  Sausages again! Even when they come up with witty remarks about life itself, Germans must make a reference to_wursts_ . We do feel inspired, but we must admit we’re also drooling at this point.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **20.** _Ich habe Schwein gehabt_
@@ -235,10 +221,7 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 !['German expressions' by Picography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-expressions-960x640.jpg "Top 25 German Idioms To Speak Like A German 4")
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **21.** _Haare auf den Zähnen haben_
@@ -259,6 +242,10 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 
  Before you jump to conclusions, you must know that_Kater_ (‘tomcat’) comes from the word_Katarrh_ , a condition in which a lot of thick liquid is produced in your nose and throat. Over time, the pronunciation of the word changed into_Kater_ .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **23.** _Da haben wir den Salat_
 
 **Literal translation:** There we have the salad.
@@ -266,13 +253,6 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 **Actual meaning:** Now we have a problem./Now we are in a real mess.
 
  Sometimes we see a bad situation coming and we warn the parties involved, but they choose not to listen. Well, this idiom is perfect for the aftermath when all you want to say is: I told you so!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **24.** _Einen Vogel haben_
 
@@ -312,6 +292,10 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Speak German like a fluent speaker fast
 
  Do you want to round up your studies and [speak German](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-7030&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7030?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7030?mother%5Flang=en%5Fus?target%5Flang=de) fluently fast? Try Mondly, the award-winning language app that is serious about making learning German fun.
@@ -343,18 +327,22 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-skype-capture-methods-seamless-transition-between-oses/"><u>[New] In 2024, Skype Capture Methods Seamless Transition Between OSes</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-the-blueprint-crafting-compelling-audio-visuals/"><u>[New] In 2024, The Blueprint Crafting Compelling Audio Visuals</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-dominance-in-video-landscape-mirrorless-vs-dslr-cameras/"><u>[Updated] Dominance in Video Landscape Mirrorless vs DSLR Cameras</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-unseen-yet-seen-how-to-conceal-faces-and-objects-digitally-for-2024/"><u>[Updated] Unseen Yet Seen How to Conceal Faces and Objects Digitally for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-loom-essentials-perfecting-the-art-of-screen-recording/"><u>2024 Approved Loom Essentials Perfecting the Art of Screen Recording</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daylight-dialogues-how-to-greet-the-dawn-in-10-diverse-languages/"><u>Daylight Dialogues: How to Greet the Dawn in 10 Diverse Languages</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-8-to-android-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 8 to Android? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interactive-espanol-practice-and-societal-synergy-online/"><u>Interactive Español Practice and Societal Synergy Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/japan-mastery-made-simple-online-solo-and-free-learning-options/"><u>Japan Mastery Made Simple - Online, Solo & Free Learning Options</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-cooking-strategy-book-for-beginners/"><u>The Ultimate Cooking Strategy Book for Beginners</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-tecno-pop-8-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Tecno Pop 8 FRP Bypass</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-the-ultimate-guide-to-getting-filmora-for-free-no-hidden-fees/"><u>Updated 2024 Approved The Ultimate Guide to Getting Filmora for Free No Hidden Fees</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/webp-to-tiff-image-converter-accessible-and-complimentary-services-on-the-web-by-movavi/"><u>WebP to TIFF Image Converter - Accessible and Complimentary Services on the Web by Movavi</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-all-in-one-screen-capture-az-insights-and-alternatives-for-2024/"><u>[New] All-in-One Screen Capture - AZ Insights & Alternatives for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-unleash-viral-potential-top-50plus-trending-tiktok-hashtags-for-2024/"><u>[New] Unleash Viral Potential Top 50+ Trending TikTok HashTags for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-splitcam-review-does-it-reign-supreme-in-video-tech/"><u>[Updated] 2024 Approved SplitCam Review Does It Reign Supreme in Video Tech?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-digital-detox-ignoring-negativity-on-youtube/"><u>[Updated] Digital Detox Ignoring Negativity on YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-serenade-selections-romantic-anthems-for-the-big-decision/"><u>2024 Approved Serenade Selections Romantic Anthems for The Big Decision</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-asmr-app-selection-guide-for-phones/"><u>In 2024, ASMR App Selection Guide for Phones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifelong-education-top-four-reasons-to-learn-languages-at-age-40plus-for-enriched-life-experiences/"><u>Lifelong Education: Top Four Reasons to Learn Languages at Age 40+ for Enriched Life Experiences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-budget-no-problem-top-online-solo-journey-to-japan-proficiency/"><u>No Budget? No Problem! Top Online, Solo Journey to Japan Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-asian-communication-formats-priority-save/"><u>Premier Asian Communication Formats: Priority Save</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saudacoes-basicas-em-portugues-para-ficar-de-olho/"><u>Saudações Básicas Em Português Para Ficar De Olho</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seeking-the-best-next-linguistic-endeavor/"><u>Seeking the Best Next Linguistic Endeavor</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/steering-techs-ethical-currents-correctly/"><u>Steering Tech's Ethical Currents Correctly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-techniques-for-efficient-language-learning/"><u>Swift Techniques for Efficient Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-benefits-for-studying-german-a-compelling-list/"><u>Top Benefits for Studying German - A Compelling List</u></a></li>
+<li><a href="https://driver-download.techidaily.com/ultimate-guide-to-downloading-and-installing-hp-envy-5660-drivers/"><u>Ultimate Guide to Downloading and Installing HP Envy 5660 Drivers</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-best-video-translator-app-for-pc-you-cannot-miss/"><u>Updated Best Video Translator App for PC You Cannot Miss</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-lithuanian-journey-top-tutorial-recommendations/"><u>Virtual Lithuanian Journey: Top Tutorial Recommendations</u></a></li>
 </ul></div>
 

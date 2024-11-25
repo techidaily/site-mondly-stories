@@ -1,7 +1,7 @@
 ---
 title: "Sverige Möjligen: Allt I Görelse"
-date: 2024-11-11T17:48:53.710Z
-updated: 2024-11-14T21:39:47.128Z
+date: 2024-11-20T18:04:50.371Z
+updated: 2024-11-24T23:07:32.306Z
 tags:
   - speak
   - english
@@ -20,11 +20,19 @@ thumbnail: https://thmb.techidaily.com/bc4e71fa64ffb5cacb645afa1410abd3ad84d4a51
 
  Swedish people are sociable, and they care about traditions, so any foreigner should know how to, at least, properly introduce themselves and start a conversation. Learn more about all the Swedish greetings, and maybe you’ll feel inspired to try something new and [start learning the Nordic language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Here’s some to start with:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What you should know
 
  Swedes are respectful, but they rarely use last names or Mr. and Mrs in rather formal conversations as well. They like to call themselves by their first name, even in some professional circles. Equality and the lack of hierarchies in the workplace is a specific trait of the Swedish society. If you want to move to Sweden or visit the country, you must get accustomed to all these little details. This will make it easier for you to become “one of them” and meet new people
 
  If you’re visiting and want to get a coffee, the simplest way to sound and look like a local is to throw in a smile and a **“Hej!”** (pronounced just like _Hey!_). This one is the perfect greeting, regardless of the time of day or to whom you address it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say “Hello!” in Swedish
 
@@ -35,48 +43,32 @@ thumbnail: https://thmb.techidaily.com/bc4e71fa64ffb5cacb645afa1410abd3ad84d4a51
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Good Morning!” in Swedish
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say “Good evening!” in Swedish
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Goodnight!” in Swedish
 
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
 
@@ -106,18 +98,24 @@ thumbnail: https://thmb.techidaily.com/bc4e71fa64ffb5cacb645afa1410abd3ad84d4a51
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-perfect-your-mac-how-to-record-desktop-activity-for-2024/"><u>[New] Perfect Your Mac How to Record Desktop Activity for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/111-must-learn-croatian-language-skills-before-your-next-trip-to-the-coastal-paradise/"><u>111 Must-Learn Croatian Language Skills Before Your Next Trip to the Coastal Paradise</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-a-guide-to-retrieving-historic-facebook-stories/"><u>2024 Approved A Guide to Retrieving Historic Facebook Stories</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-step-by-step-guide-to-indonesian-greeting-etiquette/"><u>A Step-by-Step Guide to Indonesian Greeting Etiquette</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accent-enhancement-through-challenging-twisters-100/"><u>Accent Enhancement Through Challenging Twisters (100)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/celebrating-a-full-circle-mondlys-jubilee-year/"><u>Celebrating a Full Circle: Mondly’s Jubilee Year</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/colombian-charity-danny-empowering-those-in-need/"><u>Colombian Charity Danny: Empowering Those in Need</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/delayed-launch-apples-ai-capabilities-now-set-for-release-in-oct-insights/"><u>Delayed Launch: Apple's AI Capabilities Now Set for Release in Oct - Insights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-mondly-in-your-huawei-app/"><u>Discover Mondly in Your Huawei App</u></a></li>
-<li><a href="https://win-able.techidaily.com/expert-tips-for-getting-your-nvidia-gameoverlay-back-on-track/"><u>Expert Tips for Getting Your NVIDIA GameOverlay Back on Track</u></a></li>
-<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-poco-m6-pro-5g-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Poco M6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/guide-checking-past-and-present-audiences-for-your-google-docs/"><u>Guide: Checking Past and Present Audiences for Your Google Docs</u></a></li>
-<li><a href="https://network-issues.techidaily.com/winstopscausedbynvidiaerror-now-fixed/"><u>WinStopsCausedByNvidiaError, Now Fixed</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-explore-aspect-ratios-for-stunning-video-outputs/"><u>[New] Explore Aspect Ratios for Stunning Video Outputs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-ultimate-guide-selecting-the-top-7-youtube-live-streaming-apps-for-iosandroid-users/"><u>[New] The Ultimate Guide Selecting the Top 7 YouTube Live Streaming Apps for iOS/Android Users</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-digital-sculpting-for-designers-adobe-illustrator-edition/"><u>[Updated] 2024 Approved Digital Sculpting for Designers Adobe Illustrator Edition</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-high-ranking-nintendo-switch-brawlers-index-max-156/"><u>[Updated] High-Ranking Nintendo Switch Brawlers Index (Max 156)</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-8-best-screen-capture-tools-for-linux/"><u>[Updated] In 2024, 8 Best Screen Capture Tools for Linux</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-premium-download-assist-ff-friendly-fb-addons/"><u>2024 Approved Premium Download Assist - FF-Friendly FB Addons</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Vivo Y78 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonious-easter-wishes-in-multiple-languages/"><u>Harmonious Easter Wishes in Multiple Languages</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Vivo Y100i? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-professional-panoramic-vision-leading-360-cameras-of-2023/"><u>In 2024, Professional Panoramic Vision Leading 360° Cameras of 2023</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-true-blue-speak-with-100plus-aussie-terms/"><u>Learn True Blue Speak with 100+ Aussie Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-languages-through-visual-narratives/"><u>Learning Languages Through Visual Narratives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/porque-y-por-que-unveiling-the-variance/"><u>Porque Y Por Que: Unveiling the Variance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-asian-language-cohort-fast-sort-and-store/"><u>Premier Asian Language Cohort: Fast Sort & Store</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-latvian-fast-10-minute-daily-routine/"><u>Speak Latvian Fast: 10-Minute Daily Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speech-refinement-through-targeted-twister-training/"><u>Speech Refinement Through Targeted Twister Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-pronunciation-in-the-german-language/"><u>The Essentials of Pronunciation in the German Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-globe-goes-digital-shakespearean-terms-today/"><u>The Globe Goes Digital: Shakespearean Terms Today</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-cartoonize-yourself-with-these-16-amazing-mobile-apps/"><u>Updated 2024 Approved Cartoonize Yourself with These 16 Amazing Mobile Apps</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "From Latin to Modern Expressions: Romance Languages"
-date: 2024-07-29T06:47:17.643Z
-updated: 2024-07-30T06:47:17.643Z
+date: 2024-11-22T18:10:56.643Z
+updated: 2024-11-24T16:42:14.973Z
 tags:
   - speak
   - english
@@ -18,7 +18,9 @@ thumbnail: https://thmb.techidaily.com/d046e3f1a50f3eab0c2328a8c65f9cdfeb961e04c
 
  The Romance languages have grown to become one of the most prominent language families in the world. Despite being just a subgroup of the Indo-European language family, the Romance languages are still the most famous language family there is. Although having (almost) nothing to do with love, we all love them. In fact, they are some of the most popular foreign languages that English speakers want to learn. Still, one question remains: what are the Romance languages exactly?
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What are the Romance languages?
 
@@ -28,9 +30,6 @@ thumbnail: https://thmb.techidaily.com/d046e3f1a50f3eab0c2328a8c65f9cdfeb961e04c
 
  Spoken mainly in the Americas, Europe, and parts of Africa, Romance languages have roughly 1 billion native speakers worldwide. Spanish, Portuguese, French, Italian and Romanian are also national languages and the top 5 most important Romance languages. These five languages combined account for over 90 percent of those who [speak a Romance language](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6018&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## Romance languages complete list
 
  According to [Ethnologue](https://www.ethnologue.com/subgroups/romance) , there are 43 Romance languages: Aragonese, Aromanian, Arpitan, Asturian, Cajun French, Campidanese Sardinian, Catalan, Charapa Spanish, Corsican, Emilian, Extremaduran, Fala, French, Friulian, Galician, Gallurese Sardinian, Guernésiais, Istriot, Istro Romanian, Italian, Judeo-Italian, Ladin, Ladino, Ligurian, Logudorese Sardinian, Lombard, Megleno Romanian, Minderico, Mirandese, Napoletano-Calabrese, Occitan, Picard, Piedmontese, Portuguese, Romagnol, Romanian, Romansh, Sassarese Sardinian, Shuadit, Sicilian, Spanish, Venetian and Walloon.
@@ -47,21 +46,19 @@ thumbnail: https://thmb.techidaily.com/d046e3f1a50f3eab0c2328a8c65f9cdfeb961e04c
 
  Now back to ‘romance’. While there is no proof to support the connection to what we call ‘romance’ nowadays, three of the most popular Romance languages are considered to be very ‘romantic’ languages. We are talking, of course, about Spanish, French and Italian which have a reputation as ‘languages of love’.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![what are the romance languages](https://edge.mondly.com/blog/wp-content/uploads/2021/07/what-are-the-romance-languages-960x541.jpg "What Are The Romance Languages? 5")
 
  “Mont Saint-Michel, France” by Fab Lentz©
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## Latin-based languages – where do they come from?
 
  The [origin story](https://www.britannica.com/topic/Romance-languages) of the Romance languages was (and in some cases still is) highly disputed between historians and linguists. Less commonly known as Latin-based languages or simply Latin languages, they share Latin as the common ancestor. That you already know. But how did this happen?
 
  As the Roman Empire spread throughout Europe, the local population in most of those areas adopted two forms of Latin. One of them was Classical Latin, which was the formal language used by the upper classes. The other one was Vulgar Latin.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What does ‘Vulgar Latin’ mean?
 
@@ -69,10 +66,11 @@ thumbnail: https://thmb.techidaily.com/d046e3f1a50f3eab0c2328a8c65f9cdfeb961e04c
 
  ‘Vulgar’ comes from the Latin word [_vulgus_](https://en.wiktionary.org/wiki/vulgus) which translates to ‘common people’. Thus, **[Vulgar Latin](https://en.wikipedia.org/wiki/Vulgar%5FLatin) refers to the common or vernacular dialects of Latin spoken by common people across the Roman Empire.** To bring this example to present times, think about British English. Not everyone in The UK speaks the Queen’s English, do they?
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![italian](https://edge.mondly.com/blog/wp-content/uploads/2021/07/italian-960x768.jpg "What Are The Romance Languages? 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Manarola, Italy” by Robert Aniței©
 
@@ -80,9 +78,6 @@ thumbnail: https://thmb.techidaily.com/d046e3f1a50f3eab0c2328a8c65f9cdfeb961e04c
 
  After the fall of the Roman Empire, these Latin varieties started to diverge even more and eventually evolved into separate languages. Unlike today, back in those days, there was no TV, radio or universal education to keep people up-to-date with the standard form of Latin. Consequently, the spoken forms of Latin diverged quite easily into the Romance languages we all know and love today.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## How similar are Romance languages?
 
  **Let’s put it this way: if you learn one Romance language, you’ll certainly ease your way into the next.** The most mutually intelligible are [Spanish and Portuguese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) which people mistake one for another more often than you’d think. Then, there’s also a degree of intelligibility between Spanish and Italian and Italian and Romanian.
@@ -91,13 +86,14 @@ thumbnail: https://thmb.techidaily.com/d046e3f1a50f3eab0c2328a8c65f9cdfeb961e04c
 
 ![latin based languages](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-based-languages.png "What Are The Romance Languages? 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Romanian is always the odd one out.
 
  Although all the modern Romance languages are definitely closer to each other than to Latin, if you really are passionate about languages, it might prove fun to learn Latin (which, by the way, you can do with [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6018&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018) ). Discovering the origin of these languages will surely help you make connections and learn faster.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## Is English a Romance language?
 
  This is probably one of the most common language-related misconceptions. Although English has borrowed a lot of words from Latin, it is not a Romance language. Having developed from the mix between the dialects and vocabulary of Germanic peoples (Angles, Saxons, and Jutes) who settled in Britain in the 5th century CE, **[English](https://www.britannica.com/topic/English-language) is considered a West Germanic language.**
@@ -106,6 +102,10 @@ thumbnail: https://thmb.techidaily.com/d046e3f1a50f3eab0c2328a8c65f9cdfeb961e04c
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### From 0 to conversational in any Romance language
 
@@ -123,8 +123,6 @@ thumbnail: https://thmb.techidaily.com/d046e3f1a50f3eab0c2328a8c65f9cdfeb961e04c
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -132,4 +130,24 @@ thumbnail: https://thmb.techidaily.com/d046e3f1a50f3eab0c2328a8c65f9cdfeb961e04c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-best-budget-switch-emulation-tools/"><u>[New] Best Budget Switch Emulation Tools</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-creator-revenue-streams-amidst-the-world-of-youtube-shorts/"><u>[Updated] In 2024, Creator Revenue Streams Amidst the World of YouTube Shorts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-photographic-fundamentals-in-5-minutes-with-snapseed/"><u>[Updated] Photographic Fundamentals in 5 Minutes with Snapseed</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-quantum-leap-the-most-astonishing-sci-fi-films-of-metaverses/"><u>[Updated] Quantum Leap The Most Astonishing Sci-Fi Films of Metaverses</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-top-7-shooter-games-you-must-play-today-for-2024/"><u>[Updated] Top 7 Shooter Games You Must Play Today for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/advanced-techniques-for-using-the-instagram-sticker-question-mark-for-2024/"><u>Advanced Techniques for Using the Instagram Sticker Question Mark for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/culminating-sound-merging-music-with-vimeo-media-assets-for-2024/"><u>Culminating Sound Merging Music with Vimeo Media Assets for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/estimating-time-to-language-proficiency-success/"><u>Estimating Time to Language Proficiency Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exclusive-linguistic-journey-mondlys-triumph-2022/"><u>Exclusive Linguistic Journey: Mondly's Triumph, 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expand-horizons-4-compelling-motives-for-adults-learning-languages/"><u>Expand Horizons: 4 Compelling Motives for Adults Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-cultural-integration-through-hindi-discover-8-engaging-advantages-with-mondly/"><u>Experience Cultural Integration Through Hindi - Discover 8 Engaging Advantages with Mondly!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exposing-the-core-of-mondlys-education/"><u>Exposing the Core of Mondly's Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-vernacular-understanding-widespread-slang-phrases/"><u>Expressive Vernacular: Understanding Widespread Slang Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-urdu-language-learning/"><u>First Steps in Urdu Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-beginner-to-master-chef-top-8-techniques-for-skillful-home-kitchens/"><u>From Beginner to Master Chef: Top 8 Techniques for Skillful Home Kitchens</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-realme-c51-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Realme C51 Devices</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/savor-these-10-delicious-and-inspiring-culinary-series-on-netflix/"><u>Savor These 10 Delicious and Inspiring Culinary Series on Netflix</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Overcoming the Silence: Speaking Each Other's Languages"
-date: 2024-11-11T22:57:08.219Z
-updated: 2024-11-14T22:56:21.416Z
+date: 2024-11-21T23:24:18.343Z
+updated: 2024-11-24T20:01:41.271Z
 tags:
   - speak
   - english
@@ -33,10 +33,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
  And it’s all fun and games until someone asks, “what are you thinking about?”. If answering this mythical question was hard before, imagine how challenging it becomes now that you are dating someone with bad English or no English at all. So take it from me and don’t go there! Abort mission! Practice some more and only then you’ll be ready for this quest. But you knew that already, didn’t you?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. You never run out of things to say to each other
@@ -57,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
 ![dating language barrier](https://media.giphy.com/media/xUA7aYMO79CzQNMfJe/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. You eventually become bilingual
 
  And that’s not a bad thing at all! If love is strong, so is your desire to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You know it. You probably did it already.
@@ -67,13 +68,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
  Well… obviously! Do you know what a [hullabaloo](https://dictionary.cambridge.org/dictionary/english/hullabaloo) is? Because that’s how you’ll look like if you fight in public. What can I say?! An absolute delight for strangers.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. The idea of meeting “the friends” suddenly becomes way more intimidating
 
  That’s especially true if you are in a long-distance relationship with the language barrier tangled in your romance to make it tougher. That daunting moment when you know you have to meet his or her foreign friends is only maybe surpassed by meeting the parents.
@@ -82,18 +76,15 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
 ![overcoming language barriers](https://media.giphy.com/media/12nfFCZA0vyrSw/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 6")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7\. You come up with a sign language of your own
 
  If there’s no language bridge between you two, you have to come up with creative ideas. That’s how your secret communication code got created.
 
 ![dating bad english](https://media.giphy.com/media/6tNOhcNvvynPa/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 7")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. You focus less on words and more on action
 
@@ -102,10 +93,11 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![flirting language barrier](https://media.giphy.com/media/LoJjkPAVF8UH6/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 8")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. You absolutely love hearing him or her speak
@@ -119,10 +111,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 Watch at your own risk! They might steal your heart!
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10\. You constantly get the reassurance of being truly and honestly loved
@@ -167,20 +156,22 @@ Watch at your own risk! They might steal your heart!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-understanding-permissions-the-key-to-saving-google-meets/"><u>[New] In 2024, Understanding Permissions The Key to Saving Google Meets</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-realme-c55-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Realme C55 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/astonish-amalfitans-enjoy-the-richness-of-italian-expressions/"><u>Astonish Amalfitans: Enjoy the Richness of Italian Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boost-your-eloquence-mastering-english-conversation/"><u>Boost Your Eloquence: Mastering English Conversation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-artificial-intelligences-role-in-learning/"><u>Breaking Barriers: Artificial Intelligence's Role in Learning</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-expert-recommended-apps-and-sites-for-photo-frames/"><u>In 2024, Expert-Recommended Apps & Sites for Photo Frames</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-proficiency-beyond-grammar/"><u>Linguistic Proficiency Beyond Grammar</u></a></li>
-<li><a href="https://facebook.techidaily.com/organizing-facebook-updates-on-the-cheap-a-guide-to-5-techniques/"><u>Organizing Facebook Updates on the Cheap: A Guide to 5 Techniques</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/proven-techniques-to-store-your-mov-videos-on-windows-10-for-2024/"><u>Proven Techniques to Store Your .mov Videos on Windows 10 for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/screencapture-the-leading-digital-saves-list/"><u>ScreenCapture The Leading Digital Saves List</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/shortcuts-to-fluent-urdu/"><u>Shortcuts to Fluent Urdu!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speaking-todays-vernacular-decoding-everyday-words/"><u>Speaking Today's Vernacular: Decoding Everyday Words</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-your-tecno-phantom-v-folds-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Tecno Phantom V Folds Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://win-top.techidaily.com/wiederherstellung-von-uefi-systempunkten-methode-mit-bios-basierter-vorgehensweise/"><u>Wiederherstellung Von UEFI-Systempunkten - Methode Mit BIOS-Basierter Vorgehensweise</u></a></li>
-<li><a href="https://games-able.techidaily.com/xbox-sandx-repair-strategies-and-steps/"><u>Xbox S&X Repair Strategies & Steps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-achieving-youtube-success-increasing-followers-quickly/"><u>[Updated] 2024 Approved Achieving YouTube Success Increasing Followers Quickly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-key-players-in-asmr-youtube-world/"><u>[Updated] Key Players in ASMR YouTube World</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-monetization-techno-gamerz-youtube-income-2024/"><u>[Updated] YouTube Monetization Techno Gamerz YouTube Income 2024</u></a></li>
+<li><a href="https://win-lab.techidaily.com/das-effiziente-iphone-reset-ohne-itunes-zwei-methoden/"><u>Das Effiziente iPhone-Reset Ohne iTunes: Zwei Methoden</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/ethereal-time-extended-recording-for-2024/"><u>Ethereal Time-Extended Recording for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/frontier-of-film-virtual-realities-in-theaters-for-2024/"><u>Frontier of Film Virtual Realities in Theaters for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/join-the-new-years-club-dive-into-mondly-pro-at-a-low-cost/"><u>Join the New Year's Club - Dive Into Mondly Pro at a Low Cost!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-catalan-online-in-just-10-minutes-a-day/"><u>Learn Catalan Online In Just 10 Minutes A Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-for-living-top-10-reasons-to-be-bilingual-or-multilingual/"><u>Learning for Living: Top 10 Reasons to Be Bilingual or Multilingual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-basic-russian-salutations-and-vocabulary/"><u>Mastering Basic Russian Salutations and Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-joins-forces-with-pearson-academics-group/"><u>Mondly Joins Forces with Pearson Academics Group</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mornings-unleashed-the-many-faces-of-good-morning-worldwide/"><u>Mornings Unleashed: The Many Faces of Good Morning Worldwide</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-writing-issue-with-addressed-0xmemory-location/"><u>Resolved: Writing Issue with Addressed 0xMemory Location</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/simplycapture-windows-screens-in-minutes-for-2024/"><u>SimplyCapture - Windows Screens in Minutes for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nsiders-method-for-youtube-livestreaming-in-full-circle/"><u>The Insider's Method for Youtube Livestreaming in Full Circle</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-quick-guide-to-korean-mastery-6-recommended-digital-platforms/"><u>The Quick Guide to Korean Mastery - 6 Recommended Digital Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/todays-worldwide-winning-apple-app/"><u>Today's Worldwide Winning Apple App</u></a></li>
 </ul></div>
 

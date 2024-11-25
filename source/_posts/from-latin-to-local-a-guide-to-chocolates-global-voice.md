@@ -1,7 +1,7 @@
 ---
 title: "From Latin to Local: A Guide to Chocolate's Global Voice"
-date: 2024-07-29T06:47:52.845Z
-updated: 2024-07-30T06:47:52.845Z
+date: 2024-11-21T23:31:17.820Z
+updated: 2024-11-24T20:18:10.421Z
 tags:
   - speak
   - english
@@ -20,30 +20,30 @@ thumbnail: https://thmb.techidaily.com/af1734dc2b0a9d3bcad9faa3494b27c219c63253c
 
  Now imagine that the cacao tree (Theobroma cacao) was unknown to Europeans until the 16th century. Just imagine that! 16 sad centuries with no chocolate. But after the Spanish conquest of the Aztecs, chocolate was finally imported to Europe and within about 100 years it became notorious all over the continent. People loved it.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![chocolate](http://giphygifs.s3.amazonaws.com/media/RfoL7bq1lV12o/giphy.gif "Here’s How To Say Chocolate In 34 Different Languages 2")
 
  Today, scientists have even confirmed that chocolate is amazing for you. Besides the obvious **release of feel-good endorphins,[chocolate contains antioxidants](https://www.healthline.com/nutrition/7-health-benefits-dark-chocolate#section5) that improve overall cardiovascular health.** But don’t drown yourself in chocolate yet. It seems that too much chocolate can cause serious health problems and can even [kill you](https://lostinscience.wordpress.com/2012/10/11/death-by-chocolate/) . So don’t overeat it. You know what they say: “everything good in life is either illegal, immoral, or fattening”.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## International Chocolate Day
 
  Chocoholics such as you or me love chocolate so much they celebrate its existence every single day. But did you know there are [multiple days](https://en.wikipedia.org/wiki/National%5FChocolate%5FDay) throughout the year dedicated to the greatness of chocolate? The most commonly accepted such day is**World Chocolate Day** **on July 7,** but people also celebrate**International Chocolate Day** **on September 13** (the birth date of Milton S. Hershey, founder of Hershey’s Chocolate!).
 
  And, if you live in the U.S., you’ll have even MORE official days to celebrate different types of chocolate. The U.S. National Confectioners Association did a complete list of [candy holidays](https://www.candyusa.com/life-candy/candy-holidays/) which includes a National Chocolate Covered Cherry Day in January, a Chocolate Mint Day in February, a National Chocolate Caramel Day, a National Chocolate-Covered Raisin Day and an entire week dedicated to American Chocolate in March. And that’s only three months into the year. Imagine how many more “chocolate days” the U.S. has until the end of the year.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![chocolate in different languages](https://media.giphy.com/media/97xWmqCIJXhUQ/giphy.gif "Here’s How To Say Chocolate In 34 Different Languages 3")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Chocolate in Different Languages
 
  There are few things that unite cultures the same as chocolate does. There’s classical music, mathematics, painting, physics and then there’s chocolate. We already settled that: everybody likes it. So let’s see how to say chocolate in different languages. From **chocolate in German_(Schokolade)_**  to**chocolate in Spanish** **_(chocolate)_** and **chocolate in Italian_(cioccolato)_ .** This way, next time you’ll visit a new country, you’ll know exactly how to ask for chocolate at the store when the cravings hit.
@@ -97,13 +97,11 @@ Do you know what goes best with chocolate? I know you know.
  It’s love. Here’s [how to say “I love you” in 32 different languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Hehe!‌ I bet I already gave you a brilliant Valentine’s Day gift idea.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Don’t stop at chocolate
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![chocolate in different languages](https://media.giphy.com/media/wMNK4IfeH86uQ/giphy.gif "Here’s How To Say Chocolate In 34 Different Languages 4")
 
  Go to candy, cake, jelly, cookies and more! **Learn the translation of all the sweets in different languages with Mondly,** the revolutionary language learning platform that makes language learning fun, fast and easy!
@@ -112,6 +110,10 @@ Do you know what goes best with chocolate? I know you know.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Get your language skills to the next level
 
@@ -127,8 +129,6 @@ Do you know what goes best with chocolate? I know you know.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -136,4 +136,26 @@ Do you know what goes best with chocolate? I know you know.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-creators-guide-to-mastering-youtube-aspect-ratios/"><u>[New] 2024 Approved The Creator's Guide to Mastering YOUTUBE Aspect Ratios</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-chrome-users-explore-our-curated-list-of-voice-modification-apps-for-2024/"><u>[Updated] Chrome Users, Explore Our Curated List of Voice Modification Apps for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580359221-2022-goals-achieved-speak-like-a-native-at-half-the-cost/"><u>2022 Goals Achieved - Speak Like a Native at Half the Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-dynamic-reasons-for-embracing-new-dialects/"><u>8 Dynamic Reasons for Embracing New Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ace-japanese-greeting-etiquette/"><u>Ace Japanese Greeting Etiquette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apprendimento-dei-numeri-italiani-la-via-da-1-a-mille/"><u>Apprendimento Dei Numeri Italiani: La Via Da 1 a Mille</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-practices-learn-lithuanian-seamlessly-online/"><u>Best Practices: Learn Lithuanian Seamlessly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childhood-wellness-and-tasty-treats-google-plays-best-kids-app-mondly-kids-guide-of-2017/"><u>Childhood Wellness and Tasty Treats - Google Play’s Best Kids App, Mondly Kids Guide of 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/continental-symphony-of-african-linguistics/"><u>Continental Symphony of African Linguistics</u></a></li>
+<li><a href="https://techtrends.techidaily.com/cookiebot-enhanced-user-experience-personalized-content-delivery/"><u>Cookiebot-Enhanced User Experience: Personalized Content Delivery</u></a></li>
+<li><a href="https://win11.techidaily.com/elevated-windows-weather-trackers-selection/"><u>Elevated Windows Weather Trackers Selection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevating-your-business-talk-one-phrase-at-a-time/"><u>Elevating Your Business Talk, One Phrase at a Time</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-omnicharge-omni-20-charger-your-ultimate-companion-for-universal-wireless-charging-solutions/"><u>Exploring the Omnicharge Omni 20 Charger – Your Ultimate Companion for Universal, Wireless Charging Solutions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/gratuitous-high-quality-ideas-for-profitable-slideshows-for-2024/"><u>Gratuitous, High-Quality Ideas for Profitable Slideshows for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-8-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 8 to other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-xiaomi-redmi-12-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Xiaomi Redmi 12 Pattern Lock Screen</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-infinite-loop-twitters-live-video-saga-in-23/"><u>In 2024, Infinite Loop Twitter's Live Video Saga in '23</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-microphone-feedback-audio-recorder/"><u>In 2024, Microphone Feedback Audio Recorder</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577544885-unlock-romance-say-i-love-you-in-10plus-languages/"><u>Unlock Romance: Say I Love You In 10+ Languages</u></a></li>
+</ul></div>
 

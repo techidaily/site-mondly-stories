@@ -1,7 +1,7 @@
 ---
 title: "From Fumble to Fluency: Top 9 Tips for Clear Communication"
-date: 2024-07-29T06:46:50.269Z
-updated: 2024-07-30T06:46:50.269Z
+date: 2024-11-18T23:09:31.093Z
+updated: 2024-11-24T16:37:46.041Z
 tags:
   - speak
   - english
@@ -23,8 +23,9 @@ thumbnail: https://thmb.techidaily.com/815fea7976911214190dec2e4ce8ef31c5b56fc35
 That being said… let’s get you fluent!
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. “How can I improve my spoken English in a fun way?”
 
  If you [**speak English as a second or third language**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , that’s what you probably asked yourself a few minutes ago before going to Google for help. Speaking is fun, but only in your mind, isn’t it? There’s a huuuge difference between how well you speak English in your mind and how bad it sounds when you actually speak it. And like any normal human being you want to learn. You really do, but you also want to have fun while doing so.
@@ -33,9 +34,6 @@ That being said… let’s get you fluent!
 
 ![improve english](https://media.giphy.com/media/55Lx3GC3HoVkQ/giphy.gif "Top 9 Tips And Tricks That Will Help Improve Your Spoken English 2")
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Devour podcasts and audiobooks in English
 
  Both podcasts and audiobooks are incredibly useful when you want to**improve your spoken English at home** . You’ll do one thing while helping yourself in two ways. Firstly, you’ll get your hearing used to the English language and secondly – you’ll enrich your mind with useful information on certain topics such as technology, life, Brexit, music or – again –_Harry Potter!_  Or   _The Lord of the Rings, The Great Gatsby, War and Peace, One Hundred Years of Solitude_ and so on. The people that record audiobooks usually have amazing American English or British English accents (take Jim Dale for example) and hearing them will bring you closer to the accent you always wanted to have.
@@ -46,8 +44,16 @@ That being said… let’s get you fluent!
 
 ![spoken english conversation](https://edge.mondly.com/blog/wp-content/uploads/2019/02/spoken-english-conversation-1-350x600.jpg "Top 9 Tips And Tricks That Will Help Improve Your Spoken English 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “The Mondly Chatbot”  
  Spanish with target language English
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. How to learn spoken English the easy way
 
@@ -55,9 +61,6 @@ That being said… let’s get you fluent!
 
  But there is a solution. It may sound a bit creepy, but talking to yourself is the answer in this particular situation. The good ol’ talking to yourself. We all do that from time to time. Why not do it in English? Not necessarily out loud. Use your thoughts. The accent sounds better now in your mind, but in time your actual accent will improve too.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## 5\. Practice accent with tongue twisters and songs
 
 > I come from Alabama with my banjo on my knee,  
@@ -70,37 +73,32 @@ That being said… let’s get you fluent!
 
  Oh! How I liked singing this piece when I started studying English. Loved it! Start with nursery songs, continue with tongue twisters and finish your training with Eminem songs. When you’ll manage to master Eminem,**your spoken English will be flawless.**
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Give yourself spoken English lessons
 
  As mentioned before, thinking in English can really help you improve your speaking skills. But more than thinking in English, you can act as both tutor and student. Remember the times when you did grammar exercises by yourself? Here’s what you could do now: listen to audios in English – it can be a podcast, audiobook or even a Youtube video of Jimmy Fallon – then record yourself while trying to repeat the exact same words. Comparing the two versions of the same audio will help you easily identify your mistakes and correct them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![English lessons](https://media.giphy.com/media/cEODGfeOYMRxK/giphy.gif "Top 9 Tips And Tricks That Will Help Improve Your Spoken English 4")
 
 If the problem is your accent, diction could also help you improve.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. Watch movies and study spoken English conversations
 
  The best thing about movies is that they can be both fun and educative. After exploring the previous tips you probably already know how you can use movies to your own advantage.
 
 ![how to learn spoken english](https://edge.mondly.com/blog/wp-content/uploads/2019/02/how-to-learn-spoken-english-1024x682.jpg "Top 9 Tips And Tricks That Will Help Improve Your Spoken English 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Scary” by Ludovic Toinel©
 
  From vocabulary to accents and intonation, movies can offer a great deal of information you can use to create your own syllabus and start training. Just choose your list and begin your research! You’ll soon find out that movie dialogues are easily digestible even for an ESL speaker.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. Learn common idioms, sayings, and expressions
 
  This technique is an absolute boost for your**English vocabulary** ! Learning common English sayings and expressions will spice up your conversations and make you fluent fast.
@@ -132,8 +130,6 @@ If the problem is your accent, diction could also help you improve.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -141,4 +137,26 @@ If the problem is your accent, diction could also help you improve.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-an-all-inclusive-subtitle-handbook-from-basics-to-advanced-tips/"><u>[New] An All-Inclusive Subtitle Handbook From Basics to Advanced Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-crafting-immersive-experiences-with-audio-in-canva-for-2024/"><u>[New] Crafting Immersive Experiences with Audio in Canva for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-leveraging-multimedia-tools-for-enhanced-screencasts-for-2024/"><u>[Updated] Leveraging Multimedia Tools for Enhanced Screencasts for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-top-5-linguistic-software-for-instructors/"><u>Essential Top 5 Linguistic Software for Instructors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eternal-access-to-mondly-premium-for-free/"><u>Eternal Access to Mondly Premium for Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-benefits-of-learning-croatian-here-are-the-top-7-for-you/"><u>Explore the Benefits of Learning Croatian – Here Are The Top 7 For You!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-best-16-german-phrases-to-thank-someone-profusely/"><u>Explore The Best 16 German Phrases To Thank Someone Profusely</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/express-your-gratitude-essential-phrases-for-travelers/"><u>Express Your Gratitude: Essential Phrases for Travelers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/faster-fluency-cognitive-strategies-for-effortless-language-acquisition/"><u>Faster Fluency: Cognitive Strategies for Effortless Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-monolingualism-to-multilingualism-how-long/"><u>From Monolingualism To Multilingualism - How Long?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-proficient-russian-numeral-acquisition/"><u>From Novice to Proficient: Russian Numeral Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-playgrounds-to-classrooms-spanish-for-kids/"><u>From Playgrounds to Classrooms: Spanish for Kids</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Nokia G42 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-chuckle-filled-chapters-best-comedy-video-plans-in-a-nutshell/"><u>In 2024, Chuckle-Filled Chapters Best Comedy Video Plans in a Nutshell</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-live-streaming-elite-9-edition/"><u>In 2024, Live Streaming Elite #9 Edition</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722105877009-is-your-banking-information-safe-the-possibility-of-chatgpt-enabled-cyber-attacks-explored/"><u>Is Your Banking Information Safe? The Possibility of ChatGPT-Enabled Cyber Attacks Explored</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/step-by-step-on-finding-and-crafting-spiritual-ringtones/"><u>Step-by-Step on Finding and Crafting Spiritual Ringtones</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-tutorial-for-keeping-your-contact-details-private-in-the-android-world/"><u>The Ultimate Tutorial for Keeping Your Contact Details Private in the Android World</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-vivo-s17t-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Vivo S17t Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+</ul></div>
 
