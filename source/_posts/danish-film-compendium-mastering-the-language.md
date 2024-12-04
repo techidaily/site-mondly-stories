@@ -1,7 +1,7 @@
 ---
 title: "Danish Film Compendium: Mastering the Language"
-date: 2024-08-08T09:24:06.388Z
-updated: 2024-08-09T09:24:06.388Z
+date: 2024-11-27T22:44:08.988Z
+updated: 2024-12-04T01:08:11.282Z
 tags:
   - speak
   - english
@@ -24,9 +24,6 @@ thumbnail: https://thmb.techidaily.com/fa466aca4e0117af9ede098ff5beff07b4b780680
 
 Grab the popcorn and enjoy!
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Der kommer en dag (2016) (The Day Will Come)
 
 [**IMDb rating: 7,8**](https://www.imdb.com/title/tt4659056/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -38,8 +35,9 @@ Grab the popcorn and enjoy!
  Elmer and Erik try to become “invisible”, but that doesn’t spare them from being bullied by some of the older boys. Are they gonna find salvation? Watch it and find out.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Adams Æbler (2005) (Adam’s Apples)
 
 [**IMDb rating: 7,8**](https://www.imdb.com/title/tt0418455/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -51,8 +49,9 @@ Grab the popcorn and enjoy!
  “Adams Æbler” is a successful combination of black humor and drama guaranteed to keep you glued to the screen.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Efter brylluppet (2006) (After the Wedding)
 
 [**IMDb rating: 7,7**](https://www.imdb.com/title/tt0457655/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -64,8 +63,9 @@ Grab the popcorn and enjoy!
  This is only the second movie in the list blessed with the presence of Mads Mikkelsen, but hang in there! There’s more on the way.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Hævnen (2010) (In a Better World)
 
 [**IMDb rating: 7,6**](https://www.imdb.com/title/tt1340107/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -77,8 +77,9 @@ Grab the popcorn and enjoy!
  Academy Award winner for Best Foreign Language Film of the Year in 2011 (already convinced, aren’t you?), “Hævnen” is a story about friendship, choices, revenge, forgiveness and the consequences of our actions. There’s no way you won’t find yourself in it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. En kongelig affære (2012) (A Royal Affair)
 
 [**IMDb rating: 7,5**](https://www.imdb.com/title/tt1276419/?ref%5F=fn%5Fal%5Ftt%5F1)
@@ -90,8 +91,9 @@ Grab the popcorn and enjoy!
  The two lovers use their influence on King Christian to start a revolution that will change the nation forever. But will this be in their own best interest? Believe me, you absolutely have to watch this. Not only that this film was also nominated for an Oscar, but the costume design and the acting are absolutely amazing. Time watching it will not be time wasted.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Jagten (2012) (The Hunt)
 
 [**IMDb rating: 8,3**](https://www.imdb.com/title/tt2106476/)
@@ -123,8 +125,6 @@ Grab the popcorn and enjoy!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -132,6 +132,16 @@ Grab the popcorn and enjoy!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/updated-exploring-new-frontiers-in-contactless-interface-designs/"><u>[Updated] Exploring New Frontiers in Contactless Interface Designs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-language-bootcamp-bengali/"><u>Daily Language Bootcamp: Bengali</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-most-recent-canon-ip110-drivers-supports-windows-11-through-windows-7/"><u>Get the Most Recent Canon iP110 Drivers: Supports Windows 11 Through Windows 7</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-speech-functionality-integrated-into-oculus-quests-app-lineup/"><u>Global Speech Functionality Integrated Into Oculus Quest's App Lineup</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-your-disabled-apple-iphone-15-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>In 2024, Unlock Your Disabled Apple iPhone 15 Without iTunes in 5 Ways | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-offering-free-language-courses-for-millions-of-ukrainians/"><u>Mondly Is Offering Free Language Courses For Millions Of Ukrainians</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-5-exceptional-mobile-plans-for-families/"><u>Top 5 Exceptional Mobile Plans for Families</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-russian-salutations-key-phrases-and-fundamental-words/"><u>Unlocking Russian Salutations: Key Phrases & Fundamental Words</u></a></li>
+<li><a href="https://driver-download.techidaily.com/updating-your-computers-sound-drivers-tips-and-tricks-for-windows-versions-11-10-and/"><u>Updating Your Computer's Sound Drivers: Tips and Tricks for Windows Versions (11, 10, & ^)</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Einfaches Deutsch: Von 1 Bis 100 Zählen Lernen"
-date: 2024-08-08T09:26:07.924Z
-updated: 2024-08-09T09:26:07.924Z
+date: 2024-11-30T17:11:53.975Z
+updated: 2024-12-04T01:25:39.244Z
 tags:
   - speak
   - english
@@ -21,8 +21,9 @@ thumbnail: https://thmb.techidaily.com/66bf8dac2766c75d064d843a5ce5be7969161220b
  Besides, contrary to the popular belief that [German is hard to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , German numbers are actually easy to master. In fact, it’s just as easy to learn how to count in German as it is in English. Once you know how to count to 20, the rest of the numbers will follow a predictable pattern. So here’s an uncomplicated guide on how to count from 1 to 100 in German.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## German Numbers 1-10
 
  Let’s start at the very beginning. If you want to master the German numbers fast, it’s essential to first learn**how to count to 10 in German.** The numbers from 1 to 10 are important for two reasons. First: you will probably use them on a daily basis. And second: they set the stage for any German number you can think of.
@@ -44,8 +45,9 @@ thumbnail: https://thmb.techidaily.com/66bf8dac2766c75d064d843a5ce5be7969161220b
  If you are not familiar with the [German pronunciation rules](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can watch this short video to hear how each number from 1 to 10 is pronounced:
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## German Numbers 11-20
 
  As it happens with several other languages, the numbers from 11 to 20 don’t yet follow the pattern we talked about. The same as in English, ‘eleven’ and ‘twelve’ are two rebels refusing to follow the crowd. Otherwise, all the other numbers are formed by bringing together the first four letters of the basic 3 to 9 numbers and the word_zehn_ meaning ‘ten’.
@@ -64,8 +66,9 @@ thumbnail: https://thmb.techidaily.com/66bf8dac2766c75d064d843a5ce5be7969161220b
 * **twenty —_zwanzig_**
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## German multiples of 10
 
  The next step in learning how to count in German is mastering the tens or the multiples of 10\. Once you know these, you be able to apply the pattern and easily count to 100 on your own. It’s as easy as_eins, zwei, drei!_
@@ -85,14 +88,16 @@ Here are the multiples of 10 in German:
 
  As you can see, even the tens follow a pattern. Apart from twenty and thirty which are exceptions, the tens from forty to ninety are formed by adding “zig” at the end of the first four letters of the numbers from 4 to 9.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![count in german](https://edge.mondly.com/blog/wp-content/uploads/2022/08/count-in-german.png "German Numbers: Learn How To Count From 1 To 100 In German 2")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to count from 1 to 100 in German
 
  Now that you have all the data (the numbers from 1 to 20 and multiples of 10), it’s time to explain how all the other numbers are formed. If you already know how to count in other languages, German numbers will be a piece of cake for you!
@@ -121,9 +126,6 @@ Now let’s look at some examples to make sure you got it:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### From 0 to 100 and beyond in German
 
  Do you want to go beyond numbers and [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fluently? Try Mondly, the award-winning language app that is serious about making learning German fun.
@@ -146,8 +148,6 @@ Now let’s look at some examples to make sure you got it:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -155,6 +155,23 @@ Now let’s look at some examples to make sure you got it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-quick-fix-for-background-removal-in-figma-projects/"><u>[Updated] In 2024, Quick Fix for Background Removal in Figma Projects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576116927-catalonias-linguistic-leap-each-day/"><u>Catalonia's Linguistic Leap – Each Day</u></a></li>
+<li><a href="https://article-tips.techidaily.com/creative-choreography-compendiums/"><u>Creative Choreography Compendiums</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/expert-guide-to-effortless-file-searches-on-windows-and-mac-unleash-copernics-power/"><u>Expert Guide to Effortless File Searches on Windows & Mac - Unleash Copernic's Power</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-realme-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Realme Devices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-2023-mobile-download-for-fb-videos-cross-platform/"><u>In 2024, 2023 Mobile Download for FB Videos, Cross-Platform</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-infinix-gt-10-pro-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Infinix GT 10 Pro to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-ideal-choice-12-superior-clicking-adventures-on-your-pc/"><u>In 2024, Ideal Choice 12 Superior Clicking Adventures on Your PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/keyboard-shortcuts-in-different-english-forms/"><u>Keyboard Shortcuts in Different English Forms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-resolution-2024/"><u>Language Resolution - 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-partners-with-pearson-scholarly-group/"><u>Mondly Partners With Pearson Scholarly Group</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nombre-de-los-dias-en-espanol-aprender-desde-martes-al-domingo/"><u>Nombre De Los Días en Español: Aprender Desde Martes Al Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-for-beginners-easy-to-learn-10-basic-salutations-and-greetings/"><u>Spanish For Beginners: Easy-To-Learn 10 Basic Salutations And Greetings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-complete-guide-to-essential-uav-upgrades-and-parts-for-2024/"><u>The Complete Guide to Essential UAV Upgrades & Parts for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcultural-dialogues-and-their-impact-on-english/"><u>Transcultural Dialogues and Their Impact on English</u></a></li>
+<li><a href="https://win-studio.techidaily.com/understanding-the-contrast-format-vs-delete-on-an-sd-card-a-guide-for-beginners/"><u>Understanding The Contrast: Format Vs Delete On An SD Card - A Guide For Beginners.</u></a></li>
+</ul></div>
 

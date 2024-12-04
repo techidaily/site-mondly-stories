@@ -1,7 +1,7 @@
 ---
 title: New Privacy Statement Available
-date: 2024-10-31T04:42:32.797Z
-updated: 2024-11-05T07:46:57.963Z
+date: 2024-12-02T03:57:16.298Z
+updated: 2024-12-03T21:26:34.469Z
 tags:
   - speak
   - english
@@ -15,6 +15,10 @@ thumbnail: https://thmb.techidaily.com/623365f2ffae0d2d8c9a44d31ae5f64f961d3fb3d
 ---
 
 ## New Privacy Statement Available
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Mondly Languages Privacy Policy
 
@@ -176,10 +180,7 @@ We use Google, Facebook, TikTok and LinkedIn cookies.
 **How does our site handle Do Not Track signals?** Currently, we don’t honor “Do Not Track” signals.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Terms of use – Mondly App
@@ -283,22 +284,21 @@ We use Google, Facebook, TikTok and LinkedIn cookies.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-6-innovative-mc-house-concepts-for-community-living/"><u>[Updated] 2024 Approved 6 Innovative MC House Concepts for Community Living</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-step-by-step-guide-to-attending-live-showcases-on-tiktok/"><u>[Updated] 2024 Approved Step-by-Step Guide to Attending Live Showcases on TikTok</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-from-zero-to-hero-learning-the-art-of-youtube-content/"><u>[Updated] From Zero to Hero Learning the Art of YouTube Content</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-quick-and-easy-snapshot-sharing-a-step-by-point-guide-for-2024/"><u>[Updated] Quick and Easy Snapshot Sharing – A Step-By Point Guide for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-unlock-creative-potential-with-no-cost-green-screen-knowledge-from-top-4-educational-channels/"><u>2024 Approved Unlock Creative Potential with No-Cost Green Screen Knowledge From Top 4 Educational Channels</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprendre-lanatomie-du-systeme-nerveux-parts-in-french/"><u>Comprendre L'Anatomie Du Système Nerveux: Parts in French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-10-min-urdu-mastery-journey/"><u>Daily 10-Min Urdu Mastery Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-talk-like-a-pirate-20-pirate-wordsback-buttonfilter-button/"><u>How To Talk Like A Pirate: 20 Pirate WordsBack ButtonFilter Button</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-movies-that-teach-languages-better/"><u>International Movies That Teach Languages Better</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581605473-learn-bulgarian-in-dashes-10-minute-sessions/"><u>Learn Bulgarian in Dashes - 10-Minute Sessions!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-joins-with-pearson-learning-networks/"><u>Mondly Joins With Pearson Learning Networks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigate-the-language-of-germany-a-guide-to-25-idioms/"><u>Navigate the Language of Germany - A Guide to 25 Idioms</u></a></li>
-<li><a href="https://article-files.techidaily.com/the-ultimate-racers-dilemma-gopro-hero-4-or-ghost-s-for-2024/"><u>The Ultimate Racer's Dilemma GoPro Hero 4 or Ghost-S for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/troubleshooting-steps-solving-issues-with-unresponsive-computer-keys/"><u>Troubleshooting Steps: Solving Issues with Unresponsive Computer Keys</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-czech-ease-through-effective-online-learning/"><u>Unlock Czech Ease Through Effective Online Learning</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unveiling-the-secrets-share-images-professionally-on-youtube/"><u>Unveiling the Secrets Share Images Professionally on YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/be-milestone-mastery-breaking-into-the-millions-for-2024/"><u>Youtube Milestone Mastery Breaking Into the Millions for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-in-depth-guide-to-extracting-vimeo-media/"><u>[New] 2024 Approved In-Depth Guide to Extracting Vimeo Media</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-live-transmission-via-obs-to-instagram/"><u>[New] 2024 Approved Live Transmission via OBS to Instagram</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-harmonizing-vision-and-voice-the-ultimate-guide/"><u>[New] In 2024, Harmonizing Vision and Voice The Ultimate Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-strategies-for-streaming-fb-live-on-zoom-platform/"><u>[New] Strategies for Streaming FB Live on Zoom Platform</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-top-platforms-for-amplifying-youtube-content-for-2024/"><u>[New] Top Platforms for Amplifying YouTube Content for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-auto-arcade-adventures-for-kids/"><u>[Updated] 2024 Approved Auto Arcade Adventures for Kids</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-pure-audio-on-mac-studio-overview/"><u>[Updated] In 2024, Pure Audio on Mac Studio Overview</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-lexicon-hazards-the-most-frequent-mispellings-revealed/"><u>English Lexicon Hazards: The Most Frequent Mispellings Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-word-woes-the-definitive-guide-to-common-mispronunciations-ranked/"><u>English Word Woes - The Definitive Guide to Common Mispronunciations Ranked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-your-language-skills-with-google-advised-mondly-tools/"><u>Enhance Your Language Skills with Google-Advised Mondly Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-urdu-lexicon-for-beginners-journey/"><u>Essential Urdu Lexicon for Beginners' Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/every-word-in-africa-the-language-mosaic/"><u>Every Word in Africa: The Language Mosaic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-connoisseur-unveil-7-secrets-of-afrikaans-via-mondly/"><u>From Novice to Connoisseur: Unveil 7 Secrets of Afrikaans via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-netflix-virtuoso-via-korean-lessons/"><u>From Novice to Netflix Virtuoso via Korean Lessons</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-call-logs-from-your-samsung-galaxy-s21-fe-5g-2023-by-fonelab-android-recover-call-logs/"><u>How to recover old call logs from your Samsung Galaxy S21 FE 5G (2023)?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/vlog-heroes-the-best-video-capturers-unveiled-for-2024/"><u>VLog Heroes The Best Video Capturers Unveiled for 2024</u></a></li>
 </ul></div>
 

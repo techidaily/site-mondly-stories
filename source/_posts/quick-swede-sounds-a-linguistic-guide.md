@@ -1,7 +1,7 @@
 ---
 title: "Quick Swede Sounds: A Linguistic Guide"
-date: 2024-11-21T22:33:28.988Z
-updated: 2024-11-24T19:15:38.517Z
+date: 2024-11-26T23:35:40.507Z
+updated: 2024-12-03T20:20:31.499Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
  Now, this doesn’t mean there isn’t a thing or two you need to know about the [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) alphabet. Although complex when it comes to pronunciation, Swedish is an absolutely fascinating language. So don’t let Viking stories or famous horror Midsommar scare you. I’m sure you’ll love learning everything about the Swedish language and its alphabet so let’s get to it!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The modern Swedish alphabet
 
  The modern Swedish alphabet? Yes, indeed. The Swedish alphabet didn’t always look the way it does today. But first things first.
@@ -33,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
  The current alphabet is considered modern because it arrived in Sweden together with the Christianization of Scandinavia that took place between the 8th and the 12th centuries. As a matter of fact, the translation of the New Testament into Swedish in 1526 actually marks the beginning of modern Swedish.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How was Swedish written before the Latin script?
@@ -45,18 +41,18 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 ![swedish runes on stones](https://edge.mondly.com/blog/wp-content/uploads/2021/11/swedish-runic-alphabet-960x686.jpg "Quick Introduction To The Swedish Alphabet And Its Fascinating History 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Swedish runes” by petr sidorov©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Swedish language in a nutshell
 
  Known in Swedish as**Svenska,** the [Swedish language](https://www.britannica.com/topic/Swedish-language) belongs to the East Scandinavian group of North Germanic languages and is the official language of Sweden and Finland. According to Ethnologue, the total number of Swedish speakers worldwide is over 13 million (both native and non-native speakers).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Mutual intelligibility with the other Scandinavian languages
 
@@ -66,10 +62,6 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
  Similar to the transformation the [Romance languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) went through over time, Old East Norse dialects were influenced by numerous factors. For example, between 800 and 1100 AD, Runic Swedish was only slightly different from Runic Danish, but they began to diverge during the 12th century. However, some aspects stayed the same. That’s why is easier to learn Swedish when you already know Danish and vice versa.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Pronunciation rules and usage
 
  Being a Germanic language makes Swedish one of the easiest languages to learn by native English speakers. In fact, according to the FSI (Foreign Service Institute) of the US government, an English speaker would need about [575 hours](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or 23 weeks of practice to become fluent in Swedish. That makes Swedish even easier to learn than any Romance language such as Spanish, French or Italian.
@@ -78,6 +70,10 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
  Would you like to have access to more content like this? Get Mondly and master the Swedish pronunciation in no time with real-life conversations recorded by fluent voice actors.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Uncommon letters
 
  Before jumping to pronunciation rules, you should know that**Swedes don’t really use the letters Q, W and Z.** So, in truth, the Swedish alphabet has the same number of letters as English: 26.
@@ -85,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
  Q, W, and Z will only appear in some loanwords such as queer, squash, web, or zon (zone).
 
  Though officially in the Swedish alphabet, there are two other letters you’ll probably see in Swedish: ü and è. But again, these letters are only common in some loanwords.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### General pronunciation rules
 
@@ -136,19 +136,15 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-guide-to-freebie-animation-tools/"><u>[New] The Ultimate Guide to Freebie Animation Tools</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-video-visibility-using-creator-studio-wisdom/"><u>2024 Approved Enhance Video Visibility Using Creator Studio Wisdom</u></a></li>
-<li><a href="https://howto.techidaily.com/gmail-not-working-on-xiaomi-redmi-a2plus-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Xiaomi Redmi A2+ 7 Common Problems & Fixes | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-abletons-guide-to-softening-transition-endings/"><u>In 2024, Ableton's Guide to Softening Transition Endings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-mastery-made-easy-mondly-launches-virtual-reality-for-learners/"><u>Language Mastery Made Easy: Mondly Launches Virtual Reality for Learners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-varieties-of-macaus-triad/"><u>Language Varieties of Macau's Triad</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-korean-with-ease-unveiling-the-top-6-web-based-solutions/"><u>Learn Korean with Ease: Unveiling the Top 6 Web-Based Solutions</u></a></li>
-<li><a href="https://review-topics.techidaily.com/online-electronic-signature-for-pdf-v15-document-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>Online electronic signature for PDF v1.5 document</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-find-the-best-online-resources-for-korean-study/"><u>Speak Like a Local: Find the Best Online Resources for Korean Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/stun-italy-locals-with-over-20-italian-phrases/"><u>Stun Italy Locals with Over 20 Italian Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-rich-tapestry-of-farsi-history-and-its-learning-perks/"><u>The Rich Tapestry of Farsi History & Its Learning Perks</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-rumored-unveiling-of-xboxs-virtual-reality-headset-pricing-hints-and-projection-of-arrival-dates/"><u>The Rumored Unveiling of Xbox's Virtual Reality Headset - Pricing Hints & Projection of Arrival Dates</u></a></li>
-<li><a href="https://some-tips.techidaily.com/the-ultimate-guide-to-liberating-tracks-with-pazeras-tools-for-2024/"><u>The Ultimate Guide to Liberating Tracks with Pazera's Tools for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unlock-the-power-of-montage-in-digital-media/"><u>Unlock the Power of Montage in Digital Media</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-focusrite-scarlett-2i4-drivers-in-windows/"><u>[Download] Focusrite Scarlett 2I4 Drivers In Windows</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-cinemas-best-hope-fueled-film-selections/"><u>[New] Cinema's Best Hope-Fueled Film Selections</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-hot-takes-top-ten-video-hits-from-social-media-giants/"><u>2024 Approved Hot Takes Top Ten Video Hits From Social Media Giants</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/anniversary-1500-free-daily-knowledge-shares/"><u>Anniversary: 1,500 Free Daily Knowledge Shares</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussie-language-sayings-and-slang-for-daily-chit-chat/"><u>Aussie Language: Sayings & Slang for Daily Chit-Chat</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gaming-savvy-strategies-for-snagging-consoles-at-optimal-prices-and-times/"><u>Gaming Savvy: Strategies for Snagging Consoles at Optimal Prices & Times</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Honor Magic 6 Lite? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-forward-oxford-mondly-essential-words-guide/"><u>Language Leap Forward: Oxford-Mondly Essential Words Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-into-mastery-preparing-for-prestigious-language-certifications/"><u>Step Into Mastery: Preparing for Prestigious Language Certifications</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/unpacking-manycams-revolutionary-recording-features/"><u>Unpacking ManyCam's Revolutionary Recording Features</u></a></li>
 </ul></div>
 

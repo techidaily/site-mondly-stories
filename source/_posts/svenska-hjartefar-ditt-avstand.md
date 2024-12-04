@@ -1,7 +1,7 @@
 ---
 title: "Svenska Hjärtefär: Ditt Avstånd"
-date: 2024-11-17T23:48:38.755Z
-updated: 2024-11-24T20:09:10.377Z
+date: 2024-11-27T02:56:17.584Z
+updated: 2024-12-03T17:27:01.283Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
  Swedish people are sociable, and they care about traditions, so any foreigner should know how to, at least, properly introduce themselves and start a conversation. Learn more about all the Swedish greetings, and maybe you’ll feel inspired to try something new and [start learning the Nordic language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Here’s some to start with:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What you should know
 
  Swedes are respectful, but they rarely use last names or Mr. and Mrs in rather formal conversations as well. They like to call themselves by their first name, even in some professional circles. Equality and the lack of hierarchies in the workplace is a specific trait of the Swedish society. If you want to move to Sweden or visit the country, you must get accustomed to all these little details. This will make it easier for you to become “one of them” and meet new people
@@ -30,16 +34,12 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to answer the phone in Swedish
 
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Good Morning!” in Swedish
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Goodnight!” in Swedish
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “What’s up?” in Swedish
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
@@ -98,22 +98,24 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-elevated-engagement-awards-on-video-realms-for-2024/"><u>[New] Elevated Engagement Awards on Video Realms for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ree-digital-asset-valuation-tools-for-2024/"><u>[New] Free Digital Asset Valuation Tools for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-art-of-adding-soundtracks-to-instagram-visuals/"><u>[New] In 2024, The Art of Adding Soundtracks to Instagram Visuals</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-salt-and-surge-2023s-best-surf-cam-tech-review/"><u>[Updated] Salt & Surge 2023'S Best Surf Cam Tech Review</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/advanced-gopro-filmmaking-hacks-for-2024/"><u>Advanced GoPro Filmmaking Hacks for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/den-beste-liste-med-5-dvd-til-mp4-transformatorer-for-computer-og-netoverflaten-movavi/"><u>Den Beste Liste Med 5 DVD-Til MP4-Transformatorer for Computer Og Netoverflaten - Movavi</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/future-tech-on-display-at-apples-worldwide-developer-conference-wwdc-2025/"><u>Future Tech on Display at Apple's Worldwide Developer Conference (WWDC) 2025</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gute-auftaktsatze-im-deutschen-ausgewahlt/"><u>Gute-Auftaktsätze Im Deutschen Ausgewählt</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hello-in-portuguese-all-the-portuguese-greetings-you-need-to-knowback-buttonfilter-button/"><u>Hello In Portuguese - All The Portuguese Greetings You Need To KnowBack ButtonFilter Button</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-link-turkish-korean-connections/"><u>Language Link: Turkish-Korean Connections</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/privacy-update-clearer-terms-better-usage/"><u>Privacy Update - Clearer Terms, Better Usage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speedy-syntax-mastery-with-these-mindful-mental-routines/"><u>Speedy Syntax Mastery with These Mindful Mental Routines</u></a></li>
-<li><a href="https://program-issues.techidaily.com/successfully-initiating-deathloop-after-previous-failure-tips-and-tricks/"><u>Successfully Initiating Deathloop After Previous Failure - Tips & Tricks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukraines-educational-revolution-mondly-provides-language-lessons-freely/"><u>Ukraine's Educational Revolution: Mondly Provides Language Lessons, Freely</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-from-script-to-screen-10-famous-movies-crafted-with-final-cut-pro/"><u>Updated In 2024, From Script to Screen 10 Famous Movies Crafted with Final Cut Pro</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-choice-todays-apple-favorite/"><u>Worldwide Choice: Today's Apple Favorite</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-spring-celebration-dialogues/"><u>Worldwide Spring Celebration Dialogues</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-how-to-create-time-travel-teleportation-effects/"><u>[New] How to Create Time Travel Teleportation Effects?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-4-secrets-for-adding-online-vids-seamlessly-in-ppt/"><u>[New] In 2024, 4 Secrets for Adding Online Vids Seamlessly in PPT</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/treamlined-collaborations-amplifying-your-video-impact-for-2024/"><u>[New] Streamlined Collaborations Amplifying Your Video Impact for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unlocking-the-secrets-to-altering-your-networks-showcase-picture/"><u>[New] Unlocking the Secrets to Altering Your Network's Showcase Picture</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-unleash-your-inner-animator-easily-share-gifs-on-snapchat/"><u>[Updated] In 2024, Unleash Your Inner Animator Easily Share Gifs on Snapchat</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-reasons-why-you-should-learn-a-language-in-your-forties/"><u>4 Reasons Why You Should Learn A Language In Your Forties</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/advanced-material-dashboard-pro-high-end-bootstrap-5-management-suite-with-admin-panel-creative-tims-premier-solution/"><u>Advanced Material Dashboard Pro: High-End Bootstrap 5 Management Suite with Admin Panel - Creative Tim's Premier Solution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-basics-a-10-minute-daily-regimen/"><u>Bangla Basics: A 10-Minute Daily Regimen</u></a></li>
+<li><a href="https://article-tips.techidaily.com/best-5-high-end-drones-for-professionals/"><u>Best 5 High-End Drones for Professionals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-lingual-dialogues-enriching-english-language/"><u>Cross-Lingual Dialogues Enriching English Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-basic-to-brilliant-mondly-mastery-techniques/"><u>From Basic to Brilliant: Mondly Mastery Techniques</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-motorola-moto-g34-5g-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Motorola Moto G34 5G to Mac? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-temps-de-la-semaine-en-langue-francaise/"><u>Les Temps De La Semaine en Langue Française</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-made-simple-explore-our-top-triads-benefits/"><u>Mastering Languages Made Simple: Explore Our Top Triad's Benefits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/melody-meets-science-the-ultimate-guide-to-learning-multiple-languages/"><u>Melody Meets Science: The Ultimate Guide to Learning Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyglotism-a-path-to-better-brains/"><u>Polyglotism: A Path to Better Brains</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcontinental-greetings-on-holy-sunday/"><u>Transcontinental Greetings on Holy Sunday</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-list-of-pro-level-gamer-audio-devices/"><u>Ultimate List of Pro-Level Gamer Audio Devices</u></a></li>
 </ul></div>
 

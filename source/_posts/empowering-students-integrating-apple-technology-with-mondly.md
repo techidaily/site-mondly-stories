@@ -1,7 +1,7 @@
 ---
 title: Empowering Students, Integrating Apple Technology with Mondly
-date: 2024-08-08T09:27:12.643Z
-updated: 2024-08-09T09:27:12.643Z
+date: 2024-11-27T22:36:43.509Z
+updated: 2024-12-03T20:42:46.575Z
 tags:
   - speak
   - english
@@ -22,36 +22,18 @@ thumbnail: https://thmb.techidaily.com/f37e982ae8f03f96b288d30672862c7b113ea2583
 
  Seven years later, Mondly is an award-winning language learning app with over**40 million downloads** in**190 countries** . That first MacBook was a part of their recipe to success – a recipe they decided to share with the students of Transilvania University of Brașov.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![alexandru iliescu tudor iliescu mondly](https://edge.mondly.com/blog/wp-content/uploads/2019/03/alexandru-iliescu-tudor-iliescu-mondly-1024x683.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 2")
 
  The founders of Mondly after they were awarded the “Emerging Entrepreneur of the Year: Technology & Innovation” prize by Ernst & Young
 
  Both Alexandru and Tudor are alumni of the university, so giving something back to the school that contributed to their training and development was the natural thing to do. Thus, in April 2018, **Mondly sponsored The Faculty of Mathematics and Computer Science with 10 brand new iMacs.**
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![Mondly iMac lab inauguration](https://edge.mondly.com/blog/wp-content/uploads/2019/03/Mondly-iMac-lab-inauguration-1024x488.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 3")
 
  The inauguration of the first Mondly iMac lab
 
  _iOS app development can only be done on Apple computers, but since the university was equipped with Windows computers only, students didn’t yet have the tools to learn to develop apps for an app store that generated [93% more revenue](https://techcrunch.com/2018/10/11/app-store-generated-93-more-revenue-than-google-play-in-q3/) than its closest competitor in the third quarter of 2018\. We wanted to give them the opportunity to build the future in a state-of-the-art iMac lab_ , says Alexandru Iliescu, CEO of Mondly.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Alexandru Iliescu, CEO of Mondly](https://edge.mondly.com/blog/wp-content/uploads/2019/03/alexandru-iliescu-ceo-mondly-820x1024.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 4")
 
  Alexandru Iliescu, CEO of Mondly
@@ -62,9 +44,6 @@ thumbnail: https://thmb.techidaily.com/f37e982ae8f03f96b288d30672862c7b113ea2583
 
  In March 2019 we sponsored **The Faculty of Mathematics and Computer Science with another 10 brand new iMacs** and **inaugurated a second state-of-the-art laboratory at The Faculty of Electrical Engineering and Computer Science** . In less than one year, we proudly equipped Transilvania University of Brașov with 30 Apple computers – a first-ever**event for Brașov** and its university.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ![second mondly iMac lab inauguration](https://edge.mondly.com/blog/wp-content/uploads/2019/03/second-mondly-iMac-lab-inauguration-1024x684.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 5")
 
  The inauguration of the second Mondly iMac lab
@@ -73,10 +52,6 @@ thumbnail: https://thmb.techidaily.com/f37e982ae8f03f96b288d30672862c7b113ea2583
 
  It was our genuine wish as a team to do good and invest the fruits of our labor in [the future of education](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . And this is only the beginning.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![mondly team](https://edge.mondly.com/blog/wp-content/uploads/2019/03/mondly-team-scaled-960x623.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 6")
 
  The Mondly team
@@ -90,8 +65,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -99,6 +72,28 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-capturing-the-cloud-techniques-for-digital-show-archives/"><u>[New] 2024 Approved Capturing the Cloud Techniques for Digital Show Archives</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-quick-steps-to-validate-your-youtube-login/"><u>[New] Quick Steps to Validate Your YouTube Login</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-the-ultimate-exploration-of-apeaksofts-screen-recorder/"><u>[New] The Ultimate Exploration of Apeaksoft's Screen Recorder</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilians-vs-europeans-a-comparative-study-on-pt-shortcuts/"><u>Brazilians vs Europeans: A Comparative Study on PT Shortcuts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/busting-stereotypes-truths-behind-language-learning/"><u>Busting Stereotypes: Truths Behind Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-2-years-at-mondly-languages-daring-dreams/"><u>Celebrating 2 Years at Mondly Languages - Daring Dreams</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/effortless-macbook-migration-surprisingly-simple-tips-to-move-your-data-swiftly/"><u>Effortless MacBook Migration: Surprisingly Simple Tips to Move Your Data Swiftly</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-oppo-k11x-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-maximize-engagement-and-impact-premier-tracking-applications-for-content-creators/"><u>In 2024, Maximize Engagement and Impact Premier Tracking Applications for Content Creators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/insider-tips-on-french-salutations-from-salut-to-sincere-smiles/"><u>Insider Tips on French Salutations: From 'Salut' To Sincere Smiles</u></a></li>
+<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Samsung Galaxy A15 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-tagalog-quickly-with-minimal-daily-commitment/"><u>Master Tagalog Quickly with Minimal Daily Commitment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-gears-up-for-language-diversity-with-mondly/"><u>Oculus Quest Gears Up for Language Diversity with 'Mondly'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pathways-from-canadian-twang-to-british-cockney/"><u>Pronunciation Pathways: From Canadian Twang to British Cockney</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-and-write-fluently-in-latvia-just-10-minutes-of-practice/"><u>Speak and Write Fluently in Latvia - Just 10 Minutes of Practice</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-miniature-computers-comprehensive-testing-and-reviews-by-tech-experts-pcmag/"><u>Top-Rated Miniature Computers : Comprehensive Testing & Reviews by Tech Experts | PCMag</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/win-techniques-for-overcoming-power-saving-glitches/"><u>Win Techniques for Overcoming Power Saving Glitches</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

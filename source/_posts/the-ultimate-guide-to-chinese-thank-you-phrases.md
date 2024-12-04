@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Chinese Thank You Phrases
-date: 2024-10-31T06:50:17.537Z
-updated: 2024-11-05T05:10:06.431Z
+date: 2024-12-02T03:20:36.281Z
+updated: 2024-12-04T01:24:05.184Z
 tags:
   - speak
   - english
@@ -38,13 +38,14 @@ thumbnail: https://thmb.techidaily.com/6b74a794374950c8c7d33f01e283b8595a0e02efb
 
 ![thanks in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/thanks-in-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Xiangxi, China” by Theodor Lundqvist©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Thank you very much in Chinese
@@ -65,16 +66,7 @@ Other variations include:
 * Thank you SO much! – 太谢谢你了! –_Tài xiè xiè nǐ le!_
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Thank you for… in Chinese
@@ -92,14 +84,11 @@ Other variations include:
 
 ![xiexie chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/xiexie-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 3")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Jiaxing, China” by Jay©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Other ways to express your gratitude in Chinese
 
@@ -108,10 +97,7 @@ Other variations include:
  In fact, Chinese culture is known for its preference for modesty and humility. Deflecting a compliment rather than accepting it with a plain “thank you” is much more appreciated. Thus, another way to deflect a compliment (while secretly enjoying it) is to say 没有没有_méiyǒu méiyǒu_ – meaning “no, no, that’s nonsense”.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## BONUS: You’re welcome in Chinese
@@ -154,22 +140,16 @@ Other variations include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-launchpad-gear-list-enhance-your-beginners-gopro-journey/"><u>[New] Launchpad Gear List - Enhance Your Beginner's GoPro Journey</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-illuminating-path-to-stellar-android-video-quality/"><u>[Updated] Illuminating Path to Stellar Android Video Quality</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-pristine-movie-trailer-curated-list/"><u>[Updated] In 2024, Pristine Movie Trailer Curated List</u></a></li>
-<li><a href="https://win-able.techidaily.com/ace-your-audio-file-conversion-expert-strategies-for-turning-mpeg-into-high-quality-aac-on-pcs/"><u>Ace Your Audio File Conversion: Expert Strategies for Turning MPEG Into High-Quality AAC on PCs</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/dells-newest-xps-13-plus-revolutionizing-battery-efficiency-with-qualcomm-snapdragon-x-chips/"><u>Dell's Newest XPS 13 Plus: Revolutionizing Battery Efficiency with Qualcomm Snapdragon X Chips</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/discover-the-top-free-h265-encoded-uhd-media-players-of-2022-latest-rankings-and-picks/"><u>Discover the Top Free H.265 Encoded UHD Media Players of 2022 - Latest Rankings and Picks!</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/frei-verfugbare-techniken-fur-die-konvertierung-von-mts-videos-in-mp4-format/"><u>Frei Verfügbare Techniken Für Die Konvertierung Von MTS-Videos in MP4 Format</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-voyage-preparedness-top-93-essential-spanish-phrases/"><u>Global Voyage Preparedness: Top 93 Essential Spanish Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/innovative-approaches-to-learn-lithuanian-from-home/"><u>Innovative Approaches to Learn Lithuanian From Home</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-insights-into-turk-korean-exchange/"><u>Linguistic Insights Into Turk-Korean Exchange</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lively-latins-an-exhilarating-study-method/"><u>Lively Latins: An Exhilarating Study Method</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719575079088-major-focus-most-popular-foreign-languages-us/"><u>Major Focus: Most Popular Foreign Languages U.S.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilanguage-mastery-and-brain-power/"><u>Multilanguage Mastery and Brain Power</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-learn-bengali-courses-online/"><u>Quick-Learn Bengali Courses Online</u></a></li>
-<li><a href="https://change-location.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-best-resources-for-learning-japanese-online-on-your-own-and-for-free/"><u>The Best Resources For Learning Japanese Online, On Your Own, And For Free</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/war-thunder-2024-updates-how-to-prevent-frequent-game-crashes-and-enjoy-smooth-sessions/"><u>War Thunder 2024 Updates: How to Prevent Frequent Game Crashes and Enjoy Smooth Sessions</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-perfecting-your-sims-4-live-action/"><u>[New] In 2024, Perfecting Your Sims 4 Live Action</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/secure-download-optimized-geforce-rtx-3060-ti-driver-packs-perfect-for-windows-11-users/"><u>[Secure Download] Optimized GeForce RTX 3060 Ti Driver Packs - Perfect for Windows 11 Users</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/1715860744768-updated-essential-mac-screen-recorders-top-10-free-list/"><u>[Updated] Essential Mac Screen Recorders – Top 10 FREE List!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-how-to-watch-nba-in-real-time-15-effective-strategies/"><u>[Updated] In 2024, How to Watch NBA in Real Time 15 Effective Strategies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-crafting-video-magic-summit/"><u>2024 Approved Crafting Video Magic Summit</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-key-methods-for-gathering-high-end-video-backdrops/"><u>2024 Approved Key Methods for Gathering High-End Video Backdrops</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/endless-freedom-in-mondlys-deal/"><u>Endless Freedom in Mondly's Deal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-leadership-by-mastering-effective-communication-tools/"><u>Enhance Leadership by Mastering Effective Communication Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/epic-discount-lifetime-language-access-at-black-friday/"><u>Epic Discount: Lifetime Language Access at Black Friday!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everywheres-top-app-by-apple/"><u>Everywhere's Top App by Apple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-variations-in-back-and-filter-buttons-of-portuguese/"><u>Exploring the Variations in Back & Filter Buttons of Portuguese</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "De Talen Van Vaderland: Its Linguistic Roots"
-date: 2024-08-08T09:28:19.351Z
-updated: 2024-08-09T09:28:19.351Z
+date: 2024-11-30T20:14:02.996Z
+updated: 2024-12-03T21:40:01.366Z
 tags:
   - speak
   - english
@@ -21,8 +21,9 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
  It’s true that Dutch and_Deutsch_ look and sound somehow similar and there \*was\* a connection there. But not anymore. So let’s settle this out once and for all.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Where are Dutch people from?
 
  It’s pretty obvious why this confusion still exists. There’s no surprise that even the reverse of this question (“what are people from the Netherlands called?”) is also a very popular Google inquiry. So what is the answer after all?
@@ -30,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
  First, you should know that a demonym is a name used for the people who live in a particular country or state. Naturally, French people are from France,[Polish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) people are from Poland, and Italian people are from Italy. So where are Dutch people from?
 
 **The Dutch people are from the Netherlands.** As unrelated as that may seem, there is a whole history to it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Why are Dutch people called Dutch?
 
@@ -45,29 +50,17 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
 
  So where exactly in Western Europe is the Netherlands? The country borders Germany to the east,[Belgium](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to the south, and the North Sea to the northwest. Its largest city and capital is Amsterdam.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The Netherlands vs Holland
 
 Okay, bare with me. There’s more.
 
  **Many people mistake the Netherland for Holland, but Holland is in fact a region of the Netherlands.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![netherlands vs holland](https://edge.mondly.com/blog/wp-content/uploads/2022/02/netherlands-vs-holland.png "Where Are Dutch People From? Discover The Dutch Language 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The Netherlands vs Holland
 
@@ -75,9 +68,6 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  Formerly the County of Holland (the most important county in the Low Countries region), Holland now consists of North and South Holland. These are two of the nation’s twelve provinces.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## What language do they speak in the Netherlands?
 
  If you read the above explanations, you probably already understand the rationale.**People in the Netherlands speak the Dutch language.**
@@ -94,9 +84,6 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  ‘Tulip fields in the Netherlands’ by redcharlie©
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### What other countries speak Dutch?
 
  Having over 24 million speakers worldwide, Dutch is the official language of the Netherlands and, together with French and German, one of the three official languages of Belgium.
@@ -106,8 +93,9 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
  If you travel to South Africa, you may think people speak Dutch, but they actually speak [Afrikaans](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , a language that evolved from Dutch.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is German Dutch?
 
  Are Dutch and_Deutsch_ the same? Given all the evidence we’ve brought forth so far, we can safely say ‘no’.
@@ -120,6 +108,10 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Start learning Dutch today
 
@@ -141,8 +133,6 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -150,6 +140,26 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-excavate-extravagance-treasure-hunting-maps-ranked/"><u>[Updated] In 2024, Excavate Extravagance Treasure Hunting Maps Ranked</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-expert-tips-for-quality-video-with-nvidia/"><u>[Updated] In 2024, Expert Tips for Quality Video with NVIDIA</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-facebooks-best-eight-free-link-collector-tools/"><u>[Updated] In 2024, Facebook's Best Eight FREE Link Collector Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/15-wege-sich-abzuwesend-zu-pragnant-auszudrucken/"><u>15 Wege, Sich Abzuwesend Zu Prägnant Auszudrücken</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-youtube-srt-extraction-three-practical-approaches-for-downloading/"><u>2024 Approved YouTube SRT Extraction Three Practical Approaches for Downloading</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cinematic-journey-for-enhanced-communication-abilities/"><u>Cinematic Journey for Enhanced Communication Abilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-fongo-assessment-canadian-voip-solutions-evaluated/"><u>Comprehensive Fongo Assessment: Canadian VOIP Solutions Evaluated</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-french-novels-best-list-for-beginning-readers/"><u>Dive Into French Novels: Best List for Beginning Readers</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effortlessly-combine-the-power-of-different-bluetooth-speakers-using-one-controller-a-how-to-guide/"><u>Effortlessly Combine the Power of Different Bluetooth Speakers Using One Controller: A How-To Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/el-sistema-muscular-en-espanol-descubrimiento-desde-el-brazo-a-las-unas/"><u>El Sistema Muscular en Español: Descubrimiento Desde El Brazo A Las Uñas</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/how-to-restore-audio-on-your-vlc-player-comprehensive-guide-to-resolving-the-no-sound-issue/"><u>How to Restore Audio on Your VLC Player: Comprehensive Guide to Resolving the 'No Sound' Issue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/incrementa-tu-espanol-dias-por-dia/"><u>Incrementa Tu Español, Días Por Día</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-brings-immersive-language-learning-to-your-living-room-with-vr/"><u>Mondly Brings Immersive Language Learning to Your Living Room with VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-elevate-your-linguistic-skills/"><u>Mondly: Elevate Your Linguistic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-up-your-game-6-proven-tips-for-mastering-portuguese/"><u>Step Up Your Game - 6 Proven Tips for Mastering Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-voices-of-the-continent-asias-buzzwords/"><u>The Voices of the Continent: Asia's Buzzwords</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-complete-overcoming-cannot-link-to-wsnp-on-windows-systems/"><u>Troubleshooting Complete: Overcoming 'Cannot Link to WSNP' On Windows Systems</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/understanding-hypertext-comprehensive-guide-with-seo-strategies-and-key-definitions/"><u>Understanding Hypertext: Comprehensive Guide with SEO Strategies and Key Definitions</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-premiere-pro-essentials-20-free-title-and-intro-templates/"><u>Updated Premiere Pro Essentials 20 Free Title and Intro Templates</u></a></li>
+</ul></div>
 

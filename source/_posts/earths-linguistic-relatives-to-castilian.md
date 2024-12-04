@@ -1,7 +1,7 @@
 ---
 title: Earth’s Linguistic Relatives to Castilian
-date: 2024-08-08T09:27:04.886Z
-updated: 2024-08-09T09:27:04.886Z
+date: 2024-11-30T19:04:59.701Z
+updated: 2024-12-03T21:22:09.692Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/5f042bcf8e18adcc53cbb8d889707c4f827028b31
 
  Without further ado, let’s dive in and uncover the full list of Spanish-speaking countries. While we’re at it, we’ll also look into the history behind the expansion of the Spanish language and how many people [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How many people speak Spanish?
 
 **As of 2022, 548 million people speak Spanish worldwide.** This number includes both native and non-native speakers. However, the ‘unofficial’ number could be bigger than that.
@@ -43,8 +47,9 @@ thumbnail: https://thmb.techidaily.com/5f042bcf8e18adcc53cbb8d889707c4f827028b31
  Now just imagine how many new friends you could make if you started [learning Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) now!
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## List of Spanish-speaking countries
 
  **Formally, Spanish is the official language of 20 countries and one dependent territory: Argentina, Bolivia, Chile, Colombia, Costa Rica, Cuba, Dominican Republic, Ecuador, El Salvador, Equatorial Guinea, Guatemala, Honduras, Mexico, Nicaragua, Panama, Paraguay, Peru, Spain, Uruguay, Venezuela and Puerto Rico.**
@@ -59,9 +64,6 @@ thumbnail: https://thmb.techidaily.com/5f042bcf8e18adcc53cbb8d889707c4f827028b31
 
  Now let’s go into a little more detail and split the countries into continents.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Spanish-speaking countries in South America
 
  Since the Americas boast the highest number of Spanish-speaking countries in the world, we figured it’s best to start our exploration in South America. Out of the thirteen countries in the South American continent, nine are Spanish speaking. This means there are more Spanish-speaking countries here than anywhere else in the world.
@@ -78,6 +80,10 @@ thumbnail: https://thmb.techidaily.com/5f042bcf8e18adcc53cbb8d889707c4f827028b31
 * Uruguay — 98%
 * Venezuela — 97%
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Spanish-speaking countries in Central America
 
  Out of the seven countries in Central America, only Belize doesn’t have Spanish as its official language. However, the majority of the Belizeans can speak Spanish. Thus, if you’re planning a trip to Central America, speaking Spanish will definitely come in handy.
@@ -91,10 +97,6 @@ thumbnail: https://thmb.techidaily.com/5f042bcf8e18adcc53cbb8d889707c4f827028b31
 
  \* the number represents the percentage of the population who speak Spanish.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ### Spanish-speaking countries in North America
 
  Considering that the Spanish language came here from Europe a few centuries back, it’s fascinating that Mexico is the world’s most populous Hispanophone country. In addition to Spanish, the Mexican government recognizes 68 national languages, 63 of which are indigenous. Examples include Nahuatl, Yucatec Maya, Zapotec, Mixtec, Mayo, Yaqui, Tzeltal, Tzotzil, Chol, Totonac, Purépecha and more.
@@ -102,8 +104,9 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 * Mexico — 97% (percentage of the entire population speaking Spanish)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Spanish-speaking countries in the Caribbean
 
  If Mexico is the country with the most Spanish speakers in the world, Cuba is the country with the largest proportion of Spanish speakers in the world.
@@ -118,9 +121,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
 * Spain — 92% (percentage of the entire population speaking Spanish)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Spanish-speaking countries in Africa
 
  The one and only Spanish-speaking country in Africa is Equatorial Guinea. While unexpected, a bit of history reading will reveal that Equatorial Guinea was a Spanish colony, hence the official status of the language all the way here.
@@ -128,6 +128,10 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 * Equatorial Guinea — 74% (percentage of the entire population speaking Spanish)
 
 !['Spanish speakers' by Florian Wehde©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/spanish-speakers-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Countries where Spanish is spoken although it’s not an official language
 
@@ -156,9 +160,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ### Speak Spanish like a local fast
 
  Do you want to feel at home in over 20 countries and speak Spanish fluently fast? Try Mondly, the award-winning language app that is serious about making learning Spanish fun.
@@ -181,8 +182,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -190,6 +189,26 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ed-establishing-a-mac-based-sports-media-outlet/"><u>[Updated] Establishing a Mac-Based Sports Media Outlet</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-pc-strategies-for-acquiring-twitter-jokes-gifs/"><u>2024 Approved PC Strategies for Acquiring Twitter Jokes (GIFs)</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-vivo-y27-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/complete-tutorial-on-mac-hard-drive-protection-through-encryption-and-recovery/"><u>Complete Tutorial on Mac Hard Drive Protection Through Encryption and Recovery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connect-better-mondly-now-available-on-huawei/"><u>Connect Better: Mondly Now Available on Huawei</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/diagnosing-graphics-card-issues-a-comprehensive-guide-by-yl-software-professionals/"><u>Diagnosing Graphics Card Issues: A Comprehensive Guide by YL Software Professionals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/essential-submarine-cinematography-tools-for-gopro-for-2024/"><u>Essential Submarine Cinematography Tools for Gopro for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/improve-amd-rx-570-in-windows-with-latest-drivers-update/"><u>Improve AMD RX 570 in Windows with Latest Drivers Update</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-how-to-shoot-underwater-video-easily-with-7-tips/"><u>In 2024, How to Shoot Underwater Video Easily (with 7 Tips)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-of-love-july-4th-commemoration/"><u>Languages of Love, July 4Th Commemoration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-non-english-languages-in-us-academia/"><u>Leading Non-English Languages in US Academia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lively-lessons-for-a-fun-and-engaging-spanish-journey/"><u>Lively Lessons for a Fun and Engaging Spanish Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-secret-to-exceptional-communication-skills/"><u>Mondly's Secret to Exceptional Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-embraces-worldwide-linguistics-via-mondly/"><u>Oculus Quest Embraces Worldwide Linguistics via 'Mondly'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-asian-linguistic-trinity-backup-and-organize-lists/"><u>Premier Asian Linguistic Trinity: Backup & Organize Lists</u></a></li>
+<li><a href="https://android-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-samsung-galaxy-m14-5g-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Samsung Galaxy M14 5G FRP</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-realme-narzo-60-pro-5g-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Realme Narzo 60 Pro 5G ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/terms-update-enhanced-privacy-focus/"><u>Terms Update - Enhanced Privacy Focus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/travel-mastery-comprehensive-list-of-93-must-learn-spanish-expressions/"><u>Travel Mastery: Comprehensive List of 93 Must-Learn Spanish Expressions</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Dutch Language's Ancestral Journey
-date: 2024-11-22T17:13:06.697Z
-updated: 2024-11-24T20:59:15.713Z
+date: 2024-12-01T17:21:09.305Z
+updated: 2024-12-03T16:41:23.580Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/db39cf974b891a971b269fa1b5c545ac5598c4412
 
 **The Dutch people are from the Netherlands.** As unrelated as that may seem, there is a whole history to it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why are Dutch people called Dutch?
 
  It seems that the confusion stems from the English-speaking people and the reason can be found by studying **the [etymology](https://www.etymonline.com/word/dutch) of the word ‘dutch’** . I won’t bore you with all the details, but the bottom line is that in the late 14th century the word referred to ‘a German language’ or to ‘German, non-Scandinavian continental Germanic’. Additionally, the word corresponds to the Old English adjective_þeodisc_ (‘belonging to the people’) which was used to refer to the common language of Germanic people (as opposed to Latin).
@@ -36,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/db39cf974b891a971b269fa1b5c545ac5598c4412
 
  And this is not everything. Within the Holy Roman Empire, the word ‘Netherlands’ was widely used to indicate people from the low-lying (‘nether’) region (‘land’). That’s how ‘the Kingdom of the Netherlands’ got its name when it became a formal, separate country in 1815.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Where is the Netherlands?
 
  The Netherlands and the Kingdom of the Netherlands are two different entities. While the Netherlands is a country located in Western Europe, the Kingdom of the Netherlands is a comprehensive sovereign state consisting of four constituent countries: the Netherlands, Aruba, Curaçao, and Sint Maarten.
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/db39cf974b891a971b269fa1b5c545ac5598c4412
  So where exactly in Western Europe is the Netherlands? The country borders Germany to the east,[Belgium](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to the south, and the North Sea to the northwest. Its largest city and capital is Amsterdam.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The Netherlands vs Holland
@@ -58,15 +58,15 @@ Okay, bare with me. There’s more.
 
 ![netherlands vs holland](https://edge.mondly.com/blog/wp-content/uploads/2022/02/netherlands-vs-holland.png "Where Are Dutch People From? Discover The Dutch Language 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The Netherlands vs Holland
 
  It all goes back (again) to Old English. Originally referring to the people from the northern region of the Netherlands, ‘Holland’ literally meant ‘wood-land’. But over time, English speakers began to mistakenly associate it with the entire country.
 
  Formerly the County of Holland (the most important county in the Low Countries region), Holland now consists of North and South Holland. These are two of the nation’s twelve provinces.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What language do they speak in the Netherlands?
 
@@ -82,10 +82,6 @@ Okay, bare with me. There’s more.
 
 ![language in the netherlands](https://edge.mondly.com/blog/wp-content/uploads/2022/02/language-in-the-netherlands-960x573.jpg "Where Are Dutch People From? Discover The Dutch Language 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  ‘Tulip fields in the Netherlands’ by redcharlie©
 
 ### What other countries speak Dutch?
@@ -95,6 +91,10 @@ Okay, bare with me. There’s more.
  The Dutch language is also spoken in a small part of France and on the islands of Curaçao, Sint Maarten, Aruba (all three part of the Kingdom of the Netherlands), Bonaire, Saba, and Sint Eustatius.
 
  If you travel to South Africa, you may think people speak Dutch, but they actually speak [Afrikaans](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , a language that evolved from Dutch.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Is German Dutch?
 
@@ -110,7 +110,7 @@ Okay, bare with me. There’s more.
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Start learning Dutch today
@@ -142,17 +142,22 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-virtual-vice-games-resembling-gta-v-experience/"><u>[New] In 2024, Virtual Vice Games Resembling GTA V Experience</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-speech-file-extract-and-critical-assessment-for-2024/"><u>[Updated] Speech File Extract & Critical Assessment for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-efficient-facebook-video-upload-on-computer-and-mobile-systems/"><u>2024 Approved Efficient Facebook Video Upload on Computer & Mobile Systems</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/capture-every-moment-exploring-free-high-quality-cameras/"><u>Capture Every Moment – Exploring Free, High-Quality Cameras</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/compact-brilliance-unleashed-an-in-depth-review-of-the-apple-iphone-12-mini/"><u>Compact Brilliance Unleashed: An In-Depth Review of the Apple iPhone 12 Mini</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/high-ranking-asian-vernaculars-archive-access-swiftly/"><u>High-Ranking Asian Vernaculars: Archive, Access Swiftly</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-on-the-iphone-12-mini-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock On the iPhone 12 mini Without Previous Owner?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-motorola-edge-40-pro-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Motorola Edge 40 Pro Data? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/intrepid-infatuations-through-film/"><u>Intrepid Infatuations Through Film</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-diversity-leads-to-cognitive-strength/"><u>Language Diversity Leads to Cognitive Strength</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-worlds-with-free-unlimited-learning-up-to-96-off/"><u>Unlock Worlds with Free Unlimited Learning - Up to 96% Off</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-israeli-itinerary-crucial-guidance-and-language-basics/"><u>Your Israeli Itinerary: Crucial Guidance and Language Basics</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-seamless-content-propagation-beyond-youtube-and-facebook/"><u>[New] Seamless Content Propagation Beyond YouTube and Facebook</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-climb-the-popularity-ladder-essential-youtube-seo-practices-uncovered/"><u>[Updated] 2024 Approved Climb the Popularity Ladder Essential YouTube SEO Practices Uncovered</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-detailed-walkthrough-to-flawless-youtube-videos-using-imovie-software/"><u>[Updated] Detailed Walkthrough to Flawless YouTube Videos Using iMovie Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-significant-life-enhancements-through-languages/"><u>10 Significant Life Enhancements Through Languages</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unveiling-the-top-10-4k-computer-screens/"><u>2024 Approved Unveiling the #Top 10 4K Computer Screens</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-manieres-francaises-de-celebrer-laccueil/"><u>4 Manières Françaises De Célébrer L'Accueil</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-acknowledges-mondlys-stellar-performance-in-educational-arena/"><u>Apple Acknowledges Mondly's Stellar Performance in Educational Arena</u></a></li>
+<li><a href="https://video-capture.techidaily.com/choreographed-combat-selecting-superior-fighting-titles/"><u>Choreographed Combat Selecting Superior Fighting Titles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprehensive-insight-into-spanish-verbs/"><u>Comprehensive Insight Into Spanish Verbs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dispelling-top-5-myths-about-multilingualism/"><u>Dispelling Top 5 Myths About Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educators-conclave-the-future-of-learning/"><u>Educators’ Conclave - The Future of Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576193680-efficient-language-learning-10-minute-routines/"><u>Efficient Language Learning, 10-Minute Routines!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-global-citizenship-why-learning-a-language-after-40-makes-sense/"><u>Embrace Global Citizenship: Why Learning a Language After 40 Makes Sense</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-capture-flawless-underwater-images-easily-in-7-steps/"><u>In 2024, Capture Flawless Underwater Images Easily in 7 Steps</u></a></li>
+<li><a href="https://games-able.techidaily.com/tackling-uneven-display-quality-due-to-gpu-issues/"><u>Tackling Uneven Display Quality Due to GPU Issues</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-ultimate-guide-to-solving-iphone-n-th-3s-most-frequent-glitches/"><u>The Ultimate Guide to Solving iPhone N Th-3's Most Frequent Glitches</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-nokia-150-2023-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Nokia 150 (2023)? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

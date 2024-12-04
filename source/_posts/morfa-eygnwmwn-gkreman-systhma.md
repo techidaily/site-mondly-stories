@@ -1,7 +1,7 @@
 ---
 title: Μόρφα Ευγνώμων Γκρεμάν Συστήμα
-date: 2024-11-19T21:55:11.282Z
-updated: 2024-11-24T18:42:26.613Z
+date: 2024-12-02T17:42:01.610Z
+updated: 2024-12-03T17:23:59.722Z
 tags:
   - speak
   - english
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
  In this quick Greek lesson, we’ll show you only the practical ways to say thank you in Greek. The thanks you’ll actually need and use in real life. Additionally, we’ll also go over how to say ‘please’ or ‘you’re welcome’ in Greek. As a result, you’ll know exactly what to say and when to say it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What does efcharistó mean in Greek?
 
  **(Ευχαριστώ)_Efcharistó_ is the most popular way to say ‘thank you’ in Greek.** More similar to ‘thanks’ than ‘thank you’,[_efcharistó_](https://greekerthanthegreeks.com/2015/12/lost-in-translationword-of-day.html) is an informal way of expressing gratitude. Generally, it is most commonly used as a response to a small act of kindness or a basic courtesy from a friend, family member or colleague.
@@ -43,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
  If you are especially thankful to them, you can also say ευχαριστώ πολύ_(efcharistó poli)_ which means ‘thanks a lot’. Or even ευχαριστώ πάρα πολύ_(efcharistó para poli)_ meaning ‘thank you very much’.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The formal ‘thank you’ in Greek
@@ -56,11 +52,11 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
 ![taverna in Greece](https://edge.mondly.com/blog/wp-content/uploads/2021/10/thanks-in-greek-960x720.jpg "All The Best Ways To Say Thank You In Greek 3")
 
- “Mýkonos, Greece” by Johnny Chen©
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ “Mýkonos, Greece” by Johnny Chen©
 
 ## Examples of Greek thanks
 
@@ -74,7 +70,7 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 * Το εκτιμώ. _(To ektimó.)_ – I appreciate it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say ‘please’ and ‘you’re welcome’ in Greek
@@ -84,6 +80,10 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
  Well, the Greek παρακαλώ_(parakaló)_ works the same. If you want to say ‘please’ in Greek, you say παρακαλώ_(parakaló)._ If you want to say ‘you’re welcome’, παρακαλώ_(parakaló)_ works just fine again. If only everything would be so easy when learning Greek!
 
  But let’s not get ahead of ourselves and forget about the formal variation. To address someone older or a group of people, you should use the formal σας παρακαλούμε_(sas parakaloúme)_ . Did you recognize the_σας (sas)_ particle? If yes, then congratulations! That means you’re on the right track.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## When should you say ‘thank you’ in Greek?
 
@@ -95,7 +95,7 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in Greek
@@ -128,19 +128,22 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-laughlounge-beginner-friendly-content-creation/"><u>[New] In 2024, LaughLounge Beginner-Friendly Content Creation</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-choosing-free-video-editing-software-on-iphone-and-ipad/"><u>[Updated] In 2024, Choosing Free Video Editing Software on iPhone & iPad</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-optimal-gpus-for-high-res-media-production/"><u>2024 Approved Optimal GPUs for High Res Media Production</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/amp-up-illumination-basic-steps-to-lighten-iphone-films-for-2024/"><u>Amp Up Illumination Basic Steps to Lighten iPhone Films for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/delightful-stream-extractor-report/"><u>Delightful Stream Extractor Report</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/guia-paso-a-paso-para-recuperar-datos-de-backup-en-un-disco-seagate-externo/"><u>Guía Paso a Paso Para Recuperar Datos De Backup en Un Disco Seagate Externo</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-xiaomi-redmi-note-13-pro-5g-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Xiaomi Redmi Note 13 Pro 5G for Streaming | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-the-romantic-lexicon-of-hungarian/"><u>Learning the Romantic Lexicon of Hungarian</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-the-lifelong-education-platform-now-with-70-million-members/"><u>Mondly: The Lifelong Education Platform Now With 70 Million Members</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-latvian-lessons-for-efficient-learning/"><u>Quick Latvian Lessons for Efficient Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simple-steps-to-chatting-with-a-chinese-friend/"><u>Simple Steps to Chatting with a Chinese Friend</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tagalog-unlocked-quick-lessons-for-busy-lives/"><u>Tagalog Unlocked - Quick Lessons for Busy Lives</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unraveling-the-secrets-of-garmin-vivosmart-4-precision-in-measuring-body-battery-and-managing-stress-levels/"><u>Unraveling the Secrets of Garmin Vivosmart 4 - Precision in Measuring Body Battery and Managing Stress Levels</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vocabulinas-the-top-ten-arguments-for-language-learning/"><u>Vocabulinas: The Top Ten Arguments for Language Learning</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-librecam-x-live-streaming-experience-analyzed/"><u>[New] 2024 Approved LibreCam X Live Streaming Experience Analyzed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-streamline-your-watching-with-edge-free-youtube-content-for-2024/"><u>[Updated] Streamline Your Watching with Edge-Free YouTube Content for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-chronicle-of-unrestrained-learning-days/"><u>A Chronicle of Unrestrained Learning Days</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/advanced-conferencing-tech-for-businesses-for-2024/"><u>Advanced Conferencing Tech for Businesses for 2024</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/best-methods-for-streaming-pubg-mobile-gameplay-from-pc-or-mac/"><u>Best Methods for Streaming PUBG Mobile Gameplay From PC or Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/career-advancement-through-fluency-across-languages/"><u>Career Advancement Through Fluency Across Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-1500-free-daily-lessons/"><u>Celebrating 1500 Free Daily Lessons</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/celebrating-conversations-reddits-momentous-discussions-top-10-for-2024/"><u>Celebrating Conversations Reddit's Momentous Discussions (Top 10) for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-coup-intriguing-spanish-flirting-techniques/"><u>Conversational Coup: Intriguing Spanish Flirting Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivate-politeness-in-german-learn-these-16-thanks-phrases/"><u>Cultivate Politeness in German: Learn These 16 Thanks Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-modernity-learning-languages-with-contemporary-tools/"><u>Decoding Modernity: Learning Languages with Contemporary Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-why-arabic-online-mondly-lessons-and-advantages/"><u>Discover Why Arabic Online: Mondly Lessons & Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-learning-of-swedish-letters-and-tones/"><u>Effortless Learning of Swedish Letters & Tones</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/how-to-perform-mbr-table-recovery-for-windows-xp-through-win11-comprehensive-guide-and-steps/"><u>How to Perform MBR Table Recovery for Windows XP Through Win11 - Comprehensive Guide and Steps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-reimagine-realities-unlocking-the-potential-of-youtubes-greenscreens/"><u>In 2024, Reimagine Realities Unlocking the Potential of YouTube's Greenscreens</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-vivo-y36-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Vivo Y36 | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/open-iphone-sim-card-panel-without-ejector-pin-tips-and-tricks/"><u>Open iPhone Sim Card Panel without Ejector Pin – Tips & Tricks</u></a></li>
 </ul></div>
 

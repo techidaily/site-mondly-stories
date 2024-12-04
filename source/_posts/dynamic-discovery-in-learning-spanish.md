@@ -1,7 +1,7 @@
 ---
 title: Dynamic Discovery in Learning Spanish
-date: 2024-08-08T09:26:59.838Z
-updated: 2024-08-09T09:26:59.838Z
+date: 2024-12-02T18:01:09.859Z
+updated: 2024-12-03T20:45:44.003Z
 tags:
   - speak
   - english
@@ -21,8 +21,9 @@ thumbnail: https://thmb.techidaily.com/373ffad1cf53faed0d680dfb4d0a7667079f49182
  I know you are excited. I am too. “How is this even possible?” – you’ll ask. Well, here’s a hint: brilliant minds invented very cool and immensely useful pieces of software called “language learning apps” that can make language learning fun. The problem is that most language learning apps ignore Latin. But not this one. This [language learning app](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5440&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5440?mother%5Flang=en%5Fus?target%5Flang=la&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5440?mother%5Flang=en%5Fus?target%5Flang=la) will change the way we learn Latin forever. Read on to find out more and you won’t be disappointed.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How I learned Latin like a pro (and how you can too!)
 
  I know your pain. I’ve been there too. I hated Latin when I was in high school. I could not see the point of learning a dead language.
@@ -40,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/373ffad1cf53faed0d680dfb4d0a7667079f49182
 Here’s how.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Veni, vidi, vici
 
  “I came; I saw; I conquered” – that’s exactly what happened when I started learning Latin with Mondly. And you know what? It took me about 5 minutes to fall in love with Latin in Mondly. It’s so fun it becomes addictive! I now get Julius Caesar and how good it feels to win and finally achieve a goal that seemed impossible a few years ago.
@@ -63,8 +65,9 @@ Here’s how.
  Latin made fun with language learning app Mondly
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## _Carpe diem_ and learn Latin the fun way
 
  Life’s too short to learn Latin the boring way. That’s why Mondly made it fun.
@@ -73,10 +76,11 @@ Here’s how.
 
  **I mean, how cool is it to be able to learn a 2,000 years old language on a device that literally fits in your pocket?**
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![carpe diem latin](https://edge.mondly.com/blog/wp-content/uploads/2020/09/carpe-diem-latin-960x641.jpg "Back To School: Latin Made Fun And Easy For Students Of All Ages 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Carpe diem” by Mr Autthaporn Pradidpong©
 
@@ -90,8 +94,9 @@ Here’s how.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Speak Latin fluently in just 10 minutes a day
 
  The Latin language is no longer is secret code meant only for scholars or the Catholic Church. Starting right now, you can learn Latin with Mondly using bite-sized lessons and practical topics to help you discover how Romans conversed in their day-to-day life.
@@ -108,8 +113,6 @@ Here’s how.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -117,6 +120,21 @@ Here’s how.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/updated-implement-xps-video-editing-suite-instantly-for-2024/"><u>[Updated] Implement XP's Video Editing Suite Instantly for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-cross-platform-video-playback-made-easy-with-chromes-pip/"><u>[Updated] In 2024, Cross-Platform Video Playback Made Easy with Chrome's PIP</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-honor-play-7t-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Honor Play 7T</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Oppo Reno 11F 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/animate-online-with-ease-the-5-best-stop-motion-makers-for-2024/"><u>Animate Online with Ease The 5 Best Stop Motion Makers for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-blocks-mastering-russian-number-skills/"><u>Building Blocks: Mastering Russian Number Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cognitive-enrichment-in-your-forties-top-reasons-to-learn-a-language-later-in-life/"><u>Cognitive Enrichment in Your Forties: Top Reasons to Learn a Language Later in Life</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-can-we-bypass-nokia-c110-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Nokia C110 FRP?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-transform-conference-dynamics-altering-backgrounds-on-chrome/"><u>In 2024, Transform Conference Dynamics Altering Backgrounds on Chrome</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577142908-join-our-free-access-family-get-lifetime-mondly-pro-for-no-cost/"><u>Join Our Free Access Family - Get Lifetime Mondly Pro for No Cost !</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifetime-savings-on-mondly-gold/"><u>Lifetime Savings on Mondly Gold</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nine-tricks-to-turn-you-into-a-persuasive-english-orator/"><u>Nine Tricks to Turn You Into a Persuasive English Orator</u></a></li>
+<li><a href="https://common-error.techidaily.com/ultimate-guide-resolving-windows-update-configuration-mishaps/"><u>Ultimate Guide: Resolving Windows Update Configuration Mishaps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/word-whizzes-discover-ultimate-term/"><u>Word Whizzes Discover Ultimate Term</u></a></li>
+</ul></div>
 

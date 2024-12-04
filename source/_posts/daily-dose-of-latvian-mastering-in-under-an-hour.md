@@ -1,7 +1,7 @@
 ---
 title: "Daily Dose of Latvian: Mastering in Under an Hour"
-date: 2024-08-08T09:26:57.830Z
-updated: 2024-08-09T09:26:57.830Z
+date: 2024-12-01T02:12:47.184Z
+updated: 2024-12-03T20:16:53.465Z
 tags:
   - speak
   - english
@@ -21,8 +21,9 @@ thumbnail: https://thmb.techidaily.com/ba7c57a899f8cd5c799f88c7d2899c692ee461941
  Consisting of super fun, efficient and accessible language lessons, the new Latvian course is now available on [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4558&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv) ,[Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4558&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv) and [web](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4558&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Latvian language in a nutshell
 
  Also known as “Lettish”, the Latvian language is the official language of Latvia and one of the 24 official languages of the European Union.
@@ -33,16 +34,18 @@ thumbnail: https://thmb.techidaily.com/ba7c57a899f8cd5c799f88c7d2899c692ee461941
 
  When it comes to Latvian grammar, the most important aspects you should know are that primary word stress is on the first syllable (with a few exceptions), word order is relatively free (but the unmarked order is subject–verb–object) and that there are no articles in Latvian and definiteness is expressed by the adjective’s ending.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![latvian language course](https://edge.mondly.com/blog/wp-content/uploads/2020/03/latvian-language-course-277x600.jpg "Learn Latvian Online In Just 10 Minutes A Day 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Learn Latvian with Mondly
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How similar are Latvian and Lithuanian?
 
  As a Baltic language, Latvian is most closely related to sister language [Lithuanian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Linguists even claim that, for quite some time, **Latvian and Lithuanian were different dialects of the same language.** However, Latvian has followed a more rapid development that made the two contemporary languages rather different.
@@ -50,8 +53,9 @@ thumbnail: https://thmb.techidaily.com/ba7c57a899f8cd5c799f88c7d2899c692ee461941
  Unsurprisingly, Latvian and Lithuanian do share a lot of features, but they are not mutually intelligible enough to make conversation possible.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How similar are Latvian and Russian?
 
  These days you can’t talk about the Latvian language if you don’t mention [Russian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as well.
@@ -70,9 +74,9 @@ thumbnail: https://thmb.techidaily.com/ba7c57a899f8cd5c799f88c7d2899c692ee461941
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Speak Latvian today
 
  It can be really tricky to master Latvian pronunciation if you don’t actively live in Latvia. But with Mondly, the award-winning language learning app, you’ll have access to a unique, fast and highly efficient learning method that allows you to learn Latvian naturally with practical topics, authentic conversations and bite-sized Daily Lessons.
@@ -87,8 +91,6 @@ thumbnail: https://thmb.techidaily.com/ba7c57a899f8cd5c799f88c7d2899c692ee461941
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -96,6 +98,23 @@ thumbnail: https://thmb.techidaily.com/ba7c57a899f8cd5c799f88c7d2899c692ee461941
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-critically-acclaimed-phone-and-desktop-video-calls-list/"><u>[New] Critically Acclaimed Phone and Desktop Video Calls List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-integrating-timestamps-youtube-video-link-enhancement-techniques/"><u>[New] Integrating Timestamps YouTube Video Link Enhancement Techniques</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-enhance-your-livestream-quality-learn-4-innovative-techniques/"><u>[Updated] 2024 Approved Enhance Your Livestream Quality Learn 4 Innovative Techniques</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-metaversal-journey-versus-omniverse-quest/"><u>[Updated] Metaversal Journey Versus Omniverse Quest</u></a></li>
+<li><a href="https://win-hot.techidaily.com/1-ultimate-guide-essential-tools-and-tips-for-successful-remote-work-zdnet/"><u>1. Ultimate Guide: Essential Tools & Tips for Successful Remote Work - ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-strategies-for-perfecting-english-grammar-with-esl-insight/"><u>8 Strategies for Perfecting English Grammar with ESL Insight</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-deep-dive-into-metaverse-vs-multi-meva-key-differences-explored/"><u>A Deep Dive Into Metaverse Vs. Multi-Meva Key Differences Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exacting-education-pearsons-gsl-meets-mondly/"><u>Exacting Education: Pearson’s GSL Meets Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/flirting-in-german-success-strategies/"><u>Flirting in German: Success Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hellenic-heirs-language-legacy-and-current-usage/"><u>Hellenic Heirs: Language Legacy & Current Usage</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-apple-iphone-15-location-is-wrong-drfone-by-drfone-virtual-ios/"><u>How to Fix My Apple iPhone 15 Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-poco-f5-5g-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Poco F5 5G to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-afrikaans-unveil-how-mondly-makes-learning-easy-and-effective/"><u>Mastering Afrikaans: Unveil How Mondly Makes Learning Easy & Effective</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-premium-lifetime-no-cost-plan/"><u>Mondly Premium: Lifetime, No-Cost Plan</u></a></li>
+<li><a href="https://windows11.techidaily.com/resolving-system-image-error-code-0x80780119-in-windows/"><u>Resolving System Image Error: Code 0X80780119 in Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tage-der-woche-deutsche-sprachreise-antreten/"><u>Tage Der Woche: Deutsche Sprachreise Antreten</u></a></li>
+</ul></div>
 

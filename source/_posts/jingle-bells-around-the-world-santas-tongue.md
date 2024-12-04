@@ -1,7 +1,7 @@
 ---
 title: Jingle Bells Around the World - Santa's Tongue
-date: 2024-11-22T21:32:59.383Z
-updated: 2024-11-24T22:50:22.095Z
+date: 2024-11-27T03:35:07.304Z
+updated: 2024-12-03T20:26:35.597Z
 tags:
   - speak
   - english
@@ -20,12 +20,16 @@ thumbnail: https://thmb.techidaily.com/a1e8fe269369af735ad826d0f64961c6d5b364117
 
  Examining the Santa legend from the perspective of language learning is interesting. If Santa Claus was a real person today, what language would he speak? The area where the real St. Nicholas originated was once called Lycia, and the official language was Greek. Therefore, we can determine that Greek was Santa’s first spoken language.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Santa Claus in Various Cultures: Christmas in All Foreign Languages
 
  A variety of countries have their own legends about Santa, which is why he’s become such an interesting symbol of Christmas worldwide.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Santa Claus in Norway
@@ -34,12 +38,16 @@ thumbnail: https://thmb.techidaily.com/a1e8fe269369af735ad826d0f64961c6d5b364117
 
  The Norwegian contribution to the Santa legend means that Santa is likely fluent in Norwegian. That’s a wonderful thing for Norwegian kids, who send over 30,000 letters to Santa Claus each year. If Santa didn’t speak Norwegian, the kids would have to learn a language before writing him!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Santa Claus in Mexico
 
  Christmas is an exciting part of the year for Mexican families, lasting from December to the second day of February, a holiday known as Candelaria. Epiphany is another special holiday that marks the season. It takes place on the sixth day of the [new year](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and involves presents being left by the Three Kings. Visits from Santa can be expected on Christmas Eve, same as in most other cultures around the world. Since he’s been responding to the wishes of Spanish-speaking children in Mexico for many years, it makes sense to believe that Santa is [fluent in Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Santa Claus in Russia
@@ -48,16 +56,12 @@ thumbnail: https://thmb.techidaily.com/a1e8fe269369af735ad826d0f64961c6d5b364117
 
  Even if the story is a bit different, the Russians seem to have a strong grasp on the Santa concept. That must mean that Santa has spent time in the country and can certainly [speak Russian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as a result!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Santa Claus in Sweden
 
  If you expected Sweden to have its own spin on the Santa tale, you were correct. The [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) version of Santa is known as Jultomten, which translates to the Christmas gnome. He brings presents to children with the help of other gnomes, similar to the elf legend we see in other versions of the story. In Sweden, Christmas extends all the way to January 13th, when Christmas trees are officially taken down. With all that extra time in Sweden, it makes sense that Santa would have picked up Swedish.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Santa Claus in Finland
@@ -68,10 +72,6 @@ thumbnail: https://thmb.techidaily.com/a1e8fe269369af735ad826d0f64961c6d5b364117
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Learn a Language Like Santa: It Won’t Take Long
 
@@ -94,16 +94,15 @@ thumbnail: https://thmb.techidaily.com/a1e8fe269369af735ad826d0f64961c6d5b364117
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/updated-transform-your-digital-experience-with-these-top-20-unlimited-no-cost-cloud-storages-1tbplus/"><u>[Updated] Transform Your Digital Experience With These Top 20 Unlimited, No-Cost Cloud Storages (1TB+)</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-instagram-to-facebook-in-a-flash-easy-connection-methods/"><u>2024 Approved Instagram to Facebook in a Flash Easy Connection Methods</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-rapid-execution-instant-clearance-of-signature-bg/"><u>In 2024, Rapid Execution Instant Clearance of Signature Bg</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Motorola Moto G73 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-foreign-languages-in-american-education/"><u>Leading Foreign Languages in American Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lifelong-learning-in-your-golden-years-the-advantages-of-embracing-multilingualism/"><u>Lifelong Learning in Your Golden Years: The Advantages of Embracing Multilingualism</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/mastering-iphone-screenshots-and-recording-tips-from-zdnet/"><u>Mastering iPhone Screenshots and Recording: Tips From ZDNet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-language-of-love-in-france-100plus-key-expressions/"><u>The Language of Love in France: 100+ Key Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/travel-like-an-insider-100plus-expressions-to-speak-in-italy/"><u>Travel Like an Insider: 100+ Expressions to Speak in Italy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/us-english-features-versus-british/"><u>US English Features Versus British</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-samsung-galaxy-m34-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-yogic-alchemy-transform-your-body-mind-and-spirit/"><u>[New] In 2024, Yogic Alchemy - Transform Your Body, Mind & Spirit</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-elites-choice-top-6-superior-4k-dslr-powerhouses/"><u>[Updated] Elite's Choice Top 6 Superior 4K DSLR Powerhouses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/challenges-in-learning-german/"><u>Challenges in Learning German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-social-skills-with-these-top-italian-greetings/"><u>Elevate Your Social Skills with These Top Italian Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevating-language-instruction-through-ai-systems/"><u>Elevating Language Instruction Through AI Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embark-on-reading-in-france-with-these-top-20-novels/"><u>Embark on Reading in France with These Top 20 Novels</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://win-superb.techidaily.com/how-to-recover-information-is-it-possible-to-restore-an-sd-card-post-format-processing/"><u>How to Recover Information: Is It Possible to Restore an SD Card Post-Format Processing?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-how-to-see-every-participant-in-google-meet/"><u>In 2024, How to See Every Participant in Google Meet?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/troubleshooting-error-connecting-to-the-apple-id-server-on-iphone-14-plus-by-drfone-ios/"><u>Troubleshooting Error Connecting to the Apple ID Server On iPhone 14 Plus</u></a></li>
 </ul></div>
 

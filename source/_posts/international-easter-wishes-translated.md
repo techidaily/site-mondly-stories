@@ -1,7 +1,7 @@
 ---
 title: International Easter Wishes Translated
-date: 2024-11-23T20:15:42.649Z
-updated: 2024-11-24T22:30:45.069Z
+date: 2024-12-02T18:12:16.150Z
+updated: 2024-12-03T23:31:41.275Z
 tags:
   - speak
   - english
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/1eb9ced51df0b5377c33b33676973c39490da0549
 ## International Easter Wishes Translated
 
  Apart from their significant religious symbolism, the Easter holidays provide a wonderful opportunity to unwind, spend quality time with our loved ones and maybe reconnect with old friends. Regardless of our religious beliefs, Easter will always be about togetherness, enjoying the long-awaited spring (in the Northern Hemisphere) and the Easter bunny, of course! If you too wish to rekindle your friendship with a friend living abroad this Easter, why not join us in learning how to wish them “Happy Easter” in different languages?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## _Happy Easter_ in different languages
 
@@ -59,25 +63,21 @@ thumbnail: https://thmb.techidaily.com/1eb9ced51df0b5377c33b33676973c39490da0549
 
  Christians celebrate Easter as a happy holiday because it fulfills the Old Testament prophecies and shows God’s plan to save everyone. Easter celebrates the Resurrection of Jesus Christ, which defeated death on the third day and gives hope for salvation. Christians believe that Jesus’ death paid for humanity’s sins and his Resurrection gives believers hope for their own resurrection.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What day is Easter?
 
  Easter is a “movable feast”, which means that it does not occur on a fixed date every year. Instead, it is celebrated on the first Sunday following the first full moon after the spring equinox (which falls on March 21), according to the Gregorian calendar. This means Easter can be observed on a Sunday between March 22 and April 25\. However, the Eastern Orthodox Church follows a slightly different method of calculation, which is based on the Julian calendar. As a result, Easter in the Eastern Orthodox tradition can fall on any Sunday between April 4 and May 8.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Happy Easter In Different Languages &Amp; Easter Traditions 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Language learning made easy
 
  Build practical language skills for real life with Mondly.
 
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-7544&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-7544%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is the Easter bunny real? Easter bunny origins
 
@@ -99,6 +99,10 @@ thumbnail: https://thmb.techidaily.com/1eb9ced51df0b5377c33b33676973c39490da0549
 
  In the 1700s, German immigrants reportedly brought over their tradition of an egg-laying hare called “Osterhase” or “Oschter Haws” from the Old Country to America. According to legend, children would create nests for the bunny to leave his colorful eggs. The custom spread across America, and over time, the Easter Bunny’s delivery of treats expanded to include chocolate and toys.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is the Easter egg hunt tradition?
 
  It might seem like a mistake to say that the Easter Bunny lays eggs since rabbits are mammals and give birth to live young. However, both rabbits and eggs are ancient symbols of fertility and renewal and have long been associated with the celebration of Easter. For Christians, Easter eggs have a special meaning as the egg symbol was likened to the tomb from which Christ arose. Decorating eggs for Easter has been a tradition since the 13th century when eggs were forbidden during Lent. By decorating eggs, people would make eating them on Easter Sunday even more special after the fasting period was over.
@@ -106,10 +110,6 @@ thumbnail: https://thmb.techidaily.com/1eb9ced51df0b5377c33b33676973c39490da0549
  **The custom of the Easter egg hunt dates back to the late 16th century when the Protestant reformer Martin Luther organized egg hunts for his congregation.** In a nod to the story of the resurrection, in which the empty tomb was discovered by women, men would hide the eggs for women and children to find.
 
  Nowadays, the Easter egg hunt has become a fun activity enjoyed by children and parents alike.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Easter traditions around the world
 
@@ -140,15 +140,15 @@ thumbnail: https://thmb.techidaily.com/1eb9ced51df0b5377c33b33676973c39490da0549
 
 !['Happy Easter' by Priscilla Du Preez©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/happy-easter-960x640.jpg "Happy Easter In Different Languages &Amp; Easter Traditions 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Spanish – _¡Felices Pascuas!_
 
  ‘Easter’ in Spanish is_Pascuas_ . As previously mentioned, the Paschal greeting in Spanish is_“Cristo ha resucitado! – En verdad ha resucitado!”;_ however, Spanish people don’t really use it. Instead, they say_Felices Pascuas_ (‘Happy Easter’) or simply_Felices Fiestas_ which means ‘Happy Holidays’.
 
  The Easter menu during La Semana Santa (‘The Holy Week’) includes_torrijas_ which is a kind of French toast and_potaje de vigilia_ which is a chickpea soup.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. French –_Joyeuses Pâques !_
 
@@ -157,7 +157,7 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
  Other Easter traditions in France include chocolate, the Easter bells_(_ _Les cloches de Pâques)_ and the classic rabbits and eggs, of course!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. German –_Frohe Ostern!_
@@ -182,21 +182,25 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
 
 In both countries, people eat salt cod on Good Friday.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Turkish –_Paskalyanız kutlu olsun!_
 
  Considering that 99 percent of the Turkish population is Muslim, it’s safe to say that Turkey doesn’t really celebrate Easter. However, some Christian Turkish citizens do.
 
  While you can say_Paskalyanız kutlu olsun_ to wish someone a Happy Easter in Turkish,_Paskalya Bayramınız kutlu olsun_ is the more “correct” version. Adding_“bayram”_ gives the meaning of having a holiday to celebrate.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. Romanian –_Paște Fericit!_
 
  Romania is a highly religious country, so Easter is a significant celebration for Romanians. During the three days of Easter (and even after), most locals will greet each other using the Paschal greeting_Hristos a Înviat – Adevărat a Înviat_ which means “Christ is Risen! – Truly He is Risen!”.
 
  Following the period of Lent (in varying degrees of strictness), the traditional Easter menu in Romania includes_cozonac_ (which is a type of sweet bread with nuts and Turkish delight),_drob_ (made from minced up offal and entrails) and oven-cooked lamb.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Polish –_Wesołego Alleluja!_
 
@@ -208,10 +212,6 @@ In both countries, people eat salt cod on Good Friday.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Learn languages as fast as the Easter Bunny
 
@@ -246,24 +246,18 @@ In both countries, people eat salt cod on Good Friday.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-blog.techidaily.com/solution-available-fix-for-origin-not-opening-in-windows-11/"><u>[Solution Available] Fix for Origin Not Opening in Windows 11</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-setting-up-your-gaming-studio-with-obs/"><u>[Updated] 2024 Approved Setting Up Your Gaming Studio with OBS</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-top-5-game-ready-keyboards-under-100-a-comparison/"><u>[Updated] 2024 Approved Top 5 Game-Ready Keyboards Under $100 – A Comparison</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-blueprints-of-bliss-building-a-virtual-mc-village-home-for-2024/"><u>[Updated] Blueprints of Bliss Building a Virtual MC Village Home for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-honor-100-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Honor 100 to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/6-effective-fixes-for-iphones-with-constant-emergency-mode-alerts-in-status-bar/"><u>6 Effective Fixes for iPhones with Constant Emergency Mode Alerts in Status Bar</u></a></li>
-<li><a href="https://network-issues.techidaily.com/fix-unregistered-display-unit/"><u>Fix Unregistered Display Unit</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/guia-claro-y-concisa-3-formas-efectivas-de-quitar-windows-11-sin-problemas/"><u>Guía Claro Y Concisa: 3 Formas Efectivas De Quitar Windows 11 Sin Problemas</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-oppo-a78-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Oppo A78 FRP</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jours-francais-de-lannee/"><u>Jours Français De L'Année</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-fluency-vs-grammatical-correctness/"><u>Language Fluency Vs. Grammatical Correctness</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-leaders-pioneers-of-21st-century-education/"><u>Language Learning Leaders: Pioneers of 21St Century Education</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mov-playback-issues-on-redmi-13c-by-aiseesoft-video-converter-play-mov-on-android/"><u>MOV playback issues on Redmi 13C</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/online-linguistic-landscape-mondlys-triumph-in-germany/"><u>Online Linguistic Landscape: Mondly’s Triumph in Germany</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapidly-learn-french-for-visual-vibrancy/"><u>Rapidly Learn French for Visual Vibrancy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-an-aussie-top-100-slang-guide/"><u>Speak Like an Aussie: Top 100 Slang Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/startende-deutsche-nummerierung-von-eins-bis-hundert-schrittweise-lernen/"><u>Startende Deutsche Nummerierung: Von Eins Bis Hundert Schrittweise Lernen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tales-of-transformation-two-years-mondly-languages-dream-realized/"><u>Tales of Transformation: Two Years, Mondly Languages Dream Realized</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/true-insights-on-languages-beyond-the-popular-myths/"><u>True Insights on Languages: Beyond the Popular Myths</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-astro-bio-revolution-crafting-signature-whatsapp-identities/"><u>[Updated] Astro-Bio Revolution Crafting Signature WhatsApp Identities</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-optimal-tools-to-convert-and-tweet-videos/"><u>[Updated] In 2024, Optimal Tools to Convert and Tweet Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/americas-favored-international-language-education-choices/"><u>America's Favored International Language Education Choices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-barriers-learn-languages-anywhere-mondlys-vr-language-program/"><u>Break Barriers, Learn Languages Anywhere - Mondly's VR Language Program</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-conversations-with-these-top-50-latin-quotables/"><u>Elevate Conversations with These Top 50 Latin Quotables</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embarking-on-the-most-suitable-new-language-learning-adventure/"><u>Embarking On The Most Suitable New Language Learning Adventure</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enhancing-display-performance-the-drivers-way-on-win1011/"><u>Enhancing Display Performance: The Drivers' Way on WIN10/11</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/get-the-most-out-of-prime-early-access-transition-to-prime-student-membership-pre-prime-day-explained-zdnet/"><u>Get the Most Out of Prime Early Access - Transition to Prime Student Membership Pre-Prime Day Explained | ZDNet</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-huawei-nova-y91-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581366510-huaweis-appgallery-unveils-new-player-mondly/"><u>Huawei's AppGallery Unveils New Player, Mondly!</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-social-networking-101-registering-with-facebook/"><u>In 2024, Social Networking 101 Registering with Facebook</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/save-and-share-your-publications-with-ease-using-flipbuilder-office-integration/"><u>Save and Share Your Publications with Ease Using FlipBuilder - Office Integration</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-xiaomi-14-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Xiaomi 14 Device</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Overcoming the Silence: Speaking Each Other's Languages"
-date: 2024-11-21T23:24:18.343Z
-updated: 2024-11-24T20:01:41.271Z
+date: 2024-11-28T17:37:14.372Z
+updated: 2024-12-03T16:59:38.847Z
 tags:
   - speak
   - english
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
  And it’s all fun and games until someone asks, “what are you thinking about?”. If answering this mythical question was hard before, imagine how challenging it becomes now that you are dating someone with bad English or no English at all. So take it from me and don’t go there! Abort mission! Practice some more and only then you’ll be ready for this quest. But you knew that already, didn’t you?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. You never run out of things to say to each other
@@ -54,10 +54,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
 ![dating language barrier](https://media.giphy.com/media/xUA7aYMO79CzQNMfJe/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. You eventually become bilingual
 
  And that’s not a bad thing at all! If love is strong, so is your desire to [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You know it. You probably did it already.
@@ -76,6 +72,14 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
 ![overcoming language barriers](https://media.giphy.com/media/12nfFCZA0vyrSw/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. You come up with a sign language of your own
 
  If there’s no language bridge between you two, you have to come up with creative ideas. That’s how your secret communication code got created.
@@ -83,7 +87,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![dating bad english](https://media.giphy.com/media/6tNOhcNvvynPa/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 7")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. You focus less on words and more on action
@@ -93,11 +97,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![flirting language barrier](https://media.giphy.com/media/LoJjkPAVF8UH6/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. You absolutely love hearing him or her speak
@@ -111,7 +111,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 Watch at your own risk! They might steal your heart!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10\. You constantly get the reassurance of being truly and honestly loved
@@ -156,22 +156,17 @@ Watch at your own risk! They might steal your heart!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-achieving-youtube-success-increasing-followers-quickly/"><u>[Updated] 2024 Approved Achieving YouTube Success Increasing Followers Quickly</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-key-players-in-asmr-youtube-world/"><u>[Updated] Key Players in ASMR YouTube World</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-monetization-techno-gamerz-youtube-income-2024/"><u>[Updated] YouTube Monetization Techno Gamerz YouTube Income 2024</u></a></li>
-<li><a href="https://win-lab.techidaily.com/das-effiziente-iphone-reset-ohne-itunes-zwei-methoden/"><u>Das Effiziente iPhone-Reset Ohne iTunes: Zwei Methoden</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/ethereal-time-extended-recording-for-2024/"><u>Ethereal Time-Extended Recording for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/frontier-of-film-virtual-realities-in-theaters-for-2024/"><u>Frontier of Film Virtual Realities in Theaters for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/join-the-new-years-club-dive-into-mondly-pro-at-a-low-cost/"><u>Join the New Year's Club - Dive Into Mondly Pro at a Low Cost!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-catalan-online-in-just-10-minutes-a-day/"><u>Learn Catalan Online In Just 10 Minutes A Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-for-living-top-10-reasons-to-be-bilingual-or-multilingual/"><u>Learning for Living: Top 10 Reasons to Be Bilingual or Multilingual</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-basic-russian-salutations-and-vocabulary/"><u>Mastering Basic Russian Salutations and Vocabulary</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-joins-forces-with-pearson-academics-group/"><u>Mondly Joins Forces with Pearson Academics Group</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mornings-unleashed-the-many-faces-of-good-morning-worldwide/"><u>Mornings Unleashed: The Many Faces of Good Morning Worldwide</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolved-writing-issue-with-addressed-0xmemory-location/"><u>Resolved: Writing Issue with Addressed 0xMemory Location</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/simplycapture-windows-screens-in-minutes-for-2024/"><u>SimplyCapture - Windows Screens in Minutes for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nsiders-method-for-youtube-livestreaming-in-full-circle/"><u>The Insider's Method for Youtube Livestreaming in Full Circle</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-quick-guide-to-korean-mastery-6-recommended-digital-platforms/"><u>The Quick Guide to Korean Mastery - 6 Recommended Digital Platforms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/todays-worldwide-winning-apple-app/"><u>Today's Worldwide Winning Apple App</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-can-i-share-videos-on-facebook/"><u>2024 Approved Can I Share Videos on Facebook?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-vivo-v27e-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Vivo V27e FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580797196-europes-vibrant-verbal-tapestry-celebrate-it-today/"><u>Europe's Vibrant Verbal Tapestry – Celebrate It Today!</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Samsung Galaxy XCover 7? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-shopping-guide-to-top-10-mystery-boxes-purchase-sites/"><u>In 2024, Shopping Guide to Top 10 Mystery Boxes Purchase Sites</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-vloggers-ultimate-gear-list-17-100/"><u>In 2024, Vloggers' Ultimate Gear List #17-100</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-friendship-starters/"><u>International Friendship Starters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mundo-semanal-en-espanol-no-olvides-desde-martes-hasta-domingo/"><u>Mundo Semanal en Español: No Olvides Desde Martes Hasta Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/palabras-comunes-en-ingles-y-espanol-cognados-realizadores/"><u>Palabras Comunes en Inglés Y Español: Cognados Realizadores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/picks-of-the-best-danish-features-for-lingo-proficiency/"><u>Picks of the Best Danish Features for Lingo Proficiency</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Tecno Spark 10 Pro | Dr.fone</u></a></li>
 </ul></div>
 

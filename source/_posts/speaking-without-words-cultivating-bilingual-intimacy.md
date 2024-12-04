@@ -1,7 +1,7 @@
 ---
 title: "Speaking Without Words: Cultivating Bilingual Intimacy"
-date: 2024-11-23T17:14:02.715Z
-updated: 2024-11-24T23:29:04.300Z
+date: 2024-12-01T21:03:13.441Z
+updated: 2024-12-03T20:54:30.382Z
 tags:
   - speak
   - english
@@ -24,11 +24,19 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
 
  Back to the fun side of dating**someone who doesn’t speak your native tongue** , here are 10 funny or just downright real situations you’ll understand only if you ever dated a foreigner.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. You get frustrated. A lot
 
  If your name is not Harry Potter, chances are you won’t magically wake up one day knowing a foreign language. So, dating someone who doesn’t speak English can get really frustrating sometimes. Especially in the beginning, things can get really complicated because you are never sure if you got them right.
 
 ![dating a foreigner](https://media.giphy.com/media/CmqNynXoenYnm/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  And it’s all fun and games until someone asks, “what are you thinking about?”. If answering this mythical question was hard before, imagine how challenging it becomes now that you are dating someone with bad English or no English at all. So take it from me and don’t go there! Abort mission! Practice some more and only then you’ll be ready for this quest. But you knew that already, didn’t you?
 
@@ -42,6 +50,10 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
 
  You either go through the entire dictionary or use the brilliance of Mondly to learn the language before one can say Jack Robinson.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. You deal with a lot of unfortunate translations
 
  Overcoming language barriers in a relationship can be hard when there’s no humor involved. So don’t hesitate to make the most of your funny and unfortunate translations! For example, if you are flirting and there’s a [Spanish language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) barrier between you two, don’t forget that “molestar” actually means “to annoy” in Spanish and not “to molest” (hahaha!).
@@ -49,14 +61,6 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
  The same goes with “embarazada”! “Embarazada” means “pregnant” in Spanish and not “embarrassed” – as one might think. So be careful with that one! Really tricky!
 
 ![dating language barrier](https://media.giphy.com/media/xUA7aYMO79CzQNMfJe/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 5")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. You eventually become bilingual
 
@@ -68,10 +72,6 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
 
  Well… obviously! Do you know what a [hullabaloo](https://dictionary.cambridge.org/dictionary/english/hullabaloo) is? Because that’s how you’ll look like if you fight in public. What can I say?! An absolute delight for strangers.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. The idea of meeting “the friends” suddenly becomes way more intimidating
 
  That’s especially true if you are in a long-distance relationship with the language barrier tangled in your romance to make it tougher. That daunting moment when you know you have to meet his or her foreign friends is only maybe surpassed by meeting the parents.
@@ -81,11 +81,7 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
 ![overcoming language barriers](https://media.giphy.com/media/12nfFCZA0vyrSw/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 6")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. You come up with a sign language of your own
@@ -100,6 +96,10 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
 
 ![flirting language barrier](https://media.giphy.com/media/LoJjkPAVF8UH6/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 8")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 9\. You absolutely love hearing him or her speak
 
  Everything sounds better in French and everything sounds better with an accent. That’s a generally accepted truth.
@@ -110,15 +110,15 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
 
 Watch at your own risk! They might steal your heart!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 10\. You constantly get the reassurance of being truly and honestly loved
 
  Being in a multilingual relationship is a hard business. You either go big or go home. There’s no in-between. If he or she is still there, there must be an enormous quantity of love involved. That’s your reassurance.
 
 ![multilingual relationship](https://edge.mondly.com/blog/wp-content/uploads/2019/04/multilingual-relationship-960x640.jpg "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 9")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Sunset lovers” by Stéphane Delval©
 
@@ -156,22 +156,19 @@ Watch at your own risk! They might steal your heart!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/irst-steps-in-filmmaking-essentials-for-new-youtube-talents/"><u>[New] First Steps in Filmmaking Essentials for New YouTube Talents</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-capturing-the-essence-of-your-facebook-live-spontaneity/"><u>[Updated] 2024 Approved Capturing the Essence of Your Facebook Live Spontaneity</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/dive-into-the-world-of-cartoon-pop-culture-with-snapchat/"><u>Dive Into the World of Cartoon Pop Culture with Snapchat</u></a></li>
-<li><a href="https://fox-http.techidaily.com/filmoras-competitors-the-ultimate-list-of-top-notch-free-template-collections/"><u>Filmora's Competitors The Ultimate List of Top-Notch, Free Template Collections</u></a></li>
-<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-samsung-galaxy-m54-5g-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Samsung Galaxy M54 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/grammars-role-in-mastering-new-tongues/"><u>Grammar's Role in Mastering New Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gratitude-for-endless-educational-offerings/"><u>Gratitude for Endless Educational Offerings</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-honor-play-40c-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Honor Play 40C | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-pronounce-spanish-accents-and-type-accent-letters/"><u>How To Pronounce Spanish Accents And Type Accent Letters</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-removing-device-from-apple-id-for-your-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, Removing Device From Apple ID For your iPhone 12 Pro Max</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-basic-spanish-salutations-top-10-phrases-to-know/"><u>Mastering Basic Spanish Salutations: Top 10 Phrases To Know</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-launches-the-first-vr-language-app-mondlyar/"><u>Mondly Launches The First VR Language App - MondlyAR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saying-i-love-you-in-over-50-countries-today/"><u>Saying 'I Love You' In Over 50 Countries Today</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/solving-access-errors-in-windows-a-step-by-step-guide/"><u>Solving Access Errors in Windows: A Step-by-Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-art-of-allurement-effective-phrases-to-spark-interest/"><u>The Art of Allurement: Effective Phrases to Spark Interest</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tv-shows-and-films-a-gateway-to-fluency/"><u>TV Shows & Films: A Gateway to Fluency</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/watching-videos-on-apple-tv-with-vlc-a-comprehensive-guide/"><u>Watching Videos on Apple TV with VLC: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-a-comprehensive-guide-to-monetize-your-facebook-page-tips-and-tricks-for-2024/"><u>[New] A Comprehensive Guide to Monetize Your Facebook Page Tips and Tricks for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-how-to-fix-obs-full-screen-not-working-issue/"><u>[New] In 2024, How To Fix OBS Full Screen Not Working Issue?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-strategies-for-effective-content-promotion-on-youtube/"><u>[New] Strategies for Effective Content Promotion on YouTube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-step-by-step-screen-capture-on-apple-device/"><u>2024 Approved Step-by-Step Screen Capture on Apple Device</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Tecno Camon 20 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/best-online-destinations-for-sparkling-and-metallic-letters-for-2024/"><u>Best Online Destinations for Sparkling and Metallic Letters for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/el-arte-de-comprender-el-corazon-humano-en-espanol-desde-el-ojo-a-las-unas/"><u>El Arte De Comprender El Corazón Humano en Español: Desde El Ojo A Las Uñas</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-realme-narzo-n55-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Realme Narzo N55 FRP</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lectura-de-relojes-en-espanol-un-camino-inicial/"><u>Lectura De Relojes en Español: Un Camino Inicial</u></a></li>
+<li><a href="https://network-issues.techidaily.com/maintaining-monitor-harmony-on-w11-systems/"><u>Maintaining Monitor Harmony on W11 Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-made-easy-with-mondlyar/"><u>Multilingual Mastery Made Easy with MondlyAR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/redefining-fluency-tomorrows-techniques-for-todays-students/"><u>Redefining Fluency: Tomorrow's Techniques for Today's Students</u></a></li>
+<li><a href="https://win-online.techidaily.com/scopri-le-piu-ottime-substitute-per-after-effects-edizione-2024-opzioni-gratuite-ed-economiche/"><u>Scopri Le Più Ottime Substitute per After Effects - Edizione 2024: Opzioni Gratuite Ed Economiche!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/skyrocket-profits-invest-in-business-linguistics-training/"><u>Skyrocket Profits: Invest in Business Linguistics Training</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Japanese Dialogues for First Impressions
-date: 2024-11-22T16:51:10.742Z
-updated: 2024-11-24T19:58:44.120Z
+date: 2024-11-28T22:37:09.165Z
+updated: 2024-12-03T16:28:15.246Z
 tags:
   - speak
   - english
@@ -46,12 +46,16 @@ thumbnail: https://thmb.techidaily.com/a297ffbc354d264eb1493e128ad67218845cfbc00
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Good morning in Japanese and other relevant greetings
 
@@ -70,7 +74,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
@@ -91,6 +95,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * See you soon! – _Mata ne!_  (またね！)
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “See you soon, human” by Alain Pham©
 
@@ -118,14 +126,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Kyoto, Japan” by Andre Benz©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Don’t forget about the Japanese bow
@@ -143,10 +147,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -201,24 +201,19 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-keeping-your-virtual-circle-true-not-tainted-by-tricks-for-2024/"><u>[New] Keeping Your Virtual Circle True, Not Tainted by Tricks for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/kyrocket-traffic-and-views-discover-the-best-5-video-marketing-techniques/"><u>[New] Skyrocket Traffic and Views – Discover the Best 5 Video Marketing Techniques</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-forging-a-future-in-artistic-expression-and-commerce/"><u>[Updated] Forging a Future in Artistic Expression and Commerce</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-showcasing-excellence-top-20-anime-openings/"><u>[Updated] Showcasing Excellence Top 20 Anime Openings</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-unveiling-the-unexpected-10-truths-about-instagram-reels/"><u>[Updated] Unveiling the Unexpected 10 Truths About Instagram Reels</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honoring-ten-years-at-mondlys-milestone/"><u>Honoring Ten Years at Mondly's Milestone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-realme-c55-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Realme C55 Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lingualeap-at-dubai-2020-the-next-language-era/"><u>LinguaLeap at Dubai 2020: The Next Language Era</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-elite-unbeatable-ever-lasting-pricing/"><u>Mondly Elite: Unbeatable, Ever-Lasting Pricing!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-vision-realized-educating-the-next-70-million-learners/"><u>Mondly's Vision Realized – Educating the Next 70 Million Learners</u></a></li>
-<li><a href="https://windows11.techidaily.com/perfecting-taskbar-setup-in-windows-11/"><u>Perfecting Taskbar Setup in Windows 11</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/1723125169446-save-big-on-high-quality-black-tpu-filament-only-16-per-kg-specially-for-3d-printing-enthusiasts/"><u>Save Big on High-Quality Black TPU Filament - Only $16 per Kg, Specially For 3D Printing Enthusiasts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-in-just-minutes-each-day/"><u>Speak Like a Native in Just Minutes Each Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swiftly-learn-urdu-online-every-day/"><u>Swiftly Learn Urdu Online, Every Day!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-majority-of-french-users-top-five-francophone-states-analyzed/"><u>The Majority of French Users: Top Five Francophone States Analyzed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-better-spelling-the-most-commonly-misspelled-vocabulary/"><u>Unlocking Better Spelling: The Most Commonly Misspelled Vocabulary</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unveiling-the-steps-to-engage-wordpad-in-win-os/"><u>Unveiling the Steps to Engage WordPad in Win OS</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vocabulary-volleyball-international-words-serving-english/"><u>Vocabulary Volleyball: International Words Serving English</u></a></li>
-<li><a href="https://win11.techidaily.com/winning-at-overcoming-onedrive-errors-on-windows/"><u>Winning at Overcoming OneDrive Errors on Windows</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-step-by-step-turn-your-images-darker/"><u>[New] 2024 Approved Step-by-Step Turn Your Images Darker</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-enhancing-films-with-effective-b-roll-usage/"><u>[New] Enhancing Films with Effective B-Roll Usage</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-pairing-powerhouses-easy-steps-to-join-obs-zoom/"><u>[New] Pairing Powerhouses Easy Steps to Join OBS, Zoom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-spotlight-shines-on-mondly-as-10-in-education-tech/"><u>Apple's Spotlight Shines on Mondly as #10 in Education Tech</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/automating-meeting-times-a-google-meet-essential-for-2024/"><u>Automating Meeting Times A Google Meet Essential for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-bridge-into-the-arab-world/"><u>Beginner's Bridge Into the Arab World</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/blizzard-joins-microsoft-empire-discovering-the-role-of-ai-in-artistry-and-translation-on-our-latest-podcast/"><u>Blizzard Joins Microsoft Empire: Discovering the Role of AI in Artistry and Translation on Our Latest Podcast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-mastering-the-hardest-languages/"><u>Breaking Language Barriers: Mastering the Hardest Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-a-new-tongue-in-minutes-start-with-slovak-today/"><u>Conquer a New Tongue in Minutes - Start with Slovak Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-atlantic-language-contrasts/"><u>Cross-Atlantic Language Contrasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-connection-started-with-these-italian-greets/"><u>Cultural Connection Started with These Italian Greets</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ditch-costs-enjoy-free-video-playback-on-pcmac/"><u>Ditch Costs, Enjoy FREE Video Playback on PC/Mac</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-tutorial-effortless-texting-with-your-ipad-device/"><u>The Ultimate Tutorial: Effortless Texting with Your iPad Device</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/transformez-vos-fichiers-oma-en-mp3-sans-frais-solution-simple-avec-movavi/"><u>Transformez Vos Fichiers OMA en MP3 Sans Frais - Solution Simple Avec Movavi</u></a></li>
 </ul></div>
 

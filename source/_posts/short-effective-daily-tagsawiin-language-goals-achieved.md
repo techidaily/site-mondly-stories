@@ -1,7 +1,7 @@
 ---
 title: "Short, Effective Daily Tagsawiin: Language Goals Achieved"
-date: 2024-11-18T23:19:21.323Z
-updated: 2024-11-24T23:17:21.494Z
+date: 2024-11-30T22:10:18.238Z
+updated: 2024-12-04T03:08:13.211Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/f9a9cc9d25c2277c00a95f3b41983be5b23439a73
 
  Consisting of super fun, effective and accessible language lessons, the new Tagalog course is now available on [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4502&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4502?mother%5Flang=en%5Fus?target%5Flang=tl&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4502?mother%5Flang=en%5Fus?target%5Flang=tl) ,[Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4502&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4502?mother%5Flang=en%5Fus?target%5Flang=tl&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4502?mother%5Flang=en%5Fus?target%5Flang=tl) and [web](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4502&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4502?mother%5Flang=en%5Fus?target%5Flang=tl&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4502?mother%5Flang=en%5Fus?target%5Flang=tl) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Learn Tagalog, the language of the river dwellers
 
  Behind the beautiful Tagalog language, there are centuries of rich and fascinating history guaranteed to make you even more eager to learn Tagalog. For example, the first likely words of Old Tagalog origin are attested in the [Laguna Copperplate Inscription](https://en.wikipedia.org/wiki/Laguna%5FCopperplate%5FInscription) from 900 CE, a legal document which is largely written in Old Malay.
@@ -31,12 +35,16 @@ thumbnail: https://thmb.techidaily.com/f9a9cc9d25c2277c00a95f3b41983be5b23439a73
 ![tagalog for beginners](https://edge.mondly.com/blog/wp-content/uploads/2020/03/tagalog-for-beginners-1-600x450.jpg "Learn Tagalog Online In Just 10 Minutes A Day 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “El Nido, Philippines” by Cris Tagupa©
 
 **Fun fact:** derived from_taga-ilog_ (“river dweller”), the word “tagalog” is probably connected to the origin of the Tagalog people, the second-largest ethnolinguistic group in the Philippines after the Visayan people.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Tagalog vs Filipino: why should you learn Tagalog?
 
@@ -48,10 +56,6 @@ thumbnail: https://thmb.techidaily.com/f9a9cc9d25c2277c00a95f3b41983be5b23439a73
 
  Therefore,**your language of choice should definitely be Tagalog** as you’ll have a much easier time in your travels to the beautiful Philippines.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The languages of the Philippines
 
  Fun fact: did you know that the number of established languages listed for the Philippines is 186? According to [Ethnologue](https://www.ethnologue.com/country/PH) , 184 of these are living and 2 are extinct. Of the total of 184 living languages, 175 are indigenous and 9 are non-indigenous. Furthermore, 37 are institutional, 68 are developing, 38 are vigorous, 30 are in trouble, and 11 are dying. Also listed are 3 unestablished languages.
@@ -59,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/f9a9cc9d25c2277c00a95f3b41983be5b23439a73
  Ten of the most used languages in the Philippines besides Tagalog, Filipino and English (an official language as well) are Cebuano, Ilocano, Hiligaynon, Waray-Waray, Kapampangan, Bicolano, Pangasinense, Maranaoan and Tausug.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tagalog for beginners or how to speak Tagalog fast
@@ -67,10 +71,6 @@ thumbnail: https://thmb.techidaily.com/f9a9cc9d25c2277c00a95f3b41983be5b23439a73
  There are nine basic parts of speech in Tagalog: verbs_(pandiwa)_ , nouns_(pangngalan)_ , adjectives_(pang-uri)_ , adverbs_(pang-abay)_ , prepositions_(pang-ukol)_ , pronouns_(panghalip)_ , conjunctions_(pangatnig)_ , ligatures_(pang-angkop)_ and particles. Tagalog uses the verb-subject-object order and has fairly complex verb conjugation rules, but that won’t stop Mondly help you speak Tagalog from day 1.
 
 ![speak tagalog](https://edge.mondly.com/blog/wp-content/uploads/2020/03/speak-tagalog-2-277x600.jpg "Learn Tagalog Online In Just 10 Minutes A Day 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Learn Tagalog with Mondly
 
@@ -84,7 +84,7 @@ thumbnail: https://thmb.techidaily.com/f9a9cc9d25c2277c00a95f3b41983be5b23439a73
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Speak Tagalog today
@@ -110,17 +110,18 @@ thumbnail: https://thmb.techidaily.com/f9a9cc9d25c2277c00a95f3b41983be5b23439a73
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-magical-voice-change-tools-for-efficient-calls/"><u>[Updated] 2024 Approved Magical Voice Change Tools for Efficient Calls</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-review-and-insight-into-movavi-editor-plus-now-available/"><u>[Updated] Review & Insight Into Movavi Editor Plus, Now Available</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/complete-guide-on-unlocking-apple-iphone-12-pro-max-with-a-broken-screen-drfone-by-drfone-ios/"><u>Complete Guide on Unlocking Apple iPhone 12 Pro Max with a Broken Screen? | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1723002472136-cyberpunk-2077-performance-issues-resolved-enjoy-smooth-frame-rates/"><u>Cyberpunk 2077 Performance Issues Resolved: Enjoy Smooth Frame Rates</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/giggles-on-iphones-for-2024/"><u>Giggles on iPhones for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/iphone-dnd-mode-hacks-ensuring-important-texts-and-calls-dont-miss-out/"><u>IPhone DND Mode Hacks: Ensuring Important Texts and Calls Don't Miss Out</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revamped-learning-pearsons-gsl-with-mondly-precision/"><u>Revamped Learning: Pearson's GSL with Mondly Precision</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/sonic-stories-weaving-sound-into-insta-vids-for-2024/"><u>Sonic Stories Weaving Sound Into Insta Vids for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-numbers-how-to-count-numbers-in-spanish/"><u>Spanish Numbers: How to Count Numbers in Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-101-croatian-phrases-your-travel-guides-essential-toolkit/"><u>Top 101 Croatian Phrases: Your Travel Guide's Essential Toolkit</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/trendy-5-tech-based-aids-for-language-schools/"><u>Trendy 5 Tech-Based Aids for Language Schools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-who-are-the-major-francophones-analysis/"><u>Worldwide, Who Are The Major Francophones? Analysis</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-3dlut-for-dynamic-video-and-image-adjustments/"><u>[Updated] 3DLUT for Dynamic Video & Image Adjustments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advanced-polish-studying-methods/"><u>Advanced Polish Studying Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/african-tongues-the-universal-melody/"><u>African Tongues: The Universal Melody</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-endorses-mondly-peaking-at-10-education-app-ranking/"><u>Apple Endorses Mondly, Peaking at #10 Education App Ranking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576236146-boost-your-career-with-croatian-skills-explore-these-7-benefits/"><u>Boost Your Career with Croatian Skills – Explore These 7 Benefits!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charismatic-chatter-engaging-others-with-spanish-words/"><u>Charismatic Chatter: Engaging Others with Spanish Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquest-through-words-precise-lines-for-captivating-chats/"><u>Conquest Through Words: Precise Lines for Captivating Chats</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/converse-face-to-face-w-chatgpt/"><u>Converse Face-to-Face W/ ChatGPT</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/july-spotlight-premiering-documentaries-starring-max/"><u>July Spotlight: Premiering Documentaries Starring Max</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/learn-how-to-lock-stolen-your-iphone-se-2020-properly-drfone-by-drfone-ios/"><u>Learn How To Lock Stolen Your iPhone SE (2020) Properly | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-technology-with-tom-detailed-gadget-analyses-unveiled/"><u>Navigating Technology with Tom: Detailed Gadget Analyses Unveiled</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/resolving-audio-issues-how-to-fix-ogg-file-wont-play-error-in-windows-10-version-1903/"><u>Resolving Audio Issues: How to Fix 'OGG File Won't Play' Error in Windows 10 Version 1903</u></a></li>
+<li><a href="https://win-updates.techidaily.com/streamlining-your-pc-experience-a-step-by-step-guide-to-disabling-user-login-in-windows-11/"><u>Streamlining Your PC Experience: A Step-by-Step Guide to Disabling User Login in Windows 11</u></a></li>
 </ul></div>
 

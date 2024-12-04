@@ -1,7 +1,7 @@
 ---
 title: Decoding the Top 100 Words That Stump English Learners
-date: 2024-08-08T09:24:20.731Z
-updated: 2024-08-09T09:24:20.731Z
+date: 2024-12-02T02:19:59.017Z
+updated: 2024-12-03T21:05:01.096Z
 tags:
   - speak
   - english
@@ -24,11 +24,16 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 
  Whether we’re talking about fancy words or downright common ones like “license” (not “lisence”), misspellings are like Thanos: inevitable. But even Thanos was finally defeated, so you, too, can vanquish misspelled words. The first step is to acknowledge them, so let’s do it. We’ll begin with a small but condensed list of the most misspelled words ever and continue with a complete list of the top 100 commonly misspelled words in English. Ready, steady, go!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Top 10 Most Commonly Misspelled Words in English
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Awkward not akward
 
  This one will haunt some of us for the rest of our days because it also describes how we feel when we realize we’ve just misspelled a word.
@@ -39,9 +44,6 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 
 Careful, though – there are some exceptions to it.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Embarrassed not embarassed
 
 Also commonly misspelled as: embarrased
@@ -60,9 +62,6 @@ Also commonly misspelled as: entrepeneur , entreprenur , entreperneur
 
 Your best bet is to just remember the correct spelling.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ### 6\. License not lisence
 
  This is a special situation. In American English, it’s always spelled “license” – no matter what. On the other hand, in British English, it’s spelled “license” when it’s a verb and “licence” when it’s a noun.
@@ -70,8 +69,9 @@ Your best bet is to just remember the correct spelling.
  Basically, the only wrong spelling is “lisense”. However, once you decide which spelling you’re going to use – American or British – it’s best to go forward with that one don’t combine both.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 7\. Receive not recieve
 
  Remember the “I before E, except after C” rule? This is the kind of word where the rule applies. It also applies to “niece” and “siege”, but it doesn’t apply to “weird” or “seize”. So trust the rule, but keep in mind it has some exceptions.
@@ -82,6 +82,10 @@ Also commonly misspelled as: succesful, sucessful
 
  There are so many double consonants in English that it becomes tempting to double them all sometimes. But for the love of English, don’t do that to “successful”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\. Thorough not thourough
 
  You probably heard this tongue twister before: “English can be understood through tough thorough thought, though.” It’s hard not to get confused with so many similar-looking words. You add an O to “through” and its pronunciation changes completely.
@@ -90,14 +94,12 @@ Also commonly misspelled as: succesful, sucessful
 
  This one is somehow similar to the “successful” situation, but not entirely. As a matter of fact, “until” was spelled with two Ls in the Middle Ages. If it helps you remember, you can think it just lost some weight but getting rid of the last L (unlike “still”).
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 !["Hard words to spell" by Julia M Cameron©](https://edge.mondly.com/blog/wp-content/uploads/2022/12/hard-words-to-spell-960x641.jpg "Top 100 Most Misspelled Words In English 2")
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Spelling Matters
 
  English has drawn inspiration from many different languages, so it’s perfectly normal to get confused because of its double consonants and silent letters. We all know that moment when you stare at a word for ages and still can’t believe it has two sets of double letters. But it’s true. There are many such examples. In fact, “misspelled” is one of them and people often misspell it.
@@ -234,10 +236,6 @@ Coming Soon
 
  Showing 1 to 100 of 100 entries
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Tips for Improving Your Spelling
 
  How do you avoid misspellings? One obvious answer would be spell-checkers. Alas, spell-checkers won’t actually help you to improve your spelling. You will continue to misspell words and they’ll continue to correct them like the good friends they are. This process won’t stimulate you to learn the correct spelling because somebody else already does the job for you. However, if you do want a very good spell-checker to keep you in check, we recommend Grammarly.
@@ -252,9 +250,6 @@ Let’s recap. To improve your spelling, you can:
 * **Use spell-checkers:** Grammarly is the best at keeping your written communication tidy, but we can also rely on Word’s built-in spell-checker or even ask ChatGPT or Google when you’re not sure whether your word is spelled right or not.
 * **Memorize challenging words:** We all have some words we keep getting wrong. So, our recommendation would be to take a pen and a piece of paper and write them by hand a few times until they stick. It’s traditional but it works.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Why Some Words Are Tricky
 
  When it comes to spelling, the English language is a real maverick. No wonder there are spelling bee competitions organized for young English-speaking students.
@@ -276,11 +271,16 @@ English words can be tricky to spell for several reasons:
  The most commonly misspelled words are “receive”, “accommodate”, “separate”, and “definitely”. These are often cited as commonly misspelled due to reasons like silent letters, double letters, and common phonetic errors.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### What are most Misspelled Words in America?
 
  Lists of commonly misspelled words in America often include words like “necessary”, “embarrassment”, “maintenance”, “occurrence” and “rhythm”. However, these can differ based on regional dialects, local vernacular, and other influences.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Why is the word “misspelled” often misspelt as “misspelt”?
 
@@ -313,8 +313,6 @@ English words can be tricky to spell for several reasons:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -322,6 +320,26 @@ English words can be tricky to spell for several reasons:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-tailoring-your-timing-strategy-the-ultimate-instagram-guide/"><u>[New] In 2024, Tailoring Your Timing Strategy The Ultimate Instagram Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-moonlight-mastery-a-photographers-guidebook-to-nighttime-imagery/"><u>[New] Moonlight Mastery A Photographer's Guidebook to Nighttime Imagery</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-why-cant-i-see-videos-on-sony-a6400/"><u>[New] Why Can’t I See Videos on Sony A6400?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerating-language-learning-time-vs-technique/"><u>Accelerating Language Learning: Time vs Technique</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/apple-resurrects-promising-ai-yet-challenges-remain-according-to-zdnet/"><u>Apple Resurrects Promising A.I., Yet Challenges Remain According to ZDNet</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/charting-your-course-in-the-realm-of-youtube-shorts-for-2024/"><u>Charting Your Course in the Realm of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/dismantling-administrator-barriers-on-windows-defense-alerts/"><u>Dismantling Administrator Barriers on Windows Defense Alerts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/early-education-unveiled-kinder-to-fifth-grade-spanish-essentials/"><u>Early Education Unveiled: Kinder to Fifth-Grade Spanish Essentials</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-oppo-reno-8t-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Oppo Reno 8T To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-influences-reshaping-english-lexicon/"><u>International Influences Reshaping English Lexicon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-grammar-holding-you-back-from-learning-a-language/"><u>Is Grammar Holding You Back From Learning a Language?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overcoming-language-obstacles-mastering-the-toughest-dialects/"><u>Overcoming Language Obstacles: Mastering the Toughest Dialects</u></a></li>
+<li><a href="https://media-tips.techidaily.com/pc-gaming-essentials-mastering-sky-children-of-the-light-with-a-comprehensive-tutorial/"><u>PC Gaming Essentials: Mastering 'Sky - Children of the Light' With a Comprehensive Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sailor-talk-101-piratical-expressions/"><u>Sailor Talk 101: Piratical Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-swede-scribble-phonetics-unlocked/"><u>Swift Swede Scribble: Phonetics Unlocked</u></a></li>
+<li><a href="https://blog-min.techidaily.com/ultimate-list-of-no-cost-video-format-changers-for-windows-users-xp-vista-7/"><u>Ultimate List of No-Cost Video Format Changers for Windows Users (XP, Vista, 7)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-mysteries-of-honshus-writing/"><u>Unlocking the Mysteries of Honshū's Writing</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/windows-8-video-editing-software-edit-mp4-files-like-a-pro/"><u>Windows 8 Video Editing Software Edit MP4 Files Like a Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/woo-with-wit-curated-collection-of-engaging-phrases/"><u>Woo with Wit: Curated Collection of Engaging Phrases</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Perfect RU Alphabets' Phonetics Recognition
-date: 2024-11-19T23:03:33.239Z
-updated: 2024-11-24T17:15:32.902Z
+date: 2024-11-29T17:55:05.027Z
+updated: 2024-12-03T21:48:03.313Z
 tags:
   - speak
   - english
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
  Although it may seem a bit daunting in the beginning, the Russian alphabet is not the hardest alphabet in existence (I’m looking at you,[Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ). Consisting of 33 letters – just 7 more than the Latin alphabet – it uses the Cyrillic script to write the Russian language. And you know what’s the best thing about it? Almost all the words in Russian can be pronounced the same way they are written.
 
  To put it simply, once you master the Russian alphabet, you’ll know how to pronounce the majority of the [Russian words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . So let’s uncover the mysteries of this alphabet together so you can move on to more important things like… **[learning Russian with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4656&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4656?mother%5Flang=en%5Fus?target%5Flang=ru&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4656?mother%5Flang=en%5Fus?target%5Flang=ru) .**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## A short history of the Russian language and the Russian alphabet
 
@@ -44,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
  “Red Square, Moscow, Russia” by Aurelien Romain©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Understand how to pronounce the Russian alphabet
 
  There are 33 letters in the Russian alphabet. 10 vowels (**а, э, ы, у, о, я, е, ё, ю, и)** , 21 consonants (**б, в, г, д, ж, з, к, л, м, н, п, р, с, т, ф, х, ц, ч, ш, щ,** and the consonant**й** which is sometimes a semivowel) and 2 pronunciation signs (the “soft sign” ь and the “hard sign” ъ).
@@ -55,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
  This is the dictionary order of the Russian alphabet: А, Б, В, Г, Д, Е, Ё, Ж, З, И, Й, К, Л, М, Н, О, П, Р, С, Т, У, Ф, Х, Ц, Ч, Ш, Щ, Ъ, Ы, Ь, Э, Ю, Я.
 
  If we were to compare the Russian alphabet to the English alphabet, we would have four groups of letters: letters that look and sound (almost) the same as in English, letters that sound the same but look different, letters that look the same but sound different and letters that have no English equivalent whatsoever.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Russian letters that are (almost) the same as in English
 
@@ -64,6 +60,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **М м** sounds like “m” in “mother” or “mobile”,
 * **О о** sounds like “o” in “bore” or “more” (without the ‘r’ sound),
 * **Т т** sounds like “t” in “top” or “task”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Russian letters that sound the same as in English (but look different)
 
@@ -84,10 +84,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **Ю ю** sounds like “you” or “use”,
 * **Я я** sounds like “yu” in yummy or “ya” in “yard”.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Russian letters that look the same as in English (but sound different)
 
 * **В в** sounds like “v” in “van” or “voice”,
@@ -99,6 +95,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **Ч ч** sounds like “ch” in “chat” or “church“,
 * **Х х** sounds like “ch” in “loch”,
 * **Ы ы** sounds like “i” in “ill” but with a “rounder” pronunciation (said with your tongue slightly back in your mouth).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Russian letter with no English equivalent
 
@@ -112,10 +112,14 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 ![russian alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-alphabet-pronunciation-1-431x600.jpg "Master The Russian Alphabet Pronunciation 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian alphabet pronunciation
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Russian lesson no. 1: rules
 
@@ -136,10 +140,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Study Russian in just 10 minutes a day
 
@@ -166,19 +166,18 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-unveiling-the-secrets-to-thriving-with-youtube-adsense/"><u>[New] In 2024, Unveiling the Secrets to Thriving With YouTube AdSense</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-camera-charisma-a-guide-to-personal-video-content-for-2024/"><u>[New] On-Camera Charisma A Guide to Personal Video Content for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-extend-the-moment-filmmaking-in-iphone-slow-mo/"><u>2024 Approved Extend the Moment Filmmaking in iPhone Slow Mo</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/le-chest-selecting-15-hilarious-video-treasures-for-your-viewing-pleasure-for-2024/"><u>Chuckle Chest Selecting 15 Hilarious Video Treasures for Your Viewing Pleasure for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/critique-on-splitcam-does-it-top-video-tech-in-2024/"><u>Critique on SplitCam Does It Top Video Tech, In 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/enhance-performance-and-cool-down-with-eks-latest-water-block-innovations-for-your-amd-ryzen-am5-cpu/"><u>Enhance Performance and Cool Down with EK’s Latest Water Block Innovations for Your AMD Ryzen AM5 CPU</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-proficiency-unlocked-here-are-10-advantages/"><u>German Proficiency Unlocked: Here Are 10 Advantages</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Xiaomi Redmi A2 | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-digital-collage-creator-8x/"><u>In 2024, Ultimate Digital Collage Creator 8X</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-etiquette-saying-thanks-in-30-languages-154/"><u>International Etiquette: Saying Thanks in 30 Languages (154)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-3-language-learning-tools-to-effortlessly-conquer-new-tongues/"><u>Leading 3 Language Learning Tools to Effortlessly Conquer New Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mandarins-alphabetical-constructs/"><u>Mandarin's Alphabetical Constructs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-mystery-of-english-language-contractions-and-their-usage/"><u>Unveiling the Mystery of English Language Contractions and Their Usage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-master-a-second-or-third-language-after-40-cognitive-social-and-cultural-benefits/"><u>Why Master a Second (or Third) Language After 40 – Cognitive, Social & Cultural Benefits</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-top-3-online-tools-for-premium-gif-creation/"><u>[New] In 2024, Top 3 Online Tools for Premium GIF Creation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagrams-video-response-rate-how-to-increase-it/"><u>[Updated] 2024 Approved Instagram's Video Response Rate How to Increase It</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangladesh-in-a-blink-or-ten-minutes/"><u>Bangladesh in a Blink (or Ten Minutes)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bringing-cultures-together-mondly-expands-on-oculus-quest/"><u>Bringing Cultures Together: Mondly Expands on Oculus Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/castilian-echoes-across-continents/"><u>Castilian Echoes Across Continents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-life-across-languages-birthday-expressions/"><u>Celebrating Life Across Languages: Birthday Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-two-languages-one-story-unveiling-spanish-and-portuguese/"><u>Discovering Two Languages, One Story: Unveiling Spanish & Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easy-romanian-mastery-in-your-pocket/"><u>Easy Romanian: Mastery in Your Pocket</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/get-your-laptops-speakers-working-again-tips-and-solutions-for-sound-restoration/"><u>Get Your Laptop's Speakers Working Again: Tips and Solutions for Sound Restoration</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-regain-file-viewing-rights-on-your-pc/"><u>How to Regain File Viewing Rights on Your PC</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-navigating-with-google-maps-on-ios-devices/"><u>In-Depth Evaluation: Navigating with Google Maps on iOS Devices</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-rated-audio-setups-of-2024-in-depth-reviews-by-professionals-techradar/"><u>Top-Rated Audio Setups of 2024: In-Depth Reviews by Professionals | TechRadar</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-the-ultimate-guide-to-animated-photos-top-software-for-2024/"><u>Updated The Ultimate Guide to Animated Photos Top Software for 2024</u></a></li>
 </ul></div>
 

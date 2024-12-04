@@ -1,7 +1,7 @@
 ---
 title: "Embarking on a Phonetic Adventure: The Essentials of German Sounds"
-date: 2024-08-08T09:24:27.958Z
-updated: 2024-08-09T09:24:27.958Z
+date: 2024-11-30T22:15:07.313Z
+updated: 2024-12-03T18:25:30.250Z
 tags:
   - speak
   - english
@@ -27,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb11
  Considering you’re already familiar with all the other letters, let’s continue by taking a closer look at these four special letters: ß, ä, ö and ü.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### ß also known as ‘sharp S’, ‘eszett’ or ‘scharfes S’
 
  Although it looks different from everything you’ve ever seen in English, ß shouldn’t intimidate you. Vaguely resembling a capital ‘B’,**the letter ß is pronounced like a sharp S** (like the ‘s’ in ‘see’) – hence its name ‘eszett’ or ‘scharfes S’.
@@ -38,9 +39,9 @@ thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb11
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### German umlauts: ä, ö, ü
 
  While highly representative for the German language, the German umlauts are ‘guilty’ of making the most uncommon sounds to English speakers.
@@ -55,14 +56,16 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
 Now round off your lips and start practicing!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## German pronunciation guide for single letters
 
  Now that we’ve settled the matters with ß, ä, ö and ü, it’s time to move on to more familiar letters and see how their pronunciation differs from English.
@@ -77,9 +80,6 @@ Now round off your lips and start practicing!
 4. **J** – _Oh ja,_ you already know this one! The German _j_ is pronounced like the English ‘y’.
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## German pronunciation guide for letter combinations
 
  Just a few more examples and you’ll soon be ready to speak like a German! Let’s see how you should pronounce certain letter combinations in German:
@@ -98,8 +98,9 @@ Now round off your lips and start practicing!
  Did you recognize_ze rules_ in this example?
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to pronounce long German words
 
 _Ja,_ the German language is famous for its very long words, but once again – this shouldn’t intimidate you. Most [German words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are, in fact, compounds.
@@ -137,8 +138,6 @@ _Tschüss!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -146,6 +145,26 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-download-unlimited-mcb-visual-elements/"><u>[Updated] 2024 Approved Download Unlimited MCB Visual Elements</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-capture-your-audience-the-smartphone-guide-to-youtube-thumbnails-for-2024/"><u>[Updated] Capture Your Audience The Smartphone Guide to YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-ice-capped-inspiration-chinas-sports-spectacle/"><u>[Updated] Ice-Capped Inspiration China's Sports Spectacle</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-innovative-strategies-for-vimeo-video-recording/"><u>[Updated] In 2024, Innovative Strategies for Vimeo Video Recording</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-timekeeping-tutorial-setting-up-a-timer-in-obs-studio-for-2024/"><u>[Updated] Timekeeping Tutorial Setting Up a Timer in OBS Studio for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/cant-download-or-install-icloud-on-windows-try-these-fixes/"><u>Can’t Download or Install iCloud on Windows? Try These Fixes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-reveal-on-the-clearstream-2v-antenna-high-definition-clarity-in-a-not-so-attractive-housing/"><u>Comprehensive Reveal on the ClearStream 2V Antenna: High Definition Clarity in a Not So Attractive Housing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expand-horizons-in-hindi-why-mondlys-online-platform-is-your-ultimate-choice-for-learning/"><u>Expand Horizons in Hindi: Why Mondly's Online Platform Is Your Ultimate Choice for Learning</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-install-the-latest-iosipados-beta-version-on-iphone-14-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS/iPadOS Beta Version on iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-approaches-to-learn-lithuanian-from-home/"><u>Innovative Approaches to Learn Lithuanian From Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-insights-into-turk-korean-exchange/"><u>Linguistic Insights Into Turk-Korean Exchange</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lively-latins-an-exhilarating-study-method/"><u>Lively Latins: An Exhilarating Study Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575079088-major-focus-most-popular-foreign-languages-us/"><u>Major Focus: Most Popular Foreign Languages U.S.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilanguage-mastery-and-brain-power/"><u>Multilanguage Mastery and Brain Power</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578961026-new-year-new-speaking-abilities/"><u>New Year, New Speaking Abilities!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-learn-bengali-courses-online/"><u>Quick-Learn Bengali Courses Online</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/resolved-fixes-for-iphone-failure-to-appear-in-or-connect-with-itunes/"><u>Resolved: Fixes for iPhone Failure to Appear in or Connect with iTunes</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/simplifying-sticker-setup-challenges-resolving-top-6-problems-quickly/"><u>Simplifying Sticker Setup Challenges: Resolving Top 6 Problems Quickly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-resources-for-learning-japanese-online-on-your-own-and-for-free/"><u>The Best Resources For Learning Japanese Online, On Your Own, And For Free</u></a></li>
+</ul></div>
 

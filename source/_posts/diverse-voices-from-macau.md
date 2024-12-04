@@ -1,7 +1,7 @@
 ---
 title: Diverse Voices From Macau
-date: 2024-08-08T09:28:57.527Z
-updated: 2024-08-09T09:28:57.527Z
+date: 2024-12-01T21:41:28.284Z
+updated: 2024-12-04T02:31:42.195Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/0902934f7edf585e53199bb405b79c684665bcaad
 
  Ready to find our more about the rich linguistic mosaic of Macau? Read on to discover the intriguing history behind this captivating blend of languages.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The History of Macau
 
  The current linguistic mosaic of Macau began taking shape almost 500 years ago. It all started in 1557, when**the Ming dynasty leased Macau to Portugal** as a trading post. Naturally, this marked the beginning of a significant Portuguese presence in Macau, introducing the Portuguese language and culture to the region.
@@ -37,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/0902934f7edf585e53199bb405b79c684665bcaad
  Despite its tumultuous history, Macau is the perfect example of a happy ending.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Multilingualism in Macau
 
  Now that you know the history behind it, the Macau linguistic heritage makes much more sense.
@@ -51,14 +56,8 @@ thumbnail: https://thmb.techidaily.com/0902934f7edf585e53199bb405b79c684665bcaad
 
  Interestingly enough, English and Mandarin speakers are more prevalent in Macau compared to Portuguese speakers. While Portuguese is the official of Macau, the British and Chinese cultures exercise a much greater influence on a global scale.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Cantonese in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/cantonese.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 2")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Macanese: A Distinctive Creole Language of Macau
 
 **Macanese Patois or the Macanese creole language, known as Patuá** to its speakers, is a mixture of Cantonese, Malay, Sinhalese, and – most importantly – Portuguese. Developed as a lingua franca for communication among the multicultural community of traders, sailors, and settlers, Macanse emerged as a unique language reflecting the melting pot of cultures that Macau represented.
@@ -84,20 +83,22 @@ thumbnail: https://thmb.techidaily.com/0902934f7edf585e53199bb405b79c684665bcaad
  In official government documents, both written Portuguese and written Chinese (traditional) are used. This dual-language approach demonstrates the recognition and value given to both languages in administrative matters. In daily life, it is common to come across signs and displays in Macau that feature written Chinese and written Portuguese. This parallel use of languages is similar to the coexistence of written Chinese and British English in Hong Kong.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Cantonese: The Dominant Language of Macau
 
  Cantonese, a variant of the [Chinese language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , is spoken in Macau, Hong Kong, Southern China, as well as by Chinese communities in North America and Southeast Asian countries. While Cantonese is considered a dialect of Chinese, it is important to note that Mandarin and Cantonese are not mutually intelligible, meaning speakers of one may not understand the other.
 
  **Despite the city’s historical ties with Portugal, Cantonese firmly dominates the social, commercial, and educational landscapes of Macau.** Over 85% of people in Macau speak Cantonese.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![multilingualism in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/multilingualism-in-macau.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 3")
 
  Cantonese serves as the primary medium of instruction in the majority of schools in Macau. Additionally, there are mandatory classes that focus on Mandarin, ensuring students have exposure to and proficiency in the official language of China.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Future of Macau’s Languages
 
@@ -107,12 +108,13 @@ thumbnail: https://thmb.techidaily.com/0902934f7edf585e53199bb405b79c684665bcaad
 
  As China’s influence continues to grow, there has also been a rise in the use of Mandarin. Still, Cantonese remains dominant. On the other hand, Macanese (Patuá), with its small number of speakers, is in danger of extinction. In order to safeguard this distinctive aspect of Macau’s cultural heritage, concerted efforts are said to be made to preserve and promote Macanese through various cultural events and initiatives.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Is English widely spoken in Macau?
 
  English is not as widely spoken in Macau compared to Cantonese. However, due to Macau’s status as popular gambling destination, English is commonly understood and spoken. Many signs, menus, and information for tourists are also available in English. Additionally, English is taught as a compulsory subject in schools, contributing to a level of English proficiency among the younger generation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Are there any efforts to revitalize endangered languages in Macau?
 
@@ -145,8 +147,6 @@ thumbnail: https://thmb.techidaily.com/0902934f7edf585e53199bb405b79c684665bcaad
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -154,6 +154,24 @@ thumbnail: https://thmb.techidaily.com/0902934f7edf585e53199bb405b79c684665bcaad
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/nnovative-video-concepts-through-google-trends-exploration-for-2024/"><u>[New] Innovative Video Concepts Through Google Trends Exploration for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-navigating-ffxp-the-user-manual/"><u>[Updated] Navigating FFXP The User Manual</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/best-free-video-compression-tools-no-watermarks-top-5-picks/"><u>Best FREE Video Compression Tools - No Watermarks, Top 5 Picks!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-the-french-conversation-vocabulary-for-travelers/"><u>Conquer the French Conversation: Vocabulary for Travelers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crafting-goals-that-lead-to-real-change/"><u>Crafting Goals That Lead To Real Change</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-new-languages-with-mondly-1-of-2022s-apps/"><u>Embrace New Languages with Mondly - #1 of 2022'S Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expand-your-reach-mondly-support-on-oculus-quest-now/"><u>Expand Your Reach: Mondly Support on Oculus Quest Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-numerical-fluency-spanish-numbers/"><u>From Novice to Numerical Fluency: Spanish Numbers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-french-speakers-distribution-and-leading-nations/"><u>Global French Speakers: Distribution & Leading Nations</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-apples-new-ios-18-update-enables-direct-phone-call-recording-without-external-apps-a-detailed-insight-techradar/"><u>How Apple's New iOS 18 Update Enables Direct Phone Call Recording Without External Apps: A Detailed Insight | TechRadar</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-seamlessly-update-your-razer-blackwidows-drivers-comprehensive-support-guide/"><u>How to Seamlessly Update Your Razer BlackWidow's Drivers | Comprehensive Support Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-samsung-galaxy-f04-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Samsung Galaxy F04 Without PUK Codes</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/testimonial-hard-drive-data-recovery/"><u>Testimonial: Hard Drive Data Recovery</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-smart-shoppers-guide-to-cloud-services-cost-for-2024/"><u>The Smart Shopper's Guide to Cloud Services Cost for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshoot-windows-11-how-to-fix-non-functioning-search-feature/"><u>Troubleshoot Windows 11: How to Fix Non-Functioning Search Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-languages-cultures-through-multiplayer-vr-sessions/"><u>Uniting Languages, Cultures Through Multiplayer VR Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vernacular-voices-ukraine-vs-russia/"><u>Vernacular Voices: Ukraine Vs Russia</u></a></li>
+</ul></div>
 

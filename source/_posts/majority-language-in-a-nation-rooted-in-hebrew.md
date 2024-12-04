@@ -1,7 +1,7 @@
 ---
 title: Majority Language in a Nation Rooted in Hebrew
-date: 2024-11-21T16:05:43.524Z
-updated: 2024-11-24T21:38:17.821Z
+date: 2024-11-30T01:59:49.494Z
+updated: 2024-12-03T17:53:52.843Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  Following a tumultuous and often violent history, the nation of Israel now has a [population](https://en.wikipedia.org/wiki/Israel#Demographics) of more than 9 million people. Out of this, 74.2% are Jews, 20.9% Arabs and 4.8% are Christians and people who have no religion listed in the civil registry. Despite the cultural diversity, almost the entire population speaks Hebrew, the country’s official language, either as a first or second language. However, this is not the full story of the languages of Israel. Let’s take a closer look at the country’s current linguistic landscape.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Israel language mosaic – what language is spoken in Israel?
 
  **Hebrew is the everyday and official language of Israel and roughly everyone speaks it, but the Arab minority which accounts for about one-fifth of the population, also speaks Arabic. Additionally, a high percentage of Israelis know English and over a million of them speak Russian as a result of immigration from the Soviet Union.**
@@ -31,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
  Although Hebrew can be seen and heard everywhere, Israel’s laws are officially published in Arabic and English as well. The same is true for most road signs, food labels, medicine brochures, safety regulations and messages published by the government.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hebrew
@@ -41,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
  What’s fascinating about [Hebrew](https://books.google.ro/books?id=EZCgpaTgLm0C&pg=PA1&redir%5Fesc=y#v=onepage&q&f=false) is that it ceased to be an everyday spoken language somewhere between the 2nd and 4th century CE. During the medieval period it survived only as a sacred language of Jewish liturgy and rabbinic literature. But then, toward the end of the 19th century and into the 20th century, with the rise of Zionism, it was revived as a spoken and literary language. Its renaissance is considered by many a linguistic miracle.
 
  Modern Hebrew is what you’ll hear on [the streets of Israel](https://link.springer.com/referenceworkentry/10.1007%2F978-3-030-02438-3%5F125) (and what you can [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5614&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he) ) and premodern Hebrew is now used only for prayer or study in Jewish communities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Arabic
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
  “Dome of the Rock, Jerusalem, Israel” by Stacey Franco©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Russian
@@ -65,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 So, as you can see, Russian is surprisingly widespread in Israel.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Other languages
@@ -73,7 +73,7 @@ So, as you can see, Russian is surprisingly widespread in Israel.
  Other languages you’re likely to hear in Israel are Yiddish, French (which was used as a diplomatic language in Israel until the 1990s when the Israeli-French alliance was undermined), German, Spanish and Romanian.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can you speak English in Israel?
@@ -116,22 +116,19 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-how-to-make-fortnite-thumbnail-for-free-and-easy-for-2024/"><u>[New] How to Make Fortnite Thumbnail for Free and Easy for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/remier-livestream-capture-software-for-video-bards/"><u>[New] Premier Livestream Capture Software For Video Bards</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-augmenting-gameplay-allocating-more-memory-to-minecraft/"><u>[Updated] In 2024, Augmenting Gameplay Allocating More Memory to Minecraft</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-effortlessly-download-your-favorite-youtube-playlists/"><u>[Updated] In 2024, Effortlessly Download Your Favorite YouTube Playlists</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-viral-visionaries-most-favored-instagram-filters/"><u>[Updated] Viral Visionaries Most Favored Instagram Filters</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Motorola Moto G04? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-easter-acclaims-across-diverse-dialects/"><u>Global Easter Acclaims Across Diverse Dialects</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honoring-1500-gratuitous-dayly-tutorials/"><u>Honoring 1,500 Gratuitous Dayly Tutorials</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ingles-espanol-pares-y-falsos-linguisticos-palabras-comunes/"><u>Inglés-Español Pares Y Falsos Lingüísticos: Palabras Comunes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-days-marking-gratitude-and-harvest/"><u>International Days Marking Gratitude and Harvest</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/mastering-dvd-ripping-a-step-by-step-guide-to-extracting-and-renaming-titles-correctly/"><u>Mastering DVD Ripping: A Step-by-Step Guide to Extracting and Renaming Titles Correctly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-through-spanish-linguistic-accents/"><u>Navigating Through Spanish Linguistic Accents</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-reality-of-multilingualism-dissecting-falsehoods/"><u>The Reality of Multilingualism: Dissecting Falsehoods</u></a></li>
-<li><a href="https://some-skills.techidaily.com/top-11-techniques-for-perfecting-color-in-post-production-for-2024/"><u>Top 11 Techniques for Perfecting Color in Post-Production for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-the-power-of-language-mastering-spanish-with-top-10-greetings/"><u>Unlock the Power of Language: Mastering Spanish with Top 10 Greetings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-mondlys-updated-help-guide/"><u>Unveiling Mondly's Updated Help Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/1725290624955-dvdhdd/"><u>テレビからDVDへ：シンプルで完全！内蔵録画とHDD利用のチャネリング</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-trending-potential-in-your-videos/"><u>[New] Unlocking Trending Potential in Your Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-visual-victory-top-10-online-apps-to-sharpen-your-snaps-for-2024/"><u>[New] Visual Victory Top 10 Online Apps to Sharpen Your Snaps for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/babel-fish-reimagined-uncovering-the-top-6-advantages/"><u>Babel Fish Reimagined: Uncovering the Top 6 Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boosting-bilingualism-3-mind-stimulating-language-drills/"><u>Boosting Bilingualism: 3 Mind-Stimulating Language Drills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conocer-la-pantalla-del-reloj-pasos-para-comenzar/"><u>Conocer La Pantalla Del Reloj - Pasos Para Comenzar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-a-natural-french-accent-with-idioms/"><u>Cultivating a Natural French Accent with Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/danish-films-your-gateway-to-authentic-linguistic-fluency/"><u>Danish Films: Your Gateway to Authentic Linguistic Fluency</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/how-to-back-up-your-pcs-files-onto-a-usb-hdd-for-no-cost-windows-1087-guides/"><u>How to Back Up Your PC's Files Onto a USB HDD for No Cost - Windows 10/8/7 Guides</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/prepare-to-transform-your-diy-projects-with-the-groundbreaking-power-of-gpt-4/"><u>Prepare to Transform Your DIY Projects with the Groundbreaking Power of GPT-4</u></a></li>
+<li><a href="https://fox-that.techidaily.com/steps-for-conducting-an-iphone-hardware-check-via-apples-online-diagnostics/"><u>Steps for Conducting an iPhone Hardware Check via Apple's Online Diagnostics</u></a></li>
+<li><a href="https://win11.techidaily.com/stopping-user-initiated-windows-screen-shift/"><u>Stopping User-Initiated Windows Screen Shift</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unveiling-samsungs-latest-offer-the-ultimate-guide-to-copilotplus-top-windows-laptop-bargain-on-zdnet/"><u>Unveiling Samsung's Latest Offer: The Ultimate Guide to Copilot+ - Top Windows Laptop Bargain on ZDNet</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/why-instagram-story-highlights-matter-a-primer/"><u>Why Instagram Story Highlights Matter A Primer</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Linguagem Verde - Saudações a Toda Hora No Brasil
-date: 2024-11-04T02:58:02.101Z
-updated: 2024-11-05T05:20:25.538Z
+date: 2024-12-02T18:12:36.269Z
+updated: 2024-12-04T00:34:08.282Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
 
  So next time you go on an adventure to one of the 7 countries where Portuguese is the only official language (Portugal, Brazil, Mozambique, Angola, Cape Verde, Guinea-Bissau, São Tomé and Príncipe), try the following**Portuguese greetings** and see how easy it is to connect with someone even if you don’t speak the same language.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. How to say “hello” in Portuguese
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
@@ -37,6 +41,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
  “Lisbon, Portugal” by Diego García©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
 
@@ -68,10 +76,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  All three of these are safe to use in any kind of interaction (formal or informal).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
@@ -88,13 +93,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
@@ -121,32 +127,12 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
 
@@ -179,15 +165,22 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-previewed-fb-activity-is-it-safe-or-not/"><u>2024 Approved Navigating Previewed FB Activity Is It Safe or Not?</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/1728498847502-windows-11windows-10/"><u>簡単なガイド：Windows 11からWindows 10への素早いダウングレード手順</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/convert-fb-videos-directly-to-mp3-2023-edition-for-2024/"><u>Convert FB Videos Directly to MP3 - 2023 Edition for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-frankish-to-frisian-the-dutch-voyage/"><u>From Frankish to Frisian: The Dutch Voyage</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-oppo-find-n3-flip-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Oppo Find N3 Flip Users</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/join-the-fun-discover-how-couch-co-op-video-games-can-engage-casual-gamers/"><u>Join the Fun! Discover How Couch Co-Op Video Games Can Engage Casual Gamers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-leap-the-future-of-formal-education/"><u>Language Learning Leap: The Future of Formal Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/masterys-journey-celebrating-1500-free-daily-educational-stops/"><u>Mastery's Journey: Celebrating 1500 Free, Daily Educational Stops</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-invests-in-technology-for-enhanced-learning-experience/"><u>Mondly Invests in Technology for Enhanced Learning Experience</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/sonicscope-in-depth-auditory-evaluation-for-2024/"><u>SonicScope In-Depth Auditory Evaluation for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-unmarked-image-accumulation-essentials/"><u>[New] In 2024, Unmarked Image Accumulation Essentials</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-chart-your-course-to-youtube-success-with-these-techniques/"><u>[Updated] In 2024, Chart Your Course to YouTube Success with These Techniques</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-the-ultimate-low-cost-cameras-list/"><u>[Updated] In 2024, The Ultimate Low-Cost Cameras List</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-clandestine-glimpse-at-fb-flashbacks/"><u>2024 Approved Clandestine Glimpse at Fb Flashbacks</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-tecno-pova-5-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Tecno Pova 5 via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-in-class-fitness-tracking-technology-2024s-elite-picks/"><u>Best-in-Class Fitness Tracking Technology: 2024'S Elite Picks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-in-authentic-conversations-anywhere-mondly-vr-for-language-mastery/"><u>Engage in Authentic Conversations Anywhere - Mondly VR for Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-your-vocabulary-for-more-influential-conversations/"><u>Enhance Your Vocabulary for More Influential Conversations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/european-languages-spectrum-unity-through-diversity-on-europe-day/"><u>European Languages Spectrum: Unity Through Diversity on Europe Day</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/expand-your-storage-effortlessly-switch-to-a-bigger-hdd-or-ssd-in-windows-11-10-8-and-7-without-reinstall/"><u>Expand Your Storage Effortlessly - Switch to a Bigger HDD or SSD in Windows 11, 10, 8 & 7 Without Reinstall</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-ais-role-in-shaping-linguistic-abilities/"><u>Exploring AI's Role in Shaping Linguistic Abilities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-eloquence-korean-turkish-lingua/"><u>Exploring Eloquence: Korean-Turkish Lingua</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/express-yourself-like-a-german-with-these-25-sayings/"><u>Express Yourself Like a German with These 25 Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-bean-to-bite-translating-chocolate-in-global-tongues/"><u>From Bean to Bite: Translating 'Chocolate' In Global Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-far-and-wide-the-role-of-foreign-terminology-in-english/"><u>From Far and Wide: The Role of Foreign Terminology in English</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pros-choice-high-quality-4k-dslr-mounting-systems-for-2024/"><u>Pro's Choice High-Quality 4K DSLR Mounting Systems for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-meta-discontinuing-face-tech-from-fbs-repertoire/"><u>Why Is Meta Discontinuing Face Tech From FB's Repertoire?</u></a></li>
 </ul></div>
 

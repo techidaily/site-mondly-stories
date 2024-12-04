@@ -1,7 +1,7 @@
 ---
 title: Discovering The Languages of Love
-date: 2024-08-08T09:26:33.755Z
-updated: 2024-08-09T09:26:33.755Z
+date: 2024-11-29T02:58:19.594Z
+updated: 2024-12-03T17:22:15.217Z
 tags:
   - speak
   - english
@@ -18,11 +18,6 @@ thumbnail: https://thmb.techidaily.com/d599dad7b998abdf06ca417d32becc28547b33f18
 
  The Romance languages have grown to become one of the most prominent language families in the world. Despite being just a subgroup of the Indo-European language family, the Romance languages are still the most famous language family there is. Although having (almost) nothing to do with love, we all love them. In fact, they are some of the most popular foreign languages that English speakers want to learn. Still, one question remains: what are the Romance languages exactly?
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What are the Romance languages?
 
  **The Romance languages are a group of related languages that gradually evolved from Vulgar Latin in the first ten centuries CE. Bound together by the common ancestor, they form a subgroup of the Italic branch of the Indo-European language family.** The [most widely spoken](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Romance languages are Spanish, Portuguese, French, Italian, Romanian, and Catalan.
@@ -49,20 +44,22 @@ thumbnail: https://thmb.techidaily.com/d599dad7b998abdf06ca417d32becc28547b33f18
 
 ![what are the romance languages](https://edge.mondly.com/blog/wp-content/uploads/2021/07/what-are-the-romance-languages-960x541.jpg "What Are The Romance Languages? 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Mont Saint-Michel, France” by Fab Lentz©
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Latin-based languages – where do they come from?
 
  The [origin story](https://www.britannica.com/topic/Romance-languages) of the Romance languages was (and in some cases still is) highly disputed between historians and linguists. Less commonly known as Latin-based languages or simply Latin languages, they share Latin as the common ancestor. That you already know. But how did this happen?
 
  As the Roman Empire spread throughout Europe, the local population in most of those areas adopted two forms of Latin. One of them was Classical Latin, which was the formal language used by the upper classes. The other one was Vulgar Latin.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### What does ‘Vulgar Latin’ mean?
 
  Like ‘romance’, the word ‘vulgar’ in ‘Vulgar Latin’ doesn’t mean what you think it means. People didn’t use a special kind of Latin to be rude to one another.
@@ -71,25 +68,27 @@ thumbnail: https://thmb.techidaily.com/d599dad7b998abdf06ca417d32becc28547b33f18
 
 ![italian](https://edge.mondly.com/blog/wp-content/uploads/2021/07/italian-960x768.jpg "What Are The Romance Languages? 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Manarola, Italy” by Robert Aniței©
 
  Back to our origin story, as you might have guessed, Vulgar Latin is the Latin that spread amongst the local populations of the Roman Empire. Then, over time, it evolved separately into different varieties of spoken Latin all over the empire.
 
  After the fall of the Roman Empire, these Latin varieties started to diverge even more and eventually evolved into separate languages. Unlike today, back in those days, there was no TV, radio or universal education to keep people up-to-date with the standard form of Latin. Consequently, the spoken forms of Latin diverged quite easily into the Romance languages we all know and love today.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How similar are Romance languages?
 
  **Let’s put it this way: if you learn one Romance language, you’ll certainly ease your way into the next.** The most mutually intelligible are [Spanish and Portuguese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) which people mistake one for another more often than you’d think. Then, there’s also a degree of intelligibility between Spanish and Italian and Italian and Romanian.
 
  However, that intelligibility mostly goes in one direction. For example, Portuguese speakers can often understand Spanish very well, but Spanish speakers can’t understand Portuguese because of its complex phonology.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ![latin based languages](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-based-languages.png "What Are The Romance Languages? 7")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Romanian is always the odd one out.
 
@@ -105,8 +104,9 @@ thumbnail: https://thmb.techidaily.com/d599dad7b998abdf06ca417d32becc28547b33f18
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### From 0 to conversational in any Romance language
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get Mondly, the award-winning language learning app that will help you speak any of the main Romance languages and even their ancestor, Latin, in just 10 minutes a day.
@@ -123,8 +123,6 @@ thumbnail: https://thmb.techidaily.com/d599dad7b998abdf06ca417d32becc28547b33f18
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -132,6 +130,22 @@ thumbnail: https://thmb.techidaily.com/d599dad7b998abdf06ca417d32becc28547b33f18
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-giggle-guides-essential-websites-for-humorous-ringtones/"><u>[New] Giggle Guides Essential Websites for Humorous Ringtones</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-engage-enchant-excel-the-art-of-crafting-effective-titles-for-2024/"><u>[Updated] Engage, Enchant, Excel The Art of Crafting Effective Titles for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-rise-and-fall-of-vegas-pro-a-critical-look/"><u>[Updated] The Rise and Fall of Vegas Pro A Critical Look</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendizaje-basico-de-hora-y-contadores-en-espanol/"><u>Aprendizaje Básico De Hora Y Contadores en Espaňol</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719574561356-dive-into-new-tongues-for-just-055-per-lesson-this-year/"><u>Dive Into New Tongues for Just $0.55 Per Lesson This Year!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-word-goliaths-uncovering-the-longest-title/"><u>Global Word Goliaths: Uncovering the Longest Title</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hofliches-aussprechen-von-reue-in-deutsch/"><u>Höfliches Aussprechen Von Reue in Deutsch</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-analyzing-the-frequency-of-youtube-payments/"><u>In 2024, Analyzing the Frequency of YouTube Payments</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-itel-a60s-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Itel A60s FRP</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/mastering-the-ken-burns-effect-in-final-cut-pro-a-step-by-step-guide/"><u>Mastering the Ken Burns Effect in Final Cut Pro A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-israel-top-5-tips-and-vital-language-skills/"><u>Navigating Israel: Top 5 Tips and Vital Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/novel-selection-for-francophones-starting-their-journey/"><u>Novel Selection for Francophones Starting Their Journey</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-rated-apple-watch-models-in-depth-analysis-by-tech-experts/"><u>Top-Rated Apple Watch Models - In-Depth Analysis by Tech Experts</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Motorola Edge+ (2023) | Dr.fone</u></a></li>
+</ul></div>
 

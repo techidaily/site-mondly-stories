@@ -1,7 +1,7 @@
 ---
 title: Vital Russian Communication Tools for Explorers
-date: 2024-11-18T22:16:22.397Z
-updated: 2024-11-24T21:28:15.581Z
+date: 2024-11-27T21:21:44.115Z
+updated: 2024-12-03T22:55:53.646Z
 tags:
   - speak
   - english
@@ -36,10 +36,6 @@ thumbnail: https://thmb.techidaily.com/b11cfa6cab7ceb94681fcab83e62d05efa3e76c07
 8. [Russia Travel Guide – how to say that you have fallen in love?](#russia-travel-guide)
 9. [Bonus basic Russian phrases for FIFA World Cup 2018](#russian-phrases-world-cup)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Greetings and other useful Russian words
 
  Manners are a must. In every situation. At home, in the park or in another country. It doesn’t matter where you are. If you are traveling to a foreign country, start learning the basics first. Greetings, apologies and, thanks will always help you the most. If you were wondering how to say_good afternoon_ in Russian or what is the meaning of da, here it is:
@@ -73,6 +69,10 @@ thumbnail: https://thmb.techidaily.com/b11cfa6cab7ceb94681fcab83e62d05efa3e76c07
 * Where are you from? –_Откуда ты? – Otkuda ty?_
 * Have a good day. –_Ну тогда до свидания. – Nu togda do svidaniya._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Useful Russian phrases for when you are at the airport
 
  Arriving at the airport – both at the beginning and at the end of your journey – will also require some basic Russian phrases. Whether we are talking about small talk with the person sitting next to you on the airplane, passport verification or asking for directions, these Russian phrases will definitely have your back in any situation.
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/b11cfa6cab7ceb94681fcab83e62d05efa3e76c07
 ![useful russian phrases scaled](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-phrases-scaled-640x960.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Photo by Tom Barrett
@@ -115,6 +115,10 @@ thumbnail: https://thmb.techidaily.com/b11cfa6cab7ceb94681fcab83e62d05efa3e76c07
 
 ![learn russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/learn-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Photo by A.L.
 
 * Where can I buy tickets? –_Где здесь можно купить билеты? – Gde zdes mozhno kupit bilety?_
@@ -127,10 +131,6 @@ thumbnail: https://thmb.techidaily.com/b11cfa6cab7ceb94681fcab83e62d05efa3e76c07
 * Please wait a moment. – _Пожалуйста, подождите чуть-чуть. – Pozhaluysta, podozhdite chut-chut._
 * I’ll be back immediately. –_Я скоро вернусь. – Ya skoro vernus._
 * Drive me to this address. –_Отвезите меня по этому адресу. – Otvezite menya po etomu adresu_ .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Advanced Russian phrases for different hotel situations
 
@@ -184,7 +184,7 @@ thumbnail: https://thmb.techidaily.com/b11cfa6cab7ceb94681fcab83e62d05efa3e76c07
 * What would you like for breakfast? –_Что бы вы хотели на завтрак? – Chto by vy hoteli na zavtrak?_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Russian for travelers who want to have fun
@@ -221,7 +221,7 @@ Just joking. Still is an amazing drink, though!
 ![basic-russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/bassic-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 9")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Photo by Alina Grubnyak
@@ -230,10 +230,6 @@ Just joking. Still is an amazing drink, though!
 * Can I have a receipt? –_Дайте мне, пожалуйста, чек. – Dayte mne, pozhaluysta, chek._
 * What would you like? –_Что вы предпочитаете? – Chto vy predpochitayete?_
 * Can I have some ice cream? –_Можно мне мороженого? – Mozhno mne morozhenogo?_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 8\. Russia Travel Guide – how to say that you have fallen in love?
 
@@ -264,6 +260,10 @@ Just joking. Still is an amazing drink, though!
 ## Bonus: Basic Russian phrases for football lovers
 
 ![russian-phrases-world-cup](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-phrases-world-cup-1024x576.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 11")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Photo by Fauzan Saari
 
@@ -303,19 +303,17 @@ Just joking. Still is an amazing drink, though!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-wirecast-techniques-for-effective-youtube-streams/"><u>[New] WireCast Techniques for Effective Youtube Streams</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-comprehensive-guide-to-choosing-podcast-names-plus-creative-ideas-list/"><u>2024 Approved Comprehensive Guide to Choosing Podcast Names + Creative Ideas List</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-innovative-tools-for-cutting-edge-xbox-gaming-recordings/"><u>2024 Approved Innovative Tools for Cutting-Edge Xbox Gaming Recordings</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1728464114176-10/"><u>完了したウィンドウズ 10のデータバックアップが未実行:問題解決指南</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-on-apple-iphone-11-pro-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled On Apple iPhone 11 Pro? 7 Mehtods You Cant-Miss</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/customizing-time-before-next-login-after-failure-in-win-1011/"><u>Customizing Time Before Next Login After Failure in Win 10/11</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-10t-5g-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Realme 10T 5G Phone Without Password?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interactive-methods-to-make-spanish-fun/"><u>Interactive Methods to Make Spanish Fun</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-swedish-sounds-a-quick-guide/"><u>Mastering Swedish Sounds: A Quick Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-commitments-for-a-better-you/"><u>Navigating Commitments for a Better You</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210411448-9781684860029-planet-sylvia/"><u>Planet Sylvia | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simplified-steps-to-turkish-pronunciation-quick-reference-guide/"><u>Simplified Steps To Turkish Pronunciation: Quick Reference Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-number-one-the-foundation/"><u>Spanish Number One: The Foundation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldly-influence-on-the-language-we-love/"><u>Worldly Influence on the Language We Love</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-fbx-recorder-alternatives-the-new-era-of-gaming-capture/"><u>[New] In 2024, FBX Recorder Alternatives The New Era of Gaming Capture</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-maximizing-your-gaming-with-xbox-screenshots-for-2024/"><u>[New] Maximizing Your Gaming with Xbox Screenshots for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/urning-hobby-into-habit-making-money-with-vlogs/"><u>[New] Turning Hobby Into Habit Making Money with Vlogs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-minute-tagalog-study-sessions-for-proficiency/"><u>10-Minute Tagalog Study Sessions for Proficiency</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-ultimate-guide-to-affordable-online-photo-edits-of-the-year/"><u>2024 Approved Ultimate Guide to Affordable Online Photo Edits of the Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-simplified-introduction-to-german-pronunciation/"><u>A Simplified Introduction to German Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/creating-a-personalized-french-education-at-home/"><u>Creating a Personalized French Education at Home</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/essential-fast-control-tools-for-gaming-enthusiasts/"><u>Essential Fast-Control Tools for Gaming Enthusiasts</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-honor-magic-vs-2-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Honor Magic Vs 2 FRP Bypass</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/insight-on-overcoming-steams-recent-connectivity-problems-for-gamers/"><u>Insight on Overcoming Steam's Recent Connectivity Problems for Gamers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576057831-swift-syntax-and-vocabul-written-by-user/"><u>Swift Syntax and Vocabul Written by User:</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/which-operating-system-suits-you-best-a-comparison-of-iphone-and-android-phones/"><u>Which Operating System Suits You Best? A Comparison of iPhone & Android Phones</u></a></li>
 </ul></div>
 

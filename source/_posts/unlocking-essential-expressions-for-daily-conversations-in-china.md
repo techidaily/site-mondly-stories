@@ -1,7 +1,7 @@
 ---
 title: Unlocking Essential Expressions for Daily Conversations in China
-date: 2024-11-19T16:15:40.940Z
-updated: 2024-11-24T20:34:44.904Z
+date: 2024-11-27T17:07:12.073Z
+updated: 2024-12-04T02:26:40.454Z
 tags:
   - speak
   - english
@@ -35,16 +35,12 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
  Now that you know the easiest and most popular way to say “hello” in Chinese, let’s move on to more advanced Mandarin Chinese greetings that are guaranteed to make you sound fluent.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. 早！(zǎo) – “Morning!” in Chinese
 
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. 你好吗? (nǐ hǎo ma) – “How are you?” in Chinese
 
@@ -53,7 +49,7 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
@@ -80,24 +76,28 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  “Hello there!” by Theodor Lundqvist©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
 
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 8\. 下午好 (xiàwǔ hǎo) – “Good afternoon” in Chinese
 
  Want to diversify the way you greet people in Chinese? Then you can go with 下午好 (xiàwǔ hǎo) when it’s the right time of the day.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
@@ -136,16 +136,22 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/updated-crafting-cinematic-stories-in-extended-seconds-a-guide-to-creating-spectacularly-long-lasting-video-from-still-images-online/"><u>[Updated] Crafting Cinematic Stories in Extended Seconds A Guide to Creating Spectacularly Long Lasting Video From Still Images Online</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/discovering-why-ios-gets-the-preferential-treatment-in-gpt/"><u>Discovering Why iOS Gets the Preferential Treatment in GPT</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-take-your-english-to-the-next-level/"><u>How to Take Your English to the Next Level</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-troubleshoot-and-repair-driver-power-state-failures-on-pc/"><u>How to Troubleshoot and Repair Driver Power State Failures on PC</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-xs-to-the-latest-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone XS to the Latest iOS Version? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-nokia-g310-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Nokia G310</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/in-depth-analysis-on-the-legality-of-duplicating-dvd-content-a-full-breakdown/"><u>In-Depth Analysis on the Legality of Duplicating DVD Content: A Full Breakdown</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-bulgarian-in-dashes-10-minute-sessions/"><u>Learn Bulgarian in Dashes - 10-Minute Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-revolutionary-vr-language-learning-experience/"><u>Mondly Unveils: Revolutionary VR Language Learning Experience!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/say-ciao-right-top-10-italian-welcoming-phrases-unveiled/"><u>Say 'Ciao!' Right: Top 10 Italian Welcoming Phrases Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-hungarian-way-to-declare-your-heart/"><u>The Hungarian Way to Declare Your Heart</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-android-sound-and-ringtone-customization/"><u>[Updated] 2024 Approved A Comprehensive Guide to Android Sound and Ringtone Customization</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-revival-of-obs-camera-achieved/"><u>[Updated] 2024 Approved Revival of OBS Camera Achieved</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/a-leap-forward-in-usability-stellar-redesigns-data-recovery-solution-to-suit-consumer-needs/"><u>A Leap Forward in Usability - Stellar Redesigns Data Recovery Solution to Suit Consumer Needs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/clarity-in-speech-overcome-mispronunciations-with-twisters/"><u>Clarity in Speech: Overcome Mispronunciations with Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/croatian-national-language/"><u>Croatian National Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diverse-dialogue-languages-in-the-belgian-territory/"><u>Diverse Dialogue: Languages in the Belgian Territory</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effortless-guide-how-to-transform-your-m4v-files-into-mp3-format-on-a-windows-pc/"><u>Effortless Guide: How to Transform Your M4V Files Into MP3 Format on a Windows PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-language-acquisition-through-melodic-evidence-based-approaches/"><u>Elevate Language Acquisition Through Melodic, Evidence-Based Approaches</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-hands-on-thrustmaster-t150-racing-rapid-download-of-high-quality-drivers/"><u>Get Your Hands on Thrustmaster T150 Racing: Rapid Download of High-Quality Drivers</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-for-security-reasons-on-apple-iphone-6s-find-the-best-solution-here-by-drfone-ios/"><u>In 2024, Apple ID Locked for Security Reasons On Apple iPhone 6s? Find the Best Solution Here</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Infinix Hot 40i | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-to-correct-french-vowel-and-consonant-sounds/"><u>Introduction to Correct French Vowel and Consonant Sounds</u></a></li>
+<li><a href="https://win-answers.techidaily.com/rogue-company-game-crashes-fixed-now-running-smoothly-on-your-pc/"><u>Rogue Company Game Crashes Fixed: Now Running Smoothly on Your PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplified-czech-studies-on-digital-platforms/"><u>Simplified Czech Studies on Digital Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-powerful-english-communication-with-these-tricks/"><u>Unleash Powerful English Communication with These Tricks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-squid-game-korean-lessons-await/"><u>Unraveling Squid Game: Korean Lessons Await</u></a></li>
+<li><a href="https://techtrends.techidaily.com/your-guide-to-the-hottest-max-streaming-originals-of-the-week/"><u>Your Guide to the Hottest Max Streaming Originals of the Week</u></a></li>
 </ul></div>
 

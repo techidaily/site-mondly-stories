@@ -1,7 +1,7 @@
 ---
 title: "Say It Like You Mean It: How to Say “I Love You” In 32 Different Languages"
-date: 2024-11-17T22:11:08.799Z
-updated: 2024-11-24T19:49:25.367Z
+date: 2024-11-26T18:09:18.741Z
+updated: 2024-12-03T17:19:04.841Z
 tags:
   - speak
   - english
@@ -62,6 +62,10 @@ Here are some more ways to say “I love you” in other languages:
 
 ![i love you in french](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-french.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Now back to expressing your love in different languages. If you feel like the video above wasn’t enough for you, here’s how to write “I love you” in different languages – with transliterations where it’s needed. **Keep in mind that these aren’t always the most commonly used in their home country.** They are, instead, the most complete and grammatically correct – which is what you really need in the beginning.
 
  P.S.: If you are getting too excited to find out how do you say [I love you in Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , here’s the quick answer:_te amo!_
@@ -83,6 +87,10 @@ Here are some more ways to say “I love you” in other languages:
 * **I love you in Hindi:** _मैं तुमसे प्यार करती हूँ! – Main tumasee pyaar karatee huun!_
 
 ![how to say i love you by Tyler Nix©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/how-to-say-i-love-you-scaled.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * **I love you in Croatian:** _Volim te!_
 * **I love you in Hungarian:** _Szeretlek!_
@@ -107,10 +115,6 @@ Here are some more ways to say “I love you” in other languages:
 
 **Here’s a short recap with only the correct pronunciations:**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## “I love you” in sign language
 
  To sign “I love you”, put up your thumb, index finger and pinkie finger while keeping your ring finger and your middle finger down. Like this:
@@ -118,7 +122,7 @@ Here are some more ways to say “I love you” in other languages:
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
@@ -128,14 +132,10 @@ Here are some more ways to say “I love you” in other languages:
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### A love poem for your loved one
 
@@ -190,7 +190,7 @@ _With you, my heart will forever blend._
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### From “I love you” to conversational fast
@@ -224,14 +224,21 @@ _With you, my heart will forever blend._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-apowersoft-screen-record-unveiled-top-alternatives-reviewed/"><u>[New] In 2024, Apowersoft Screen Record Unveiled - Top Alternatives Reviewed</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-global-streaming-giants-face-off-facebook-live-youtube-live-periscope/"><u>[Updated] Global Streaming Giants' Face-Off Facebook Live, YouTube Live, Periscope</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-5-solutions-for-samsung-galaxy-a15-5g-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Samsung Galaxy A15 5G Unlock Without Password</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-softening-mix-tracks-incrementally-in-fl/"><u>In 2024, Softening Mix Tracks Incrementally in FL</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-no-cost-language-learning-nationwide/"><u>Mondly: No-Cost Language Learning Nationwide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/number-1-10-in-everyday-spanish/"><u>Number 1-10 in Everyday Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pronunciation-pioneers-unveiling-scottish-irish-and-aussie-flair/"><u>Pronunciation Pioneers: Unveiling Scottish, Irish, and Aussie Flair</u></a></li>
-<li><a href="https://fox-info.techidaily.com/step-by-step-tutorial-for-effective-morphvox-audio-changes/"><u>Step-by-Step Tutorial for Effective MorphVOX Audio Changes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-finest-3-online-schools-learn-languages-with-precision-and-passion/"><u>The Finest 3 Online Schools: Learn Languages with Precision & Passion</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-elite-8s-imagery-merging-digital-software/"><u>[New] 2024 Approved Elite 8’S Imagery Merging Digital Software</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unveil-creative-potential-top-7-free-sound-effects-for-youtubers/"><u>[New] Unveil Creative Potential Top 7 Free Sound Effects for YouTubers</u></a></li>
+<li><a href="https://win-online.techidaily.com/1-resolving-issues-with-non-appearing-iphone-playlist-on-itunes-top-4-solutions/"><u>1. Resolving Issues with Non-Appearing iPhone Playlist on iTunes: Top 4 Solutions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-building-business-via-beauty-vlogs/"><u>2024 Approved Building Business via Beauty Vlogs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-reasons-why-you-should-learn-a-language-in-your-fortiesback-buttonfilter-button/"><u>4 Reasons Why You Should Learn A Language In Your FortiesBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-learning-lithuanias-language-online/"><u>Accelerated Learning: Lithuania's Language Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basic-guide-to-french-language-sounds-and-rhythms/"><u>Basic Guide to French Language Sounds and Rhythms</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/vating-audiences-adopting-youtube-vlogger-charisma-for-2024/"><u>Captivating Audiences Adopting YouTube Vlogger Charisma for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/corporate-language-training-for-business-success-top-5-tips-to-enhance-communication-skills/"><u>Corporate Language Training for Business Success: Top 5 Tips to Enhance Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/croatias-dominant-dialect/"><u>Croatia's Dominant Dialect</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoing-voices-for-educators-in-multilingual-praise/"><u>Echoing Voices for Educators in Multilingual Praise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embark-on-an-enlightening-journey-in-hindi-top-8-reasons-to-select-mondlys-learning-platform/"><u>Embark on an Enlightening Journey in Hindi: Top 8 Reasons to Select Mondly's Learning Platform</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-xr-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone XR Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Oppo Reno 8T 5G | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-path-to-smooth-transitions-in-inshot-editing-for-2024/"><u>The Path to Smooth Transitions in Inshot Editing for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unveiling-av1-foundations-and-fundamentals-for-2024/"><u>Unveiling AV1 Foundations and Fundamentals for 2024</u></a></li>
 </ul></div>
 

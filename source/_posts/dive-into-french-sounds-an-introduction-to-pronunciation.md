@@ -1,7 +1,7 @@
 ---
 title: "Dive Into French Sounds: An Introduction to Pronunciation"
-date: 2024-08-08T09:27:40.809Z
-updated: 2024-08-09T09:27:40.809Z
+date: 2024-11-26T20:09:35.556Z
+updated: 2024-12-04T03:41:56.495Z
 tags:
   - speak
   - english
@@ -30,9 +30,6 @@ thumbnail: https://thmb.techidaily.com/64fcfc6286de188c8366d6a329563edab62ff52b5
 
  There’s no need to worry, though. As you yourself find French difficult to pronounce, French people sometimes find English hard to pronounce. Luckily, with the right training, speaking French can be as simple as saying [_bonjour_](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or _de rien_ (that’s [_you’re welcome_ in French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## An introduction to French sounds & French pronunciation
 
 The same as English, [French](https://en.wikipedia.org/wiki/French%5Flanguage)  uses the 26-letter basic Latin script, with four diacritics appearing on vowels – circumflex accent, acute accent, grave accent, diaeresis – and the cedilla in “ç”.
@@ -51,9 +48,6 @@ To help you get started with the _magique_  French sounds, we put together this 
 
  There’s no denying that French pronunciation can be challenging. Depending on your ability (or inability) to mimic sounds, speaking French with a French accent can be a piece of cake or a hornet’s nest. Here are some of the most infamous French pronunciation challenges and how to overcome them. For practice, you may start with the [days of the week in French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) pronunciation.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The French r
 
  The Holy Grail of French pronunciation. The Gioconda of French pronunciation. And yet… an endless source of headaches for almost every beginner learning French: the infamous French “r”.
@@ -63,6 +57,10 @@ To help you get started with the _magique_  French sounds, we put together this 
  Depending on what is your native language, the key is to practice several times before you find the sound closest to what you dream to achieve. There’s no secret. Just keep “r”-ing until you get it. You’ll eventually get there.
 
 Repeat the phrase **_regardez mon frère_** and find out where right now.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### “u”, “eu” and “ue” in French
 
@@ -81,6 +79,10 @@ Repeat the phrase **_regardez mon frère_** and find out where right now.
  So how do you do it? For example, start saying the word “song”, but stop just before your throat closes to produce the “ng” sound. _Voilà !_ You’ve just pronounced the French word _cent_ (“hundred”).
 
  To practice the pronunciation of “in”, ”ain” or ”eint”, start saying the word “clang” and stop just before your throat closes into the “ng” sound. Now, try again without the “kl” sound in the beginning. It’s easy!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### ë, è, é and ê
 
@@ -111,16 +113,14 @@ Well, not very different from each other, are they?
 * “x” – _deux_ (“two”), _prix_ (“prize”)
 * “z” – _chez_ (“at”)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![french buildings](https://edge.mondly.com/blog/wp-content/uploads/2020/05/french-buildings-960x640.jpg "Quick Guide To French Pronunciation - How To Speak French Like A Native 3")
 
  “French buildings” by Orlova Maria©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What are French liaisons and how to master them?
 
 To put it simply, _French liaisons_  or French connecting sounds bind together two words by blending the last letter of a word with the first letter of the following word.
@@ -131,18 +131,6 @@ To put it simply, _French liaisons_  or French connecting sounds bind together t
 
 Now, some of these _liaisons_  are optional, others are required, and some are forbidden (or, if you liked the well-known novel [_Les liaisons dangereuses_](https://en.wikipedia.org/wiki/Les%5FLiaisons%5Fdangereuses)  , you can simply say they are dangerous to use). Let’s get into a little more detail.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Required French liaisons
 
  Generally,_liaisons_ between syntactically related words (like an article and a noun, a pronoun and a verb or a noun and its adjective) are required. Of course, there are always exceptions, but the rule applies most of the time and it can help you improve your [French pronunciation](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast. Here are a few examples:
@@ -165,8 +153,9 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
  \*_h aspiré_ is different from h muet (“mute h”). It’s true that in French “h” is always a silent letter. However, in Old and Middle French, on certain words, the “h” was pronounced. This is why, if you want to say_les hôpitaux_  (“hospitals”), there is a_liaison_  between the two words because the “h” is_muet_  and not_aspiré._
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Optional French liaisons
 
  This time, it is up to you whether to use the_liaison_ or not. But you should know from the beginning that when the_liaison_ is optional, most people choose not to use it.
@@ -177,11 +166,12 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
 
 ![interior versailles palace](https://edge.mondly.com/blog/wp-content/uploads/2020/05/interior-versailles-palace-1-960x640.jpg "Quick Guide To French Pronunciation - How To Speak French Like A Native 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Versailles Palace, France” by Louis Paulin©
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to perfect your French pronunciation
 
  There is no magic recipe that works for everyone. The key is to be persistent and find out what suits you best. Whenever you want to learn something – anything – new, daily practice is required. Even when it comes to French accent and pronunciation. If at first you don’t succeed, don’t give up. Success is the sum of our failures.
@@ -202,8 +192,9 @@ _Bonne chance!_
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Speak French fluently in just 10 minutes a day
 
  Do you want to speak French fluently fast? Get Mondly, the award-winning language learning app that will help you speak French as if it were your first language.
@@ -220,8 +211,6 @@ _Bonne chance!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -229,6 +218,24 @@ _Bonne chance!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-navigating-netizens-youtubes-footprint-in-facebook/"><u>[New] In 2024, Navigating Netizens YouTube’s Footprint in Facebook</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-power-of-symbolism-in-crafting-effective-podcast-logos/"><u>[New] The Power of Symbolism in Crafting Effective Podcast Logos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-expertise-required-for-mastery-of-ios-11s-camera-for-2024/"><u>[Updated] Expertise Required for Mastery of iOS 11'S Camera for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-selection-of-androids-most-innovative-music-videography-tools/"><u>[Updated] The Ultimate Selection of Android's Most Innovative Music Videography Tools</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-professional-filming-made-simple-the-essentials-of-logitech-webcam-setup/"><u>2024 Approved Professional Filming Made Simple The Essentials of Logitech Webcam Setup</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-knowledge-gaps-with-ai-assistance/"><u>Bridging Knowledge Gaps With AI Assistance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-countries-that-santa-can-speak-too/"><u>Discover the Countries That Santa Can Speak Too</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/earths-dominant-tongues-leading-fifteen-list/"><u>Earth's Dominant Tongues: Leading Fifteen List</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-motorola-moto-g13-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Motorola Moto G13 PC | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-comedic-content-coder/"><u>In 2024, Comedic Content Coder</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-top-mac-visual-seize-methods-reviewed-limit-156-chars/"><u>In 2024, Top Mac Visual Seize Methods Reviewed (Limit 156 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/local-lingo-made-simple-speak-like-an-aussie/"><u>Local Lingo Made Simple: Speak Like an Aussie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/solace-for-strugglers-dannys-foundation-in-colombia/"><u>Solace for Strugglers: Danny's Foundation in Colombia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starters-pack-of-spanish-counting/"><u>Starter's Pack of Spanish Counting</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/troubleshooting-guide-solving-the-vlc-cant-play-youtube-issue-8-effective-methods/"><u>Troubleshooting Guide: Solving the 'VLC Can't Play YouTube' Issue (8 Effective Methods)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-birthday-a-universal-happiness/"><u>U.S. Birthday: A Universal Happiness</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-mondly-excellence/"><u>Unlocking the Secrets of Mondly Excellence</u></a></li>
+</ul></div>
 

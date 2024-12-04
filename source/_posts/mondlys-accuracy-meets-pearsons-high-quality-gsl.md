@@ -1,7 +1,7 @@
 ---
 title: Mondly's Accuracy Meets Pearson’s High-Quality GSL
-date: 2024-11-19T18:09:44.961Z
-updated: 2024-11-24T16:22:03.409Z
+date: 2024-11-30T19:01:27.618Z
+updated: 2024-12-03T23:07:02.383Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/93cb6ac8ec609718de42842a42295e1ee84908cc0
 
  The Global Scale of Languages (GSL) helps educators and language learners know where they are, where they need to go and how they can get there.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Starting with the Global Scale of English (GSE)**
 
  Before we delve deeper into the GSL, it’s crucial to understand its roots: the GSE.
@@ -29,10 +33,6 @@ thumbnail: https://thmb.techidaily.com/93cb6ac8ec609718de42842a42295e1ee84908cc0
  The Global Scale of English (GSE) is not just another language framework; it’s an evolution in understanding linguistic proficiency.
 
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Introducing the Global Scale of Languages (GSL)**
 
@@ -42,13 +42,13 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **How Pearson created the GSL**
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Why the GSL stands out**
 
@@ -57,7 +57,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Why start with French, Spanish, and Italian?**
@@ -69,7 +69,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Language learning backed by unparalleled global research**
@@ -84,7 +84,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Fast-track your progress with Mondly by Pearson**
@@ -108,16 +108,22 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/mondly-the-key-to-unlocking-linguistic-adventures-on-oculus-quest/"><u>'Mondly': The Key to Unlocking Linguistic Adventures on Oculus Quest</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-10-recording-tips-to-record-audio-in-high-quality-for-2024/"><u>[Updated] 10 Recording Tips to Record Audio in High Quality for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-tecno-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Tecno</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/flask-dashboard-mastery-with-material-design-and-bootstrap-n4-by-creative-tim-ultimate-admin-interface-tutorial/"><u>Flask Dashboard Mastery with Material Design & Bootstrap N4 by Creative Tim – Ultimate Admin Interface Tutorial</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-leave-a-life360-group-on-honor-magic-5-lite-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Honor Magic 5 Lite Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-nokia-g42-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Nokia G42 5G Without PUK Codes</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/reviving-your-corsair-hs50-expert-solutions-for-a-broken-microphone/"><u>Reviving Your Corsair HS50: Expert Solutions for a Broken Microphone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speedy-bengali-language-bootcamp/"><u>Speedy Bengali Language Bootcamp</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-fundamentals-of-pronouncing-french-words-rightly/"><u>The Fundamentals of Pronouncing French Words Rightly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-sweetest-syntax-how-to-say-chocolate-everywhere/"><u>The Sweetest Syntax: How To Say 'Chocolate' Everywhere</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-choice-todays-top-ios-app/"><u>Worldwide Choice: Today's Top iOS App</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-facebook-video-layouts-vertical-or-horizontal-in-2024/"><u>[Updated] Facebook Video Layouts Vertical or Horizontal, In 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-lightning-fast-windowed-photo-reader-for-win11/"><u>[Updated] Lightning-Fast Windowed Photo Reader for Win11</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-reimagine-your-storytelling-with-smartly-scaled-instagram-videos-for-2024/"><u>[Updated] Reimagine Your Storytelling with Smartly Scaled Instagram Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-pathways-to-cultural-bridges-through-language-learning/"><u>10 Pathways to Cultural Bridges Through Language Learning</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-hassle-free-photo-and-video-upload-ios-device/"><u>2024 Approved Hassle-Free Photo & Video Upload IOS Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/app-based-mastery-of-romanian-vocabulary/"><u>App-Based Mastery of Romanian Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-with-top-9-difficult-dialects/"><u>Breaking Language Barriers with Top 9 Difficult Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577089071-clicking-through-revised-policies-now/"><u>Clicking Through: Revised Policies Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-lanatomie-fondamentale-parts-of-the-body-en-francais/"><u>Comprendre L'Anatomie Fondamentale: Parts of the Body en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-language-hurdles-oxford-and-mondlys-blend/"><u>Conquer Language Hurdles - Oxford & Mondly's Blend</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-learning-for-real-romanians/"><u>Digital Learning for Real Romanians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580281495-embark-on-an-enlightening-journey-in-hindi-top-8-reasons-to-select-mondlys-learning-platform/"><u>Embark on an Enlightening Journey in Hindi: Top 8 Reasons to Select Mondly's Learning Platform!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-advanced-techniques-for-tiktok-video-enhancement-via-zoom/"><u>In 2024, Advanced Techniques for TikTok Video Enhancement via Zoom</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-comprehensive-youtube-etiquette-guide/"><u>In 2024, Comprehensive YouTube Etiquette Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-your-first-step-into-youtube-creating-an-engaging-channel/"><u>In 2024, Your First Step Into YouTube Creating an Engaging Channel</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/simplified-guide-rapid-conversion-of-flv-files-into-webm-format/"><u>Simplified Guide: Rapid Conversion of FLV Files Into WebM Format</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/top-video-rotator-tools-for-online-use/"><u>Top Video Rotator Tools for Online Use</u></a></li>
 </ul></div>
 

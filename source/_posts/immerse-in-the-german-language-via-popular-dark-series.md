@@ -1,7 +1,7 @@
 ---
 title: Immerse in the German Language via Popular Dark Series
-date: 2024-11-21T20:34:42.349Z
-updated: 2024-11-24T23:03:36.404Z
+date: 2024-12-02T18:48:19.429Z
+updated: 2024-12-03T22:52:51.519Z
 tags:
   - speak
   - english
@@ -26,15 +26,15 @@ thumbnail: https://thmb.techidaily.com/52ee970294742b32cbcdd126a6e2cb23605fc3303
 
 Here’s the official trailer for the first season:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Upside Down has nothing on Winden
 
  Dark resembles Stranger Things a LOT. But it’s definitely better. If you are one of those people that would always prefer a European indie instead of a Hollywood blockbuster, Dark it’s just what you need. Filled with gorgeous shots, intense storytelling, and the perfect music, the German TV series sends shivers down your spine if you watch it at night when you are home alone.
 
 While being indeed very similar to Stranger Things, Dark is at the same time very different in its complexity. If Stranger Things offers a visualization of the evil forces that rule Hawkins, Dark keeps you – and Winden (the city where the action takes place) – in total darkness for a long time. Using sound, rain, and a specific color palette, this series manages to achieve a sense of claustrophobia in the viewer. The screen is not a barrier anymore. It basically makes you fear the unknown. Baran bo Odar – the creator – uses the expectations people built watching these genres (thriller or horror) to induce a sense of anticipation every time a certain type of music can be heard in the background and that’s pretty amazing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What is Dark all about?
 
@@ -44,14 +44,6 @@ While being indeed very similar to Stranger Things, Dark is at the same time ver
 
 ![NETFLIX DARK GERMAN LANGUAGE](https://media.giphy.com/media/xUOxfhJk0NqRxEiCOY/giphy.gif "Learn German With Dark On Netflix 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why am I going to love the German language after watching Dark?
 
  It’s a bit complicated and I’m going to shed some light on that in a minute. I don’t know how it is for you, but society and entertainment always seem to maintain and even solidify our preconceptions about the German language. Hitler spoke German. World War II started when Germany did what it did. We get it. But why do we keep putting a tag on Germany and Germans for that? Why do we live in the past? I’ve met a lot of people who associated the sound of the German language with the war. Is it the same for you? We have a lot of preconceptions, but this one is particularly hard to break.
@@ -60,17 +52,21 @@ While being indeed very similar to Stranger Things, Dark is at the same time ver
 
 ![JONAS DARK NETFLIX](https://media.giphy.com/media/xUOxf8OrAxtKl1zlT2/giphy.gif "Learn German With Dark On Netflix 3")
 
- I personally wanted to learn German for a long time, but I would always give up on the second day. This time I started [learning German with Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) because I really REALLY enjoyed the sound of it in Dark. It’s the same as falling in love. You have to click. Just imagine my enthusiasm when I understood the first German word while watching Dark! A few months after finishing the series I’m still [learning German with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-1866&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1866?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1866?mother%5Flang=en%5Fus?target%5Flang=de) . For a lazy procrastinator like me, that’s magic.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ I personally wanted to learn German for a long time, but I would always give up on the second day. This time I started [learning German with Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) because I really REALLY enjoyed the sound of it in Dark. It’s the same as falling in love. You have to click. Just imagine my enthusiasm when I understood the first German word while watching Dark! A few months after finishing the series I’m still [learning German with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-1866&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1866?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1866?mother%5Flang=en%5Fus?target%5Flang=de) . For a lazy procrastinator like me, that’s magic.
 
 ## The next step is to choose the best language learning app for you
 
  And all this can turn into something serious. Like it did for me. As I said, a good selection of movies and series can change you completely. You can never be the same after watching Cloud Atlas, Vanilla Sky, or Prisoners. Check it for yourself.
 
 ![DARK GERMAN LANGUAGE](https://media.giphy.com/media/3ohs80N543Ccmt68x2/giphy.gif "Learn German With Dark On Netflix 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  But what are the best online language courses? You will have to decide what suits you best. I went with Mondly because it uses recordings of fluent speakers, has a beautiful design and it uses innovation as a way to keep up with our demands as learners who live in the 21st century.[Chatbot technology and augmented reality](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are not something we should only see in sci-fi movies and Mondly get them.
 
@@ -81,7 +77,7 @@ While being indeed very similar to Stranger Things, Dark is at the same time ver
 ![DARK NETFLIX](https://media.giphy.com/media/3oxHQwdn31M3ddjV3a/giphy.gif "Learn German With Dark On Netflix 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  My honest and maybe humble conclusion is that this gorgeous, deep and truly dark sci-fi TV series can always compete with Twin Peaks. Let’s all [learn German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and see what kind of mind-bending story season 2 has in store for us in 2019.
@@ -90,6 +86,10 @@ While being indeed very similar to Stranger Things, Dark is at the same time ver
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Learn German fast in just 10 minutes a day
 
@@ -116,16 +116,14 @@ While being indeed very similar to Stranger Things, Dark is at the same time ver
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-enablingdisabling-safaris-dual-screen-feature/"><u>[New] 2024 Approved Enabling/Disabling Safari's Dual-Screen Feature</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/capture-kings-face-off-for-2024/"><u>Capture Kings Face-Off for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/cutting-edge-methods-for-a-dominant-presence-on-spotify-for-2024/"><u>Cutting-Edge Methods for a Dominant Presence on Spotify for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-xiaomi-14-ultra-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Xiaomi 14 Ultra</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/meet-your-innovative-ai-discussion-partner/"><u>Meet Your Innovative AI Discussion Partner</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/opening-doors-with-foreign-tongues-anytime/"><u>Opening Doors with Foreign Tongues Anytime</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/portuguese-diversity-a-study-of-south-and-north-dialects/"><u>Portuguese Diversity: A Study of South & North Dialects</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/transforming-your-space-into-a-karaoke-haven-a-comprehensive-guide-to-hosting-at-home/"><u>Transforming Your Space Into a Karaoke Haven: A Comprehensive Guide to Hosting at Home</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uncovering-the-top-120-vital-vietnamese-words/"><u>Uncovering the Top 120 Vital Vietnamese Words</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721479252335-unseen-notifications-on-your-iphone-here-are-seven-easy-solutions-to-uncover-them/"><u>Unseen Notifications on Your iPhone? Here Are Seven Easy Solutions to Uncover Them</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/world-words-whirlwind-simplest-10-tongue-list/"><u>World Words Whirlwind: Simplest 10 Tongue List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ai-assisted-creativity-the-best-name-makers-for-pods/"><u>[New] AI-Assisted Creativity The Best Name Makers for Pods</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-revamping-your-tiktok-videos-top-3-background-changing-methods/"><u>[Updated] 2024 Approved Revamping Your TikTok Videos Top 3 Background Changing Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/around-the-globe-haunted-holiday-stories/"><u>Around the Globe: Haunted Holiday Stories</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-urdu-skills-in-a-flash/"><u>Boost Your Urdu Skills in a Flash</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparing-iberian-romance-spains-spanish-and-portugals-portuguese/"><u>Comparing Iberian Romance: Spain's Spanish and Portugal's Portuguese</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/peak-matrix-2019-abbyy-stands-out-in-everest-groups-rankings-of-leading-idp-tools-and-applications/"><u>Peak Matrix™ 2019: ABBYY Stands Out in Everest Group's Rankings of Leading IDP Tools and Applications</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-top-rated-avi-file-combiners-10-free-solutions-for-you/"><u>Updated In 2024, Top-Rated AVI File Combiners 10 Free Solutions for You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577464010-whats-the-best-way-to-learn-a-language-online/"><u>What’s the Best Way to Learn a Language Online</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Italian Dialogues: Key Phrases to Enhance Your Visit"
-date: 2024-11-21T20:21:52.746Z
-updated: 2024-11-24T21:56:24.285Z
+date: 2024-11-28T19:30:54.710Z
+updated: 2024-12-04T01:47:20.631Z
 tags:
   - speak
   - english
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 5. [Italian for tourists that want to have fun](#italian-tourists)
 6. [Italian phrases about love](#italian-love)
 7. [Days of the week and numbers in Italian](#numbers-in-italian)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Italian greetings and courtesy phrases
 
@@ -59,15 +63,7 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 ![italian phrases english translation](https://edge.mondly.com/blog/wp-content/uploads/2019/07/italian-phrases-english-translation-1024x682.jpg "100+ Essential Italian Travel Phrases For Your Trip 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Manarola, Italy” by Marc Zimmer©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Basic Italian phrases for travelers that need help
 
@@ -113,7 +109,7 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * Can I have some ice cream? –_Posso prendere il gelato?_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Basic Italian for tourists who need a place to spend the night
@@ -130,7 +126,7 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * Here is your bill, please look it over. –_Ecco il suo conto, per favore lo controlli._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Italian for tourists who want to have fun
@@ -149,10 +145,6 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * How much does a ticket cost? –_Quanto costa un biglietto?_
 * One ticket, please. –_Un biglietto, per favore._
 * Are there seats available? –_Ci sono posti disponibili?_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. Italian phrases about love
 
@@ -174,6 +166,10 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * I love you. –_Ti amo._
 
 ![basic italian phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/basic-italian-phrases-1024x575.jpg "100+ Essential Italian Travel Phrases For Your Trip 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Vernazza, Italy” by Daniil Vnoutchkov
 
@@ -222,6 +218,10 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Speak Italian fluently in just 10 minutes a day
 
  Do you want to see these Italian phrases in action in real-life conversations? Get Mondly, the award-winning language learning app that will [help you speak Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as if you were Tuscany-born.
@@ -247,20 +247,22 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-average-gain-for-youtubers-per-ad-exposure-in-2024/"><u>[Updated] Average Gain for YouTubers per Ad Exposure, In 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-godslayer-chronicles-ragnarok-dawn/"><u>2024 Approved Godslayer Chronicles Ragnarok Dawn</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/computer-boot-error-heres-how-to-fix-your-machine-when-it-wont-turn-on/"><u>Computer Boot Error? Here's How to Fix Your Machine When It Won't Turn On</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/conserve-battery-life-with-ease-unlock-the-secrets-of-macos-montereys-low-power-feature-explained/"><u>Conserve Battery Life with Ease: Unlock the Secrets of MacOS Monterey's Low Power Feature Explained</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/engineering-eye-catching-podcast-sizzle-reels/"><u>Engineering Eye-Catching Podcast Sizzle Reels</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/guide-transforming-mbr-storage-into-gpt-directly-on-a-windows-system/"><u>Guide: Transforming MBR Storage Into GPT Directly on a Windows System</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-realme-c67-5g-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Realme C67 5G Phone Screen?</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-tiktok-content-mastery-learn-to-alter-digit-scenes-effectively/"><u>In 2024, TikTok Content Mastery Learn to Alter Digit Scenes Effectively</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/inside-mondlys-educational-process/"><u>Inside Mondly's Educational Process</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/preparing-for-your-israeli-sojourn-5-tips-and-language-basics/"><u>Preparing for Your Israeli Sojourn: 5 Tips & Language Basics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pronunciation-pathway-comparison-of-canadian-british-and-american-accents/"><u>Pronunciation Pathway: Comparison of Canadian, British & American Accents</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-locals-learn-korean-of-squid-game/"><u>Speak Like Locals: Learn Korean of Squid Game</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-the-secrets-of-swashbuckling-terminology/"><u>Unlock the Secrets of Swashbuckling Terminology</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vr-enabled-language-education-takes-off-with-mondlys-new-app/"><u>VR-Enabled Language Education Takes Off with Mondly's New App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/which-are-the-most-studied-foreign-languages-in-americaback-buttonfilter-button/"><u>Which Are The Most Studied Foreign Languages In America?Back ButtonFilter Button</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-next-gen-gaming-the-best-oculus-players-uncovered/"><u>[Updated] 2024 Approved Next-Gen Gaming The Best Oculus Players Uncovered</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-streamlining-film-grading-with-cg-centrals-look-up-tables/"><u>[Updated] Streamlining Film Grading with CG Central's Look-Up Tables</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/busting-illusions-top-9-misconceptions-about-ai-conversations/"><u>Busting Illusions: Top 9 Misconceptions About AI Conversations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialogues-beyond-distance-turkey-and-korea/"><u>Dialogues Beyond Distance: Turkey & Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/die-richtige-deutschen-bitten-vermeiden/"><u>Die Richtige Deutschen Bitten Vermeiden</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ideal-virtual-screenscapes-for-streamers/"><u>Ideal Virtual Screenscapes for Streamers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-boosting-performance-allocating-additional-ram-to-minecraft/"><u>In 2024, Boosting Performance Allocating Additional RAM to Minecraft</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-classic-captures-portraiture-on-the-xiphone/"><u>In 2024, Classic Captures Portraiture on the XiPhone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-what-are-facebook-reels-and-how-to-make/"><u>In 2024, What Are Facebook Reels and How to Make</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-spelling-the-top-100-mistakes-to-avoid/"><u>Mastering English Spelling: The Top 100 Mistakes to Avoid</u></a></li>
+<li><a href="https://windows11.techidaily.com/outsmarting-your-os-glitch-effective-script-solutions-for-windows/"><u>Outsmarting Your OS Glitch: Effective Script Solutions for Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parents-picks-mondly-kids-secure-spot-on-google-play-bestseller/"><u>Parents' Picks: Mondly Kids Secure Spot on Google Play Bestseller</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-glance-guide-to-japanese-counting-system/"><u>Quick Glance Guide to Japanese Counting System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reaping-rewards-from-language-study-starting-at-fifty-five/"><u>Reaping Rewards From Language Study Starting at Fifty-Five</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-future-of-3d-color-grading-tools/"><u>The Future of 3D Color Grading Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-the-turkish-script-with-ease-and-speed/"><u>Unlocking the Secrets of the Turkish Script with Ease and Speed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/venturing-to-israel-top-9-essentials-and-phrasebook-basics/"><u>Venturing to Israel: Top 9 Essentials and Phrasebook Basics</u></a></li>
 </ul></div>
 

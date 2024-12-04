@@ -1,7 +1,7 @@
 ---
 title: "Launchpad: Arabic for New Learners"
-date: 2024-11-17T23:10:02.897Z
-updated: 2024-11-24T23:29:18.363Z
+date: 2024-11-27T23:09:45.874Z
+updated: 2024-12-03T23:29:25.778Z
 tags:
   - speak
   - english
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
  We’re not going to sugarcoat it for you, but Arabic is a difficult language to learn, especially for native English speakers. However, [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6418&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6418?mother%5Flang=en%5Fus?target%5Flang=ar&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6418?mother%5Flang=en%5Fus?target%5Flang=ar) ’s got your back, as always! Ever since [we launched Arabic courses for 4 billion people](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  we’ve invested in engaging content to keep you interested day in and day out. Learning Arabic for beginners has never been simpler. But why should you learn Arabic? Here are [6 exciting reasons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  . If you need any more, just keep reading!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why is Arabic such a challenge?
 
  As the sixth most spoken language in the world, with close to 420 million speakers worldwide, it stands to reason that Arabic would be a popular language, one of the [best foreign languages to learn for business](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , actually. But why is it so hard for English speakers to approach this process? Here are the most complicated challenges:
@@ -34,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
  So, since the elephant is out of the room, you’re ready to [learn Arabic online](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  ! By the way, according to the US Foreign Service Institute, you’ll need roughly 88 weeks or approximately 2200 hours in order to reach fluency. Follow the tips below and you might arrive at your destination a lot faster!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Step by step guide
 
 I’d really stick by these if I were you!
@@ -42,12 +42,16 @@ I’d really stick by these if I were you!
 
  Ok, you can’t really learn all the Arabic, since there are many types of it (Palestinian, Iraqi, Egyptian, Levantine). To be more precise, there’s the mother tongue, which is the official language, but also different accents and a lot of pronunciations depending on the locale. So, choose the type of Arabic you want to learn in relation to the region/regions you are interested in. There’s also Modern Standard Arabic, one of the official languages of the UN.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Commence with just the basics
 
 ![arabic bead necklace](https://edge.mondly.com/blog/wp-content/uploads/2022/01/arabic-bead-necklace-960x640.jpg "Arabic For Beginners: A Step By Step Guide 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  ‘Arabic bead necklace’ by Carlos Eduardo de Meneses©
@@ -56,26 +60,18 @@ I’d really stick by these if I were you!
 
  So, when you encounter a written word there will be no way of knowing how to pronounce it unless you’ve heard it before. And this is where Mondly comes in handy! We provide you with real-life conversations, a speech recognition chatbot, and quality recordings. You’ll get used to Arabic words in no time. Ok, final note, you write from left to right, not the other way around.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Learn how to use an Arabic dictionary
 
  Ah, one of the most trusted friends of any language learner, the dictionary is here to save the day yet again. But, with Arabic things will be a little more complicated. So, in an Arabic dictionary, the words will be organized around roots made up of three letters. With me so far?
 
  In order to find a word, you need to already know its root and the letter that the root starts with, and this letter is not always the first letter in the word. So yeah, learning to use the dictionary will take some practice, but once you’ve mastered it will make things much simpler.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Start practicing and speaking
 
 ![coworkers talking](https://edge.mondly.com/blog/wp-content/uploads/2022/01/coworkers-talking-960x640.jpg "Arabic For Beginners: A Step By Step Guide 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  ‘Coworkers’ by Mikhail Nilov©
@@ -83,6 +79,10 @@ I’d really stick by these if I were you!
  Now that you know the basics, it’s high time you started using them. But hearing and seeing isn’t nearly enough if you don’t speak too! So, start conversing in Arabic with other people. Ok, it might be difficult to find a conversation partner where you live, but then again, there are other resources out there, such as Mondly! We give you access to pre-recorded conversations that you can train with.
 
  When you do get a chance to speak Arabic live, don’t be nervous or shy. What if you don’t get the grammar right on the first try? Mistakes are there to help you learn.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Immerse yourself in the Arabic language
 
@@ -118,24 +118,24 @@ I’d really stick by these if I were you!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-updated-dialogue-tools-to-engage-audio-audiences/"><u>[New] Updated Dialogue Tools to Engage Audio Audiences</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-elevate-your-voice-strategies-for-a-standout-solo-podcast-for-2024/"><u>[Updated] Elevate Your Voice Strategies for a Standout Solo Podcast for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/correcting-duo-app-configurations-to-resolve-errors/"><u>Correcting Duo App Configurations to Resolve Errors</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/dvdfab-dvd1121/"><u>DVDFab DVD圧縮手順：11版で2枚ディスクから1枚ディスクへのコンプレッション方法</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/effective-strategies-for-locating-a-persons-email-contact-details/"><u>Effective Strategies for Locating a Person's Email Contact Details</u></a></li>
-<li><a href="https://techidaily.com/galaxy-watch-ultra-vs-apple-watch-ultra-comparing-unique-styles-with-identical-functionality/"><u>Galaxy Watch Ultra Vs. Apple Watch Ultra: Comparing Unique Styles with Identical Functionality</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Realme 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Lava Storm 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-a-step-by-step-guide-to-easy-video-cuts-on-windows-phones/"><u>In 2024, A Step-by-Step Guide to Easy Video Cuts on Windows Phones</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-revolutionary-faqs-for-mondlys-support/"><u>Introducing Revolutionary FAQs for Mondly's Support</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-asian-tongues-rank-backup-and-navigate/"><u>Leading Asian Tongues: Rank, Backup & Navigate</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-a-language-with-music-scientifically-proven-methods-tips-and-songs/"><u>Learn A Language With Music: Scientifically Proven Methods, Tips & Songs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/norsk-nexus-language-leap-in-ten-mins/"><u>Norsk Nexus: Language Leap in Ten-Mins</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/numerals-for-new-spanish-speakers/"><u>Numerals for New Spanish Speakers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pinnacle-of-proficiency-advanced-english-techniques-by-mondly/"><u>Pinnacle of Proficiency: Advanced English Techniques by Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/scheidungssprache-fur-deutschsprechende/"><u>Scheidungssprache Für Deutschsprechende</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/should-you-buy-videopad-video-editor-a-honest-review-and-analysis/"><u>Should You Buy Videopad Video Editor? A Honest Review and Analysis</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-francophiles-checklist-top-103plus-travel-phrases-for-france/"><u>The Francophile's Checklist: Top 103+ Travel Phrases for France</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-french-sound-patterns-for-novice-learners/"><u>Unlocking French Sound Patterns: For Novice Learners</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-effortless-animated-addition-how-to-send-and-share-gifs-on-snapchat-for-2024/"><u>[New] Effortless Animated Addition How to Send and Share GIFs on Snapchat for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-making-money-with-media-mastery-of-merchandise-musings/"><u>[Updated] 2024 Approved Making Money with Media Mastery of Merchandise Musings</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-elevate-your-content-top-rated-cameras-for-youtubers/"><u>[Updated] Elevate Your Content Top-Rated Cameras for YouTubers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-enhancing-campaign-performance-with-targeted-hash-tags-for-fb-ads/"><u>[Updated] Enhancing Campaign Performance with Targeted Hash Tags for FB Ads</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-perfecting-the-art-of-twitch-live-streams-recording/"><u>2024 Approved Perfecting the Art of Twitch Live Streams Recording</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-primer-to-popular-german-witticisms-top-25-selection/"><u>A Primer to Popular German Witticisms - Top 25 Selection</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/affordable-and-powerful-discover-the-best-value-in-smartphones-with-iphone-14-plus-and-its-long-lasting-battery-why-you-cant-resist-this-deal/"><u>Affordable & Powerful: Discover the Best Value in Smartphones with iPhone 14 Plus and Its Long-Lasting Battery – Why You Can't Resist This Deal!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-top-3-lingual-heavyweights-filter-and-save/"><u>Asia's Top 3 Lingual Heavyweights: Filter & Save</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-the-gap-understanding-english-contraction-usage/"><u>Bridging the Gap: Understanding English Contraction Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/broaden-world-view-by-acquiring-new-linguistic-skills/"><u>Broaden World View by Acquiring New Linguistic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/code-switching-to-success-21st-century-linguistic-skills/"><u>Code-Switching to Success: 21St Century Linguistic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-linguistics-a-tale-of-two-portugals/"><u>Cultural Linguistics: A Tale of Two Portugals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empowerment-through-elite-business-linguistics-education/"><u>Empowerment Through Elite Business Linguistics Education</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/explore-our-picks-the-10-most-popular-chatbot-options-beyond-chatgpt/"><u>Explore Our Picks: The 10 Most Popular Chatbot Options Beyond ChatGPT</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-monetary-outcomes-of-podcast-engagement/"><u>In 2024, The Monetary Outcomes of Podcast Engagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579035766-mondly-kids-a-smart-choice-for-young-minds-in-2017/"><u>Mondly Kids - A Smart Choice for Young Minds in 2017!</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-multiple-ways-how-to-remove-icloud-activation-lock-from-your-apple-iphone-15-by-drfone-ios/"><u>New Multiple Ways How To Remove iCloud Activation Lock From your Apple iPhone 15</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576702976-unlock-world-communication-with-a-95-discount-on-language-learning/"><u>Unlock World Communication with a 95% Discount on Language Learning!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/why-lenovos-2024-thinkbook-for-just-749-could-outshine-competitors-as-top-value-windows-laptop/"><u>Why Lenovo's 2024 ThinkBook for Just $749 Could Outshine Competitors as Top Value Windows Laptop</u></a></li>
 </ul></div>
 

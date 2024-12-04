@@ -1,7 +1,7 @@
 ---
 title: "Myth and Mouth Movement: The Language of Vikings"
-date: 2024-11-21T17:38:45.168Z
-updated: 2024-11-24T18:20:09.048Z
+date: 2024-11-28T23:46:50.587Z
+updated: 2024-12-03T18:34:39.554Z
 tags:
   - speak
   - english
@@ -32,14 +32,10 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 
 ![Vikings english](https://media.giphy.com/media/V5474zfp6NveE/giphy.gif "What Language Did Vikings Speak? 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  To tell you the truth, Vikings did not typically speak Old English. Old English was spoken by the Anglo-Saxons, who lived in England at the same time as the Vikings. However, **it is possible that some Vikings who settled in England may have learned to speak Old English.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What language did Vikings speak?
@@ -53,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
  In spite of everything,**Old Norse is still considered the primary Viking language.** If you watched_The Northman_ , you must have heard it in songs and ritual settings. Apparently, they didn’t have the budget to make the entire movie in Old Norse. It does sound fittingly Viking, doesn’t it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Old Norse: the Viking language
@@ -70,15 +66,15 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 
 !['Viking language' by Hannah Grapp©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/viking-language-960x640.jpg "What Language Did Vikings Speak? 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What language today is closest to Old Norse?
 
  **Modern Icelandic is widely regarded as the Nordic language that most closely resembles Old Norse.** In fact, the writing system is so similar that Icelandic speakers can read Old Norse texts with relative ease. Some specialists compare the likeness between modern Icelandic and Old Norse to that of Shakespearean English and present-day English. Old West Norse is the direct ancestor of Icelandic, and many surviving Old Norse manuscripts originated from Iceland. Consequently, Old West Norse is the most commonly taught variant of Old Norse at present.
 
 So yeah, you can learn Old Norse if you want to.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is Old Norse still spoken?
 
@@ -89,7 +85,7 @@ So yeah, you can learn Old Norse if you want to.
  Furthermore, Old Norse is still with us through the multitude of words that were borrowed into English. Some examples of Old Norse words in English are gift (_gift_), husband (_húsbóndi_), cake (_kaka_), egg (_egg_), anger (_angr_), arm (_armr_). And these are just a few. The list could go on for a while.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What language did Vikings write in?
@@ -104,6 +100,10 @@ So yeah, you can learn Old Norse if you want to.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Learn the Scandinavian languages fast
 
@@ -136,19 +136,19 @@ So yeah, you can learn Old Norse if you want to.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-18-quick-and-inspiring-ideas-to-try-in-your-vlog/"><u>[New] 2024 Approved 18 Quick and Inspiring Ideas to Try in Your Vlog</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-essential-online-websites-for-acquiring-thrones-rhythms/"><u>[New] 2024 Approved Essential Online Websites for Acquiring Thrones Rhythms</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-8-premium-complimentary-streaming-media-processors/"><u>[Updated] 2024 Approved 8 Premium Complimentary Streaming Media Processors</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-quick-start-making-your-own-sports-highlight-film/"><u>[Updated] 2024 Approved Quick Start Making Your Own Sports Highlight Film</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-charting-your-course-building-plays-on-youtube-for-2024/"><u>[Updated] Charting Your Course Building Plays on YouTube for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>5 Easy Ways to Change Location on YouTube TV On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://discover-help.techidaily.com/comprehensive-tutorial-on-dts-file-conversion-to-wav/"><u>Comprehensive Tutorial on DTS File Conversion to WAV</u></a></li>
-<li><a href="https://extra-information.techidaily.com/echoes-of-the-northmen-essential-sites-to-grab-got-audio-calls/"><u>Echoes of the Northmen Essential Sites to Grab GoT Audio Calls</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-the-language-top-100-most-commonly-misspelled-english-words/"><u>Master the Language: Top 100 Most Commonly Misspelled English Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quickstep-ukranian-proficiency-10-minute-daily-goal-84-chars/"><u>Quickstep Ukranian Proficiency, 10-Minute Daily Goal (84 Chars)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-year-with-unlimited-lifetime-access-to-mondly-premium-at-no-cost/"><u>Revolutionize Your Year with Unlimited Lifetime Access to Mondly Premium at No Cost</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seafaring-savvy-essential-piratical-lexicon-unveiled/"><u>Seafaring Savvy: Essential Piratical Lexicon Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-love-understand-each-other-tackling-relationship-barriers/"><u>Speak Love, Understand Each Other: Tackling Relationship Barriers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/which-upcoming-language-should-i-embrace/"><u>Which Upcoming Language Should I Embrace?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-effortless-audio-downloads-these-24-tools-split-youtube-sounds-for-2024/"><u>[Updated] Effortless Audio Downloads These 24 Tools Split YouTube Sounds for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-strategies-to-successfully-pin-on-snapchat/"><u>[Updated] Strategies to Successfully Pin on Snapchat</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-capturing-live-gaming-decide-on-obsshadowplay/"><u>2024 Approved Capturing Live Gaming - Decide on OBS/ShadowPlay</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-landscape-decoded-creating-your-signature-style-and-voice/"><u>2024 Approved YouTube's Landscape Decoded Creating Your Signature Style and Voice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579847747-a-beginners-guide-to-the-german-pronunciation-and-alphabet/"><u>A Beginner’s Guide to the German Pronunciation & Alphabet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/abracos-e-saudacoes-em-portugues-tudo-o-que-necessita-saber/"><u>Abraços E Saudações Em Português: Tudo O Que Necessita Saber</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-learning-urdu-effortlessly/"><u>Accelerate Learning Urdu, Effortlessly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/belgian-babel-how-many-tongues-does-it-wield/"><u>Belgian Babel: How Many Tongues Does It Wield?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-oculus-quest-and-mondly/"><u>Breaking Language Barriers: Oculus Quest & 'Mondly'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echosphere-immersive-language-acquisition-in-vr/"><u>EchoSphere: Immersive Language Acquisition in VR</u></a></li>
+<li><a href="https://techtrends.techidaily.com/essential-freebies-the-ultimate-list-of-11-software-updater-programs-for-everyone/"><u>Essential Freebies: The Ultimate List of 11 Software Updater Programs for Everyone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-restore-functionality-for-your-logitech-g633-microphone-a-comprehensive-guide/"><u>How to Restore Functionality for Your Logitech G633 Microphone – A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-instantaneously-obscured-identities-quick-tips-with-piscart/"><u>In 2024, Instantaneously Obscured Identities Quick Tips with Piscart</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Oppo Find X7 | Dr.fone</u></a></li>
 </ul></div>
 

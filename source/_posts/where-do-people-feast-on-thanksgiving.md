@@ -1,7 +1,7 @@
 ---
 title: Where Do People Feast on Thanksgiving?
-date: 2024-11-23T22:14:06.615Z
-updated: 2024-11-24T18:12:21.043Z
+date: 2024-11-28T01:29:02.672Z
+updated: 2024-12-04T00:20:03.520Z
 tags:
   - speak
   - english
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  Let’s learn more about these celebrations and discover seven of the most surprising countries that celebrate Thanksgiving (besides the US).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Canada
 
  The Canadian version of Thanksgiving is very similar to its American relative. You’ve got the turkey (though some choose ham or chicken instead), the mashed potatoes, the legendary gravy, the corn, and the pumpkin pie. Then there’s the name which is also ‘Thanksgiving’ – except for Quebec; there you’d call it ‘Action de Grâce’. Moreover, both [Americans and Canadians](https://www.bustle.com/life/canadian-thanksgiving-vs-american-thanksgiving) like to watch football and spend time with family on Thanksgiving. Everything seems familiar. Except for the date, of course. Canadian Thanksgiving is celebrated on the second Monday in October, much earlier than the United States which celebrates it on the fourth Thursday in November.
@@ -42,15 +38,15 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  Other sources trace the Canadian Thanksgiving to the French settlers who came to North America in the 17th century and held feasts to celebrate their successful harvests.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Germany, Austria, and Switzerland
 
  In Europe, the idea of Thanksgiving generally involves the celebration of the autumn harvests. Largely religious in nature, the celebration occurs around the time of the main harvest – early October in this situation. In German-speaking countries, the event is called Erntedankfest.
 
  Unlike the North American festivities, in rural Germany, Austria, and Switzerland, Erntedankfest is a more public celebration with musical performances, dancing, fireworks, and – you guessed it: food. In some places, churches are decored with autumn crops and during the day, people participate in religious processions or parades.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. The Netherlands
 
@@ -59,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Grenada
@@ -71,24 +67,28 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 ![thanksgiving turkey](https://edge.mondly.com/blog/wp-content/uploads/2021/11/canadian-thanksgiving-960x641.jpg "What Countries Celebrate Thanksgiving? 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanksgiving turkey” by Claudio Schwarz©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Japan
 
  勤労感謝の日 (’Kinrō Kansha no Hi’) has roots in 新嘗祭 (Niiname-sai), the ancient Shinto rice harvest ceremony and it’s celebrated annually on the 23rd of November. Known today as ‘Labor Thanksgiving Day’, the celebration has lost some of its original meaning and is regarded now as an occasion for commemorating labor and reflecting on issues that impact the community, such as the environment and human rights.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Liberia
 
  Formerly a colony of the American Colonization Society, Liberia declared [its independence](https://www.history.com/this-day-in-history/liberian-independence-proclaimed) in 1947 and became the first democratic republic in African history.
 
  However, the freed slaves from the United States who returned to the country around 1820, brought something back from the US: the Thanksgiving celebration. By the 1880s, it was declared a national holiday and nowadays, Liberia is probably the only other country in the world that celebrates the American Thanksgiving.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. the United Kingdom
 
@@ -137,21 +137,20 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-examining-the-efficiency-of-screenrecorderelite-for-2024/"><u>[New] Examining the Efficiency of ScreenRecorderElite for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unveiling-the-practicality-of-smoothing-in-camera-jitters/"><u>[Updated] 2024 Approved Unveiling the Practicality of Smoothing In-Camera Jitters</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-unlocking-viral-potential-in-instagram-videos/"><u>2024 Approved Unlocking Viral Potential in Instagram Videos</u></a></li>
-<li><a href="https://apple-account.techidaily.com/3-ways-of-how-to-get-someones-apple-id-off-apple-iphone-15-without-password-by-drfone-ios/"><u>3 Ways of How to Get Someones Apple ID Off Apple iPhone 15 without Password</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-12-pro-to-pc-via-usb-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 12 Pro to PC via USB? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-take-your-english-to-the-next-level-mondly/"><u>How To Take Your English To The Next Level - Mondly</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/in-2024-expertly-calculated-earnings-tiktoks-finest-tools/"><u>In 2024, Expertly Calculated Earnings TikTok's Finest Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lexicon-origins-shakespearean-words-in-modern-chatter/"><u>Lexicon Origins: Shakespearean Words in Modern Chatter</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/nvidia-quadro-graphics-drivers-for-win10-direct-download-from-official-site/"><u>Nvidia Quadro Graphics Drivers for Win10 - Direct Download From Official Site</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/orators-oasis-premier-training-for-verbal-proficiency/"><u>Orator’s Oasis: Premier Training for Verbal Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pioneering-filters-the-mondly-pearson-collaboration/"><u>Pioneering Filters: The Mondly-Pearson Collaboration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/privacy-policy-just-updated/"><u>Privacy Policy Just Updated</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-catalan-mastery-daily-10-minute-routine/"><u>Quick Catalan Mastery: Daily 10-Minute Routine</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-balance-between-accuracy-and-understanding/"><u>The Balance Between Accuracy and Understanding</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-perfect-fit-discovering-the-apple-watch-ultra-2-at-an-unbeatable-labor-day-price-a-personal-review-by-zdnet/"><u>The Perfect Fit: Discovering the Apple Watch Ultra 2 at an Unbeatable Labor Day Price - A Personal Review by ZDNet</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-step-by-step-tutorial-adding-subtitles-to-films-and-videos-a-complete-guide/"><u>Ultimate Step-by-Step Tutorial: Adding Subtitles to Films and Videos - A Complete Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-enhancing-fb-video-content-with-streamlined-captioning-tactics/"><u>[Updated] 2024 Approved Enhancing FB Video Content with Streamlined Captioning Tactics</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-fix-there-is-no-sound-on-twitter-videos-for-2024/"><u>[Updated] Fix There Is No Sound on Twitter Videos for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-outstanding-non-zoom-video-conferencing-tech/"><u>2024 Approved Outstanding Non-Zoom Video Conferencing Tech</u></a></li>
+<li><a href="https://fox-links.techidaily.com/conveniently-enjoy-nba-games-top-15-streaming-methods-for-2024/"><u>Conveniently Enjoy NBA Games - Top 15 Streaming Methods for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/european-and-brazilian-portuguese-key-features-showdown/"><u>European & Brazilian Portuguese: Key Features Showdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-online-avenues-for-flawless-lithuanian-learning/"><u>Explore Online Avenues for Flawless Lithuanian Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-impressions-count-indonesian-greeting-basics/"><u>First Impressions Count: Indonesian Greeting Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-urdu-key-words-and-phrases-guide/"><u>First Steps in Urdu: Key Words & Phrases Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-expression-excellence-mastering-the-enchante-salute/"><u>French Expression Excellence: Mastering the 'Enchanté' Salute</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/galaxy-words-a-deep-dive-into-the-unique-linguistics-of-star-wars/"><u>Galaxy Words: A Deep Dive Into the Unique Linguistics of Star Wars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-aufrichtige-bedauernsatze-sprechen/"><u>German: Aufrichtige Bedauernsätze Sprechen</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/imperator-rome-game-review-triumphs-and-pitfalls-of-ancient-empires/"><u>Imperator: Rome Game Review - Triumphs and Pitfalls of Ancient Empires</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-compelling-narratives-with-strategic-youtube-banners/"><u>In 2024, Crafting Compelling Narratives with Strategic YouTube Banners</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/precision-practices-for-perfecting-figmas-background-removal-for-2024/"><u>Precision Practices for Perfecting Figma's Background Removal for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/seamlessly-download-youtube-thumbnails-online-for-2024/"><u>Seamlessly Download YouTube Thumbnails Online for 2024</u></a></li>
 </ul></div>
 

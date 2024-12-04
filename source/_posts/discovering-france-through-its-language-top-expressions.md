@@ -1,7 +1,7 @@
 ---
 title: "Discovering France Through Its Language: Top Expressions"
-date: 2024-08-08T09:27:51.059Z
-updated: 2024-08-09T09:27:51.059Z
+date: 2024-12-02T22:27:36.342Z
+updated: 2024-12-03T16:16:40.310Z
 tags:
   - speak
   - english
@@ -37,9 +37,6 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 
 **P.S.:** Listen to “La vie en rose” in the background while reading this article. The mood can’t get more French than that.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Bonjour and other basic French words you’ll need to say hello
 
  When talking about**French travel phrases** , greetings should be no. 1 on your list of priorities. Foreigners regard your attempt to speak their language as a sign of respect towards their culture. Apply this unspoken rule everywhere you go in the world and many doors shall joyously open in your path.
@@ -59,9 +56,6 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * I’m sorry. –_Je suis désolé._
 * You’re welcome. –_Je vous en prie._
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![basic french words](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-words-770x1024.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 3")
 
  “Bonjour, monsieur pug!” by ©Charles Deluvio
@@ -77,8 +71,9 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * Have a good day. –_Bonne journée._
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Useful French expressions for when you are at the airport
 
  Arriving at the airport – both at the beginning and at the end of your journey – will also require some French phrases. Whether you are making small talk with the person sitting next to you in the airplane, passport verification or asking for directions, these**essential French travel phrases** will definitely have your back in any situation.
@@ -88,9 +83,6 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * We are traveling together. –_Nous voyageons ensemble._
 * I’m traveling with a child. –_Je voyage avec un enfant._
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![french travel vocabulary](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-travel-vocabulary-scaled-960x540.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 4")
 
  ©Bambi Corro
@@ -118,9 +110,6 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * Where is the bus station, please? –_Où est le dépôt de bus, s’il vous plaît?_
 * Where can I buy tickets? –_Où puis-je acheter des billets?_
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![basic french phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-phrases-1024x686.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 5")
 
  “Nice, France” by @Oscar Nord
@@ -146,6 +135,10 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * When is check-out time? –_A quelle heure doit-on libérer la chambre?_
 
 ![basic french sentences](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-sentences-scaled-960x641.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Paris by night by ©Jez Timms
 
@@ -186,6 +179,10 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * We would like to have dinner. –_Nous voudrions dîner._
 * What would you like for breakfast? –_Que désirez-vous pour le petit déjeuner?_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Common French phrases for tourists who want to have fun
 
  Probably the most important phrases – for some of us – are those related to fun. Going out might tell you a lot about the country you are visiting. Are people drunk, friendly and talkative even at 2 or 3 a.m.? Is the city center empty at 11 o’clock? Never miss a chance to explore a city and know its people. Sleep is for the weak! Having fun is for travelers!
@@ -199,6 +196,10 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 
 ![french for tourists](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-for-tourists-1024x682.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 8")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  ©Diao Darius
 
 * Can you get me a ticket? –_Pouvez-vous me procurer un billet?_
@@ -208,9 +209,6 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * Let’s have some fun. –_Amusons-nous._
 * Are there seats available? –_Est-ce qu’il reste des places?_
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 7\. Basic French phrases for your shopping adventures
 
  Souvenirs are the cruelest drudgery our loved ones from home put us through while on holiday. The horror of shopping for souvenirs often haunts us until the very last day of our holiday. The best solution? Plan your shopping adventure on the first day of the trip and just get it over with.
@@ -223,8 +221,9 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * Can I have some ice cream? –_Je peux avoir une glace?_
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8\. French love quotes and expressions for French love stories
 
  A short love story or an unexpected marriage proposal is every girl’s secret dream when traveling to France. Boys, don’t tie your shoelaces in Paris! You’ve been warned!
@@ -244,10 +243,11 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 * You are very beautiful. –_Tu es très belle._
 * You are very handsome. –_Tu es très beau._
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ![french love quotes](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-love-quotes-683x1024.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 10")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Love” by ©Cedric Klei
 
@@ -282,8 +282,6 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -291,6 +289,19 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-maximizing-ipad-audio-record-best-tips/"><u>[Updated] In 2024, Maximizing iPad Audio Record Best Tips</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-maximizing-mobile-video-quality-your-phone-as-a-webcam-for-2024/"><u>[Updated] Maximizing Mobile Video Quality Your Phone as a Webcam for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-the-linguistic-tapestry-of-our-teachers/"><u>Celebrating the Linguistic Tapestry of Our Teachers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialect-dynamics-portuguese-of-the-two-hemispheres/"><u>Dialect Dynamics: Portuguese of the Two Hemispheres</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-education-trends-top-languages-for-americans/"><u>Global Education Trends: Top Languages for Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gsl-transformation-pearson-and-mondly-join-forces/"><u>GSL Transformation - Pearson & Mondly Join Forces</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-infinix-smart-8-pro-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Infinix Smart 8 Pro Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-honor-90-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Honor 90 by Name | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-uncovering-hidden-content-secrets-of-fb-suggested-vids/"><u>In 2024, Uncovering Hidden Content Secrets of FB Suggested Vids</u></a></li>
+<li><a href="https://win-community.techidaily.com/understanding-the-concept-of-a-sector-by-sector-copy-a-comprehensive-guide/"><u>Understanding the Concept of a 'Sector by Sector' Copy: A Comprehensive Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unlocking-creative-potential-best-tiktok-intros-on-a-mac/"><u>Unlocking Creative Potential Best TikTok Intros on a Mac</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unraveling-the-mystery-of-dvd-pixelation-solutions-and-troubleshooting-steps/"><u>Unraveling the Mystery of DVD Pixelation - Solutions and Troubleshooting Steps</u></a></li>
+</ul></div>
 

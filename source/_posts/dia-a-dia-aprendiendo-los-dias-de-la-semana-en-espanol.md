@@ -1,7 +1,7 @@
 ---
 title: "Día a Día: Aprendiendo Los Días De La Semana en Español"
-date: 2024-08-08T09:27:34.255Z
-updated: 2024-08-09T09:27:34.255Z
+date: 2024-12-03T00:32:43.907Z
+updated: 2024-12-04T03:34:02.466Z
 tags:
   - speak
   - english
@@ -23,8 +23,9 @@ thumbnail: https://thmb.techidaily.com/8bc720ee0adbf09ae88a648a38e027832e102c5d3
  But no more talking. Let’s dive in and find out how to say Monday in Spanish.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The days of the week in Spanish
 
  Show 10 25 50 100  entries
@@ -52,10 +53,11 @@ thumbnail: https://thmb.techidaily.com/8bc720ee0adbf09ae88a648a38e027832e102c5d3
 * **“on Monday” in Spanish can’t be translated verbatim** – for example, “I will pay you a visit on Monday” translates to “te haré una visita**el** lunes” in Spanish. Although you could be tempted to say “en”, don’t do it! The only correct way to talk about something happening on a specific day in Spanish is by using the pronouns_el_ and_los_ (e.g. “she visits her grandma every Sunday” will translate to “ella visita a su abuela todos**los** domingos”)
 * **to make a day of the week plural, you add an_s_**  (if it doesn’t already end in one) – this means_lunes_ will remain_lunes_ for the plural form_los lunes_ , but_domingo_ will become_domingos_ –_los domingos._ In other words, the only days that get an_s_ for their plural form are_sábado_ and_domingo_ :_sábados y domingos._
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![spanish days of the week](https://edge.mondly.com/blog/wp-content/uploads/2019/09/spanish-days-of-the-week.png "Monday To Domingo - Learn The Days Of The Week In Spanish 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The days of the week in Spanish in a nutshell.
 
@@ -67,15 +69,16 @@ And only now you’re free to say that that was easy peasy lemon squeezy!
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Speak Spanish in just 10 minutes a day
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
  Do you want to see_los días de la semana_ in action? Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy ![Mondly](https://en.wikipedia.org/wiki/Mondly) is a pocket-held language tutor that allows you to put your brain on autopilot and enjoy the ride to fluency in more than 30 languages.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  By combining solid neural science, cutting-edge technologies, bite-sized Daily Lessons and a gamified experience guaranteed to make you addicted to learning languages, Mondly is ready to literally glue the Spanish language into your brain.
 
@@ -89,8 +92,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -98,6 +99,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-from-raw-to-ready-a-compreenass-guide-to-video-crop-on-instagram-for-2024/"><u>[New] From Raw to Ready A Compreenas's Guide to Video Crop on Instagram for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-faster-phonetic-playback-choose-from-these-10/"><u>2024 Approved Faster Phonetic Playback Choose From These 10</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-turn-your-screen-time-into-earnings/"><u>2024 Approved Turn Your Screen Time Into Earnings</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-tecno-pop-8-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Tecno Pop 8 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-the-main-language-in-israel/"><u>Discovering the Main Language in Israel</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/guia-paso-a-paso-para-rescatar-microsoft-outlook-usando-una-copia-de-seguridad/"><u>Guía Paso a Paso Para Rescatar Microsoft Outlook Usando Una Copia De Seguridad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hungarian-sentiments-of-romanticism/"><u>Hungarian Sentiments of Romanticism</u></a></li>
+<li><a href="https://article-tips.techidaily.com/immersing-viewers-in-new-realities-the-vr-film-revolution-for-2024/"><u>Immersing Viewers in New Realities The VR Film Revolution for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-gold-unlimited-zero-fee-access/"><u>Mondly Gold: Unlimited, Zero-Fee Access!</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/preventing-windows-zoom-disruptions-fatal-error-1132/"><u>Preventing Windows Zoom Disruptions - Fatal Error 1132</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-bulgarian-proficiency-10-minday/"><u>Rapid Bulgarian Proficiency, 10 Min/Day</u></a></li>
+<li><a href="https://games-able.techidaily.com/rekindling-the-joy-of-play-with-these-six-ideas/"><u>Rekindling the Joy of Play with These Six Ideas</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-transform-your-photos-the-best-vignette-editing-apps-for-mobile-for-2024/"><u>Updated Transform Your Photos The Best Vignette Editing Apps for Mobile for 2024</u></a></li>
+</ul></div>
 

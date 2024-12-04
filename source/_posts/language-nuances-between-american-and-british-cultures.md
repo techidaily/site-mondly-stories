@@ -1,7 +1,7 @@
 ---
 title: Language Nuances Between American and British Cultures
-date: 2024-11-22T21:22:34.547Z
-updated: 2024-11-24T22:34:24.615Z
+date: 2024-12-02T21:05:22.212Z
+updated: 2024-12-03T23:35:24.022Z
 tags:
   - speak
   - english
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
 ![British vs American](https://media.giphy.com/media/SqmkZ5IdwzTP2/giphy.gif "British English Vs American English Differences: Spelling, Pronunciation And More 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The English language in the Americas
 
  Before diving into the most important differences between [British English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and American English, let’s put some historical context around the matter.
@@ -37,10 +33,6 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
  Differences between American English and British English may be observed in pronunciation (Brits soften the pronunciation of the “R” sound while Americans [pronounce](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) it completely), vocabulary, grammar, spelling, punctuation, and even idioms. Additionally, Americans also chose to use different formatting for dates and numbers.
 
  Let’s dive into a little more detail and analyze each point of differentiation.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## British vs American: most common vocabulary differences
 
@@ -71,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
  Previous  Next
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spellings differences: is it “colour” or “color”?
 
  That’s simple! “Colour” is the British spelling and “color” is the American spelling. Always remember that, when it comes to spelling, American English uses a simplified version. The explanation goes back to 1828 when Noah Webster wrote the first American dictionary –_An American Dictionary of the English Language._ Webster said he chose alternative spellings that were already in use in the United States “on such grounds as simplicity, analogy or etymology”.
@@ -99,6 +95,10 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
  If you speak English as a second language and you are not sure which is the correct spelling for the type of English you use, install a spell checker and let it do the job for you. In time, you’ll get used to the fitting spelling and learn to write correctly on your own.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Grammar differences
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
@@ -110,7 +110,7 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
  Thus, while**“The band is playing”** in the US, in the UK**“The band are playing”** . Likewise, if I’m in the US,**“My team is winning”** . But if I’m in the UK,**“My team are winning”** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Learned or learnt?
@@ -120,7 +120,7 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
  Many verbs that are irregular in the past tense in British English (_dreamt, burnt, learnt_), have been made regular in American English (_dreamed, burned, learned_).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Got or gotten?
@@ -137,10 +137,6 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
  Thus, in Britain, you’ll say**“I’ve been to the supermarket”** and in the US you’ll say**“I went to the supermarket”** .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Prepositions
 
  In British English, “at” is generally used in relation to time and place. In contrast, in American English, “on” is used in relation to time and “in” is used in relation to place.
@@ -148,6 +144,10 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
 
  British English vs American English
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Other grammar differences
 
@@ -201,18 +201,17 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-aim-for-affluence-enroll-now-in-youtubes-partner-programme/"><u>[Updated] 2024 Approved Aim for Affluence Enroll Now in YouTube's Partner Programme</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/1726028082321-youtube/"><u>「サーフェス上でYoutube動画を見ることができず再生しにくい時の解決策」</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixing-geforce-experience-malfunction-how-to-solve-unexpected-closure-issues/"><u>Fixing GeForce Experience Malfunction - How to Solve Unexpected Closure Issues</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/guia-paso-a-paso-respaldo-de-datos-en-ios-utilizando-phonetool/"><u>Guía Paso a Paso: Respaldo De Datos en iOS Utilizando PhoneTool</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-perfecting-subtitles-in-media-ultimate-list-of-on-line-aid-sources/"><u>In 2024, Perfecting Subtitles in Media Ultimate List of On-Line Aid Sources</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-the-art-of-saying-thank-you-in-german-culture/"><u>Master the Art of Saying 'Thank You' In German Culture</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-learning-revolution-the-gateway-to-knowledge-for-70-million/"><u>Mondly’s Learning Revolution – The Gateway to Knowledge for 70 Million</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/pro-tips-to-perfect-minecraft-pixelation-for-2024/"><u>Pro Tips to Perfect Minecraft Pixelation for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-echoing-languages-of-asias-elite-top-3/"><u>The Echoing Languages of Asia's Elite: Top 3</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tv-and-cinema-cultivating-communicative-skills/"><u>TV & Cinema: Cultivating Communicative Skills</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlocking-power-of-conversational-ai-with-chatgpt-api-tutorials/"><u>Unlocking Power of Conversational AI with ChatGPT API Tutorials</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/voice-personalization-tips-for-instagram-users/"><u>Voice Personalization Tips for Instagram Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/wordcraft-wisdom-how-shakespeare-shapes-our-speech/"><u>Wordcraft Wisdom: How Shakespeare Shapes Our Speech</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-vertical-vs-horizontal-deciding-facebook-video-orientation/"><u>[New] 2024 Approved Vertical vs Horizontal Deciding Facebook Video Orientation</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-sustaining-an-engaged-online-community-the-facebook-way/"><u>[New] In 2024, Sustaining an Engaged Online Community The Facebook Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-basic-russian-phrases-every-traveler-needs-to-know/"><u>100+ Basic Russian Phrases Every Traveler Needs To Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-guide-to-the-body-language-in-everyday-italian-life/"><u>A Guide to the Body Language in Everyday Italian Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieve-fluency-in-finnish-with-expert-online-guidance/"><u>Achieve Fluency in Finnish with Expert Online Guidance</u></a></li>
+<li><a href="https://win11.techidaily.com/conquer-sluggish-download-times-in-battlenet-games/"><u>Conquer Sluggish Download Times in Battle.net Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciding-your-perfect-next-linguistic-endeavor/"><u>Deciding Your Perfect Next Linguistic Endeavor</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/discover-microsofts-secret-explore-hidden-windows-features-with-the-new-leaked-insider-prototype/"><u>Discover Microsoft's Secret: Explore Hidden Windows Features with the New Leaked Insider Prototype</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-honor-play-7t-by-drfone-android/"><u>In 2024, How to Bypass FRP from Honor Play 7T?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579736864-the-best-way-to-study-portuguese-6-tips-that-will-work-wonders/"><u>The Best Way to Study Portuguese – 6 Tips That Will Work Wonders</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/top-rated-web-based-solutions-for-vertical-video-editing/"><u>Top-Rated Web-Based Solutions for Vertical Video Editing</u></a></li>
 </ul></div>
 

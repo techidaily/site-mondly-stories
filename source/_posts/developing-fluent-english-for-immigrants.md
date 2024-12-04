@@ -1,7 +1,7 @@
 ---
 title: Developing Fluent English for Immigrants
-date: 2024-08-08T09:24:30.402Z
-updated: 2024-08-09T09:24:30.402Z
+date: 2024-11-28T17:58:51.194Z
+updated: 2024-12-03T20:57:05.921Z
 tags:
   - speak
   - english
@@ -46,15 +46,16 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
 ![english-second-language](https://edge.mondly.com/blog/wp-content/uploads/2018/02/english-second-language-scaled-960x640.jpg "How To Teach English As A Second Language 2")
  Although this is a great teaching tactic, don’t let yourself be carried away. The first thing you want to do is research. The method won’t work if your students don’t like the [movie](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or the cartoons that you have chosen. The secret is to stay anchored in modernity.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Pro tips:**
 
 * Adapt the content according to the age. I hope this doesn’t surprise you, but kindergarten kids won’t care a bean about TEDx Talks.
 * Use English subtitles! This is a must. Listening to**fluent English speakers** might be hard in the beginning.
 * Discuss and review in English. I know they usually don’t have opinions, but if they watched something that was of interest to them, they will want to talk about it. Our desire to express certain opinions makes us more eager to break language barriers.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Teaching English to foreign students: listen to music
 
 **Teaching English to foreign students** becomes a piece of cake when you use music. I know it’s not math, but I still consider it a universal language. As I mentioned before, my brother is 12 years younger than me. That means he hasn’t had a lot of contact with what we call today “old music”. Still, the only [**English lesson**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) he mentions from the 4th grade is one that implied analyzing John Lennon’s “Imagine”.
@@ -70,18 +71,17 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
 **Pro tip:** Adults are bigger children. That means that you can also watch movies and TEDx Talks and review them together.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## how-to-teach-english-abroad
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![how-to-teach-english-abroad](https://edge.mondly.com/blog/wp-content/uploads/2018/02/how-to-teach-english-abroad-960x640.jpg "How To Teach English As A Second Language 3")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. How to teach English in a fun way: create
 
  Creation is catharsis. Give your students time and some keywords and you will be amazed.
@@ -96,15 +96,13 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
 
  It’s true that technology made us more choosey. In modern times, tradition bores us. But technology is also the one that electrifies our world and enhances our experiences.[Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-1107&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1107%26utm%5Fsource%3Dblog-post-id-1107&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1107%26utm%5Fsource%3Dblog-post-id-1107&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1107%26utm%5Fsource%3Dblog-post-id-1107&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-1107%26mt%3D8) , for example, is a language learning app that takes language learning to another level using augmented reality (AR),[virtual reality (VR)](https://www.mondly.com/blog/this-virtual-reality-app-helps-you-learn-a-language/) , and [chatbot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) technologies.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![language-learning-app](https://edge.mondly.com/blog/wp-content/uploads/2018/02/language-learning-app-960x640.jpg "How To Teach English As A Second Language 4")
  It sounds futuristic. I know. But that’s exactly the reason why your students will love**learning English as a second language** using this app. Give it a try and enjoy the experience together.
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. How to teach English abroad: organize intercultural nights
 
  Love goes through the stomach. You knew that already. What you didn’t know is that language learning works the same.
@@ -121,19 +119,14 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
 
  On a more serious note, I can assure you this is really efficient. One kid in my class was so excited about this task that he handcrafted magic wands for all his colleagues and made a really convincing essay on “why Neville Longbottom is the real hero of Harry Potter”.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## teaching-english-to-foreign-students
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![teaching-english-to-foreign-students](https://edge.mondly.com/blog/wp-content/uploads/2018/02/teaching-english-to-foreign-students-960x640.jpg "How To Teach English As A Second Language 5")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8\. Read and analyze fiction stories together
 
  This is another great strategy that I learned from one of my teachers. But as I mentioned earlier, you have to be 100% sure that you made the right choice. Harry Potter, as you may have already realized, works like magic in this situation.
@@ -142,12 +135,20 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
 
 **Bonus tip:** Good teachers may be different from a student’s point of view. Look for inspiration everywhere around you. Even in cinematography! Start with Damien Chazelle’s masterpiece –[Whiplash](http://www.imdb.com/title/tt2582802/?ref%5F=nv%5Fsr%5F2) – and observe how a teacher should not behave. Seriously. That guy was the king of all awful teachers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 9\. Attend educational shows to get inspired
 
  One of the most inspiring educational shows that you can ever go to is [The Bett Show](https://www.bettshow.com/#/) . Hundreds of companies from all over the world gather at Bett every year to discuss how education can change the future using the latest technologies.
 
 ![teaching-english-as-a-second-language](https://edge.mondly.com/blog/wp-content/uploads/2018/02/teaching-english-as-a-second-language-1024x576.jpg "How To Teach English As A Second Language 6")
  My guess is that this kind of event can inspire you to be a better teacher to your young students. Every day, technology becomes a bigger part of their worlds and we, as teachers, should keep up with the pace. Until super smartphones or super-smart robots will eventually replace us, we are still a crucial part of the global learning process. Although I find it hard to believe that scientists will ever [be able to create a software](https://financesonline.com/topapps/) so developed that it replicates the energy, dedication, and enthusiasm of a good teacher.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. TESOL, ESL, and TEFL Certifications
 
@@ -171,8 +172,6 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -180,6 +179,22 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-instagram-selfie-verification-everything-you-need-to-know/"><u>[New] 2024 Approved Instagram Selfie Verification - Everything You Need to Know</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-square-video-production-masterclass-in-imovie-for-social-media-for-2024/"><u>[Updated] Square Video Production Masterclass in iMovie for Social Media for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/3-dominant-platforms-for-seamless-multilingual-education/"><u>3 Dominant Platforms for Seamless Multilingual Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advance-global-commerce-with-premium-multilingual-apps/"><u>Advance Global Commerce with Premium Multilingual Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-with-film-learned-vernaculars/"><u>Bridging Cultures with Film-Learned Vernaculars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-a-vision-realized-mondlys-decade/"><u>Celebrating a Vision Realized: Mondly's Decade</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonious-hearing-using-tunes-to-learn-new-languages/"><u>Harmonious Hearing: Using Tunes to Learn New Languages</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-nubia-z50-ultra-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Nubia Z50 Ultra to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-samsung-galaxy-a54-5g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Samsung Galaxy A54 5G Phones with/without a PC</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-iphone-photography-focus-on-shadows/"><u>In 2024, Mastering iPhone Photography Focus on Shadows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-urdu-online-in-just-10-minutes-a-dayback-buttonfilter-button/"><u>Learn Urdu Online In Just 10 Minutes A DayBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/national-dialects-belgiums-language-map/"><u>National Dialects: Belgium's Language Map</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-make-your-text-pop-8-top-rated-neon-generators-online/"><u>Updated Make Your Text Pop 8 Top-Rated Neon Generators Online</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/win11-configuration-three-easy-steps-for-users/"><u>Win11 Configuration: Three Easy Steps for Users</u></a></li>
+</ul></div>
 

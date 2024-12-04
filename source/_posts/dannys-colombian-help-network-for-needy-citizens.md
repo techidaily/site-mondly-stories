@@ -1,7 +1,7 @@
 ---
 title: Danny's Colombian Help Network for Needy Citizens
-date: 2024-08-08T09:30:06.123Z
-updated: 2024-08-09T09:30:06.123Z
+date: 2024-12-02T18:27:50.598Z
+updated: 2024-12-03T23:27:48.265Z
 tags:
   - speak
   - english
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
 
  **One of the causes dearest to our heart is [Fundación Danny](http://www.fundaciondanny.org/) from Colombia to whom we donated 150 Premium subscriptions in an effort to help them make language learning accessible for Colombian children.**
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![fundacion danny mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/fundacion-danny-mondly-600x450.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 2")
 
  Colombian children attending the Danny Foundation courses.
@@ -34,25 +31,18 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
  **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Unlocking the power of social good
 
  When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Graduation at the Danny Foundation.
 
@@ -70,8 +60,9 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Learn a new language in just 10 minutes a day
 
  If the story of the Colombian children from the Danny Foundation inspired you to invest in yourself, you can start learning a new language right now with Mondly.
@@ -90,8 +81,6 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -99,6 +88,26 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-how-to-unlock-full-potential-with-iphone-hdr/"><u>[New] 2024 Approved How to Unlock Full Potential with iPhone HDR</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-navigating-high-definition-video-production-in-the-facebook-era/"><u>[New] 2024 Approved Navigating High Definition Video Production in the Facebook Era</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-subtlety-in-volume-reduction-for-audacity-projects/"><u>[New] In 2024, Subtlety in Volume Reduction for Audacity Projects</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-the-top-tiers-of-treasured-valheim-trees/"><u>[Updated] In 2024, The Top Tiers of Treasured Valheim Trees</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-maximizing-efficiency-streamlined-methods-to-download-vimeo-videos/"><u>2024 Approved Maximizing Efficiency Streamlined Methods to Download Vimeo Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-russian-grasping-number-concepts/"><u>Decoding Russian: Grasping Number Concepts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descifrar-horas-en-espanol-para-novatos/"><u>Descifrar Horas En Español: Para Novatos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/experts-choice-for-ultimate-defense-the-premier-iphone-16pro-cases-of-2am-where-the-moon-is-just-rising-and-the-night-is-still-fresh-it-offers-a-serene-sett196/"><u>Experts' Choice for Ultimate Defense: The Premier iPhone 16/Pro Cases of 2Am, Where the Moon Is Just Rising and the Night Is Still Fresh. It Offers a Serene Setting Conducive to Relaxation or Quiet Study, with Minimal Distractions From the Outside World.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/family-friendly-app-of-the-year-mondly-with-filter-and-back-buttons/"><u>Family-Friendly App of the Year: Mondly with Filter and Back Buttons</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Samsung Galaxy F34 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Poco C51? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-oppo-a1-5g-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Oppo A1 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japans-alphabet-unveiled-a-linguistic-journey/"><u>Japan's Alphabet Unveiled: A Linguistic Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-crispy-egg-frying-in-various-cultures-78-characters/"><u>Mastering the Art of Crispy Egg Frying in Various Cultures (78 Characters)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581246725-speak-slovak-straightforward-sneak-in-learning-during-your-free-minutes/"><u>Speak Slovak Straightforward: Sneak in Learning During Your Free Minutes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-heartfelt-lexicon-of-the-magyar-people/"><u>The Heartfelt Lexicon of the Magyar People</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-tongue-dominates-israels-society/"><u>What Tongue Dominates Israel's Society?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/win11s-leading-free-screen-capture-software-ranked-1-5/"><u>Win11's Leading Free Screen Capture Software Ranked #1-5</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-word-power-the-15-titles/"><u>Worldwide Word Power – The 15 Titles</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Saghe Numeriche in Italiano: Comunicazione E Lettura Intermedia"
-date: 2024-11-19T18:35:17.357Z
-updated: 2024-11-24T23:52:22.754Z
+date: 2024-11-29T18:28:49.081Z
+updated: 2024-12-03T23:36:16.285Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/daa4ddbb9dc17599c8cc745fc4daad052ccf0ddb6
  There’s hardly a day that passes without using [numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . They’re essential to our day-to-day lives. From shopping to giving people your phone number and setting up a meeting at a certain time, numbers are probably one of the first lessons you should take in any language. So, let’s see how easy it is to count from_zero_ to_cento_ in_Italiano_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Count to 10 in Italian
@@ -57,7 +57,7 @@ Here’s how to write and pronounce the Italian numbers 1-10:
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian numbers 11-20
@@ -97,7 +97,7 @@ Let’s see some examples:
 * to say “20 children”, you’ll say_venti bambini_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian numbers to 30 and beyond
@@ -113,7 +113,7 @@ Let’s see some examples:
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Count tens in Italian
@@ -178,7 +178,7 @@ Let’s see some examples:
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “The Amalfi Coast” by Gregory Smirnov©
@@ -252,16 +252,19 @@ Let’s see some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-comprehensive-guide-to-earnings-from-youtube-short-videos/"><u>[New] 2024 Approved A Comprehensive Guide to Earnings From YouTube Short Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-quietude-on-the-silver-screen-a-study/"><u>[New] Quietude on the Silver Screen A Study</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-safely-download-facebook-media-on-windowsmac/"><u>[New] Safely Download Facebook Media on Windows/Mac</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/all-app-analysis-comprehensible-by-az-capture-for-2024/"><u>All-App Analysis Comprehensible by AZ Capture for 2024</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/guide-to-downloading-artistdirects-music-video-library-as-mp3-mp4-or-other-file-types/"><u>Guide to Downloading ArtistDirect's Music Video Library as MP3, MP4, or Other File Types</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-start-mastering-latvian-in-daily-doses/"><u>Quick Start: Mastering Latvian in Daily Doses</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-and-portuguese-a-comparative-analysis/"><u>Spanish and Portuguese: A Comparative Analysis</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/switching-on-and-off-windows-10s-secure-sign-in-feature-a-step-by-step-guide/"><u>Switching On and Off Windows 10'S Secure Sign-In Feature: A Step-by-Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/team-enhancement-through-multilingual-software-exploration/"><u>Team Enhancement Through Multilingual Software Exploration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-complete-japanese-greeting-handbook/"><u>The Complete Japanese Greeting Handbook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-learn-croatian-discover-these-7-remarkable-advantages-immediately/"><u>Why Learn Croatian? Discover These 7 Remarkable Advantages Immediately</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-your-youtube-presence-featuring-essential-channels-tutorial/"><u>[New] 2024 Approved Elevate Your Youtube Presence Featuring Essential Channels Tutorial</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-art-of-iphone-framing-finding-the-best-camera-positions/"><u>[New] 2024 Approved The Art of iPhone Framing Finding the Best Camera Positions</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-game-development-behind-the-scenes/"><u>[New] In 2024, Game Development Behind-the-Scenes</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-instant-recording-sight-and-sound-fused/"><u>[New] Instant Recording Sight & Sound Fused</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-transitioning-instagram-video-to-mp3-format/"><u>[New] Transitioning Instagram Video to Mp3 Format</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-duo-in-debate-the-intricacies-of-spanish-vs-portuguese/"><u>A Duo in Debate: The Intricacies of Spanish Vs. Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-strategies-to-enhance-multicultural-communication/"><u>Breaking Barriers: Strategies to Enhance Multicultural Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581815703-bridging-worlds-essential-strategies-for-effective-intercultural-communication/"><u>Bridging Worlds: Essential Strategies for Effective Intercultural Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-russian-greetings-keywords-for-fluency/"><u>Conquering Russian Greetings: Keywords for Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-daily-bengali-lessons/"><u>Effortless Daily Bengali Lessons</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/elevate-your-daw-projects-by-incorporating-chatgpt-for-unique-sound-creation/"><u>Elevate Your DAW Projects by Incorporating ChatGPT for Unique Sound Creation</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ensure-optimal-performance-download-the-latest-hp-printer-drivers-now/"><u>Ensure Optimal Performance: Download the Latest HP Printer Drivers Now!</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/free-conversion-of-ogg-to-mp4-streaming-files-with-movavis-online-tool/"><u>Free Conversion of OGG to MP4 Streaming Files with Movavi's Online Tool</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581107411-mondly-unveils-top-8-motivational-factors-to-learn-hindi-online/"><u>Mondly Unveils: Top 8 Motivational Factors to Learn Hindi Online</u></a></li>
 </ul></div>
 

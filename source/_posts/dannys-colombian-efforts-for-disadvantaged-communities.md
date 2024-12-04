@@ -1,7 +1,7 @@
 ---
 title: Danny's Colombian Efforts for Disadvantaged Communities
-date: 2024-08-08T09:25:47.143Z
-updated: 2024-08-09T09:25:47.143Z
+date: 2024-12-03T00:57:00.273Z
+updated: 2024-12-04T00:47:59.123Z
 tags:
   - speak
   - english
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c13
 
  **One of the causes dearest to our heart is [Fundación Danny](http://www.fundaciondanny.org/) from Colombia to whom we donated 150 Premium subscriptions in an effort to help them make language learning accessible for Colombian children.**
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![fundacion danny mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/fundacion-danny-mondly-600x450.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 2")
 
  Colombian children attending the Danny Foundation courses.
@@ -34,16 +31,18 @@ thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c13
  **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Unlocking the power of social good
 
  When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Graduation at the Danny Foundation.
 
@@ -61,8 +60,9 @@ thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c13
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Learn a new language in just 10 minutes a day
 
  If the story of the Colombian children from the Danny Foundation inspired you to invest in yourself, you can start learning a new language right now with Mondly.
@@ -81,8 +81,6 @@ thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c13
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -90,6 +88,21 @@ thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c13
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-unpacking-features-a-deep-dive-into-free2xs-tools/"><u>[New] In 2024, Unpacking Features A Deep Dive Into Free2X's Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-streamlining-social-signals-with-tiktok-and-linktree-bio-mix-for-2024/"><u>[New] Streamlining Social Signals with TikTok and Linktree Bio Mix for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-optimize-your-content-creation-for-vimeo-with-best-edits/"><u>[Updated] In 2024, Optimize Your Content Creation for Vimeo with Best Edits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-blitz-hone-skills-quickly-each-day/"><u>Bangla Blitz: Hone Skills Quickly Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-the-diversity-of-european-languages-celebrating-europe-day/"><u>Discovering The Diversity Of European Languages – Celebrating Europe Day</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-solve-continuous-crash-issues-in-cities-skylines-2-on-windowspc/"><u>How to Solve Continuous Crash Issues in Cities: Skylines 2 on Windows/PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/integrate-authentic-french-in-your-daily-chit-chat/"><u>Integrate Authentic French in Your Daily Chit-Chat</u></a></li>
+<li><a href="https://win-tips.techidaily.com/kostengunstige-losung-schutz-ihrer-daten-mit-raid-und-gratis-raid-sicherungssoftware/"><u>Kostengünstige Lösung: Schutz Ihrer Daten Mit RAID Und Gratis RAID-Sicherungssoftware</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580248149-master-a-new-tongue-for-just-044-today/"><u>Master a New Tongue for Just $0.44 Today</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-infinix-note-30-5g-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Infinix Note 30 5G Phone? Unlock It Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachdiplom-10-andere-deutsche-begrussungen-neben-hallo/"><u>Sprachdiplom: 10 Andere Deutsche Begrüßungen Neben Hallo</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-strategies-for-tidying-up-personal-stereo-speaker-systems/"><u>Step-by-Step Strategies for Tidying Up Personal Stereo Speaker Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-complete-set-of-romance-language-nations/"><u>The Complete Set of Romance Language Nations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unraveling-the-distinctions-amazon-echo-pop-vs-amazon-echo-dot/"><u>Unraveling the Distinctions: Amazon Echo Pop Vs. Amazon Echo Dot</u></a></li>
+</ul></div>
 

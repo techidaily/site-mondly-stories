@@ -1,7 +1,7 @@
 ---
 title: "Discovering Mutual Understanding: Turkey & Korea's Language Journey"
-date: 2024-08-08T09:29:44.442Z
-updated: 2024-08-09T09:29:44.442Z
+date: 2024-11-27T17:16:24.341Z
+updated: 2024-12-03T17:14:05.723Z
 tags:
   - speak
   - english
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 ## Historical Roots and Origins of Turkish and Korean
 
  Before exploring the intriguing points of intersection between Turkish and Korean, it’s important to look back at their historical roots.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The Turkish Language
 
@@ -46,10 +50,11 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 
  In modern times, K-pop and K-dramas from South Korea have further disseminated the Korean language and culture worldwide.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![k-pop](https://media.giphy.com/media/McOXfLCpYA6mAQkKDj/giphy-downsized-large.gif "Unveiling The Intriguing Relationship Between Turkish And Korean Languages 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Controversial Altaic Language Family
 
@@ -73,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9782&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9782&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9782&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9782&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9782%26mt%3D8)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Similarities Between Turkish and Korean
 
  The Altaic family controversy was born mainly because of the remarkable linguistic features Turkish and Korean share. When you get to discover how similar these two languages actually are, you begin to understand why some experts strongly believe there’s a potential historical connection between them. (And you probably start to believe in it yourself.)
@@ -81,9 +90,6 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 
  So, she watches K-dramas on Netflix in their original Korean with subtitles. The thing is – and you’re not gonna believe this – she claims to understand some of the Korean words and phrases used in the dialogue that – she says – are similar to Turkish. The thing is the woman speaks not a word of Korean. Isn’t this crazy? Aren’t Turkish and Korean supposed to be two completely different languages with completely different alphabets?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![k-drama](https://media.giphy.com/media/3owzW9z4FkO6WzGIBW/giphy.gif "Unveiling The Intriguing Relationship Between Turkish And Korean Languages 4")
 
  Well, as it turns out, that’s not entirely true.**Turkish and Korean share a lot of similarities:**
@@ -100,9 +106,6 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 
 Do you see now why some people still support the Altaic theory?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Cultural Exchange and Influence between Turkey and Korea
 
  To our knowledge, historical interactions between Turkey and Korea began during the Korean War (1950–1953), when Turkey sent troops to aid South Korea.
@@ -112,8 +115,9 @@ Do you see now why some people still support the Altaic theory?
  Nevertheless, it was not until later that the young generations in Turkey developed a passion for Korean culture (and vice-versa, more recently).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Korean Pop Culture in Turkish Society
 
  Both Turkish and Korean enjoy an increasing worldwide popularity thanks to their TV series. Because yes, Turkish TV series have started to take the world by storm in the last couple of years.
@@ -122,23 +126,6 @@ Do you see now why some people still support the Altaic theory?
 
 [According to X](https://blog.twitter.com/en%5Fus/topics/insights/2022/-kpoptwitter-reaches-new-heights-with-7-8-billion-global-tweets) (formerly Twitter), Turkey is in the top 20 countries tweeting most about K-pop. If that doesn’t say something, I don’t know what will.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ![K-pop in Turkey](https://edge.mondly.com/blog/wp-content/uploads/2024/01/kpop-in-turkey-960x540.jpg "Unveiling The Intriguing Relationship Between Turkish And Korean Languages 5")
 
  The young generations in Turkey are such big fans of Hallyu that, in 2021, three girls fled their home in Istanbul to go to South Korea. Their action resulted in an investigation started by the Ministry of Family and Social Affairs in Turkey on the influence of K-pop and K-drama on Turkish youth.
@@ -157,6 +144,10 @@ Coming Soon
 
  No  No7 (26.92 %)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## New 2021 Study Reveals Millennia-Old Evidence on the Turkish-Korean link
 
  A [new 2021 study](https://www.reuters.com/world/china/japanese-korean-turkish-language-group-traced-farmers-ancient-china-2021-11-10/) revealed that the Transeurasian (Altaic iteration) language family, including languages like Japanese, Korean, and Turkish, originated from millet farmers in northeastern China 9,000 years ago. As you can see, the findings of the new study basically support the Altaic family theory.
@@ -165,10 +156,6 @@ Coming Soon
 
  The study contrasts the evolution of the Transeurasian languages with Chinese languages, attributing their development to separate agricultural practices. Additionally, it underlines that the formation of the Transeurasian (Altaic iteration) language family was not only the result of a single Neolithic migration but involved complex, prolonged interactions and mixing.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## The Turkish-Korean Connection – A Mystery
 
 **Are Turkish and Korean part of a single language family?** Given the very little historical evidence, we can’t know for sure yet.
@@ -180,8 +167,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 Before you go, make sure to check out these FAQs.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How has the historical relationship between Turkey and Korea influenced their languages?
 
  The Korean Wave has influenced an increased interest in learning the Korean language in Turkey. Educational Turkish institutions and language centers have started offering Korean language courses to cater to this growing interest.
@@ -190,9 +178,6 @@ Before you go, make sure to check out these FAQs.
 
  Mondly is one of the few language learning resources that allow you to learn both Turkish and Korean with one single app.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How did cultural exchange impact the connection between Turkish and Korean languages?
 
  According the historians and linguists, the direct impact of cultural exchange on the linguistic structures of Turkish and Korean is minimal. However, the recent interest in learning and appreciating each other’s languages as a result of cultural diplomacy, media exchange, and educational programs is a significant aspect of the connection between the two nations. This cultural exchange fosters a mutual understanding and respect, bridging the gap between the two cultures through language.
@@ -224,8 +209,6 @@ Before you go, make sure to check out these FAQs.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -233,6 +216,22 @@ Before you go, make sure to check out these FAQs.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-dji-revolution-air-vs-spark-in-gaming-sphere-for-2024/"><u>[New] DJI Revolution Air Vs. Spark in Gaming Sphere for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/building-striking-soundbite-trailers-for-podcasts-for-2024/"><u>Building Striking Soundbite Trailers for Podcasts for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-tips-to-address-and-repair-fatal-errors-in-black-ops-4/"><u>Expert Tips to Address and Repair Fatal Errors in Black Ops 4</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartfelt-internationalism-for-a-special-valentine/"><u>Heartfelt Internationalism for a Special Valentine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honoring-ten-years-mondlybacks-filter-innovation/"><u>Honoring Ten Years: MondlyBack's Filter Innovation</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-hot-30i-phone-without-pin-by-drfone-android/"><u>How to Unlock Infinix Hot 30i Phone without PIN</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-create-an-apple-developer-account-on-iphone-se-2022-by-drfone-ios/"><u>In 2024, How To Create an Apple Developer Account On iPhone SE (2022)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-setting-up-auto-play-youtube-content-on-facebook-platform/"><u>In 2024, Setting Up Auto-Play YouTube Content on Facebook Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intuitive-guide-to-hangul-speedy-script-comprehension/"><u>Intuitive Guide to Hangul: Speedy Script Comprehension</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-languages-in-a-virtual-world-mondlys-latest-innovation/"><u>Master Multiple Languages in a Virtual World - Mondly's Latest Innovation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-meets-social-dynamics-in-vr-worlds/"><u>Multilingual Mastery Meets Social Dynamics in VR Worlds</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolved-fixing-issue-4201-in-genshin-impact-a-comprehensive-guide/"><u>Resolved: Fixing Issue 4201 in Genshin Impact - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-mornings-with-heimvision-a8eric-sunrise-light-alarm-product-analysis-and-reviews/"><u>Revolutionize Your Mornings with HeimVision A8eric Sunrise Light Alarm - Product Analysis & Reviews</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-excellence-in-english-via-mondly/"><u>The Ultimate Guide to Excellence in English via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unending-education-odyssey-the-1500th-of-no-cost-sessions-celebration/"><u>Unending Education Odyssey: The 1500Th of No-Cost Sessions Celebration</u></a></li>
+</ul></div>
 

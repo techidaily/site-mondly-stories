@@ -1,7 +1,7 @@
 ---
 title: "Israel Expedition Essentials: Practical Advice & Useful Dialogue"
-date: 2024-11-17T18:45:19.637Z
-updated: 2024-11-24T17:37:27.780Z
+date: 2024-11-30T16:37:02.367Z
+updated: 2024-12-04T02:22:01.893Z
 tags:
   - speak
   - english
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
  So here are some tips and all the basic Hebrew phrases you need to know before packing your bags for the long-awaited trip to Israel.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Here’s what you should know before traveling to Israel
 
 **The best time to go to Israel:** If you want to sunbathe on the beaches of Tel Aviv or snorkel in Eilat, the best time to go to Israel is between June and September. On the other hand, if you are a person that feels more comfortable with lower temperatures, the periods between April – May and October-November are the best for you to explore the country and spend time in Jerusalem. However, during these months you should pack clothes that you can wear in layers because the weather can change fast from really sunny to cold and vice-versa.
@@ -41,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
  In addition to Hebrew, you will also hear [Arabic](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) (about one-fifth of the population is constituted by the Arab minority) and, of course, English. Not everybody speaks perfect English in Israel, but they certainly try. Since tourism is a central part of the country’s economy, shop, pub and restaurant owners try to keep the channel of communication open with the tourists.
 
 ![hebrew phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/09/hebrew-phrases-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Mahane Yehuda Market, Jerusalem, Israel” by Roxanne Desgagnés©
 
@@ -57,6 +57,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
  A good reference point that can help you compare typical costs around the world is the water bottle. In Israel, a water bottle is €4.20 (1.5-liter bottle) in stores and around €1.72 (0.33-liter bottle) in most restaurants and cafés. Compare that to [Greece](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , where the same water bottles are €0.50 in stores and around €1 in most restaurants and judge for yourself.
 
  Find out even more details about typical costs in Israel right [here](https://www.numbeo.com/cost-of-living/country%5Fresult.jsp?country=Israel) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 15 Hebrew words you’ll need in your vacation
 
@@ -86,17 +90,21 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
  Even if you are not a believer, Jerusalem and Nazareth are still a must. In addition to their great religious value, these cities are rich in art, culture and thousands of years of history. You’ll undoubtedly love every minute spend exploring their streets and never forget your experience there.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Tel-Aviv
 
  If you are a sucker for beaches, parties, museums and 1930 Bauhaus buildings, Tel-Aviv is the place to go. With its open-minded, diverse society, you’ll find Tel-Aviv surprisingly different than what you may have had in mind. For example, some of the most important events taking place in Tel-Aviv yearly are Gay Pride Parade, Purim Street Party and Tel Aviv Fashion Week. Cool, isn’t it?
 
 ![hebrew words](https://edge.mondly.com/blog/wp-content/uploads/2019/09/hebrew-words-1024x767.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Tel Aviv-Yafo, Israel” by Shai Pal©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. The Dead Sea
 
@@ -105,6 +113,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 ![travel to israel](https://edge.mondly.com/blog/wp-content/uploads/2019/09/travel-to-israel-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 5")
 
  “The Dead Sea” by Dave Herring©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Haifa
 
@@ -119,7 +131,7 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 ![israel hebrew](https://edge.mondly.com/blog/wp-content/uploads/2019/09/israel-hebrew-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 6")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Bahá’í Gardens, Haifa” by Denis Vdovin©
@@ -131,10 +143,6 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
  Traveling can be both amazing and stressful. What if you lose your luggage? What if you need to go to the toilet but you don’t know where to find one? What if nobody speaks English? Avoid stressful situation like these. Language should never be a barrier. Learn these basic Hebrew phrases beforehand and enjoy your trip to the fullest.
 
  First, we will explore Hebrew greetings, continue with some common ways to ask for help in Hebrew, basic phrases for when you’ll go to an Israeli restaurant and some basic phrases for shopping sprees. Happy learning!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Hebrew Greetings and other basics
 
@@ -156,10 +164,6 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 * No problem. –_אין בעיה. – Eyn beh’a’ya._
 
 ![learn hebrew](https://edge.mondly.com/blog/wp-content/uploads/2019/09/learn-hebrew-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 7")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Ein Gedi Oasis, Israel” by Robert Bye©
 
@@ -183,10 +187,6 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 * I would like a salad. –_אני רוצה סלט. – Anee rotseh salat._
 * I would like a soup. –_אני רוצה מרק. – Anee rotseh marak._
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Basic Hebrew phrases for shopping sprees
 
 * How much does it cost? –_כמה זה עולה? – Kama zeh oleh?_
@@ -201,7 +201,7 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Here’s how to speak Hebrew in just 10 minutes a day
@@ -229,20 +229,24 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-luminances-stand-in-the-hdr-landscape/"><u>[New] Luminance's Stand in the HDR Landscape</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-new-frontiers-in-immersive-experiences-the-best-metaverse-insights/"><u>[New] New Frontiers in Immersive Experiences The Best Metaverse Insights</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-the-complete-process-to-document-real-time-chats/"><u>[New] The Complete Process to Document Real-Time Chats</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-streamline-your-sound-key-audio-interfaces-for-podcasters/"><u>[Updated] Streamline Your Sound Key Audio Interfaces for Podcasters</u></a></li>
-<li><a href="https://win-dash.techidaily.com/canon-mf743cdw-free-downloads-of-updated-windows-printing-software/"><u>Canon MF743CDW: Free Downloads of Updated Windows Printing Software</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/enhancing-system-functionality-context-menu-for-swift-software-removal/"><u>Enhancing System Functionality: Context Menu for Swift Software Removal</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hello-in-portuguese-and-other-basic-portuguese-greetings-you-need-to-know/"><u>Hello in Portuguese and Other Basic Portuguese Greetings You Need to Know</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-v30t-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Realme V30T PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-htc-u23-pro-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On HTC U23 Pro? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interacting-with-global-teachers-at-bett-2022/"><u>Interacting with Global Teachers at BETT 2022</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-tenses-and-verb-patterns/"><u>Mastering Spanish: Tenses & Verb Patterns</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-the-digital-bridge-to-learning-and-growth-for-70-millionplus-users/"><u>Mondly: The Digital Bridge to Learning & Growth for 70 Million+ Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-toward-my-ideal-next-learning-lingual-journey/"><u>Navigating Toward My Ideal Next-Learning Lingual Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/refined-user-policies-for-modern-times/"><u>Refined User Policies for Modern Times</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/1728473506065-windows-11/"><u>Windows 11 : システムファイル容量オーバー防止ガイド</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-framebyframe-faceoff/"><u>[New] 2024 Approved FrameByFrame Faceoff</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-immediate-window-image-retrieval-windows/"><u>[Updated] 2024 Approved Immediate Window Image Retrieval (Windows)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-audience-engagement-meets-technology-four-recording-ways-on-facebook/"><u>[Updated] Audience Engagement Meets Technology Four Recording Ways on Facebook</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-essential-list-of-top-tier-9-mic-recorder-apps-for-2024/"><u>[Updated] Essential List of Top-Tier 9 Mic Recorder Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-guide-sharing-melodies-in-facebook-narratives/"><u>[Updated] Guide Sharing Melodies in Facebook Narratives</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7th-anniversary-mondly-a-global-language-leader/"><u>7Th Anniversary: Mondly, A Global Language Leader</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accentuate-your-english-with-british-vernacular/"><u>Accentuate Your English with British Vernacular</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bi-language-proficiencys-pros-6-benefits-explored/"><u>Bi-Language Proficiency's Pros: #6 Benefits Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-the-ice-in-france-mastering-27-engaging-idioms/"><u>Break the Ice in France: Mastering 27 Engaging Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprender-el-corazon-humano-en-espanol-dentro-desde-el-estomago-a-los-nudillos/"><u>Comprender El Corazón Humano en Español: Dentro Desde El Estómago A Los Nudillos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-cultures-in-easters-welcoming-words/"><u>Crossing Cultures in Easter's Welcoming Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descobrir-gritos-de-saudade-em-portugal-tudo-que-pensa/"><u>Descobrir Gritos De Saudade Em Portugal: Tudo Que Pensa</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficiency-in-language-proficiency-how-long/"><u>Efficiency in Language Proficiency - How Long?</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/expert-advice-installing-latest-drivers-for-corsair-headsets-on-windows-systems/"><u>Expert Advice: Installing Latest Drivers for Corsair Headsets on Windows Systems</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/expert-review-discover-the-most-underrated-but-essential-feature-of-this-years-premier-all-in-one-tech-solution/"><u>Expert Review: Discover the Most Underrated but Essential Feature of This Year's Premier All-in-One Tech Solution</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-s23-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy S23 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579597322-new-year-new-linguistic-skills/"><u>New Year, New Linguistic Skills</u></a></li>
+<li><a href="https://program-issues.techidaily.com/pc-performance-guide-how-to-avoid-warno-video-game-crashes/"><u>PC Performance Guide: How to Avoid Warno Video Game Crashes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-roadmap-for-joining-a-youtube-media-company-mcn-for-2024/"><u>The Roadmap for Joining a YouTube Media Company (MCN) for 2024</u></a></li>
 </ul></div>
 

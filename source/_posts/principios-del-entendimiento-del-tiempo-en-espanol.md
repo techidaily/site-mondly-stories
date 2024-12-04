@@ -1,7 +1,7 @@
 ---
 title: Principios Del Entendimiento Del Tiempo en Español
-date: 2024-11-21T16:50:00.021Z
-updated: 2024-11-24T17:04:57.349Z
+date: 2024-12-01T01:58:35.165Z
+updated: 2024-12-03T22:55:05.197Z
 tags:
   - speak
   - english
@@ -27,7 +27,7 @@ But first things first.
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## ¿Que hora es? – how to ask for the time in Spanish
@@ -37,7 +37,7 @@ But first things first.
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The basics of Spanish time
@@ -81,10 +81,6 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Telling time in Spanish – a visual guide
 
 ### Hour + minutes in Spanish time
@@ -99,7 +95,7 @@ Here are some examples:
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Different ways of telling time in Spanish
@@ -111,6 +107,10 @@ Here are some examples:
 * _es/son_ +_las_ \+ hour + con + number of minutes –**_Son las tres con diez_**
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
 
@@ -127,7 +127,7 @@ Here are some examples:
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Other useful time phrases in Spanish
@@ -190,22 +190,18 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-10-proven-techniques-for-skyrocketing-social-media-supporters/"><u>[New] 2024 Approved 10 Proven Techniques for Skyrocketing Social Media Supporters</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-mastering-video-editing-with-vita-an-in-depth-review-and-tutorial/"><u>[Updated] Mastering Video Editing with Vita An In-Depth Review & Tutorial</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-anker-superspeed-usb-3/"><u>Comprehensive Anker SuperSpeed USB 3</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-language-masters-top-3-platforms-for-rapid-acquisition/"><u>Global Language Masters: Top 3 Platforms for Rapid Acquisition</u></a></li>
-<li><a href="https://games-able.techidaily.com/guide-to-undoing-xbox-controller-updates/"><u>Guide to Undoing Xbox Controller Updates</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Vivo V27 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Infinix Zero 30 5G | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/krijg-uw-vrije-instant-activering-voor-movavi-video-converter-gratis-keuze/"><u>Krijg Uw Vrije Instant-Activering Voor Movavi Vidéo Converter: Gratis Keuze!</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/precision-adjustments-for-premium-zoom-audio/"><u>Precision Adjustments for Premium Zoom Audio</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-liftoff-soaring-over-japanese-numbers/"><u>Quick Liftoff: Soaring Over Japanese Numbers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simple-steps-to-mastering-turkish-orthography-an-easy-to-use-reference/"><u>Simple Steps to Mastering Turkish Orthography: An Easy-to-Use Reference</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/skyrocket-sales-harnessing-the-power-of-articulate-dialogue/"><u>Skyrocket Sales: Harnessing the Power of Articulate Dialogue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spelling-grammar-and-idioms-differ/"><u>Spelling, Grammar, and Idioms Differ</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-premier-game-collection-on-google-play-pass-top-8-picks-revealed/"><u>The Premier Game Collection on Google Play Pass - Top 8 Picks Revealed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-fluency-learning-russian-letter-sounds/"><u>Unlock Fluency: Learning Russian Letter Sounds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-slovak-speech-one-quick-session-at-a-time/"><u>Unlock Slovak Speech, One Quick Session at a Time!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-natures-longest-nomenclature/"><u>Unveiling Nature’s Longest Nomenclature</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exclusive-offer-20-free-luts-just-for-dji-mini-and-air-users/"><u>[New] Exclusive Offer 20 FREE LUTS Just for DJI Mini & Air Users</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-complete-resource-for-high-quality-videos-in-gopro-studio-for-2024/"><u>[New] The Complete Resource for High-Quality Videos in GoPro Studio for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-evolution-continues-iphone-xs-photographic-advancements/"><u>[Updated] In 2024, The Evolution Continues IPhone X's Photographic Advancements</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/111-must-learn-croatian-language-skills-before-your-next-trip-to-the-coastal-paradise/"><u>111 Must-Learn Croatian Language Skills Before Your Next Trip to the Coastal Paradise</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-comprehensive-guide-to-vsco-camera-app/"><u>2024 Approved Comprehensive Guide to VSCO Camera App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-step-by-step-guide-to-indonesian-greeting-etiquette/"><u>A Step-by-Step Guide to Indonesian Greeting Etiquette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accent-enhancement-through-challenging-twisters-100/"><u>Accent Enhancement Through Challenging Twisters (100)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-a-full-circle-mondlys-jubilee-year/"><u>Celebrating a Full Circle: Mondly’s Jubilee Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colombian-charity-danny-empowering-those-in-need/"><u>Colombian Charity Danny: Empowering Those in Need</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-mondly-in-your-huawei-app/"><u>Discover Mondly in Your Huawei App</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-understanding-auto-hdr-and-smart-exposure-techniques-in-photos/"><u>In 2024, Understanding Auto HDR and Smart Exposure Techniques in Photos</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-iphone-13-pro-max-without-passcode-easily-drfone-by-drfone-ios/"><u>In 2024, Unlock iPhone 13 Pro Max Without Passcode Easily | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-gaming-rigs-of-2e3-options-for-every-price-range-500-4kplus/"><u>Top-Rated Gaming Rigs of 2E3: Options for Every Price Range ($500-$4K+)</u></a></li>
 </ul></div>
 

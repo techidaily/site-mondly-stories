@@ -1,7 +1,7 @@
 ---
 title: Taking Flight in Russian Numeral Recognition
-date: 2024-11-20T22:21:29.986Z
-updated: 2024-11-24T22:31:11.011Z
+date: 2024-12-02T03:34:14.656Z
+updated: 2024-12-03T17:31:25.601Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 
  Whether you need to find out what’s the price for a matryoshka, ask a stranger when is the next bus arriving or give someone your phone number, knowing the Russian numbers is definitely essential. On top of that, they are not even that hard to learn. Once you learn how to count to ten, counting to 100 is a piece of cake.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Russian numbers 1-10
 
  In order to understand the logic behind counting in Russian faster, it’s best to break down the information into multiple sections. As you may expect, the Russian numbers from 1 to 10 are the most important. Not only these are the ones you’ll probably use the most, but they also lay the foundations for the bigger numbers in Russian.
@@ -27,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
  Here are the numbers from 1 to 10 in Russian with their respective pronunciations so you can begin practicing right now:
 
 ![russian numbers 1-10](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-1-10-600x424.jpg "Russian Numbers - Learn How To Count In Russian 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Russian numbers 1-10
 
@@ -47,7 +55,7 @@ If you did manage, good job! You must be a natural.
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian numbers 11-20
@@ -55,7 +63,7 @@ If you did manage, good job! You must be a natural.
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Russian numbers: 21 and onwards
@@ -63,10 +71,6 @@ If you did manage, good job! You must be a natural.
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
 
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Russian tens
 
@@ -84,10 +88,6 @@ And guess what! It works the same with the hundreds.
 
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Russian hundreds
 
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
@@ -95,7 +95,7 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Russian ordinal numbers
@@ -143,19 +143,22 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-from-novice-to-expert-mastering-movie-maker-in-windows-8-systems/"><u>[Updated] In 2024, From Novice to Expert Mastering Movie Maker in Windows 8 Systems</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/from-concepts-to-shares-your-guide-to-metaverse-meme-creation/"><u>From Concepts to Shares Your Guide to Metaverse Meme Creation</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-honor-play-7t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Honor Play 7T | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-the-ultimate-guide-to-instagram-looping-videos/"><u>In 2024, The Ultimate Guide to Instagram Looping Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-urdu-swiftly-with-daily-10-minute-intervals/"><u>Learn Urdu Swiftly with Daily 10-Minute Intervals</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lexicon-exploration-grey-matter-development/"><u>Lexicon Exploration, Grey Matter Development</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/open-doors-new-perspectives-the-value-of-multilingualism/"><u>Open Doors, New Perspectives: The Value of Multilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pledges-to-self-steps-to-fruition/"><u>Pledges to Self: Steps to Fruition</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Google Pixel 7a? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-balance-of-cost-and-performance-expert-review-on-the-zte-blade-a3-y-model/"><u>The Balance of Cost and Performance: Expert Review on the ZTE Blade A3 Y Model</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-cognitive-kick-unlock-6-bilingual-advantages/"><u>The Cognitive Kick: Unlock 6 Bilingual Advantages</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-ultimate-guide-to-finding-instagram-filters-for-no-cost-for-2024/"><u>The Ultimate Guide to Finding Instagram Filters for No Cost for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/winning-against-windows-10s-constant-interruption-by-learning-how-to-avoid-unwanted-restarting/"><u>Winning Against Windows 10'S Constant Interruption by Learning How to Avoid Unwanted Restarting</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-next-best-friend-in-conversation-is-ai/"><u>Your Next Best Friend in Conversation Is AI</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-direct-screen-capture-chrome-os-tool-for-2024/"><u>[New] Direct Screen Capture Chrome OS Tool for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-top-8-online-photo-montage-maker/"><u>2024 Approved Top 8 Online Photo Montage Maker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-new-horizon-for-the-franchise-in-depth-look-at-watch-dogs-legion/"><u>A New Horizon for the Franchise: In-Depth Look at Watch Dogs: Legion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/astonish-amalfitans-enjoy-the-richness-of-italian-expressions/"><u>Astonish Amalfitans: Enjoy the Richness of Italian Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descifrar-cuando-un-primer-tratado-sobre-el-tiempo-en-espanol/"><u>Descifrar Cuándo: Un Primer Tratado Sobre El Tiempo en Espaňol</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialect-dynamics-ukrainian-vs-russian-conversations/"><u>Dialect Dynamics: Ukrainian Vs Russian Conversations</u></a></li>
+<li><a href="https://games-able.techidaily.com/elevate-your-gaming-experience-with-the-ultimate-sound-discover-the-best-in-wireless-audio-epos-gtw/"><u>Elevate Your Gaming Experience with the Ultimate Sound: Discover the Best in Wireless Audio - EPOS GTW</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-itel-s23plus-frp-by-drfone-android/"><u>Full Guide to Bypass Itel S23+ FRP</u></a></li>
+<li><a href="https://win11.techidaily.com/harness-visual-clarity-for-effective-notes-embrace-the-obsidian-method/"><u>Harness Visual Clarity for Effective Notes - Embrace the Obsidian Method</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-vivo-y36i-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Vivo Y36i Phone that is Locked?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-huawei-nova-y71-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Huawei Nova Y71 Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-nuances-how-por-que-becomes-why/"><u>Language Nuances: How 'Por Que' Becomes 'Why'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-year-new-speaking-abilities/"><u>New Year, New Speaking Abilities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overcoming-dialect-divides-in-partnerships/"><u>Overcoming Dialect Divides in Partnerships</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-journey-to-numeral-knowledge-in-japan/"><u>Speedy Journey to Numeral Knowledge in Japan</u></a></li>
+<li><a href="https://article-helps.techidaily.com/the-comprehensive-handbook-for-recording-calls/"><u>The Comprehensive Handbook for Recording Calls</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-first-steps-with-spanish-numerals/"><u>Your First Steps With Spanish Numerals</u></a></li>
 </ul></div>
 

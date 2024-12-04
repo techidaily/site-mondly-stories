@@ -1,7 +1,7 @@
 ---
 title: "Vielfältig Sein: Eine Auswahl Deutscher Begrüßungen Ohne Hallo"
-date: 2024-11-18T17:21:41.282Z
-updated: 2024-11-24T17:17:53.139Z
+date: 2024-11-26T21:44:41.756Z
+updated: 2024-12-04T01:16:21.130Z
 tags:
   - speak
   - english
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/052918d3e56b96021eca7b3225588078d8b2ee409
 _Hallo!_ It’s nice to be properly greeted, isn’t it? Everywhere in the world. Not just in Germany. Now, the only challenge is to find the best way to say ‘hello’ in German depending on the social context. Are you meeting friends? Have a job interview?_Hallo_ is not entirely suitable for all social settings. So let’s see what other German greetings are there.
 
  Meanwhile, don’t forget that ‘hello’ is probably the simplest way to sound fluent. Throw in a smile and you’ll also look like one!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 1\. Hallo – the universal ‘hello’ in German
 
@@ -56,10 +52,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -74,6 +66,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Was ist los? – “What’s up?”
 
  Very similar to_alles klar?_ ,_was ist los?_ is appropriate for very casual conversations.
@@ -83,12 +79,20 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
 
@@ -106,10 +110,6 @@ _– Na._ (“Fine. Thanks!”)
  As you can see,_na_ is probably the most versatile syllable in the entire German language.
 
 **Localization:** mostly northern Germany.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Moin moin – “Hi”
 
@@ -134,7 +134,7 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
 **Localization:** Bavaria (south-eastern Germany) and Austria.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Servus – “At your service”
@@ -185,22 +185,20 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-dark-side-of-digital-content-profitability/"><u>[New] In 2024, The Dark Side of Digital Content Profitability</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-enhancing-gopro-footage-minimizing-motion-blur/"><u>[Updated] 2024 Approved Enhancing GoPro Footage Minimizing Motion Blur</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-prime-naturalist-screen-recording-systems-explained-for-2024/"><u>[Updated] Prime Naturalist Screen Recording Systems Explained for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-your-portal-into-creation-easy-metaverse-personas/"><u>2024 Approved Your Portal Into Creation Easy Metaverse Personas</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/come-eseguire-il-ripristino-di-sistema-con-lenovo-onekey-recovery-su-un-pc-con-windows-10/"><u>Come Eseguire Il Ripristino Di Sistema Con Lenovo OneKey Recovery Su Un PC Con Windows 10</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introductory-urdu-fundamental-words-and-phrases/"><u>Introductory Urdu: Fundamental Words & Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jeringas-linguisticos-en-ingles-espanol-conjunto-de-50/"><u>Jeringas Lingüísticos en Inglés-Español: Conjunto De 50</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-celebrates-victory-as-germanys-linguistic-champion/"><u>Mondly Celebrates Victory as Germany's Linguistic Champion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-collaborates-with-pearson-back-on-filter-feature/"><u>Mondly Collaborates with Pearson Back on Filter Feature</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-learning-revolution-a-new-era-for-over-70-million-users/"><u>Mondly's Learning Revolution: A New Era for Over 70 Million Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/original-vocal-augmented-reality-platform/"><u>Original Vocal Augmented Reality Platform</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/planifier-pour-la-vie-semaine-en-7-jours/"><u>Planifier Pour La Vie: Semaine en 7 Jours</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/retrieve-missing-chrome-bookmarks-from-file-explorer-a-step-by-step-guide/"><u>Retrieve Missing Chrome Bookmarks From File Explorer: A Step-by-Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saghe-numeriche-in-italiano-comunicazione-e-lettura-intermedia/"><u>Saghe Numeriche in Italiano: Comunicazione E Lettura Intermedia</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-steps-for-hdmi-sound-problems-after-attaching-computer-with-monitortv/"><u>Troubleshooting Steps for HDMI Sound Problems After Attaching Computer with Monitor/TV</u></a></li>
-<li><a href="https://driver-install.techidaily.com/update-system-sound-on-windows-7-using-idt-drivers/"><u>Update System Sound on Windows 7 Using IDT Drivers</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/zentralisierte-digitale-transformation-der-rechtspraxis-erleben-sie-die-innovation-von-norton-rose-llp-mit-abbyy-foto-und-handschriftserkennung/"><u>Zentralisierte Digitale Transformation Der Rechtspraxis: Erleben Sie Die Innovation Von Norton Rose LLP Mit ABBYY Foto- Und Handschriftserkennung</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-art-of-cozy-cinematography-top-5-winter-scenes/"><u>[New] In 2024, The Art of Cozy Cinematography Top 5 Winter Scenes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-hidden-treasures-the-undisclosed-window-11-tricks-youve-overlooked-for-2024/"><u>[Updated] Hidden Treasures The Undisclosed WINDOW 11 Tricks You've Overlooked for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-compelling-motives-for-embracing-multilingualism/"><u>10 Compelling Motives for Embracing Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581666702-100plus-essential-croatian-phrases-youll-need-before-traveling-to-croatia/"><u>100+ Essential Croatian Phrases You’ll Need Before Traveling to Croatia</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-heroes-journey-compilation-a-selection-of-top-10-adventure-games/"><u>2024 Approved Heroes' Journey Compilation A Selection of Top 10 Adventure Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/93-must-know-phrases-to-unlock-a-world-of-travel-in-spanish/"><u>93 Must-Know Phrases to Unlock a World of Travel in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-your-portuguese-journey-with-these-top-6-proven-methods/"><u>Accelerate Your Portuguese Journey with These Top 6 Proven Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breath-and-bravery-mastering-pronunciation-with-twisters/"><u>Breath and Bravery: Mastering Pronunciation with Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-conversation-10-must-know-italian-salutations/"><u>Dive Into Conversation: 10 Must-Know Italian Salutations</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-adding-movies-to-your-playlist-an-intuitive-process-for-youtube-users/"><u>In 2024, Adding Movies to Your Playlist An Intuitive Process for YouTube Users</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-from-beginner-to-pro-your-guide-to-mac-audio-with-audacity/"><u>In 2024, From Beginner to Pro Your Guide to Mac Audio with Audacity</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-12-prominent-nubia-z50-ultra-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Nubia Z50 Ultra Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/maximizing-e-reader-performance-effective-strategies-for-preserving-kindle-battery/"><u>Maximizing E-Reader Performance: Effective Strategies for Preserving Kindle Battery</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-palworld-not-loading-problems-with-simple-fixes/"><u>Resolving Palworld Not Loading Problems with Simple Fixes</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/1715701054414-ultimate-recorder-select-top-12-no-timer/"><u>Ultimate Recorder Select Top 12, No Timer!</u></a></li>
 </ul></div>
 

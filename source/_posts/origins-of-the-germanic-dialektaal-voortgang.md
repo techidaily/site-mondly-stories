@@ -1,7 +1,7 @@
 ---
 title: Origins of the Germanic Dialektaal Voortgang
-date: 2024-11-22T19:22:16.022Z
-updated: 2024-11-24T21:27:25.626Z
+date: 2024-12-01T01:30:42.956Z
+updated: 2024-12-04T03:39:05.443Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/19cc3daca0ae766efaf5a0d940f51eeacf8f63806
  It’s true that Dutch and_Deutsch_ look and sound somehow similar and there \*was\* a connection there. But not anymore. So let’s settle this out once and for all.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where are Dutch people from?
@@ -40,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/19cc3daca0ae766efaf5a0d940f51eeacf8f63806
 
  And this is not everything. Within the Holy Roman Empire, the word ‘Netherlands’ was widely used to indicate people from the low-lying (‘nether’) region (‘land’). That’s how ‘the Kingdom of the Netherlands’ got its name when it became a formal, separate country in 1815.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Where is the Netherlands?
 
  The Netherlands and the Kingdom of the Netherlands are two different entities. While the Netherlands is a country located in Western Europe, the Kingdom of the Netherlands is a comprehensive sovereign state consisting of four constituent countries: the Netherlands, Aruba, Curaçao, and Sint Maarten.
@@ -51,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/19cc3daca0ae766efaf5a0d940f51eeacf8f63806
  So where exactly in Western Europe is the Netherlands? The country borders Germany to the east,[Belgium](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to the south, and the North Sea to the northwest. Its largest city and capital is Amsterdam.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The Netherlands vs Holland
@@ -67,6 +63,10 @@ Okay, bare with me. There’s more.
  It all goes back (again) to Old English. Originally referring to the people from the northern region of the Netherlands, ‘Holland’ literally meant ‘wood-land’. But over time, English speakers began to mistakenly associate it with the entire country.
 
  Formerly the County of Holland (the most important county in the Low Countries region), Holland now consists of North and South Holland. These are two of the nation’s twelve provinces.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What language do they speak in the Netherlands?
 
@@ -85,7 +85,7 @@ Okay, bare with me. There’s more.
  ‘Tulip fields in the Netherlands’ by redcharlie©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What other countries speak Dutch?
@@ -95,10 +95,6 @@ Okay, bare with me. There’s more.
  The Dutch language is also spoken in a small part of France and on the islands of Curaçao, Sint Maarten, Aruba (all three part of the Kingdom of the Netherlands), Bonaire, Saba, and Sint Eustatius.
 
  If you travel to South Africa, you may think people speak Dutch, but they actually speak [Afrikaans](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , a language that evolved from Dutch.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is German Dutch?
 
@@ -112,6 +108,10 @@ Okay, bare with me. There’s more.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Start learning Dutch today
 
@@ -142,20 +142,22 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-address-webview-compatibility-for-fb-streaming/"><u>[New] Address WebView Compatibility for FB Streaming</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-decoding-authenticity-in-your-digital-instagram-family/"><u>[New] Decoding Authenticity in Your Digital Instagram Family</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-explore-the-top-5-snipping-utilities-for-chrome-os-users/"><u>[New] Explore The Top 5 Snipping Utilities For Chrome OS Users</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-enhancing-your-video-cover-images-updating-techniques-for-fb/"><u>[Updated] In 2024, Enhancing Your Video Cover Images Updating Techniques for FB</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/oad-youtube-playlists-with-ease-our-instructions-for-2024/"><u>Download YouTube Playlists with Ease - Our Instructions for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-fix-d3dx933dll-not-found-or-missing-errors/"><u>How to Fix D3dx9_33.dll Not Found or Missing Errors</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-on-apple-iphone-xs-max-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock On Apple iPhone XS Max?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-connects-educates-surpassing-the-70-million-mark-worldwide/"><u>Mondly Connects, Educates - Surpassing the 70 Million Mark Worldwide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pt-variants-analysis-brazilians-vs-europeans-button-trends/"><u>PT Variants Analysis: Brazilians vs Europeans - Button Trends</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seamless-introduction-to-lithuanian-online/"><u>Seamless Introduction to Lithuanian Online</u></a></li>
-<li><a href="https://win-forum.techidaily.com/step-by-step-guide-to-managing-registry-entries-with-revo-uninstaller/"><u>Step-by-Step Guide to Managing Registry Entries with Revo Uninstaller</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-lexicon-of-love-a-journey-through-hungarian-sentences/"><u>The Lexicon of Love: A Journey Through Hungarian Sentences</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-swashbucklers-handbook-navigating-piratical-chatter/"><u>The Swashbuckler's Handbook: Navigating Piratical Chatter</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-motivations-for-learning-the-german-language/"><u>Top Motivations for Learning the German Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/words-without-borders-mondlys-mission-to-uplift-ukrainians-in-linguistics/"><u>Words Without Borders – Mondly’s Mission to Uplift Ukrainians in Linguistics</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-nextgen-video-upscaler-mobiledesktop-edition/"><u>[New] 2024 Approved NextGen Video Upscaler Mobile/Desktop Edition</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-vision-and-craft-best-cinematography-practices/"><u>[Updated] 2024 Approved Vision and Craft Best Cinematography Practices</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-how-to-generate-speech-from-text-the-best-text-to-speech-converters/"><u>2024 Approved How To Generate Speech From Text | The Best Text-to-Speech Converters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/affectionate-artistry-romeo-rhetoric/"><u>Affectionate Artistry: Romeo Rhetoric</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/ai-techniques-for-generating-elegant-qr-code-designs-complete-tutorial/"><u>AI Techniques for Generating Elegant QR Code Designs - Complete Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-el-calendario-semanal-espanol/"><u>Aprende El Calendario Semanal Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendendo-gritos-de-alegria-em-portugues-conhecimento-essencial/"><u>Aprendendo Gritos De Alegria Em Português - Conhecimento Essencial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-language-assessments-key-certifications-unveiled/"><u>Conquering Language Assessments: Key Certifications Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/converse-confidently-in-russia-a-collection-of-key-phrases/"><u>Converse Confidently in Russia: A Collection of Key Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-similarities-in-uk-and-rus-linguistics/"><u>Deciphering Similarities in Uk & Rus Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easy-steps-to-speak-like-a-swede/"><u>Easy Steps to Speak Like a Swede</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/from-noisy-to-nice-a-comprehensive-guide-to-audio-post-production-in-fcpx/"><u>From Noisy to Nice A Comprehensive Guide to Audio Post-Production in FCPX</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211066425-9789359043555-ghosts-in-solid-form/"><u>Ghosts in Solid Form | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578582227-hello-in-german-10plus-german-greetings-beyond-hallo/"><u>Hello In German: 10+ German Greetings Beyond Hallo</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-boundless-creativity-fantasy-backdrops-on-thumbnails/"><u>In 2024, Boundless Creativity Fantasy Backdrops on Thumbnails</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-oneplus-12-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on OnePlus 12 Devices</u></a></li>
+<li><a href="https://techtrends.techidaily.com/resolving-dciman32dll-file-not-found-step-by-step-troubleshooting-guide/"><u>Resolving 'Dciman32.dll' File Not Found: Step-by-Step Troubleshooting Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2024-11-21T16:49:41.614Z
-updated: 2024-11-24T17:21:36.726Z
+date: 2024-12-02T17:57:31.947Z
+updated: 2024-12-03T20:03:52.122Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
@@ -61,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -127,22 +127,22 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-journey-into-the-enigma-discovering-hidden-emoji-messages/"><u>[New] 2024 Approved Journey Into the Enigma Discovering Hidden Emoji Messages</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-harmonic-hues-infusing-your-social-media-content-with-tunes/"><u>[Updated] In 2024, Harmonic Hues Infusing Your Social Media Content with Tunes</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-pixelprofiler-yearly-review-of-best-screen-capturing-tools/"><u>[Updated] In 2024, PixelProfiler Yearly Review of Best Screen Capturing Tools</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-installation-secure-your-brother-hl-l2340dw-printer-with-windows-drivers-download/"><u>Easy Installation - Secure Your Brother HL-L2340DW Printer with Windows Drivers Download</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-5-solutions-for-motorola-edge-40-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Motorola Edge 40 Unlock Without Password</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-branded-content-collaborations-on-streaming-services/"><u>In 2024, Branded Content Collaborations on Streaming Services</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-top-youtube-titles-crafted-by-ai/"><u>In 2024, Top YouTube Titles Crafted by AI</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-love-jargon-for-a-special-day/"><u>International Love Jargon for a Special Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-bridge-salutations-across-nations/"><u>Language Bridge: Salutations Across Nations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-in-flux-popular-slang-words-and-their-meanings/"><u>Language in Flux: Popular Slang Words and Their Meanings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-english-pronunciation-via-intense-tongue-twisters/"><u>Mastering English Pronunciation via Intense Tongue Twisters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-croatian-conversation-travels-must-have-skillset/"><u>Mastering the Art of Croatian Conversation: Travel's Must-Have Skillset</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/practica-controlada-como-decir-colores/"><u>Práctica Controlada: Cómo Decir Colores</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/scaling-down-macos-from-sierra-to-el-capitan-os-for-2024/"><u>Scaling Down MacOS From Sierra To El Capitan OS for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/skyrim-on-nintendo-switch-a-deep-dive-into-an-enchanting-rpg-experience/"><u>Skyrim on Nintendo Switch: A Deep Dive Into an Enchanting RPG Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-dance-of-dialogues-across-dialectal-divides/"><u>The Dance of Dialogues Across Dialectal Divides</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-future-of-user-assistance-with-mondlys-qanda-update/"><u>Unveiling the Future of User Assistance with Mondly’s Q&A Update</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-which-video-sharing-app-should-i-pick-tiktok-or-youtube-shorts-perspective/"><u>[Updated] 2024 Approved Which Video-Sharing App Should I Pick? TikTok or YouTube Shorts Perspective</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-capacity-of-64128gb-in-video-storage-an-overview/"><u>2024 Approved Capacity of 64/128GB in Video Storage - An Overview</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-voyage-through-german-language-soundscapes/"><u>A Beginner's Voyage Through German Language Soundscapes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-kiss-across-borders-language-of-love-for-valentines-day/"><u>A Kiss Across Borders: Language of Love for Valentines Day</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-how-photodna-detects-illegal-photographs/"><u>Demystifying How PhotoDNA Detects Illegal Photographs</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-your-perfect-fit-amd-drivers-with-one-click/"><u>Download Your Perfect Fit AMD Drivers with One Click!</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exploring-the-marvel-of-apples-m1-max-attachments-for-2024/"><u>Exploring the Marvel of Apple’s M1 Max Attachments for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-immersive-health-experiences-enhanced-care/"><u>In 2024, Immersive Health Experiences, Enhanced Care</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-mastering-zooms-video-enhancements-filter-techniques/"><u>In 2024, Mastering Zoom's Video Enhancements Filter Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-steps-towards-fluency-in-spanish/"><u>Interactive Steps Towards Fluency in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-named-best-language-learning-app-of-2022-by-bestappcom/"><u>Mondly Named Best Language Learning App of 2022 by BestApp.com</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/say-goodbye-to-data-limits-explore-the-best-of-30-free-clouds-offering-1tbplus-included-for-2024/"><u>Say Goodbye to Data Limits - Explore the Best of 30 Free Clouds Offering 1TB+ Included for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/screen-based-linguistic-strategies-unveiled/"><u>Screen-Based Linguistic Strategies Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-languages-focusing-on-english/"><u>Second Languages: Focusing on English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581354118-start-the-year-smart-savings-alert-on-mondly-premium-up-to-96-off/"><u>Start the Year Smart - Savings Alert on Mondly Premium, Up to 96% Off</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unpacking-mondlys-way-to-learn/"><u>Unpacking Mondly's Way to Learn</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-vn-video-editor-for-computer-a-concise-review-and-guide/"><u>Updated In 2024, VN Video Editor for Computer A Concise Review and Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Um Compêndio Do Português: Saudações a Todas as Hora"
-date: 2024-10-31T06:09:15.755Z
-updated: 2024-11-05T08:16:12.199Z
+date: 2024-12-01T21:26:52.453Z
+updated: 2024-12-03T22:52:00.315Z
 tags:
   - speak
   - english
@@ -20,9 +20,17 @@ thumbnail: https://thmb.techidaily.com/4e09b5e1cc338687bdb5629756ebeeb2fe6540438
 
  So next time you go on an adventure to one of the 7 countries where Portuguese is the only official language (Portugal, Brazil, Mozambique, Angola, Cape Verde, Guinea-Bissau, São Tomé and Príncipe), try the following**Portuguese greetings** and see how easy it is to connect with someone even if you don’t speak the same language.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. How to say “hello” in Portuguese
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### “Hello” in Portuguese – Olá
 
@@ -36,14 +44,11 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Lisbon, Portugal” by Diego García©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
 
@@ -60,6 +65,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
@@ -73,13 +82,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  **Good night in Portuguese –_Boa noite!_**  – The Portuguese language does not make any difference between evening and night. Thus, “goodnight” and “good evening” have the same translation in Portuguese. While in Brazil you will say “boa NOEE-tsh”, in Portugal you will say “boa NOEE-t”.
 
  All three of these are safe to use in any kind of interaction (formal or informal).
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
 
@@ -98,16 +100,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
@@ -141,13 +134,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Here’s how to speak Portuguese in 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Portuguese? **Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!**
@@ -179,18 +165,22 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/latform-profitability-showdown-dailymovements-standards-vs-youtube-for-2024/"><u>[New] Platform Profitability Showdown DailyMovement's Standards Vs Youtube for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/solved-device-manager-error-unfolds/"><u>[SOLVED]: Device Manager Error Unfolds</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-moto-z2-masterclass-smartphone-smarts-explored/"><u>2024 Approved Moto Z2 Masterclass Smartphone Smarts Explored</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/danish-film-selection-enhancing-linguistic-competence/"><u>Danish Film Selection: Enhancing Linguistic Competence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/easy-introduction-to-hangul-asian-script-at-your-fingertips/"><u>Easy Introduction to Hangul: Asian Script at Your Fingertips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-kisses-to-clusters-saying-chocolate-everywhere-you-go/"><u>From Kisses to Clusters: Saying 'Chocolate' Everywhere You Go</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-how-to-become-a-youtube-partner/"><u>In 2024, How to Become A YouTube Partner</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-the-evolution-continues-iphone-xs-photographic-advancements/"><u>In 2024, The Evolution Continues IPhone X's Photographic Advancements</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/love-in-deutsch-effective-pick-up-lines/"><u>Love in Deutsch: Effective Pick-Up Lines</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/masterclass-in-image-detail-removing-obscuring-elements-with-photopea/"><u>Masterclass in Image Detail Removing Obscuring Elements with Photopea</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-with-ease-a-review-of-mobvois-ticwatch-pro-and-its-long-lasting-battery-thanks-to-innovative-dual-screen-technology/"><u>Navigating with Ease: A Review of Mobvoi's TicWatch Pro Ⅲ and Its Long-Lasting Battery, Thanks to Innovative Dual Screen Technology</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-mysteries-of-honshus-writing/"><u>Unlocking the Mysteries of Honshū's Writing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/woo-with-wit-curated-collection-of-engaging-phrases/"><u>Woo with Wit: Curated Collection of Engaging Phrases</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-9-prime-live-streaming-venues-for-gamers-for-2024/"><u>[New] 9 Prime Live Streaming Venues for Gamers for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-elite-insight-parrots-second-gen-drone-20/"><u>[New] In 2024, Elite Insight Parrot's Second-Gen Drone 2.0</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-thriving-on-both-sides-work-and-youtubing-tips/"><u>[New] In 2024, Thriving on Both Sides Work and YouTubing Tips</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-social-media-coverage-start-scale-resolution-length/"><u>[Updated] 2024 Approved Social Media Coverage Start Scale, Resolution, Length</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-analyzing-ffmpegs-compatibility-with-original-soundscape/"><u>2024 Approved Analyzing FFmpeg's Compatibility with Original Soundscape</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-zippy-typography-two-approaches-to-liven-up-your-letters/"><u>2024 Approved Zippy Typography Two Approaches to Liven Up Your Letters</u></a></li>
+<li><a href="https://windows11.techidaily.com/customizing-fn-keys-to-maximize-pc-efficiency-in-wins/"><u>Customizing FN Keys to Maximize PC Efficiency in Wins</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enchantment-expressions-the-verona-variant/"><u>Enchantment Expressions: The Verona Variant</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enter-the-world-of-endless-languages-mondly-introduces-vr-learning-platform/"><u>Enter the World of Endless Languages - Mondly Introduces VR Learning Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-reading-list-for-learning-to-read-in-french/"><u>Essential Reading List for Learning to Read in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eternal-access-to-mondly-premium-for-free/"><u>Eternal Access to Mondly Premium for Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/excellent-platforms-boosting-language-mastery/"><u>Excellent Platforms Boosting Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-best-16-german-phrases-to-thank-someone-profusely/"><u>Explore The Best 16 German Phrases To Thank Someone Profusely</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-monolingualism-to-multilingualism-how-long/"><u>From Monolingualism To Multilingualism - How Long?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-old-norse-to-modern-dutch-evolutionary-paths/"><u>From Old Norse to Modern Dutch: Evolutionary Paths</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/seamless-audio-junction-expert-logic-pro-x-tips-for-2024/"><u>Seamless Audio Junction Expert Logic Pro X Tips for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Politeness Profiles: The Art of Saying Thanks Across Cultures (154)"
-date: 2024-11-21T22:28:49.086Z
-updated: 2024-11-24T16:45:34.482Z
+date: 2024-11-26T22:50:21.966Z
+updated: 2024-12-03T18:01:53.294Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
@@ -61,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -127,19 +127,22 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-essential-choice-10-budget-friendly-caption-tools/"><u>[New] 2024 Approved Essential Choice 10 Budget-Friendly Caption Tools</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-cutting-edge-chapter-tactics-to-complement-your-youtube-presentations/"><u>[Updated] Cutting-Edge Chapter Tactics to Complement Your YouTube Presentations</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-day-after-evaluation-new-approaches/"><u>2024 Approved Day After Evaluation New Approaches</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-fixes-for-your-stubborn-usb-to-hdmi-connection-problems/"><u>Expert Fixes for Your Stubborn USB to HDMI Connection Problems</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-bring-your-vision-to-life-youtube-trailers-using-filmoras-magic/"><u>In 2024, Bring Your Vision to Life YouTube Trailers Using Filmora's Magic</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-x50-gt-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor X50 GT to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/main-tongue-in-croatia/"><u>Main Tongue in Croatia</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-merges-with-pearson-edu-connectivity/"><u>Mondly Merges With Pearson Edu-Connectivity</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revolutionary-performance-unveiled-in-depth-analysis-of-the-2020-apple-mac-mini-m1/"><u>Revolutionary Performance Unveiled: In-Depth Analysis of the 2020 Apple Mac Mini (M1)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swift-progress-to-japanese-numerical-fluency/"><u>Swift Progress to Japanese Numerical Fluency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-path-to-fluency-unveil-8-superior-benefits-of-learning-hindi-online-with-mondly/"><u>The Path to Fluency: Unveil 8 Superior Benefits of Learning Hindi Online with Mondly!</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-ultimate-showdown-twitchs-challenge-to-youtubes-market-for-2024/"><u>The Ultimate Showdown Twitch's Challenge to YouTube's Market for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-deep-emotions-in-hungarian-speech/"><u>Understanding Deep Emotions in Hungarian Speech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-turkish-language-learning-a-concise-alphabet-and-pronunciation-guide/"><u>Unlocking Turkish Language Learning: A Concise Alphabet & Pronunciation Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-mastering-choice-optimal-free-srt-translation-services/"><u>[Updated] 2024 Approved Mastering Choice Optimal Free SRT Translation Services</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-add-text-to-youtube-video-for-2024/"><u>[Updated] How to Add Text to YouTube Video for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-popcorn-projections-thorough-review-of-film-snack-recorder/"><u>[Updated] Popcorn Projections Thorough Review of Film Snack Recorder</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-sync-sound-files-with-ppt-slides-for-2024/"><u>[Updated] Sync Sound Files with PPT Slides for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/4k-video-powerhouse-panasonic-wxf991/"><u>4K Video Powerhouse: Panasonic WXF991</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-honor-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Honor</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brit-language-for-travelers-a-compreited-guide/"><u>Brit Language for Travelers: A Compreited Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/compreender-saudacoes-em-portugal-todas-as-variedades/"><u>Compreender Saudações Em Portugal: Todas as Variedades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/east-coast-vs-west-us-english-peculiarities/"><u>East Coast vs West: US English Peculiarities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-in-finesse-top-25-must-know-german-phrases/"><u>Fluent in Finesse - Top 25 Must-Know German Phrases</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-immersive-editing-unveiling-the-top-15-cine-luts-for-action-cam/"><u>In 2024, Immersive Editing Unveiling the Top 15 Cine LUTs for Action Cam</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-honor-x50-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Honor X50 for Parents | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/main-language-used-in-croatia/"><u>Main Language Used in Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-global-conversation-skills-mondlys-new-edition/"><u>Navigate Global Conversation Skills: Mondly’s New Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-chance-languages-embrace-polyglot-living/"><u>Second Chance Languages: Embrace Polyglot Living</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-guide-to-windows-10s-video-creation-capabilities-for-2024/"><u>The Ultimate Guide to Windows 10'S Video Creation Capabilities for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577323944-transform-into-a-tagalog-conversationalist-quickly/"><u>Transform Into a Tagalog Conversationalist Quickly!</u></a></li>
 </ul></div>
 

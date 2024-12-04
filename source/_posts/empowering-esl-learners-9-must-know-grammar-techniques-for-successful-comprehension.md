@@ -1,7 +1,7 @@
 ---
 title: "Empowering ESL Learners: 9 Must-Know Grammar Techniques for Successful Comprehension"
-date: 2024-08-08T09:27:42.894Z
-updated: 2024-08-09T09:27:42.894Z
+date: 2024-11-27T03:06:43.797Z
+updated: 2024-12-03T22:46:02.813Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/3186e4df3cd85f5548d507c683f3aba596cb59805
 
  I for one successfully learned [English as a second language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as a young child living in Eastern Europe. All it took was a dedicated teacher, daily grammar lessons (for some time), and a lot of passion. Now, I want to share my tips and tricks with you. Yes, English grammar is all about verbs, verb tenses, nouns, and adverbs. But it is also about feeling. I believe in [learning the English language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but I‌ also believe in feeling it. So here’s exactly what you could do to learn English grammar easily.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Start with basic grammar rules
 
  Basic grammar rules are a must if you really want to get proficient. You may not like them (most people don’t), but the truth is you can’t escape them. So, first things first: learn what are the English parts of speech and how to recognize each of them.
@@ -37,9 +41,9 @@ thumbnail: https://thmb.techidaily.com/3186e4df3cd85f5548d507c683f3aba596cb59805
  And the list can and should continue (check the English grammar courses from Oxford for more). But in today’s lesson we’re focussing more on curriculum and tips, so let’s move on to your next step.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Continue with verbs and verb tenses
 
  Verbs and verb tenses are important because they can make your whole language sound off if you don’t use the correct form. And what better way to understand verb tenses than examples?
@@ -86,17 +90,15 @@ The ultimate burning program for all your needs!</a>
  The experts behind Mondly know how amazing the human brain is. This is why they carefully selected the content so that you’ll practice and the brain will make the connections itself. You don’t focus on the process but on the final result: speaking English like a native.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Learn the most common exceptions
 
  Forget about rules. Focus on the most common exceptions. Once you begin using the inductive learning method, rules will follow naturally. So it’s the exception you need to study and master.
 
  Whether we are talking about adjective forms, irregular verbs, or nouns without plurals, exceptions are fewer and can help you achieve the level of English fluency and correctness you always dreamed you’d have.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 6\. Practice English Grammar with Oxford
 
  Being the best always requires hard work and practice. Thus, if you want to take a step further and grow from beginner to advanced and later proficient, you should practice grammar with the special workbooks from [Oxford](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -107,9 +109,6 @@ The ultimate burning program for all your needs!</a>
 
  “Find your favorite book” by 🇸🇮 Janko Ferlič©
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 7\. Don’t overthink it
 
  Go with the flow and let the inductive method work. Trust your instinct. In time, once you get used to the language, you’ll be able to speak English as easily as you speak your native language.
@@ -117,8 +116,9 @@ The ultimate burning program for all your needs!</a>
  Don’t calculate your next ten moves. Instead, think directly in English and just speak. If you overthink a phrase now, you’ll overthink it forever.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8\. Read your favorite books in English
 
  What better way is there to get used to English grammar in context than reading your favorite books in English? I, for one, started with Harry Potter because it is easy to read and it does not use complex vocabulary.
@@ -128,8 +128,9 @@ The ultimate burning program for all your needs!</a>
  Seeing the English grammar in context will help you assimilate the information faster and learn to use it successfully yourself.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 9\. Make English grammar your friend
 
  After reading, it’s time to practice what you’ve learned with a nice English writing session. Write about your passions, your hobbies, or just about anything you want. The idea is to practice expressing yourself in English in regard to the things you are more likely to talk about in a future conversation with an English speaker.
@@ -155,8 +156,6 @@ The ultimate burning program for all your needs!</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -164,6 +163,23 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/he-ultimate-list-of-5-effective-youtube-promotion-strategies-for-success-for-2024/"><u>[New] The Ultimate List of 5 Effective YouTube Promotion Strategies for Success for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-windows-10-treasures-exciting-new-apps-and-games-await/"><u>[Updated] 2024 Approved Windows 10 Treasures Exciting New Apps & Games Await</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-building-a-successful-brand-presence-through-spotify-advertising/"><u>[Updated] Building a Successful Brand Presence Through Spotify Advertising</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-obs-vs-streamlabs-which-is-better-for-2024/"><u>[Updated] OBS vs Streamlabs Which Is Better for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-reasons-why-you-should-learn-afrikaans/"><u>10 Reasons Why You Should Learn Afrikaans</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-navigating-the-path-to-wealthy-video-creators-via-vimeos-revenue-streams/"><u>2024 Approved Navigating the Path to Wealthy Video Creators via Vimeo's Revenue Streams</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-celebrates-mondlys-victory-in-education-app-elite-league/"><u>Apple Celebrates Mondly’s Victory in Education App Elite League</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/augmenting-reality-first-speech-powered-app/"><u>Augmenting Reality: First Speech-Powered App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/babels-echo-ancient-greek-influence-and-today/"><u>Babel’s Echo: Ancient Greek Influence & Today</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-and-speedy-installation-of-epson-et-4550-printer-drivers-on-windows-systems/"><u>Easy & Speedy Installation of Epson ET-4550 Printer Drivers on Windows Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ein-musterbeispiel-des-abschieds-in-deutscher-sprache/"><u>Ein Musterbeispiel Des Abschieds in Deutscher Sprache</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-enterprise-efficacy-via-tailored-talk-techniques/"><u>Elevate Enterprise Efficacy via Tailored Talk Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/evaluating-the-kootee-tech-gaming-cooler-a-powerful-and-dependable-heat-dispersal-system/"><u>Evaluating the Kootee Tech Gaming Cooler - A Powerful and Dependable Heat Dispersal System</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Tecno Spark 10C? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-reverse-video-online-the-ultimate-2023-guide/"><u>New 2024 Approved Reverse Video Online The Ultimate 2023 Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultra-fast-language-learning-secrets/"><u>Ultra-Fast Language Learning Secrets</u></a></li>
+</ul></div>
 

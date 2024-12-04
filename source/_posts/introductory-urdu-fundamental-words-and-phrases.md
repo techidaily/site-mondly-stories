@@ -1,7 +1,7 @@
 ---
 title: "Introductory Urdu: Fundamental Words & Phrases"
-date: 2024-11-18T18:25:03.772Z
-updated: 2024-11-24T18:15:53.697Z
+date: 2024-11-28T00:39:17.128Z
+updated: 2024-12-03T21:41:09.157Z
 tags:
   - speak
   - english
@@ -86,7 +86,7 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * stop — _رکو (ruko)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The most popular Urdu words searches
@@ -112,7 +112,7 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * hope — _امید (umeed)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Urdu words related to food and drink
@@ -120,10 +120,6 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
  Did you know that the [Urdu language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) was one of the premier languages of poetry in South Asia for centuries? And rightly so. Just listen to the music of its words and you’ll understand.
 
 ![words in urdu by Sumeet B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/words-in-urdu-960x735.jpg "100+ Core Urdu Words – Learn The Most Common Words In Urdu 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Meanwhile, let’s add some flavor to your Urdu vocabulary. What are the best words to learn if not the words related to food and drink?
 
@@ -149,6 +145,10 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * salt _— نمک (namak)_
 * sugar — _شکر (shakar)_
 * pepper — _مرچ (mirch)_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Urdu words related to body and health
 
@@ -176,7 +176,7 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * pharmacy — _دواخانہ (dawakhana)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Urdu words related to transportation and places
@@ -231,7 +231,7 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn Urdu in just 10 minutes a day
@@ -263,17 +263,16 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-overcoming-youtube-disqualification/"><u>[Updated] In 2024, Overcoming YouTube Disqualification</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-mastery-through-motion-a-garageband-guide-to-podcasting/"><u>2024 Approved Mastery Through Motion A GarageBand Guide to Podcasting</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/best-rated-wedding-timekeepers-a-comprehensive-android-and-ios-app-review/"><u>Best-Rated Wedding Timekeepers A Comprehensive Android & iOS App Review</u></a></li>
-<li><a href="https://fox-access.techidaily.com/blending-photos-into-a-kaleidoscopic-visual-symphony/"><u>Blending Photos Into a Kaleidoscopic Visual Symphony</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ssing-the-power-of-asynchronous-programming-in-javascript-for-2024/"><u>Harnessing the Power of Asynchronous Programming in JavaScript for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-mayhem-embrace-new-languages-with-vr/"><u>Multilingual Mayhem: Embrace New Languages with VR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/must-know-russian-lingo-for-travel-efficiency/"><u>Must-Know Russian Lingo for Travel Efficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapid-learn-the-essentials-of-japanese-counting/"><u>Rapid Learn: The Essentials of Japanese Counting</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/reinstating-normalcy-regain-your-fb-account/"><u>Reinstating Normalcy Regain Your FB Account</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unboxing-the-acer-xfa240-performance-prioritized-in-this-powerful-pc-system/"><u>Unboxing the Acer XFA240: Performance Prioritized in This Powerful PC System</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-global-potential-through-german-studies-10-reasons/"><u>Unlock Global Potential Through German Studies (10 Reasons)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voice-variations-dissecting-aussie-slang-from-us-southern-drawl/"><u>Voice Variations: Dissecting Aussie Slang From U.S. Southern Drawl</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-effective-use-of-adsense-on-youtube-to-boost-channel-income-for-2024/"><u>[Updated] Effective Use of AdSense on YouTube to Boost Channel Income for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-record-android-internal-sound-4-non-root-methods-for-2024/"><u>[Updated] Record Android Internal Sound 4 Non-Root Methods for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-dynamic-reasons-for-embracing-new-dialects/"><u>8 Dynamic Reasons for Embracing New Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ace-japanese-greeting-etiquette/"><u>Ace Japanese Greeting Etiquette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apprendimento-dei-numeri-italiani-la-via-da-1-a-mille/"><u>Apprendimento Dei Numeri Italiani: La Via Da 1 a Mille</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brainy-bonuses-six-key-benefits-in-multilinguals/"><u>Brainy Bonuses: Six Key Benefits in Multilinguals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevating-your-business-talk-one-phrase-at-a-time/"><u>Elevating Your Business Talk, One Phrase at a Time</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/install-or-enhance-your-hp-laserjet-m5100m6m7-printer-with-recent-driver-versions/"><u>Install or Enhance Your HP LaserJet M5100/M6/M7 Printer with Recent Driver Versions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/nine-must-have-android-apps-for-windows-users/"><u>Nine Must-Have Android Apps for Windows Users</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-the-operating-system-couldnt-be-detected-issue-expert-solutions-and-tips/"><u>Resolving the ‘Operating System Couldn’t Be Detected’ Issue: Expert Solutions & Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-career-potential-the-power-of-facebook-engagement/"><u>Unlock Career Potential: The Power of Facebook Engagement</u></a></li>
 </ul></div>
 

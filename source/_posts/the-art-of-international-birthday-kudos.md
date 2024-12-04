@@ -1,7 +1,7 @@
 ---
 title: The Art of International Birthday Kudos
-date: 2024-11-23T20:58:44.651Z
-updated: 2024-11-24T18:24:10.593Z
+date: 2024-11-30T01:05:35.182Z
+updated: 2024-12-03T23:16:45.380Z
 tags:
   - speak
   - english
@@ -23,7 +23,7 @@ Different people in the world have different trends to celebrate birthdays, but 
 Have you ever thought about how people from other cultures sing birthday songs? Do they do it the same way we do it in English? What about gifts and cakes? How do they express emotions on a birthday? Do they use specific words? Let’s learn how other cultures say and commemorate birthdays!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Happy Birthday in Spanish: Feliz Cumpleaños**
@@ -35,7 +35,7 @@ Have you ever thought about how people from other cultures sing birthday songs? 
 ![Happy Birthday in French Bon Anniversaire](https://edge.mondly.com/blog/wp-content/uploads/2018/12/Happy-Birthday-in-French-Bon-Anniversaire.png "How To Say &Quot;Happy Birthday&Quot; In Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image source: <http://www.manutention-dauphine.fr>
@@ -48,29 +48,25 @@ Chinese culture has an interesting concept of birthday celebrations. Depending o
 
 If you’ll check the literal meaning of Shēngrì Kuàilè, you’ll see that it translates to “Birthday is Happy.”
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Happy Birthday in Russian: С днем рождения (S Dnem Rozhdeniya)**
 
 ![happy birthday in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-russian.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image source: <https://tops.ua>
 
 If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya”. And if you feel like memorizing a longer phrase, add “pozdravlyayu” in the start and it will transform to “I congratulate you on your birthday”. Russians have a funny tradition of celebrating. The guests pull the celebrated’s ears for a number of times equal to his or her age. The phrase “Grow up – don’t be noodles,” is considered as a sign of good omen for the growth of children. It means the child will grow up strong and healthy. Birthday songs are not common am0ng them, but if the person has survived after a severe accident, that day is celebrated as another birthday.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Happy Birthday in Dutch: Gefeliciteerd Met Je Verjaardag**
 
 “Gefeliciteerd Met Je Verjaardag” means “Congratulations on your birthday!” in the Netherlands. An interesting custom here is that they mark their calendars for everyone’s birthday and keep that calendar by their toilet. It acts as a reminder for birthdays since forgetting one’s birthday is a major offense to your loved ones. The 50th birthday is celebrated with full bliss and cheer because it is thought that at the age of 50, men see Abraham and women see Sarah – the biblical couple who gave birth to a child at a very old age.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Happy Birthday in Swedish: Grattis På Födelsedagen**
 
@@ -79,6 +75,10 @@ If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya
 Image source: <https://trivselkort.com>
 
 “Grattis På Födelsedagen” is translated to “Birthday congratulations!” in Swedish. The Swedish culture has a lot of love for celebrating birthdays. They often surprise the celebrated with birthday gifts and breakfast in bed while singing “Ja, ma du leva” meaning “Yes, may you live”. Their traditional party has a cake coated in green marzipan with gifts wrapped in blue and gold sheets – the colors of the Swedish flag.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Happy Birthday in Hindi: जन्मदिन की शुभकामनाएं (Janmadin Kee Shubhakaamanaen)
 
@@ -121,19 +121,14 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://games-able.techidaily.com/efficient-typing-the-interplay-of-speed-and-accuracy/"><u>Efficient Typing: The Interplay of Speed & Accuracy</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/gain-unlimited-stock-videos-through-essential-4-youtube-sources-for-2024/"><u>Gain Unlimited Stock Videos Through Essential 4 YouTube Sources for 2024</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/guia-facil-y-rapida-para-convertir-discos-dvd-a-mp4-sin-complicaciones-hazlo-en-unos-cinco-minutos/"><u>Guía Fácil Y Rápida Para Convertir Discos DVD a MP4 Sin Complicaciones - ¡Hazlo En Unos Cinco Minutos!</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-fix-the-nvidia-geforce-experience-error-code-0x0003/"><u>How to Fix the Nvidia GeForce Experience Error - Code 0X0003</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-13-mini-to-the-latest-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 13 mini to the Latest iOS/iPadOS Version? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Tecno Spark 20C? | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/introducing-windows-xps-media-production-hub/"><u>Introducing Windows XP's Media Production Hub</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-to-polyglot-status-a-study-in-time/"><u>Journey to Polyglot Status: A Study in Time</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-urdu-skills-enhancement-10-minsday-plan/"><u>Quick Urdu Skills Enhancement - 10 Mins/Day Plan</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speech-precision-unlock-with-a-set-of-twisters/"><u>Speech Precision: Unlock with a Set of Twisters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-into-a-tagalog-conversationalist-quickly/"><u>Transform Into a Tagalog Conversationalist Quickly</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unlock-total-life-improvement-potential-with-chatgpt-techniques/"><u>Unlock Total Life Improvement Potential with ChatGPT Techniques</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/vimeo-to-mp4-conversion-made-simple/"><u>Vimeo to MP4 Conversion Made Simple</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-language-is-spoken-in-israel/"><u>What Language Is Spoken in Israel?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/clear-speech-pathway-top-100-english-linguistic-challenges/"><u>Clear Speech Pathway: Top 100 English Linguistic Challenges</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-timeless-videos-with-historical-flair-for-2024/"><u>Crafting Timeless Videos with Historical Flair for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-xiaomi-redmi-13c-5g-support-avchd-video-by-aiseesoft-video-converter-play-mts-on-android/"><u>Does Xiaomi Redmi 13C 5G support AVCHD video?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/essential-criteria-for-selecting-the-perfect-video-capture-solution/"><u>Essential Criteria for Selecting the Perfect Video Capture Solution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fulfilling-communication-aspirations-in-24/"><u>Fulfilling Communication Aspirations in '24</u></a></li>
+<li><a href="https://article-tips.techidaily.com/how-to-record-internet-radio-a-simple-guide-for-2024/"><u>How To Record Internet Radio - A Simple Guide for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/numero-italiano-conoscenza-e-esplorazioni-intermedie/"><u>Numero Italiano: Conoscenza E Esplorazioni Intermedie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/screen-based-strategies-to-speak-more-fluently/"><u>Screen-Based Strategies to Speak More Fluently</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/top-4-morgan-freeman-voice-generator-tools-for-voice-cloning/"><u>Top 4 Morgan Freeman Voice Generator Tools for Voice Cloning</u></a></li>
 </ul></div>
 

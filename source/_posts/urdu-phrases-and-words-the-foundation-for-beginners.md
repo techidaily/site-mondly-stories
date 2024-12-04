@@ -1,7 +1,7 @@
 ---
 title: "Urdu Phrases & Words: The Foundation for Beginners"
-date: 2024-11-01T21:48:27.782Z
-updated: 2024-11-04T22:32:29.434Z
+date: 2024-11-29T23:11:01.819Z
+updated: 2024-12-03T18:17:26.542Z
 tags:
   - speak
   - english
@@ -85,6 +85,10 @@ thumbnail: https://thmb.techidaily.com/83c5660b04b63555c35a3b29a7e2fd7ac8060798e
 * who — _کون (kon)_
 * stop — _رکو (ruko)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The most popular Urdu words searches
 
  While we’re at it, why not also learn some of the most popular words for which people want an Urdu translation? If they are so popular in searches, I’m sure they can also be useful to you on your way to speaking Urdu.
@@ -107,13 +111,6 @@ thumbnail: https://thmb.techidaily.com/83c5660b04b63555c35a3b29a7e2fd7ac8060798e
 * unique — _منفرد (munfarid)_
 * hope — _امید (umeed)_
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Urdu words related to food and drink
 
  Did you know that the [Urdu language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) was one of the premier languages of poetry in South Asia for centuries? And rightly so. Just listen to the music of its words and you’ll understand.
@@ -121,10 +118,7 @@ thumbnail: https://thmb.techidaily.com/83c5660b04b63555c35a3b29a7e2fd7ac8060798e
 ![words in urdu by Sumeet B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/words-in-urdu-960x735.jpg "100+ Core Urdu Words – Learn The Most Common Words In Urdu 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Meanwhile, let’s add some flavor to your Urdu vocabulary. What are the best words to learn if not the words related to food and drink?
@@ -151,6 +145,10 @@ thumbnail: https://thmb.techidaily.com/83c5660b04b63555c35a3b29a7e2fd7ac8060798e
 * salt _— نمک (namak)_
 * sugar — _شکر (shakar)_
 * pepper — _مرچ (mirch)_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Urdu words related to body and health
 
@@ -197,10 +195,7 @@ thumbnail: https://thmb.techidaily.com/83c5660b04b63555c35a3b29a7e2fd7ac8060798e
  Now that you’ve mastered some of the most basic Urdu vocabulary words, you can dive into the practical phrases that’ll help you ease into real-world conversations.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The most common Urdu phrases
@@ -236,10 +231,7 @@ thumbnail: https://thmb.techidaily.com/83c5660b04b63555c35a3b29a7e2fd7ac8060798e
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn Urdu in just 10 minutes a day
@@ -271,22 +263,24 @@ thumbnail: https://thmb.techidaily.com/83c5660b04b63555c35a3b29a7e2fd7ac8060798e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-essential-low-cost-hd-cameras-for-sports-enthusiasts/"><u>[New] In 2024, Essential Low-Cost HD Cameras for Sports Enthusiasts</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-rated-recs-top-pages-for-obtaining-snapalert-tunes/"><u>[New] Rated Recs Top Pages for Obtaining SnapAlert Tunes</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-elevate-farming-fun-with-these-top-7-stardew-valley-enhancements/"><u>[Updated] In 2024, Elevate Farming Fun with These Top 7 Stardew Valley Enhancements</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-next-gen-gaming-horizon-upcoming-bests-in-playstation-vr/"><u>[Updated] Next-Gen Gaming Horizon Upcoming Bests in PlayStation VR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579048028-black-friday-deal-endless-language-learning-at-96-less/"><u>Black Friday Deal: Endless Language Learning at 96% Less!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/crossing-borders-with-shared-easter-sentiments/"><u>Crossing Borders with Shared Easter Sentiments</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-native-6-pivotal-steps-for-seamless-surrender/"><u>From Novice to Native: 6 Pivotal Steps for Seamless Surrender</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-competency-the-edge-of-being-bilingualmultilingual/"><u>Global Competency: The Edge Of Being Bilingual/Multilingual</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-a-language-a-2024-goal/"><u>Learn a Language: A 2024 Goal</u></a></li>
-<li><a href="https://techtrends.techidaily.com/movavijpegbmp/"><u>Movaviで快適なフリーJPEG・BMP形式の画像変換サービス</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-tecno-spark-go-2023-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Tecno Spark Go (2023) Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romantic-revelations-love-verses-in-multiple-dialects/"><u>Romantic Revelations: Love Verses in Multiple Dialects</u></a></li>
-<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-poco-x5-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Poco X5 Unresponsive Screen | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/supercharge-your-second-language-skills-fast/"><u>Supercharge Your Second Language Skills, Fast!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-learning-croatian-top-7-reasons-explored/"><u>The Ultimate Guide to Learning Croatian – Top 7 Reasons Explored</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-best-alternatives-of-pinnacle-studio-on-mac-for-2024/"><u>Updated Best Alternatives of Pinnacle Studio on Mac for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1726027111242-windows-10/"><u>パソコンで撮影する動画方法：Windows 10上のトップ３テクニック</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-blueprint-for-stellar-tiktok-campaigns-and-social-media-conquests-for-2024/"><u>[New] Blueprint for Stellar TikTok Campaigns and Social Media Conquests for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-diy-alerts-for-instagram-a-step-by-step-sound-guide/"><u>[New] DIY Alerts for Instagram A Step-by-Step Sound Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-perfect-blend-combining-6-effective-video-genres-for-2024/"><u>[New] The Perfect Blend Combining 6 Effective Video Genres for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-the-perfect-playback-top-strategies-for-gameplay-videos/"><u>[Updated] 2024 Approved The Perfect Playback Top Strategies for Gameplay Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-laughter-unlimited-meme-magic-app/"><u>[Updated] In 2024, Laughter Unlimited Meme Magic App</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-masterpieces-come-to-life-with-top-photo-frame-tools/"><u>[Updated] Masterpieces Come to Life with Top Photo Frame Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-word-warfare-battling-the-most-misused-vocabulary/"><u>English Word Warfare: Battling the Most Misused Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-steps-for-home-based-french-proficiency/"><u>Essential Steps for Home-Based French Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-vietnamese-expressions-a-travelers-guidebook/"><u>Essential Vietnamese Expressions: A Traveler's Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-heartbeats-international-loving-terms-on-14th/"><u>Expressive Heartbeats: International Loving Terms on 14Th</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-francophone-literature-recommended-20-novels/"><u>First Steps in Francophone Literature: Recommended 20 Novels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-in-formality-mastering-japanese-salutations/"><u>Fluent in Formality: Mastering Japanese Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fostering-linguistic-excellence-via-advanced-ai/"><u>Fostering Linguistic Excellence via Advanced AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-etiquette-demystified-saying-oui-and-au-revoir-correctly/"><u>French Etiquette Demystified: Saying 'Oui' And 'Au Revoir' Correctly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-how-mondly-transformed-my-language-learning-top-10/"><u>From Novice to Expert: How Mondly Transformed My Language Learning (Top 10)</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-convert-cr2-images-to-jpgs-on-windows/"><u>How to Convert CR2 Images to JPGs on Windows</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-poco-c55-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Poco C55? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/prove-you-can-do-it-no-more-wsl/"><u>Prove You Can Do It: No More WSL</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-tips-stability-improvements-for-destiny-2s-beyond-light-on-pc/"><u>Troubleshooting Tips: Stability Improvements for Destiny 2'S Beyond Light on PC</u></a></li>
 </ul></div>
 

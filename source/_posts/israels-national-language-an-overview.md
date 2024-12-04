@@ -1,7 +1,7 @@
 ---
 title: "Israel's National Language: An Overview?"
-date: 2024-11-03T04:16:03.338Z
-updated: 2024-11-05T02:13:28.383Z
+date: 2024-11-28T18:13:15.121Z
+updated: 2024-12-03T18:08:49.896Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/0a1a7225cf59c67660e5517795e22301d6d92dc24
 
  Following a tumultuous and often violent history, the nation of Israel now has a [population](https://en.wikipedia.org/wiki/Israel#Demographics) of more than 9 million people. Out of this, 74.2% are Jews, 20.9% Arabs and 4.8% are Christians and people who have no religion listed in the civil registry. Despite the cultural diversity, almost the entire population speaks Hebrew, the country’s official language, either as a first or second language. However, this is not the full story of the languages of Israel. Let’s take a closer look at the country’s current linguistic landscape.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Israel language mosaic – what language is spoken in Israel?
 
  **Hebrew is the everyday and official language of Israel and roughly everyone speaks it, but the Arab minority which accounts for about one-fifth of the population, also speaks Arabic. Additionally, a high percentage of Israelis know English and over a million of them speak Russian as a result of immigration from the Soviet Union.**
@@ -27,16 +31,7 @@ thumbnail: https://thmb.techidaily.com/0a1a7225cf59c67660e5517795e22301d6d92dc24
  Although Hebrew can be seen and heard everywhere, Israel’s laws are officially published in Arabic and English as well. The same is true for most road signs, food labels, medicine brochures, safety regulations and messages published by the government.
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hebrew
@@ -57,6 +52,10 @@ thumbnail: https://thmb.techidaily.com/0a1a7225cf59c67660e5517795e22301d6d92dc24
 
  “Dome of the Rock, Jerusalem, Israel” by Stacey Franco©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Russian
 
  When you asked yourself “what language is spoken in Israel?”, probably Russian wasn’t your first choice. However, over one million [Russian-speaking Israelis](https://en.wikipedia.org/wiki/Languages%5Fof%5FIsrael) make Russian the most widely spoken non-official language in the State of Israel. Following a mass Jewish immigration from the USSR in the 1970s and later, Israel became home to many Soviet Jews who fled Russia to escape anti-Semitic discrimination.
@@ -66,10 +65,7 @@ thumbnail: https://thmb.techidaily.com/0a1a7225cf59c67660e5517795e22301d6d92dc24
 So, as you can see, Russian is surprisingly widespread in Israel.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Other languages
@@ -77,10 +73,7 @@ So, as you can see, Russian is surprisingly widespread in Israel.
  Other languages you’re likely to hear in Israel are Yiddish, French (which was used as a diplomatic language in Israel until the 1990s when the Israeli-French alliance was undermined), German, Spanish and Romanian.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can you speak English in Israel?
@@ -97,13 +90,6 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Speak Hebrew or Arabic fluently in just 10 minutes a day
 
@@ -130,19 +116,24 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-capturing-the-essence-of-sims-gaming/"><u>[New] 2024 Approved Capturing the Essence of Sims Gaming</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-viral-spotlight-top-10-tiktoks-of-the-week/"><u>[New] In 2024, Twitter's Viral Spotlight Top 10 TikToks of the Week</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-step-by-step-incorporating-audio-into-ppts/"><u>[New] Step-by-Step Incorporating Audio Into PPTs</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-dive-into-9-premium-uncut-full-length-winter-wonderland-flicks-for-2024/"><u>[Updated] Dive Into 9 Premium, Uncut Full-Length Winter Wonderland Flicks for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-speedy-views-on-vimeo-how/"><u>[Updated] Speedy Views on Vimeo How?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/103-crucial-croatian-expressions-your-translator-on-the-go/"><u>103 Crucial Croatian Expressions: Your Translator On-the-Go!</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-ethereal-evenings-select-10-websites-for-hd-astronomical-shots/"><u>2024 Approved Ethereal Evenings Select 10 Websites for HD Astronomical Shots</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/5-myths-about-language-learning/"><u>5 Myths About Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-communication-tracing-turkish-to-korean-roots/"><u>Cultural Communication: Tracing Turkish to Korean Roots</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/decoding-tech-jargon-unpacking-the-distinctions-between-nlp-and-ml/"><u>Decoding Tech Jargon: Unpacking the Distinctions Between NLP and ML</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-step-into-new-dimensions-with-jaunt-vr-review/"><u>In 2024, Step Into New Dimensions with Jaunt VR Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/journey-to-linguistic-excellence-7-reasons-why-mondly-helps-with-afrikaans/"><u>Journey to Linguistic Excellence: 7 Reasons Why Mondly Helps With Afrikaans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-new-languages-after-forty-social-professional-and-brain-gain-reasons/"><u>Mastering New Languages After Forty: Social, Professional, and Brain Gain Reasons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romance-rhetoric-the-subtleties-of-spanish-flirting/"><u>Romance Rhetoric: The Subtleties of Spanish Flirting</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-simplified-explanation-of-stories-art/"><u>[New] Simplified Explanation of Stories' Art</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-strategic-use-of-creative-commons-copyright-law-for-2024/"><u>[Updated] Strategic Use of Creative Commons Copyright Law for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/boost-your-business-through-smart-monetization-techniques/"><u>Boost Your Business Through Smart Monetization Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expanding-lexicon-through-visual-storytelling/"><u>Expanding Lexicon Through Visual Storytelling</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expertise-amplified-pearsons-gsl-enhanced-with-mondly/"><u>Expertise Amplified - Pearson's GSL Enhanced with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-world-of-hindi-mondlys-top-8-secrets/"><u>Explore the World of Hindi - Mondly's Top 8 Secrets!</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/expressing-emotionally-using-emojis-for-yt-comments/"><u>Expressing Emotionally Using Emojis for YT Comments</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/foremost-websites-accelerating-youtube-traffic/"><u>Foremost Websites Accelerating YouTube Traffic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-flair-must-know-phrases-to-boost-your-trip-experience/"><u>French Flair: Must-Know Phrases to Boost Your Trip Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-social-grace-understanding-and-using-different-salutations/"><u>French Social Grace: Understanding and Using Different Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-cape-to-cairo-a-pan-african-language-journey/"><u>From Cape to Cairo: A Pan-African Language Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-pro-kitchen-hand-top-10-steps-for-skillful-home-cooking/"><u>From Novice to Pro Kitchen Hand - Top 10 Steps for Skillful Home Cooking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/full-list-of-spanish-speaking-countries/"><u>Full List Of Spanish-Speaking Countries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gepflegte-gute-nachtsprache-in-deutschen-kontexten/"><u>Gepflegte Gute-Nachtsprache in Deutschen Kontexten</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-still-to-story-the-art-of-adding-text-to-photos-os-style/"><u>In 2024, From Still to Story The Art of Adding Text to Photos, OS Style</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-quickfire-engagement-top-30plus-youtube-hashes/"><u>In 2024, Quickfire Engagement Top 30+ YouTube Hashes</u></a></li>
+<li><a href="https://driver-install.techidaily.com/mastering-m2-storage-in-windows-os/"><u>Mastering M.2 Storage in Windows OS</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-free-video-editing-learn-to-blur-videos-online-in-minutes/"><u>Updated In 2024, Free Video Editing Learn to Blur Videos Online in Minutes</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/where-to-secure-your-amd-ryzen-chips-9700x-and-ryzen-5-9600x-buying-options/"><u>Where to Secure Your AMD Ryzen Chips: 9700X and Ryzen 5 9600X Buying Options</u></a></li>
 </ul></div>
 

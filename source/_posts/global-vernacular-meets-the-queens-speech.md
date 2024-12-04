@@ -1,7 +1,7 @@
 ---
 title: Global Vernacular Meets the Queen's Speech
-date: 2024-11-01T17:32:57.213Z
-updated: 2024-11-05T02:03:05.526Z
+date: 2024-12-02T03:37:56.803Z
+updated: 2024-12-04T01:54:47.114Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/884f30fb76d736a31d012b1260ea6a8f9da2a38ed
 
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Where did English Come From?
 
  The earliest forms of English, collectively known as Old English or Anglo-Saxon, developed from the North Sea Germanic languages that came to Britain between the mid-5th and 7th centuries AD. This linguistic influence made its way to Britain through the migration of the Anglo-Saxons from what is now northwest Germany, southern Denmark, and the Netherlands.
@@ -37,13 +41,6 @@ thumbnail: https://thmb.techidaily.com/884f30fb76d736a31d012b1260ea6a8f9da2a38ed
  Early Modern English began in the late 15th century with the Renaissance trend of borrowing Latin and Greek words and roots, which also coincided with the Great Vowel Shift. The era culminated in the King James Bible and the works of William Shakespeare.
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## English Words from Foreign Languages
 
@@ -80,6 +77,10 @@ thumbnail: https://thmb.techidaily.com/884f30fb76d736a31d012b1260ea6a8f9da2a38ed
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
 * **Transcription,** which means borrowing words while preserving their original pronunciation in the borrowed language;
@@ -89,10 +90,7 @@ thumbnail: https://thmb.techidaily.com/884f30fb76d736a31d012b1260ea6a8f9da2a38ed
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Improve your English fast 🚀
@@ -128,10 +126,7 @@ thumbnail: https://thmb.techidaily.com/884f30fb76d736a31d012b1260ea6a8f9da2a38ed
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish loanwords: English words that are actually Spanish
@@ -155,6 +150,10 @@ thumbnail: https://thmb.techidaily.com/884f30fb76d736a31d012b1260ea6a8f9da2a38ed
 | Guacamole  |
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
 
@@ -183,13 +182,6 @@ thumbnail: https://thmb.techidaily.com/884f30fb76d736a31d012b1260ea6a8f9da2a38ed
 | Balcony   |
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## German loanwords: English words that are actually German
 
@@ -273,24 +265,18 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-go-global-with-gifs-converting-vimeo-video-to-animation/"><u>[New] Go Global with GIFs Converting Vimeo Video to Animation</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-deciding-on-the-best-videography-camera-type-dslr-or-mirrorless/"><u>[New] In 2024, Deciding on the Best Videography Camera Type DSLR or Mirrorless?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-discover-5-best-webcams-featuring-crystal-clear-mics/"><u>[Updated] Discover 5 Best Webcams Featuring Crystal Clear Mics</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-labyrinth-luminaries-top-10-roguelike-highlights/"><u>[Updated] In 2024, Labyrinth Luminaries Top 10 Roguelike Highlights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-new-voice-a-new-world-top-ten-reasons-to-learn-a-language/"><u>A New Voice, A New World: Top Ten Reasons to Learn a Language</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/apple-discontinues-apple-pay-later-feature-new-alternative-developing-insights/"><u>Apple Discontinues Apple Pay Later Feature; New Alternative Developing – Insights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boost-career-prospects-with-these-7-reasons-for-afrikaans-mastery/"><u>Boost Career Prospects with These 7 Reasons for Afrikaans Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-why-learning-german-is-essential/"><u>Discover Why Learning German Is Essential</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expand-horizons-in-hindi-why-mondlys-online-platform-is-your-ultimate-choice-for-learning/"><u>Expand Horizons in Hindi: Why Mondly's Online Platform Is Your Ultimate Choice for Learning</u></a></li>
-<li><a href="https://common-error.techidaily.com/expert-tips-to-overcome-dolby-speaker-connectivity-challenges-on-a-windows-abook-pc/"><u>Expert Tips to Overcome Dolby Speaker Connectivity Challenges on a Windows Abook PC</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/how-does-airdrop-functionality-work-do-you-really-need-bluetooth-active-for-file-sharing/"><u>How Does AirDrop Functionality Work: Do You Really Need Bluetooth Active for File Sharing?</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Oppo A59 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/improve-spanish-connect-socially-via-vr-platforms/"><u>Improve Spanish, Connect Socially via VR Platforms</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-guide-top-7-superior-wet-proof-camcorders/"><u>In 2024, Ultimate Guide Top 7 Superior Wet-Proof Camcorders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-of-the-light-good-morning-phrases-in-10-languages/"><u>Language of the Light: Good Morning Phrases in 10 Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-brit-english-phrases-and-sayings-unpacked/"><u>Navigating Brit English: Phrases & Sayings Unpacked</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578961026-new-year-new-speaking-abilities/"><u>New Year, New Speaking Abilities!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/translating-lives-practical-ways-to-embrace-language/"><u>Translating Lives: Practical Ways to Embrace Language</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-vivo-y36-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Vivo Y36 IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-boost-your-gaming-presence-with-easy-and-cost-effective-character-voice-alteration-in-free-fire/"><u>[Updated] Boost Your Gaming Presence with Easy and Cost-Effective Character Voice Alteration in Free Fire</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-quick-guide-to-xiaomi-redmi-k70e-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Xiaomi Redmi K70E FRP Bypass Instantly</u></a></li>
+<li><a href="https://article-tips.techidaily.com/behind-the-scenes-with-vlc-player-features/"><u>Behind the Scenes with VLC Player Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-with-media-a-language-masterclass-approach/"><u>Engaging with Media: A Language Masterclass Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/excellence-in-learning-mondly-takes-the-lead/"><u>Excellence in Learning: Mondly Takes the Lead</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-for-exceptional-long-range-networking-devices-2024-selection/"><u>Expert Picks for Exceptional Long-Range Networking Devices - 2024 Selection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-french-color-words-fast-tracked/"><u>Expressive French Color Words Fast Tracked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-purpose-and-fulfillment-in-your-fifties-through-language-skills/"><u>Finding Purpose and Fulfillment in Your Fifties Through Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-beginner-to-fluent-mondlys-transformational-techniques-top-10/"><u>From Beginner to Fluent: Mondly's Transformational Techniques, Top 10</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-apple-macbook-air-with-m3-chip-for-250-less-this-october-only-spotlight-on-amazons-prime-sale-event-zdnet-coverage/"><u>Get the Apple MacBook Air with M3 Chip for $250 Less This October Only – Spotlight on Amazon's Prime Sale Event | ZDNET Coverage</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/reclaiming-your-online-privacy-a-step-by-step-guide-to-erasing-trackers-from-macos-safari-links/"><u>Reclaiming Your Online Privacy: A Step-by-Step Guide to Erasing Trackers From MacOS Safari Links</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-honor-x8b-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Honor X8b Phone Hassle-Free</u></a></li>
+<li><a href="https://win-help.techidaily.com/windows-1111hdd/"><u>Windows 11/11起動用に外部HDDをセットアップ: 詳しいステップガイド</u></a></li>
 </ul></div>
 

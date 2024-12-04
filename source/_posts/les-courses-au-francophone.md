@@ -1,7 +1,7 @@
 ---
 title: Les Courses Au Francophone
-date: 2024-11-21T21:35:23.247Z
-updated: 2024-11-24T22:24:07.170Z
+date: 2024-11-29T01:27:10.179Z
+updated: 2024-12-04T01:37:01.280Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/dc5fff1a9acb5e2e1b1bb4c72b06c12c5151a76a3
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Days of the week in French
@@ -78,7 +78,7 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -125,20 +125,19 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-unveiling-av1-foundations-and-fundamentals-for-2024/"><u>[New] Unveiling AV1 Foundations and Fundamentals for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-best-practices-for-producing-encouragement-driven-vlogs-for-2024/"><u>[Updated] Best Practices for Producing Encouragement-Driven Vlogs for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-building-your-broadcast-empire-with-obs-and-online-platforms/"><u>[Updated] Building Your Broadcast Empire with OBS and Online Platforms</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-on-air-innovations-code-or-circuitry-prevails-in-2024/"><u>[Updated] On-Air Innovations Code or Circuitry Prevails, In 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/essential-tips-for-updating-the-system-management-bus-controller-on-dell-computers/"><u>Essential Tips for Updating the System Management Bus Controller on Dell Computers</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-tecno-pop-8-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Tecno Pop 8 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/innovative-pedagogy-discussion-with-global-peers/"><u>Innovative Pedagogy Discussion with Global Peers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/la-semaine-dun-novice-guide-des-dix-jours/"><u>La Semaine D'un Novice: Guide Des Dix Jours</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/local-lingo-lessons-australian-slang-unpacked/"><u>Local Lingo Lessons: Australian Slang Unpacked</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-is-now-available-on-huawei-appgallery/"><u>Mondly Is Now Available on Huawei AppGallery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-through-english-contractions-made-simple/"><u>Navigating Through English Contractions Made Simple</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/still-using-pattern-locks-with-poco-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Poco? Tips, Tricks and Helpful Advice</u></a></li>
-<li><a href="https://fox-that.techidaily.com/top-7-factors-contributing-to-sluggish-wi-fi-performance-on-mobile-devices/"><u>Top 7 Factors Contributing to Sluggish Wi-Fi Performance on Mobile Devices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-linguistic-curiosity-is-still-flourishing-at-sixty/"><u>Why Linguistic Curiosity Is Still Flourishing at Sixty?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-ways-to-express-cupids-affection-this-day/"><u>Worldwide Ways to Express Cupid's Affection This Day</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-stream-your-webcam-in-real-time-using-vlc-software/"><u>[New] 2024 Approved Stream Your Webcam in Real Time Using VLC Software</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-step-by-step-turning-on-windows-11s-high-dynamic-range-mode/"><u>[New] Step-by-Step Turning On Windows 11'S High Dynamic Range Mode</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-best-budget-friendly-ticking-clocks-online/"><u>[Updated] 2024 Approved Best Budget-Friendly Ticking Clocks Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-capturing-excellence-a-full-breakdown-of-sj-cam-s6/"><u>2024 Approved Capturing Excellence A Full Breakdown of SJ-CAM S6</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-new-lexicon-unfolds-at-mondlylanguages-visionary-journey/"><u>A New Lexicon Unfolds at MondlyLanguages - Visionary Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connect-with-italians-top-10-friendly-and-formal-salutations/"><u>Connect with Italians: Top 10 Friendly and Formal Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daybreak-dialogue-expressing-good-morning-in-various-languages/"><u>Daybreak Dialogue: Expressing 'Good Morning' In Various Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-new-tongues-with-music-scientifically-validated-practices/"><u>Discover New Tongues with Music: Scientifically Validated Practices</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-steps-for-installing-latest-epson-printer-software-in-windows-10/"><u>Easy Steps for Installing Latest Epson Printer Software in Windows 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-latino-studies-at-home/"><u>Effortless Latino Studies at Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-the-worlds-diversity-learn-for-just-a-small-price-increase/"><u>Embrace the World's Diversity - Learn for Just a Small Price Increase!</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/from-console-to-camera-3-simple-video-game-recording-methods/"><u>From Console to Camera 3 Simple Video Game Recording Methods</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-ultimate-budget-friendly-viewer-contests/"><u>In 2024, Ultimate Budget-Friendly Viewer Contests</u></a></li>
+<li><a href="https://win-blog.techidaily.com/stop-outriders-from-freezing-due-to-unreal-engine-issues-fixing-ue4-madness-errors-once-and-for-all/"><u>Stop Outriders From Freezing Due to Unreal Engine Issues - Fixing 'UE4-Madness' Errors Once and For All</u></a></li>
 </ul></div>
 

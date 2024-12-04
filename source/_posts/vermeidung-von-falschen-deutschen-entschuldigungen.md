@@ -1,7 +1,7 @@
 ---
 title: Vermeidung Von Falschen Deutschen Entschuldigungen
-date: 2024-11-21T20:44:50.398Z
-updated: 2024-11-24T19:26:16.506Z
+date: 2024-12-01T20:49:49.650Z
+updated: 2024-12-03T17:22:30.367Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
  Let’s look at the most important ways to say “sorry” in German and when to use each of them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When should you say you’re sorry?
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to apologize in German
@@ -47,7 +47,7 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say sorry in German – the “Excuse me” sorry
@@ -59,7 +59,7 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Other ways to say sorry in German
@@ -105,7 +105,7 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in German
@@ -139,14 +139,24 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-stepwise-guide-to-uploading-and-livestreaming-video-recordings/"><u>[New] 2024 Approved Stepwise Guide to Uploading and Livestreaming Video Recordings</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-dos-and-donts-of-adding-tags-to-youtube-videos/"><u>[New] In 2024, The Do's and Don'ts of Adding Tags to YouTube Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-unleash-potential-the-finest-yoga-series-for-all-ages/"><u>[New] In 2024, Unleash Potential The Finest Yoga Series for All Ages</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/en-ligne-et-gratuit-convertissez-vos-images-dng-en-jpeg-rapidement-grace-a-movavi/"><u>En Ligne Et Gratuit : Convertissez Vos Images DNG en JPEG Rapidement Grâce À Movavi</u></a></li>
-<li><a href="https://driver-error.techidaily.com/identifying-missing-seagate-external-hd-in-windows-11/"><u>Identifying Missing Seagate External HD in Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latin-playfully-unlocked-through-education/"><u>Latin Playfully Unlocked Through Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rhythmic-recall-enhancing-memory-with-musical-language-lessons/"><u>Rhythmic Recall: Enhancing Memory with Musical Language Lessons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/secrets-for-successful-linguistic-assessments/"><u>Secrets for Successful Linguistic Assessments</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/traveling-to-israel-tips-and-phrases-for-your-trip/"><u>Traveling To Israel? Tips And Phrases For Your Trip</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-navigating-the-world-of-screen-capture-nvidia-edition/"><u>[Updated] 2024 Approved Navigating the World of Screen Capture NVIDIA Edition</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-expert-guide-to-crafting-immersive-experiences-through-instagram-vids-for-2024/"><u>[Updated] Expert Guide to Crafting Immersive Experiences Through Instagram Vids for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unveiling-the-ultimate-selection-of-text-plugins-in-ae/"><u>[Updated] Unveiling the Ultimate Selection of Text Plugins in AE</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-vivo-s17-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Vivo S17 Pro | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-meizu-21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingual-in-bread-and-language-learn-romanian/"><u>Bilingual in Bread and Language: Learn Romanian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparing-british-and-american-lexicon/"><u>Comparing British and American Lexicon</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/joining-the-digital-conversation-zooming-effortlessly-with-android/"><u>Joining the Digital Conversation Zooming Effortlessly with Android</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-danish-films-to-elevate-your-danish-comprehension/"><u>Key Danish Films to Elevate Your Danish Comprehension</u></a></li>
+<li><a href="https://extra-information.techidaily.com/leveraging-azure-ai-for-audio-to-text-translation/"><u>Leveraging Azure AI for Audio to Text Translation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingual-interactions-international-contribution-to-english/"><u>Lingual Interactions: International Contribution to English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-ar-uses-augmented-reality-to-change-the-way-we-learn-languages/"><u>Mondly AR Uses Augmented Reality To Change The Way We Learn Languages</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-mkv-movies-on-galaxy-a25-5g-is-it-possible-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Play MKV movies on Galaxy A25 5G, is it possible?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/salutations-francaises-la-reponse-idyllique/"><u>Salutations Françaises: La Réponse Idyllique</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/the-complete-manual-of-sound-control-enhancing-your-live-stream-with-obs-ducking-for-2024/"><u>The Complete Manual of Sound Control Enhancing Your Live Stream with OBS Ducking for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-insights-on-english-grammar-by-a-pro-esl-speaker/"><u>Top 9 Insights on English Grammar by a Pro ESL Speaker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voices-in-multitude-the-african-languages-guidebook/"><u>Voices in Multitude: The African Languages Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worlds-thank-you-lexicon-a-comprehensible-guide-155-trimmed-to-fit/"><u>World's Thank-You Lexicon: A Comprehensible Guide (155) [Trimmed to Fit]</u></a></li>
 </ul></div>
 

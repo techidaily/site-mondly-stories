@@ -1,7 +1,7 @@
 ---
 title: Mondly's Principles for Knowledge Acquisition
-date: 2024-11-22T21:36:21.284Z
-updated: 2024-11-24T18:27:24.711Z
+date: 2024-11-29T19:07:52.279Z
+updated: 2024-12-03T18:50:26.860Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -102,17 +102,24 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-scrutinizing-the-specifications-of-djis-flight-model-3/"><u>[Updated] In 2024, Scrutinizing the Specifications of DJI's Flight Model 3</u></a></li>
-<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-tecno-spark-10-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Tecno Spark 10 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/best-dvd-to-digital-format-converters-for-2024/"><u>Best DVD to Digital Format Converters for 2024</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/decouvrez-les-deux-facons-de-gerer-le-programme-dinstallation-et-laccueil-sous-windows-11/"><u>Découvrez Les Deux Façons De Gérer Le Programme D'Installation Et L'Accueil Sous Windows 11</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-ideas-on-boosting-gopro-energy-retention/"><u>In 2024, Ideas on Boosting GoPro Energy Retention</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/mp4-file-optimization-removing-unwanted-audio-tracks/"><u>MP4 File Optimization Removing Unwanted Audio Tracks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romance-rivalry-unpacking-spanish-and-portuguese-linguistics/"><u>Romance Rivalry: Unpacking Spanish & Portuguese Linguistics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/slang-evolution-in-american-vs-british-english-over-time/"><u>Slang Evolution in American vs British English Over Time</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-counting-1-10-for-starters/"><u>Spanish Counting 1-10 For Starters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speaking-savvy-the-evolution-of-multilingualism-today/"><u>Speaking Savvy: The Evolution of Multilingualism Today</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/two-weeks-with-remarkables-colorful-e-ink-why-i-wont-settle-for-bland-traditional-papers-anymore/"><u>Two Weeks with Remarkable's Colorful E-Ink: Why I Won’t Settle for Bland Traditional Papers Anymore</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/united-learners-unstoppable-mondly/"><u>United Learners, Unstoppable Mondly</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-achieving-stable-images-in-action-cams-unsteady-world/"><u>[New] Achieving Stable Images in Action Cam's Unsteady World</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-laugh-o-matic-crafting-gags-on-the-house-rate/"><u>[Updated] 2024 Approved Laugh-O-Matic Crafting Gags on the House Rate</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-professionals-take-on-screenflow-pro-macos-experience/"><u>[Updated] Professional's Take on ScreenFlow Pro macOS Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-years-of-excellence-with-mondlyback-filters/"><u>10 Years of Excellence with MondlyBack Filters</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-speedy-shots-that-captivate-audiences/"><u>2024 Approved Speedy Shots That Captivate Audiences</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-tecno-pova-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-linguists-guide-to-croatia-mastering-114-key-phrases-for-your-exciting-journey/"><u>A Linguist’s Guide to Croatia: Mastering 114 Key Phrases for Your Exciting Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advance-your-company-culture-via-efficient-language-development/"><u>Advance Your Company Culture via Efficient Language Development</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conocimiento-basico-de-tiempo-en-espanol/"><u>Conocimiento Básico De Tiempo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-conduits-pathways-to-effective-international-dialogue/"><u>Cultural Conduits: Pathways to Effective International Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-latvian-mastering-in-under-an-hour/"><u>Daily Dose of Latvian: Mastering in Under an Hour</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialect-dichotomy-ukraine-vs-russias-vernacular/"><u>Dialect Dichotomy - Ukraine Vs Russia's Vernacular</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-on-iphone-11-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud on iPhone 11 Safe and Legal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortlessly-learn-korean-a-guide-to-the-leading-6-resources/"><u>Effortlessly Learn Korean: A Guide to the Leading 6 Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevating-your-professional-lexicon-a-strategy/"><u>Elevating Your Professional Lexicon: A Strategy</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/enhancing-your-search-experience-on-android-utilizing-the-ai-powered-bing-app/"><u>Enhancing Your Search Experience on Android: Utilizing the AI-Powered Bing App</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-track-imei-number-of-samsung-galaxy-f15-5g-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Samsung Galaxy F15 5G Through Google Earth?</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-extracting-still-images-from-videos-10-reliable-converters/"><u>In 2024, Extracting Still Images From Videos 10 Reliable Converters</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/the-essential-guide-to-creating-cinematic-videos-in-camtasa-for-2024/"><u>The Essential Guide to Creating Cinematic Videos in Camtasa for 2024</u></a></li>
 </ul></div>
 

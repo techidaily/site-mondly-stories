@@ -1,7 +1,7 @@
 ---
 title: The Fundamentals of Fluent Russian Communication
-date: 2024-11-19T16:39:42.951Z
-updated: 2024-11-24T21:55:45.119Z
+date: 2024-11-29T21:43:27.914Z
+updated: 2024-12-03T23:21:06.296Z
 tags:
   - speak
   - english
@@ -53,10 +53,6 @@ Good job, you!
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Russian Greetings: Common Phrases And Basic Words 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Learn Russian today
 
  Build practical Russian skills for real life with Mondly.
@@ -64,7 +60,7 @@ Good job, you!
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2406&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2406%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Additional Russian greetings Russians use
@@ -112,7 +108,7 @@ Good job, you!
  Found this interesting? You might want to learn about the [Russian alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [Russian numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) too.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cultural insights on Russian greetings
@@ -129,7 +125,7 @@ Good job, you!
  If you feel like you need more information on Russian greetings, here are some frequently asked questions. Maybe you’ll find your answer here.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How can I learn to pronounce Russian words correctly?
@@ -137,7 +133,7 @@ Good job, you!
  Use transliteration. It can be tricky to get the hang of Russian words using the Cyrillic alphabet, so resources that use transliteration will always come in handy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How do Russians say “hello” and “goodbye”?
@@ -147,6 +143,10 @@ Good job, you!
 ### How can I greet someone respectfully in Russian if I don’t know their name?
 
  To greet someone respectfully in Russian you can say Здравствуйте (Zdravstvuyte) or use the time specific greetings.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Are there specific greetings for different times of the day in Russian?
 
@@ -182,16 +182,24 @@ Good job, you!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-shadowed-observers-playbook-engaging-with-instagram-stories-anonymously-free/"><u>2024 Approved The Shadowed Observer's Playbook Engaging with Instagram Stories Anonymously [Free]</u></a></li>
-<li><a href="https://os-tips.techidaily.com/download-premium-white-hd-backgrounds-for-iphones-at-no-cost/"><u>Download Premium White HD Backgrounds for iPhones at No Cost</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fixing-steam-error-on-windows-no-more-blank-screens/"><u>Fixing Steam Error on Windows: No More Blank Screens</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hone-your-tagalog-skills-in-just-15-minutes-daily/"><u>Hone Your Tagalog Skills in Just 15 Minutes Daily</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Honor Magic V2? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-cooking-essential-techniques-for-aspiring-cuisine-enthusiasts/"><u>Mastering the Art of Cooking: Essential Techniques for Aspiring Cuisine Enthusiasts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/melodic-multitasking-efficient-language-acquisition-through-song/"><u>Melodic Multitasking: Efficient Language Acquisition Through Song</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/social-connection-in-multilingualism-top-four-benefits-for-adults-learning-a-new-language/"><u>Social Connection in Multilingualism: Top Four Benefits for Adults Learning a New Language</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshoot-and-triumph-a-comprehensive-guide-to-resolving-among-us-game-crashes/"><u>Troubleshoot and Triumph: A Comprehensive Guide to Resolving Among Us Game Crashes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uniting-worlds-love-without-a-common-tongue/"><u>Uniting Worlds: Love Without a Common Tongue</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-the-art-of-curating-music-on-youtube-with-our-steps/"><u>[New] 2024 Approved Discover the Art of Curating Music on YouTube with Our Steps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-shooting-guide-to-immersive-video-top-9-techniques-for-2024/"><u>[New] The Ultimate Shooting Guide to Immersive Video (Top 9 Techniques) for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-increasing-brilliance-on-your-android-videos/"><u>[Updated] 2024 Approved Increasing Brilliance on Your Android Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-friday-96-off-on-worldwide-language-learning/"><u>Black Friday: 96% Off on Worldwide Language Learning!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-languages-through-esl-education/"><u>Bridging Languages Through ESL Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-skeletons-the-many-faces-of-halloween/"><u>Cultural Skeletons: The Many Faces of Halloween</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsch-dutch-connection-tracing-ancestral-roots/"><u>Deutsch-Dutch Connection: Tracing Ancestral Roots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-global-communication-with-google-endorsed-language-tools-mondly/"><u>Discover Global Communication with Google-Endorsed Language Tools - Mondly</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/elevate-your-snaps-with-zooming-techniques/"><u>Elevate Your Snaps with Zooming Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empowerment-project-of-danny-from-colombian-grounds/"><u>Empowerment Project of Danny From Colombian Grounds</u></a></li>
+<li><a href="https://common-error.techidaily.com/hosted-network-troubleshooting-successfully-resolved-for-windows-11-users/"><u>Hosted Network Troubleshooting Successfully Resolved for Windows 11 Users</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-honor-magic-5-pro-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Honor Magic 5 Pro Phone? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-total-horizon-capture-versus-focused-dimensionality/"><u>In 2024, Total Horizon Capture Versus Focused Dimensionality</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-your-account-has-been-disabled-in-the-app-store-and-itunes-on-iphone-x-by-drfone-ios/"><u>In 2024, Your Account Has Been Disabled in the App Store and iTunes On iPhone X?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577704065-language-leap-forward-easy-learning-for-an-extraordinary-savings/"><u>Language Leap Forward - Easy Learning for an Extraordinary Savings!</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-how-to-make-a-timelapse-in-after-effects-for-2024/"><u>New How To Make a Timelapse in After Effects for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/transforme-su-video-desde-ogg-a-mov-sin-costes-tutorial-paso-a-paso-usando-movavi-online/"><u>Transforme Su Vídeo Desde Ogg a Mov Sin Costes: Tutorial Paso a Paso Usando Movavi Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580128798-two-years-of-mondly-languages-we-had-a-dream-a-great-dream/"><u>Two Years Of Mondly Languages - We Had A Dream. A Great Dream</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578832277-why-choose-mondly-discover-the-unmatched-advantages/"><u>Why Choose Mondly? Discover the Unmatched Advantages!</u></a></li>
 </ul></div>
 

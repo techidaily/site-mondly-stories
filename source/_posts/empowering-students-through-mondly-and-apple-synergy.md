@@ -1,7 +1,7 @@
 ---
 title: Empowering Students Through Mondly and Apple Synergy
-date: 2024-08-08T09:28:38.190Z
-updated: 2024-08-09T09:28:38.190Z
+date: 2024-11-26T20:55:12.696Z
+updated: 2024-12-04T00:41:18.698Z
 tags:
   - speak
   - english
@@ -22,27 +22,18 @@ thumbnail: https://thmb.techidaily.com/5b1555b7146633872fd56d30125d7101353d43d4e
 
  Seven years later, Mondly is an award-winning language learning app with over**40 million downloads** in**190 countries** . That first MacBook was a part of their recipe to success – a recipe they decided to share with the students of Transilvania University of Brașov.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![alexandru iliescu tudor iliescu mondly](https://edge.mondly.com/blog/wp-content/uploads/2019/03/alexandru-iliescu-tudor-iliescu-mondly-1024x683.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 2")
 
  The founders of Mondly after they were awarded the “Emerging Entrepreneur of the Year: Technology & Innovation” prize by Ernst & Young
 
  Both Alexandru and Tudor are alumni of the university, so giving something back to the school that contributed to their training and development was the natural thing to do. Thus, in April 2018, **Mondly sponsored The Faculty of Mathematics and Computer Science with 10 brand new iMacs.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![Mondly iMac lab inauguration](https://edge.mondly.com/blog/wp-content/uploads/2019/03/Mondly-iMac-lab-inauguration-1024x488.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 3")
 
  The inauguration of the first Mondly iMac lab
 
  _iOS app development can only be done on Apple computers, but since the university was equipped with Windows computers only, students didn’t yet have the tools to learn to develop apps for an app store that generated [93% more revenue](https://techcrunch.com/2018/10/11/app-store-generated-93-more-revenue-than-google-play-in-q3/) than its closest competitor in the third quarter of 2018\. We wanted to give them the opportunity to build the future in a state-of-the-art iMac lab_ , says Alexandru Iliescu, CEO of Mondly.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Alexandru Iliescu, CEO of Mondly](https://edge.mondly.com/blog/wp-content/uploads/2019/03/alexandru-iliescu-ceo-mondly-820x1024.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 4")
 
  Alexandru Iliescu, CEO of Mondly
@@ -53,9 +44,6 @@ thumbnail: https://thmb.techidaily.com/5b1555b7146633872fd56d30125d7101353d43d4e
 
  In March 2019 we sponsored **The Faculty of Mathematics and Computer Science with another 10 brand new iMacs** and **inaugurated a second state-of-the-art laboratory at The Faculty of Electrical Engineering and Computer Science** . In less than one year, we proudly equipped Transilvania University of Brașov with 30 Apple computers – a first-ever**event for Brașov** and its university.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![second mondly iMac lab inauguration](https://edge.mondly.com/blog/wp-content/uploads/2019/03/second-mondly-iMac-lab-inauguration-1024x684.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 5")
 
  The inauguration of the second Mondly iMac lab
@@ -64,14 +52,6 @@ thumbnail: https://thmb.techidaily.com/5b1555b7146633872fd56d30125d7101353d43d4e
 
  It was our genuine wish as a team to do good and invest the fruits of our labor in [the future of education](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . And this is only the beginning.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ![mondly team](https://edge.mondly.com/blog/wp-content/uploads/2019/03/mondly-team-scaled-960x623.jpg "Mondly Supports Education By Investing In State-Of-The-Art Apple Technology For Students 6")
 
  The Mondly team
@@ -85,8 +65,6 @@ thumbnail: https://thmb.techidaily.com/5b1555b7146633872fd56d30125d7101353d43d4e
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -94,6 +72,28 @@ thumbnail: https://thmb.techidaily.com/5b1555b7146633872fd56d30125d7101353d43d4e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-enhancing-viewer-engagement-with-smart-end-screen-techniques/"><u>[New] In 2024, Enhancing Viewer Engagement with Smart End Screen Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-mastering-management-top-8-tools-for-effective-task-allocation/"><u>[Updated] Mastering Management Top 8 Tools for Effective Task Allocation</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-top-10-aerial-crews-masters-of-photo-and-film-for-2024/"><u>[Updated] Top 10 Aerial Crews Masters of Photo & Film for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-google-pixel-fold-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/a-lens-on-innovation-how-hdri-redefines-video-production-standards-for-2024/"><u>A Lens on Innovation How HDRI Redefines Video Production Standards for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-the-textbooks-immersive-strategies-for-language-lovers/"><u>Beyond the Textbooks: Immersive Strategies for Language Lovers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-rewards-of-language-acquisition/"><u>Discover the Rewards of Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580871897-fast-track-conquering-japans-number-system/"><u>Fast Track: Conquering Japan's Number System!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-examination-tough-or-easy/"><u>German Examination: Tough or Easy?</u></a></li>
+<li><a href="https://facebook.techidaily.com/go-live-unadorned-instagrams-new-feature/"><u>Go Live Unadorned: Instagram's New Feature</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-motorola-razr-40-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Motorola Razr 40 Screen | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-webcam-wonders-unveiling-tools-for-top-video-quality/"><u>In 2024, Webcam Wonders - Unveiling Tools for Top Video Quality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579605631-new-words-new-year-save-on-linguistic-adventures-with-our-deal/"><u>New Words, New Year: Save on Linguistic Adventures with Our Deal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplify-learning-core-vocabulary-via-oxford-and-mondly/"><u>Simplify Learning: Core Vocabulary via Oxford and Mondly</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-5-must-use-services-to-boost-and-optimize-your-twitch-presence/"><u>Top 5 Must-Use Services to Boost and Optimize Your Twitch Presence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/week-ende-francais/"><u>Week-Ende Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-films-that-elevate-language-mastery/"><u>Worldwide Films That Elevate Language Mastery</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

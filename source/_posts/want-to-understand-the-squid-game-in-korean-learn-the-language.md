@@ -1,7 +1,7 @@
 ---
 title: Want To Understand The Squid Game In Korean? Learn The Language
-date: 2024-11-19T19:58:11.531Z
-updated: 2024-11-24T22:21:05.846Z
+date: 2024-11-29T19:12:49.475Z
+updated: 2024-12-04T00:38:35.202Z
 tags:
   - speak
   - english
@@ -27,7 +27,7 @@ So what’s there to be done?
  Easy. What everybody else has been doing:**learn Korean and never get lost in translation ever again.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## There’s an entire ‘Korean wave’ behind Squid Game, Parasite and BTS
@@ -41,7 +41,7 @@ So what’s there to be done?
 ![squid game korean netflix](https://edge.mondly.com/blog/wp-content/uploads/2021/10/squid-game-korean-960x539.jpg "Obsessed With Squid Game, But Lost In Translation? Learn Korean 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  ‘Squid Game on Netflix’ by Jonas Augustin©
@@ -49,6 +49,10 @@ So what’s there to be done?
  So with Squid Game, all that the Korean culture did was to prove once again its hypnotic power over us. If you think about it, this is a whole new world beyond our own. Beyond the pop culture we already know. A whole new world we’re all eager to explore. For me, it’s all about the movies. My passion for cinema has never been the same again after watching the Korean film Oldboy. And this is just an example. Korean cinema is more than rich in masterpieces.
 
  Now, this global phenomenon even has its own name. **The cultural boom coming from South Korea since the 1990s is known today as the Korean wave or [hallyu](https://en.wikipedia.org/wiki/Korean%5Fwave) .** Basically, everything we love about Korean pop culture is embedded in hallyu.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Squid Game got lost in translation
 
@@ -70,6 +74,10 @@ So there’s only one conclusion we can draw from this…
 
 **Like Thanos, getting lost in translation is inevitable.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Learn Korean and overcome the one-inch-tall barrier of subtitles
 
  It’s amazing how people learn languages for love. There’s no greater drive than love. And I’m not talking just about romantic love. The fact that so many people are learning Korean after they watched Squid Game, it’s an act of love. All these people learn Korean out of love for this show. Others have been learning the language out of love for BTS. You could even go so far as to say that love makes us smarter. Or better.
@@ -77,7 +85,7 @@ So there’s only one conclusion we can draw from this…
 ![squid game love](https://media.giphy.com/media/USVF7ZnGqVuoABCBUr/giphy.gif "Obsessed With Squid Game, But Lost In Translation? Learn Korean 7")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  **Would you [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) out of love for hallyu?** In 2020, in his Oscar acceptance speech, ‘Parasite’ director Bong Joon Ho said something the world will never forget:
@@ -87,10 +95,6 @@ So there’s only one conclusion we can draw from this…
  And he’s right. Learning Korean is all worth it. **If you want to enter the colorful world of Korean pop culture without getting lost in mistranslations, you should learn Korean.**
 
  And you know what’s the second-best thing about this? You’ll be in great company. Since the launch of Squid Game, Mondly has seen a massive increase in people starting to learn Korean. You can join them all **[here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko)**  .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Even the English language wants to learn Korean
 
@@ -102,10 +106,6 @@ So there’s only one conclusion we can draw from this…
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## From 0 to conversational in Korean
 
@@ -135,21 +135,24 @@ So there’s only one conclusion we can draw from this…
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-aesthetic-alchemy-grading-with-colors/"><u>[New] Aesthetic Alchemy Grading with Colors</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-in-depth-examination-the-working-of-googles-podcast-application/"><u>[New] In-Depth Examination The Working of Google's Podcast Application</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-maximize-efficiency-on-mac-a-guide-to-leading-tts-applications/"><u>[New] Maximize Efficiency on Mac A Guide to Leading TTS Applications</u></a></li>
-<li><a href="https://apple-account.techidaily.com/can-i-remove-the-apple-watch-activation-lock-by-apple-iphone-11-pro-without-the-previous-owner-by-drfone-ios/"><u>Can I Remove the Apple Watch Activation Lock By Apple iPhone 11 Pro without the Previous Owner?</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-restore-scroll-wheel-action-on-your-windows-10-laptops-touchpad/"><u>How to Restore Scroll Wheel Action on Your Windows 10 Laptop's Touchpad</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Samsung Galaxy A25 5G? | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/log-every-victory-on-samsungs-mobile-arena/"><u>Log Every Victory on Samsung's Mobile Arena</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-dominates-germanys-choice-for-language-mastery/"><u>Mondly Dominates: Germany's Choice for Language Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-named-app-of-the-day-by-apple-in-157-countries/"><u>Mondly Named App Of The Day By Apple In 157 Countries</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-a-language-learning-revolution-backed-by-googles-choice/"><u>Mondly: A Language Learning Revolution, Backed by Google's Choice</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfect-your-pronunciation-with-these-100-english-tongue-twistersback-buttonfilter-button/"><u>Perfect Your Pronunciation With These 100 English Tongue TwistersBack ButtonFilter Button</u></a></li>
-<li><a href="https://media-tips.techidaily.com/perfectly-sized-gifs-tips-and-techniques-for-enlarging-or-reducing-while-keeping-the-original-definition-intact/"><u>Perfectly Sized GIFs: Tips and Techniques for Enlarging or Reducing While Keeping the Original Definition Intact</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/phi-beta-jove-from-classical-to-modern-greek/"><u>Phi Beta Jove: From Classical to Modern Greek</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-a-pro-the-top-6-digital-tools-for-learning-korean/"><u>Speak Like a Pro: The Top 6 Digital Tools for Learning Korean</u></a></li>
-<li><a href="https://win-answers.techidaily.com/step-by-step-guide-setting-up-the-hades-add-on-in-kodi/"><u>Step-by-Step Guide: Setting Up the Hades Add-On in Kodi</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unearthing-the-roots-of-human-verbal-expression/"><u>Unearthing the Roots of Human Verbal Expression</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-mastering-mirthful-selfies-step-by-step-for-the-cartoon-face-lens/"><u>[New] In 2024, Mastering Mirthful Selfies Step-by-Step for the Cartoon Face Lens</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-virtual-realms-at-your-fingertips-the-1-list-of-immersive-vr-streamers-for-pc/"><u>[New] Virtual Realms at Your Fingertips The #1 List of Immersive VR Streamers for PC</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-amplifying-photos-keeping-precision-for-2024/"><u>[Updated] Amplifying Photos Keeping Precision for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-assessing-cloud-price-trends-and-economical-alternatives/"><u>[Updated] Assessing Cloud Price Trends & Economical Alternatives</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-proven-strategies-for-optimizing-video-content-on-youtube/"><u>[Updated] Proven Strategies for Optimizing Video Content on YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-simplified-tech-livestreaming-of-facebook-using-obs-studio/"><u>[Updated] Simplified Tech Livestreaming of Facebook Using OBS Studio</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-language-proficiency-with-dark-on-netflix/"><u>Cultivating Language Proficiency with 'Dark' On Netflix</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cut-costs-boost-creativity-learn-the-secrets-of-green-screen-artistry-from-4-leading-educators-for-2024/"><u>Cut Costs, Boost Creativity Learn the Secrets of Green Screen Artistry From 4 Leading Educators for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-spanish-learning-for-kids-games-songs-and-activities/"><u>Engaging Spanish Learning for Kids: Games, Songs, and Activities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-functionality-mondly-and-pearson-buttonlinkage/"><u>Enhancing Functionality: Mondly & Pearson ButtonLinkage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-verb-learning-for-efficiency/"><u>Essential Spanish Verb Learning for Efficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-macaus-multilingual-tapestry/"><u>Exploring Macau's Multilingual Tapestry</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-shades-in-french-quickly-learned/"><u>Expressive Shades in French Quickly Learned</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/film-based-learning-strategies-for-eloquent-communication/"><u>Film-Based Learning: Strategies for Eloquent Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/freedom-to-learn-honoring-1500-fee-free-lessons-daily/"><u>Freedom to Learn: Honoring 1500 Fee-Free Lessons Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-confusion-to-clarity-understanding-english-contraction-rules/"><u>From Confusion to Clarity: Understanding English Contraction Rules</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-on-iphone-14-pro-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even On iPhone 14 Pro If Youve Tried Everything</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlocking-the-best-performance-managing-graphics-card-temp/"><u>Unlocking the Best Performance: Managing Graphics Card Temp</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Linguistic Kinship to Spain’s Dialect
-date: 2024-11-20T22:44:39.602Z
-updated: 2024-11-24T22:26:04.655Z
+date: 2024-12-01T22:50:02.442Z
+updated: 2024-12-03T16:03:36.142Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
  Without further ado, let’s dive in and uncover the full list of Spanish-speaking countries. While we’re at it, we’ll also look into the history behind the expansion of the Spanish language and how many people [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How many people speak Spanish?
 
 **As of 2022, 548 million people speak Spanish worldwide.** This number includes both native and non-native speakers. However, the ‘unofficial’ number could be bigger than that.
@@ -52,9 +56,17 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
 !['How many people speak Spanish' by Cecy Alvarado©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/how-many-people-speak-spanish-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In addition to the 20 countries, Spanish is also the official language of several international organizations. These include the United Nations, the European Union, the Organization of American States, the Union of South American Nations, the Community of Latin American and Caribbean States, the [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Union and many other international organizations.
 
  Now let’s go into a little more detail and split the countries into continents.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in South America
 
@@ -71,6 +83,10 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 * Peru — 87%
 * Uruguay — 98%
 * Venezuela — 97%
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in Central America
 
@@ -91,10 +107,6 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
 * Mexico — 97% (percentage of the entire population speaking Spanish)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Spanish-speaking countries in the Caribbean
 
  If Mexico is the country with the most Spanish speakers in the world, Cuba is the country with the largest proportion of Spanish speakers in the world.
@@ -109,10 +121,6 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
 * Spain — 92% (percentage of the entire population speaking Spanish)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Spanish-speaking countries in Africa
 
  The one and only Spanish-speaking country in Africa is Equatorial Guinea. While unexpected, a bit of history reading will reveal that Equatorial Guinea was a Spanish colony, hence the official status of the language all the way here.
@@ -122,7 +130,7 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 !['Spanish speakers' by Florian Wehde©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/spanish-speakers-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Countries where Spanish is spoken although it’s not an official language
@@ -132,10 +140,6 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
  One reason is that Spain was once a very powerful empire and its influence can still be seen in many parts of the world. Another reason is that many people from Spanish-speaking countries have migrated and brought their language with them. Probably the best example is **the United States where more than 41 million people speak Spanish as a native language.**
 
  Other countries with large minorities of Spanish speakers are Belize, the Philippines (Spanish was an official language here from 1565 to 1973), Gibraltar and Andorra.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## A brief history of the Spanish language
 
@@ -155,10 +159,6 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Speak Spanish like a local fast
 
@@ -191,24 +191,21 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/updated-boost-your-sales-opening-plans-for-2024/"><u>[Updated] Boost Your Sales Opening Plans for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-pioneering-pathways-in-virtual-reality-biking/"><u>[Updated] Pioneering Pathways in Virtual Reality Biking</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-realme-narzo-n53-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Realme Narzo N53 Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://win11.techidaily.com/direct-paths-unveiling-windows-11-calculator/"><u>Direct Paths: Unveiling Windows 11 Calculator</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/elon-musk-unveils-grok-ai-heres-what-it-is-and-how-much-it-might-cost/"><u>Elon Musk Unveils Grok AI - Here’s What It Is and How Much It Might Cost</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/finding-the-perfect-pitch-discover-no-cost-voice-alteration-apps-for-2024/"><u>Finding the Perfect Pitch Discover No-Cost Voice Alteration Apps for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/glad-grev-grev-till-sverige/"><u>Glad Grev: Grev Till Sverige</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-dialect-dashboard-simplest-languages-overview/"><u>Global Dialect Dashboard: Simplest Languages Overview</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-nokia-c22-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Nokia C22 PC | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-a-dual-device-expedition-in-virtual-frontiers/"><u>In 2024, A Dual-Device Expedition in Virtual Frontiers</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-from-apple-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication From Apple iPhone 13 Pro Max</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-collaboration-at-bett-a-gathering-of-educators/"><u>Learning Collaboration at BETT: A Gathering of Educators</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-adventures-via-mondlys-augmented-realities/"><u>Linguistic Adventures via Mondly's Augmented Realities</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcoming-stuttering-and-delays-in-dying-light-solutions-for-smooth-play/"><u>Overcoming Stuttering and Delays in Dying Light - Solutions for Smooth Play</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revolutionize-language-learning-8-impactful-reasons-to-study-hindi-with-mondly/"><u>Revolutionize Language Learning: 8 Impactful Reasons to Study Hindi with Mondly!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/through-language-unity-mondly-forges-new-ties-with-ukrainians-free-of-charge/"><u>Through Language, Unity – Mondly Forges New Ties with Ukrainians Free of Charge</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-fluency-top-3-app-based-linguistic-advancement-platforms/"><u>Unlock Fluency: Top 3 App-Based Linguistic Advancement Platforms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voicing-german-vibes-a-list-of-the-best-25-phrases-to-learn/"><u>Voicing German Vibes: A List of the Best 25 Phrases to Learn</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/world-english-waveforms-australian-twang-vs-southern-us-drawl/"><u>World English Waveforms: Australian Twang Vs. Southern U.S. Drawl</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-fixed-youtubes-missing-minute-media/"><u>[New] In 2024, Fixed YouTube's Missing Minute Media</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-recording-your-games-in-hd-ps4-and-obs-studio-guide-for-2024/"><u>[New] Recording Your Games in HD PS4 & OBS Studio Guide for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-navigating-the-realm-of-sponsorships-on-instagram-influencer-edition/"><u>[Updated] 2024 Approved Navigating the Realm of Sponsorships on Instagram Influencer Edition</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-peculiar-pratfalls-memes-tailored-for-the-perfect-moment/"><u>[Updated] In 2024, Peculiar Pratfalls Memes Tailored for the Perfect Moment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-years-echoing-europes-language-babel-revealed/"><u>50 Years Echoing - Europe's Language Babel Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-guide-to-french-greetings-navigating-cultural-norms/"><u>A Beginner's Guide to French Greetings: Navigating Cultural Norms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-guide-to-expressing-thanks-16-essential-german-terms/"><u>A Guide To Expressing Thanks: 16 Essential German Terms</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/are-high-end-tvs-with-aurora-hdr-worth-it-analyzed-for-2024/"><u>Are High-End TVs with Aurora HDR Worth It? Analyzed for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basic-anatomy-the-parts-of-the-body-in-french/"><u>Basic Anatomy: The Parts of the Body in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-language-barriers-masterful-grammar-insights-from-a-pro-esl-communicator/"><u>Bridging Language Barriers: Masterful Grammar Insights From a Pro ESL Communicator</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/capture-save-and-watch-5-best-pinterest-videos-tools/"><u>Capture, Save and Watch 5 Best Pinterest Videos Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-narratives-of-a-korean-week/"><u>Daily Narratives of a Korean Week</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-deciphering-whatsapps-voice-call-mechanics/"><u>In 2024, Deciphering WhatsApp's Voice Call Mechanics</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-oppo-a78-5g-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Oppo A78 5G Face Lock?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-xiaomi-13-ultra-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Xiaomi 13 Ultra Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581018092-this-is-the-best-way-to-learn-finnish-online/"><u>This Is The Best Way To Learn Finnish Online</u></a></li>
 </ul></div>
 

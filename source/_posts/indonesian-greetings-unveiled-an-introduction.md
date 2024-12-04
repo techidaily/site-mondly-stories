@@ -1,7 +1,7 @@
 ---
 title: "Indonesian Greetings Unveiled: An Introduction"
-date: 2024-11-20T00:07:00.008Z
-updated: 2024-11-25T00:05:00.547Z
+date: 2024-11-30T23:57:48.563Z
+updated: 2024-12-04T03:38:04.467Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
  Besides, you’ll love [learning Indonesian words](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6912&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id) as some of them sound very cute to English speakers. Known as_Bahasa Indonesia_ to Indonesians, Indonesian calls the dolphin_lumba-lumba_ and the teeth_gigi_ . Cute. Told ‘ya!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When and how should you say hello in Indonesia
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say ‘hello’ in Indonesian
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
@@ -70,15 +70,15 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
 
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
 
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say goodbye
 
@@ -92,7 +92,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Start learning Indonesian today
@@ -126,16 +126,22 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/mondly-bridging-communication-gaps-in-the-virtual-reality-arena-with-oculus-quest/"><u>'Mondly': Bridging Communication Gaps in the Virtual Reality Arena with Oculus Quest</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-mastering-game-record-on-windows-10-top-5-tips/"><u>[New] Mastering Game Record on Windows 10 Top 5 Tips</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-best-online-echo-chambers/"><u>2024 Approved Best Online Echo Chambers</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/guard-your-iphones-visibility-understanding-default-discoverable-settings-and-easy-disabling-guide-insights-by-zdnet/"><u>Guard Your iPhone’s Visibility: Understanding Default 'Discoverable' Settings & Easy Disabling Guide | Insights by ZDNET</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-tweak-quick-twitter-video-preview/"><u>In 2024, Tweak Quick Twitter Video Preview</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-minitool-movie-maker-review-a-comprehensive-look-and-best-alternatives/"><u>New Minitool Movie Maker Review A Comprehensive Look and Best Alternatives</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-learning-guide-over-100-essential-russian-expressions/"><u>Quick-Learning Guide: Over 100 Essential Russian Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ranking-of-popularly-taught-international-languages-usa/"><u>Ranking of Popularly Taught International Languages USA</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/starting-up-in-periscope-tips-to-launch-your-wealth-journey/"><u>Starting Up in Periscope Tips to Launch Your Wealth Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-inside-the-world-of-spanish-greetings-with-these-10-key-phrases/"><u>Step Inside The World Of Spanish Greetings With These 10 Key Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-germanys-language-discover-our-top-25-sayings/"><u>Unlock Germany's Language - Discover Our Top 25 Sayings</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-digital-paintbrush-inserting-text-into-windowsmac-photos/"><u>2024 Approved Digital Paintbrush Inserting Text Into Windows/Mac Photos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-top-4-remedies-enhancing-iphone-hdr-images-in-premiere-pro/"><u>2024 Approved Top 4 Remedies Enhancing iPhone HDR Images in Premiere Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-heritages-francais-un-souhait-de-grace/"><u>4 Héritages Français: Un Souhait De Grâce</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-compre-written-guide-to-germanys-most-common-thanks-expressions/"><u>A Compre Written Guide to Germany’s Most Common Thanks Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/abordagem-do-portugues-cada-frase-conta-uma-historia/"><u>Abordagem Do Português: Cada Frase Conta Uma História</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-music-from-y56-5g-by-fonelab-android-recover-music/"><u>Best Android Data Recovery - Undelete Lost Music from Y56 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-language-exploration-spanish-vs-portuguese-dialects/"><u>Comparative Language Exploration: Spanish Vs. Portuguese Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-france-through-its-language-top-expressions/"><u>Discovering France Through Its Language: Top Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-global-affection-heartfelt-words-on-february-14th/"><u>Embrace Global Affection: Heartfelt Words on February 14Th</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-global-communication-4-essential-reasons-for-post-40-polyglots/"><u>Embracing Global Communication: 4 Essential Reasons for Post-40 Polyglots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579195236-google-plays-top-kid-friendly-app-mondly-family-edition/"><u>Google Play's Top Kid-Friendly App: Mondly Family Edition!</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/guide-facile-pour-copier-un-utilitaire-dinstallation-biosuefi-sur-une-nouvelle-cle-usb-bootable-dans-windows-v11-v10-ou-des-systemes-anterieurs/"><u>Guide Facile Pour Copier Un Utilitaire D'Installation BIOS/UEFI Sur Une Nouvelle Clé USB Bootable Dans Windows V11, V10 Ou Des Systèmes Antérieurs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-dissecting-youtubes-selection-of-trending-video-responses/"><u>In 2024, Dissecting YouTube's Selection of Trending Video Responses</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-oppo-a78-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Oppo A78 FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-social-simulacrum-sculpting-constructing-playful-profiles/"><u>In 2024, Social Simulacrum Sculpting Constructing Playful Profiles</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/meet-ulf-persson-ceo-at-document-solutions-giant-abbyy-his-strategy-for-innovation/"><u>Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-gravar-mp3-e-ogg-offline-gratuito-facil-de-usar-e-rapido/"><u>Movavi: Gravar MP3 E OGG Offline Gratuito - Fácil De Usar E Rápido</u></a></li>
 </ul></div>
 

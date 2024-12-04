@@ -1,7 +1,7 @@
 ---
 title: The Science Behind Mondly's Learning
-date: 2024-11-24T00:04:39.588Z
-updated: 2024-11-24T17:13:30.809Z
+date: 2024-11-27T20:38:53.296Z
+updated: 2024-12-04T03:09:38.775Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -102,16 +102,19 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-elevating-the-chilly-selecting-five-warm-video-backgrounds-for-2024/"><u>[New] Elevating the Chilly Selecting Five Warm Video Backgrounds for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-ultimate-pathway-to-prominence-on-youtube-channel-showcase/"><u>[New] The Ultimate Pathway to Prominence on YouTube Channel Showcase</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-prime-video-communication-experience-the-top-10-mobile-apps/"><u>[Updated] Prime Video Communication Experience The Top 10 Mobile Apps</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-motorola-moto-e13-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Motorola Moto E13? Try These Fixes</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-reality-beyond-boundaries-grasping-the-metaverse-through-6-models/"><u>In 2024, Reality Beyond Boundaries Grasping the Metaverse Through 6 Models</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-dialogue-starters/"><u>International Dialogue Starters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/japanese-mastery-on-a-dime-best-online-and-autonomous-resources/"><u>Japanese Mastery on a Dime: Best Online & Autonomous Resources</u></a></li>
-<li><a href="https://games-able.techidaily.com/mind-twisters-the-most-maddening-mini-games/"><u>Mind-Twisters: The Most Maddening Mini-Games</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-a-smart-choice-for-young-minds-in-2017/"><u>Mondly Kids - A Smart Choice for Young Minds in 2017</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/passfab-iphone-xs-backup-unlocker-top-4-alternatives-by-drfone-ios/"><u>PassFab iPhone XS Backup Unlocker Top 4 Alternatives</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-cognitive-advantages-of-multilingualism-post-fifty/"><u>The Cognitive Advantages of Multilingualism Post-Fifty</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-get-the-facts-about-youtube-keyword-research/"><u>[New] 2024 Approved Get the Facts About YouTube Keyword Research</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-full-circle-camera-unboxing-and-tests/"><u>[New] In 2024, Full Circle Camera Unboxing & Tests</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-capturing-clear-and-clean-vocal-audio-for-your-videos/"><u>[Updated] In 2024, Capturing Clear and Clean Vocal Audio for Your Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-pro-quality-footage-selecting-the-ultimate-7-cameras/"><u>[Updated] In 2024, Pro Quality Footage Selecting the Ultimate 7 Cameras</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-efficient-strategies-for-posting-srt-files-to-social-media/"><u>2024 Approved Efficient Strategies for Posting SRT Files to Social Media</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accent-across-the-seas-from-british-to-american-cockney-isms/"><u>Accent Across the Seas: From British to American Cockney-Isms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabic-starter-pack-essential-steps-for-novices/"><u>Arabic Starter Pack: Essential Steps for Novices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ausreden-vermeiden-deutsche-art-zu-bedauern-sagen/"><u>Ausreden Vermeiden – Deutsche Art Zu Bedauern Sagen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/edunet-global-hub-bett-2022-highlights/"><u>Edunet Global Hub - BETT 2022 Highlights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578098370-from-novice-to-speaker-in-croatia-here-are-the-top-7-reasons/"><u>From Novice to Speaker in Croatia - Here Are The Top 7 Reasons</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/movavis-no-cost-tool-for-instantly-transforming-audio-from-ape-to-wav-streaming-files/"><u>Movavi's No-Cost Tool for Instantly Transforming Audio From APE to WAV Streaming Files</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580803493-multilingual-momentum-speak-and-travel-without-leaving-home/"><u>Multilingual Momentum: Speak and Travel without Leaving Home!</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211082774-9798886503845-protection-spells-for-new-witches/"><u>Protection Spells for New Witches | Free Book</u></a></li>
+<li><a href="https://games-able.techidaily.com/repairing-unresponsive-windows-steam-remote-play/"><u>Repairing Unresponsive Windows Steam Remote Play</u></a></li>
 </ul></div>
 

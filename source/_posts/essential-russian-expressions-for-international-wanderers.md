@@ -1,7 +1,7 @@
 ---
 title: Essential Russian Expressions for International Wanderers
-date: 2024-07-29T06:44:56.291Z
-updated: 2024-07-30T06:44:56.291Z
+date: 2024-11-30T01:23:02.558Z
+updated: 2024-12-04T01:31:04.255Z
 tags:
   - speak
   - english
@@ -69,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/3e9db891de75640d42280dabbfbbc511c64f55b10
 * Where are you from? –_Откуда ты? – Otkuda ty?_
 * Have a good day. –_Ну тогда до свидания. – Nu togda do svidaniya._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## 2\. Useful Russian phrases for when you are at the airport
 
  Arriving at the airport – both at the beginning and at the end of your journey – will also require some basic Russian phrases. Whether we are talking about small talk with the person sitting next to you on the airplane, passport verification or asking for directions, these Russian phrases will definitely have your back in any situation.
@@ -124,6 +120,10 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 * I’ll be back immediately. –_Я скоро вернусь. – Ya skoro vernus._
 * Drive me to this address. –_Отвезите меня по этому адресу. – Otvezite menya po etomu adresu_ .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Advanced Russian phrases for different hotel situations
 
  Staying at a hotel/hostel requires interaction with the staff – most of the time. If you don’t want to waste your time searching English to Russian translations on Google, make sure to learn some basic Russian that will help you to better express your needs.
@@ -139,8 +139,9 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 * Here is your bill, please look it over. – _Вот ваш счёт, проверьте пожалуйста. – Vot vash schot, proverte pozhaluysta._
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Learn Russian to experience the local cuisine
 
  Local cuisine is one of the best parts of a vacation. The experience is not whole if you don’t try at least one traditional meal. Something sweet or something salty? What is it going to be? No worries. Russian cuisine is diverse. You’ll have a great variety of dishes to choose from.
@@ -153,10 +154,11 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 * What would you recommend? –_Что вы можете посоветовать? – Chto vy mozhete posovetovat?_
 * We would like two glasses of wine. –_Два бокала вина. – Dva bokala vina._
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-words-1024x684.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Photo by Max Delsid
 
@@ -171,9 +173,6 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 * I would like a salad. –_Я хотел бы салат. Ya hotel by salat._
 * I would like a soup. –_Я хотел бы суп. Ya hotel by sup._
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![useful-russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-words-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 7")
 
  Photo by Henrique Félix
@@ -185,8 +184,9 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 * What would you like for breakfast? –_Что бы вы хотели на завтрак? – Chto by vy hoteli na zavtrak?_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Russian for travelers who want to have fun
 
  Probably the most important phrases – for some of us – are those related to fun. What’s the point in going to Russia if you don’t go out and try the famous vodka with the locals? The legend says the vodka is so good that your brain will start translating English to Russian without even learning Russian in advance.
@@ -218,10 +218,11 @@ Just joking. Still is an amazing drink, though!
 * How much does it cost? –_Сколько это стоит? – Skolko eto stoit?_
 * I would like \_\_\_\_\_. –_Я хотел бы \_\_\_\_\_. – Ya hotel by \_\_\_\_\_._
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![basic-russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/bassic-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 9")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Photo by Alina Grubnyak
 
@@ -230,18 +231,6 @@ Just joking. Still is an amazing drink, though!
 * What would you like? –_Что вы предпочитаете? – Chto vy predpochitayete?_
 * Can I have some ice cream? –_Можно мне мороженого? – Mozhno mne morozhenogo?_
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. Russia Travel Guide – how to say that you have fallen in love?
 
  If you learn how to master these next phrases, you will definitely be getting your travel vocabulary to the next level.  
@@ -255,9 +244,6 @@ Just joking. Still is an amazing drink, though!
 * You are very handsome. –_Ты очень красивый. – Ty ochen krasivyy._
 * May I kiss you? –_Можно тебя поцеловать? – Mozhno tebya potselovat?_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![common-russian-phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/07/common-russian-phrases-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 10")
 
  Photo by Greg Rakozy
@@ -271,11 +257,12 @@ Just joking. Still is an amazing drink, though!
 * Would you like to have dinner with me? –_Поужинаем вместе? – Pouzhynayem vmeste?_
 * I love you. – Я люблю тебя. –_Ya lyublyu tebya._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus: Basic Russian phrases for football lovers
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![russian-phrases-world-cup](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-phrases-world-cup-1024x576.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 11")
 
  Photo by Fauzan Saari
@@ -307,8 +294,6 @@ Just joking. Still is an amazing drink, though!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -316,4 +301,26 @@ Just joking. Still is an amazing drink, though!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-top-5-captivating-videos-from-the-world-of-fb/"><u>[New] 2024 Approved Top 5 Captivating Videos From the World of FB</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-7-best-nft-generators-to-turn-your-artwork-into-nfts/"><u>[New] 7 Best NFT Generators to Turn Your Artwork Into NFTs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-building-dynamic-youtube-music-chains/"><u>[New] In 2024, Building Dynamic YouTube Music Chains</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-interactive-events-recorder-yearly-edition/"><u>[Updated] Interactive Events Recorder - Yearly Edition</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-kid-approved-drones-for-beginning-pilots/"><u>Best Kid-Approved Drones for Beginning Pilots</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/blueant-soundblade-unveiled-audibly-impressive-and-visually-stunning-review/"><u>BlueAnt Soundblade Unveiled: Audibly Impressive and Visually Stunning Review</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/highpoint-masterpiece-suite-for-2024/"><u>Highpoint Masterpiece Suite for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-correctly-address-and-resolve-errgfxd3dinit-issues-in-grand-theft-auto-v/"><u>How to Correctly Address and Resolve ERR_GFX_D3D_INIT Issues in Grand Theft Auto V</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unpacking-virtual-reality-its-upside-and-downside/"><u>In 2024, Unpacking Virtual Reality Its Upside & Downside</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-veiled-valuables-unlocking-the-secrets-in-the-2023-online-marketplace/"><u>In 2024, Veiled Valuables Unlocking the Secrets in the 2023 Online Marketplace</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-year-new-linguistic-skills/"><u>New Year, New Linguistic Skills!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-swede-sounds-a-linguistic-guide/"><u>Quick Swede Sounds: A Linguistic Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/recognizing-excellence-apples-top-10-ed-tech-with-mondly/"><u>Recognizing Excellence: Apple's Top 10 Ed-Tech with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essence-of-superior-performance-in-mondly-application/"><u>The Essence of Superior Performance in Mondly Application</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-italian-explorers-vocabulary-100plus-must-learn-phrases/"><u>The Italian Explorer’s Vocabulary: 100+ Must-Learn Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/twin-tongue-transition-training/"><u>Twin-Tongue Transition Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-and-using-spanish-verb-endings/"><u>Understanding and Using Spanish Verb Endings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-world-with-a-linguistic-95-off-offer-this-year/"><u>Unlock the World with a Linguistic 95% Off Offer This Year!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-latin-mastery-digital-edition-guide/"><u>Unlocking Latin Mastery: Digital Edition Guide</u></a></li>
+</ul></div>
 

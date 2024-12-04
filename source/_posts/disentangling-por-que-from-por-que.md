@@ -1,7 +1,7 @@
 ---
 title: Disentangling 'Por Qué' From 'Por Que'
-date: 2024-08-08T09:26:40.947Z
-updated: 2024-08-09T09:26:40.947Z
+date: 2024-11-29T23:59:43.684Z
+updated: 2024-12-03T21:37:18.615Z
 tags:
   - speak
   - english
@@ -23,8 +23,9 @@ thumbnail: https://thmb.techidaily.com/7bf87c712048fd1b5c49af691f0f5b92a0d10753a
  If you are an English speaker, you know that’s not new. We also have our struggles with “your” and “you’re”, “whose” and “who’s”, “these” and “this”. Even if you know English to perfection, sometimes your brain just goes blank and you don’t know what’s the correct form anymore. But the [**_porque, por que, porqué_ and_por qué_**  problem](https://www.rae.es/espanol-al-dia/porque-porque-por-que-por-que-0) seems even more complicated than that. So read on to discover rules, eloquent examples in Spanish and the correct**Spanish pronunciation** for each situation.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Por qué – how to ask**“** why?” in Spanish
 
  Let’s start with the two most common _porques:**por qué**_   **and_porque_ – “why?” and “because”** – the question and the answer.
@@ -42,16 +43,14 @@ thumbnail: https://thmb.techidaily.com/7bf87c712048fd1b5c49af691f0f5b92a0d10753a
 * _No sé**por qué** rechazaste la oferta._ – “I don’t know**why** you refused the offer.”
 * _Quiero saber**por qué** está tan feliz._ – “I want to know**why** he/she is so happy.”
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![por que](https://edge.mondly.com/blog/wp-content/uploads/2019/08/por-que-scaled-960x554.jpg "Porque Vs Por Que: What'S The Difference? 2")
 
  “Let’s write” by Kelly Sikkema©
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Porque – “because” or how to give reasons in Spanish
 
  As you already know, whenever you ask “why?” in English, the other person will probably begin their answer using “because”. Well, Spanish has the same rules: whenever you ask someone**“por qué”,** they will probably begin their answer with the plain and simple**“porque”** with no spaces and no accents. Let’s see some examples:
@@ -71,8 +70,9 @@ thumbnail: https://thmb.techidaily.com/7bf87c712048fd1b5c49af691f0f5b92a0d10753a
  But it’s always better to be safe and learn all the possible outcomes than learn only half of them and feel sorry afterwars. So let’s move on to the more problematic_porques:_ **_por que_ (for which)** and **_el porqué_ (the reason)_._**
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Por que – “For which”
 
  The knottiest of the four_porques_ is definitely the**_por que_** that translates to**“for which”.** Even in English we rarely use this word arrangement in a sentence.
@@ -98,8 +98,9 @@ Well, now it’s all starting to make sense, doesn’t it?
  “Studying” by David Iskander©
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. El porqué – The reason
 
  Bare with me. This is the last**“porqué”** and the easiest**“porqué”.**
@@ -121,9 +122,9 @@ Well, now it’s all starting to make sense, doesn’t it?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### See_porque_ vs_por que_ and_porqué_ vs_por qué_ in action
 
  Do you want to**practice what you’ve learned** about the four_porques_ ? Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy!
@@ -146,8 +147,6 @@ Well, now it’s all starting to make sense, doesn’t it?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -155,6 +154,20 @@ Well, now it’s all starting to make sense, doesn’t it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-scripted-sign-offs-for-the-savvy-viewer/"><u>[New] 2024 Approved Scripted Sign-Offs for the Savvy Viewer</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-revolutionize-your-workflow-best-free-3d-text-files-for-2024/"><u>[Updated] Revolutionize Your Workflow Best FREE 3D Text Files for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-creativity-in-youtube-shorts-template-development/"><u>[Updated] Unlocking Creativity in YouTube Shorts Template Development</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/amazon-vs-samsung-tablet-showdown-which-tech-giant-wins-your-purchase/"><u>Amazon Vs. Samsung Tablet Showdown: Which Tech Giant Wins Your Purchase?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-dialogues-a-global-guide-to-saying-good-morning/"><u>Dawn Dialogues: A Global Guide to Saying 'Good Morning'</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-the-linksys-ea2500-router-drivers-fast-and-simple-steps/"><u>Download the Linksys EA2500 Router Drivers: Fast and Simple Steps</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/fixing-missing-python-24-dll-file-errors-on-your-computer/"><u>Fixing Missing Python 2.4 DLL File Errors on Your Computer</u></a></li>
+<li><a href="https://games-able.techidaily.com/mastering-apple-m1-and-windows-games-with-crossover-software/"><u>Mastering Apple M1 and Windows Games with Crossover Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-a-recommended-route-by-google-for-linguistic-success/"><u>Mondly - A Recommended Route by Google for Linguistic Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579097915-mondly-wins-chairmans-award-at-2021-witsa-global-ict-excellence-awards/"><u>Mondly Wins Chairman's Award At 2021 WITSA Global ICT Excellence Awards</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shakespeares-lexical-legacies-36-words-that-live-on/"><u>Shakespeare’s Lexical Legacies: 36 Words That Live On</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-reasons-behind-my-departure-from-safari-for-macos-browsers-and-the-successors-catching-up/"><u>The Reasons Behind My Departure From Safari for macOS Browsers & The Successors Catching Up.</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On OnePlus Nord 3 5G | Dr.fone</u></a></li>
+</ul></div>
 

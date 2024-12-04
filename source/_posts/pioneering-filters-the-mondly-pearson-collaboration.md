@@ -1,7 +1,7 @@
 ---
 title: "Pioneering Filters: The Mondly-Pearson Collaboration"
-date: 2024-11-19T23:04:02.745Z
-updated: 2024-11-24T22:03:47.551Z
+date: 2024-12-01T16:03:12.800Z
+updated: 2024-12-03T16:06:23.111Z
 tags:
   - speak
   - english
@@ -36,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **About Pearson**
@@ -44,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **About Mondly**
@@ -68,22 +68,22 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-expert-advice-on-engaging-with-facebook-live-streams/"><u>[New] 2024 Approved Expert Advice on Engaging with Facebook Live Streams</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-for-streamlining-iphone-video-content/"><u>[New] The Ultimate Guide for Streamlining iPhone Video Content</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/discovering-top-tier-electronics-with-toms-hardware/"><u>Discovering Top-Tier Electronics with Tom's Hardware</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1723004693329-easy-steps-to-repair-a-malfunctioning-madden-22-speedy-solutions-inside/"><u>Easy Steps to Repair a Malfunctioning Madden 22 - Speedy Solutions Inside</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hello-in-swedish-all-the-swedish-greetings/"><u>Hello In Swedish: All The Swedish Greetings</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-innovative-shots-with-purpose-top-20-ideas-for-inspiration/"><u>In 2024, Innovative Shots with Purpose Top 20 Ideas for Inspiration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/inbordes-valkomma-sveriges-hjartefar/"><u>Inbördes Välkomma: Sverige's Hjärtefär</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1722994170307-outlook-continuously-crashing-heres-what-you-need-to-know-to-fix-it/"><u>Outlook Continuously Crashing? Here's What You Need to Know to Fix It</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-path-to-latvian-proficiency-10-minutes-daily/"><u>Quick Path to Latvian Proficiency, 10 Minutes Daily</u></a></li>
-<li><a href="https://extra-information.techidaily.com/step-by-step-inserting-times-on-youtube-videos/"><u>Step-by-Step Inserting Times on YouTube Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tailored-for-success-customizing-language-training-goals-to-fit-your-corporate-culture/"><u>Tailored for Success: Customizing Language Training Goals to Fit Your Corporate Culture</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/teachers-crossroads-bett-2022-connectivity/"><u>Teacher's Crossroads: BETT 2022 Connectivity</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-premium-three-your-key-to-speedier-happier-learning/"><u>The Premium Three: Your Key to Speedier, Happier Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/turbocharged-introduction-to-turkish-letters-and-sounds/"><u>Turbocharged Introduction to Turkish Letters and Sounds</u></a></li>
-<li><a href="https://win11.techidaily.com/ultimate-guide-top-windows-based-ndsswitch-games/"><u>Ultimate Guide: Top Windows-Based NDS/Switch Games</u></a></li>
-<li><a href="https://win-answers.techidaily.com/war-thunder-continues-to-crash-top-strategies-to-fix-it/"><u>War Thunder Continues to Crash : Top Strategies to Fix It</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-languages-does-santa-claus-speak-find-out-now/"><u>What Languages Does Santa Claus Speak? Find Out Now</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-formulating-engaging-instagram-story-titles/"><u>[New] In 2024, Formulating Engaging Instagram Story Titles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-premium-selection-the-ultimate-15-video-devices-for-2024/"><u>[New] Premium Selection The Ultimate 15 Video Devices for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-drone-marathoners-list-top-10/"><u>[Updated] The Ultimate Drone Marathoners List (Top 10)</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-meme-mechanic-generating-online-engagement-through-videos/"><u>2024 Approved The Meme Mechanic Generating Online Engagement Through Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-myths-about-language-learning-you-should-definitely-learn-about/"><u>5 Myths About Language Learning You Should Definitely Learn About</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/acontece-em-portugues-as-palavras-mais-usadas-para-se-encontrar/"><u>Acontece Em Português: As Palavras Mais Usadas Para Se Encontrar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-guide-to-german-numbers-1-100/"><u>Beginner's Guide to German Numbers 1-100</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-of-dawn-greetings-a-multilingual-morning-salutation-list/"><u>Break of Dawn Greetings: A Multilingual Morning Salutation List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-mondlys-ar-for-multilingual-education/"><u>Bridging Cultures: Mondly's AR for Multilingual Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/countries-observing-the-thanksgiving-tradition/"><u>Countries Observing the Thanksgiving Tradition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-of-arabic-starting-point-explored/"><u>Dawn of Arabic: Starting Point Explored</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/decoding-script-annotations-slug-lines-explained/"><u>Decoding Script Annotations Slug Lines Explained</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/enhancing-online-presence-understanding-the-power-of-link-building-and-engaging-user-feedback/"><u>Enhancing Online Presence: Understanding the Power of Link Building and Engaging User Feedback</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-lava-storm-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Lava Storm 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/maximize-game-library-how-to-hook-up-and-use-an-external-hdd-with-your-xbox-one/"><u>Maximize Game Library: How to Hook Up & Use an External HDD with Your Xbox One</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ng-top-10-budget-friendly-video-editing-apps-for-2024/"><u>Ranking Top 10 Budget-Friendly Video Editing Apps for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577209551-rapid-mastery-of-latvian-language-10-minute-sessions/"><u>Rapid Mastery of Latvian Language, 10-Minute Sessions</u></a></li>
 </ul></div>
 

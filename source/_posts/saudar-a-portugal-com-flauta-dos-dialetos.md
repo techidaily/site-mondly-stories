@@ -1,7 +1,7 @@
 ---
 title: Saudar a Portugal Com Flauta Dos Dialetos
-date: 2024-11-22T18:50:46.030Z
-updated: 2024-11-24T21:28:16.324Z
+date: 2024-11-28T02:15:56.253Z
+updated: 2024-12-03T21:10:41.830Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### “Hi” in Portuguese – Oi
@@ -41,14 +41,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Lisbon, Portugal” by Diego García©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
 
@@ -66,7 +62,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
@@ -83,10 +79,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  All three of these are safe to use in any kind of interaction (formal or informal).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3.“Goodbye” in Portuguese – Adeus
 
  The most common way to say “Goodbye” in Portuguese is_Adeus_ , but you can also use_Tchau_ which simply translates to “bye”.
@@ -102,6 +94,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -126,6 +122,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * No. –_Não._
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
@@ -165,22 +165,21 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-free-game-music-websites-a-comprehensive-guide/"><u>[New] Free Game Music Websites – A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-elevating-reality-with-top-10-mobile-virtual-reality-headsets-for-2024/"><u>[Updated] Elevating Reality with Top 10 Mobile Virtual Reality Headsets for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-entering-the-fullscreen-realm-choosing-a-cms/"><u>[Updated] In 2024, Entering the Fullscreen Realm Choosing a CMS</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/germanys-heartbeat-top-25-authentic-phrases-for-immersion/"><u>Germany's Heartbeat: Top 25 Authentic Phrases for Immersion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/get-to-grips-with-the-korean-of-squid-game/"><u>Get to Grips with the Korean of Squid Game</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-motorola-moto-g24-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Motorola Moto G24?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-honor-100-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Honor 100</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-honor-x9a-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Honor X9a Location by Number | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Motorola Edge 40? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-you-to-basic-numbers-in-spanish/"><u>Introducing You to Basic Numbers in Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-lifeline-mondly-enhances-learning-with-augmented-reality/"><u>Language Lifeline: Mondly Enhances Learning with Augmented Reality</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-stance-on-privacy-and-use-agreements/"><u>New Stance on Privacy and Use Agreements</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/optimize-your-finnish-learning-through-digital-platforms/"><u>Optimize Your Finnish Learning Through Digital Platforms</u></a></li>
-<li><a href="https://win-blog.techidaily.com/smooth-sailing-in-the-underworld-resolving-hades-crash-issues-on-your-computer/"><u>Smooth Sailing in the Underworld: Resolving Hades Crash Issues on Your Computer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essence-of-romantic-language-families/"><u>The Essence of Romantic Language Families</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-romance-speaking-cultures/"><u>Understanding Romance-Speaking Cultures</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/vibey-vistas-your-guide-to-the-10-most-trending-discothemes-for-2024/"><u>Vibey Vistas Your Guide to the 10 Most Trending DiscoThemes for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-chronoscope-effect-flip-your-snapchat-videos-right-for-2024/"><u>[New] Chronoscope Effect Flip Your Snapchat Videos Right for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-the-art-of-podcast-imagery-creating-memorable-graphics/"><u>[New] The Art of Podcast Imagery Creating Memorable Graphics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unleashing-the-potential-of-instavids-planning-for-success/"><u>[New] Unleashing the Potential of InstaVids Planning for Success</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-dynamic-duo-of-images-on-ig/"><u>[Updated] Dynamic Duo of Images on IG</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/anatomie-essentielle-decoder-le-corps-humain-en-francais/"><u>Anatomie Essentielle: Décoder Le Corps Humain en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/astonish-abruzzese-with-essential-slang-terms/"><u>Astonish Abruzzese with Essential Slang Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basic-russian-vocabulary-and-phrases-mastery-101/"><u>Basic Russian Vocabulary & Phrases Mastery 101</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/be-bilingual-today-learn-german-from-popular-show-dark/"><u>Be Bilingual Today! Learn German From Popular Show, Dark</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/danish-cinematic-classics-enhancing-language-skills/"><u>Danish Cinematic Classics Enhancing Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubre-el-sistema-muscular-completo-un-viaje-interactivo-desde-la-cabeza-a-los-toes-en-espanol/"><u>Descubre El Sistema Muscular Completo: Un Viaje Interactivo Desde La Cabeza A Los Toes En Español</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579992783-new-year-new-verbal-horizon/"><u>New Year, New Verbal Horizon!</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/quick-and-simple-tips-stop-windows-10-continuous-reboots-now/"><u>Quick and Simple Tips: Stop Windows 10 Continuous Reboots Now</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-10-ai-chatbots-exciting-alternatives-to-chatgpt/"><u>Top 10 AI Chatbots: Exciting Alternatives to ChatGPT</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ultimate-selection-the-premier-sunlight-powered-charger-models-of-2-maximizing-portability-and-efficiency-s-leading-solar-chargers/"><u>Ultimate Selection: The Premier Sunlight-Powered Charger Models of 2# Maximizing Portability and Efficiency 'S Leading Solar Chargers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unlocking-the-power-of-multiframe-views-in-edge-for-2024/"><u>Unlocking the Power of Multiframe Views in Edge for 2024</u></a></li>
 </ul></div>
 

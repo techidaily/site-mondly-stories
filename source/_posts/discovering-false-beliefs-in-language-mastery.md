@@ -1,7 +1,7 @@
 ---
 title: Discovering False Beliefs in Language Mastery
-date: 2024-08-08T09:24:46.800Z
-updated: 2024-08-09T09:24:46.800Z
+date: 2024-12-02T17:46:47.332Z
+updated: 2024-12-03T20:29:21.740Z
 tags:
   - speak
   - english
@@ -21,36 +21,37 @@ thumbnail: https://thmb.techidaily.com/829f3e424c1b3b1991d559a20a197c8257f098aee
  Here are the most common myths and the way in which reality comes to the rescue:
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Not everyone can learn a foreign language
 
  False! Everyone with the right motivation can learn a foreign language. The amount of effort and time invested is different for experienced learners and beginners, but the fact remains that anyone can do it. Once you ‘learn how to learn’, certain patterns become visible, especially with grammar, and this makes learning much faster.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Language learning requires a high IQ
 
  So untrue! There are so many smart people who only speak one language. This is because a high IQ doesn’t make anyone a natural-born [polyglot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . An average IQ combined with persuasiveness, sensitivity and lots of practice is a much better recipe for becoming fluent in another language.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Failing to learn a language in school makes the student incompetent
 
  There are so many stories of students who left school thinking that they were incapable of learning French or Spanish, and later in life, they became fluent within a few months of living in Latin countries. The reason why students fail to learn a language in school is mostly due to the professor’s incompetence.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Grammar is difficult
 
  Here’s a fun fact: grammar is a language’s least difficult element and it takes the least time to master. Every language, no matter how remote, is built on clear grammar rules and the experienced learner can easily figure out patterns that he or she can use to accelerate the learning process.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Conversations require fluency
 
  When it comes to mastering a foreign language, fluency means knowing around 5000 words. That’s a lot, considering that it takes quite some time to build such a vocabulary. Here’s the good news – having a conversation with someone from another country requires only a basic command of the language, which is around 1500 words. And here’s the even better news – very basic needs such as courtesy and traveling require an even smaller set of words and phrases, and anyone can learn these on a flight to a foreign country.
@@ -74,18 +75,17 @@ Thank YOU, Alan!
 
  Start using Mondly for free on your computer or tablet or, better yet, download the Mondly app on your iOS or Android device and learn Spanish, French, German and more anytime, anywhere.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Get Mondly now and speak any language like you never dreamed you would ![Learn a new language](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-72&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-72%26mt%3D8 "Learn a new language")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -94,6 +94,24 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-game-changing-homes-in-blocktown/"><u>[New] 2024 Approved Game Changing Homes in Blocktown</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-expert-roundup-comprehensive-camstudio-guide/"><u>[Updated] In 2024, Expert Roundup Comprehensive CamStudio Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-tutorial-transforming-video-content-into-captivating-animated-gifs/"><u>[Updated] In 2024, Tutorial Transforming Video Content Into Captivating Animated GIFS</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-maximize-video-experience-enable-pip-on-youtube-ios/"><u>[Updated] Maximize Video Experience Enable PIP on YouTube iOS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-effective-techniques-for-creating-podcast-rss-feeds/"><u>2024 Approved Effective Techniques for Creating Podcast RSS Feeds</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/3iso/"><u>最高の3つのフリーISO圧縮ソフトウェア推薦チョイス</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/an-in-depth-guide-to-hiragana-and-katakana/"><u>An In-Depth Guide to Hiragana and Katakana</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-guide-to-downloading-and-updating-lenovo-ideapad-100-drivers-optimize-performance-on-windows-11/"><u>Easy Guide to Downloading & Updating Lenovo IdeaPad 100 Drivers: Optimize Performance on Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-communication-skills-fastest-way-7-ways-through-mondlys-afrikaans-lessons/"><u>Elevate Your Communication Skills Fastest Way - 7 Ways Through Mondly's Afrikaans Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/huawei-users-get-ready-for-mondly/"><u>Huawei Users, Get Ready for Mondly!</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-realme-12-proplus-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Realme 12 Pro+ 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-dias-pasan-aprende-su-nombre-en-espanol/"><u>Los Días Pasan, Aprende Su Nombre en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581905222-norwegian-mastery-unlocked-in-brief-bursts/"><u>Norwegian Mastery Unlocked in Brief Bursts!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shakespeares-timeless-tongue-everyday-usage-explored/"><u>Shakespeare's Timeless Tongue: Everyday Usage Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essence-of-the-swedish-phonetic-system/"><u>The Essence of the Swedish Phonetic System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-link-tl-wr902ac-the-ultimate-portable-wi-fi-hotspot-for-mobile-internet-needs/"><u>TP-Link TL-WR902AC: The Ultimate Portable Wi-Fi Hotspot for Mobile Internet Needs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-multilingual-potential-with-google-endorsed-mondly/"><u>Unlock Multilingual Potential with Google-Endorsed Mondly</u></a></li>
+</ul></div>
 

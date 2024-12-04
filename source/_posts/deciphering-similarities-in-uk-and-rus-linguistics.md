@@ -1,7 +1,7 @@
 ---
 title: Deciphering Similarities in Uk & Rus Linguistics
-date: 2024-08-08T09:27:02.888Z
-updated: 2024-08-09T09:27:02.888Z
+date: 2024-11-28T22:24:55.403Z
+updated: 2024-12-04T02:27:57.207Z
 tags:
   - speak
   - english
@@ -26,7 +26,9 @@ thumbnail: https://thmb.techidaily.com/9a0ccdfbe8da8591524befa7834f5f64eb569a97d
 
  Contrary to what some people believe, Ukrainian and Russian are not the same language. Despite sharing a common ancestor and the Cyrillic script, Ukrainian and Russian are two distinct languages. They are somehow similar, yes, but not one and the same. To help you understand the relationship between the two, we are going to look at their shared history and both their differences and similarities.
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Was Ukrainian really called Little Russian?
 
@@ -47,17 +49,18 @@ thumbnail: https://thmb.techidaily.com/9a0ccdfbe8da8591524befa7834f5f64eb569a97d
 
  **Due to heavy borrowings from so many languages, by the mid-17th century, Ukrainian and Russian became so different that the negotiations for the Treaty of Pereyaslav had to be done using translators.**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 !['Ukrainian language' by Gleb Albovsky©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/ukrainian-language-960x600.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  As a result of Ukraine’s centuries-long political subordination, Ukrainian had almost no literary expression until de 18th century when the modern literary Ukrainian language was born.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Russian language – a short history
 
  Russian, known as Русский язык (romanized:_Russkiy yazyk_) to Russians, is the official language of Russia, Belarus, Kazakhstan, and Kyrgyzstan and it is also used as a second language in other former Soviet countries. Additionally, Russian is one of the six official United Nations languages and the 8th most spoken language in the world with a total of 260 million speakers.
@@ -78,23 +81,19 @@ The ultimate burning program for all your needs!</a>
 
  So how similar are Ukrainian and Russian?**They share about 62% lexical similarity.** What many people don’t know is that Ukrainian has a higher lexical similarity with Polish,[Slovak](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Belarusian, than it does with Russian – especially with Belarusian.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 !['Russian language' by Dimitry B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/russian-language-960x639.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 5")
 
  Since most Ukrainian speakers also speak Russian or have extensive exposure to it, ‘asymmetric intelligibility’ is the best term to describe the relationship between the two languages. In other words, Ukrainian speakers can often understand Russian, while Russian speaker doesn’t understand Ukrainian, especially Russian speakers from outside Ukraine.
 
  However, all three languages – Ukrainian, Russian and Belarusian – are in part mutually intelligible, and already knowing one can help a lot if you want to learn one of the others.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## How different are Ukrainian and Russian?
 
  Now that we’ve explained the history behind Ukrainian and Russian, it’s time to look at some more practical examples. A 62% lexical similarity may sound like a lot, but these two languages are not as similar as many might think. Here are some of the most important differences between Russian and Ukrainian.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Alphabet
 
@@ -120,10 +119,6 @@ The powerful video editing program for your Windows PC</a>
 
  Showing 1 to 6 of 6 entries
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ### Sounds and pronunciation
 
  While to a non-trained ear Russian and Ukrainian might sound the same, they actually have several differences when it comes to pronunciation. For example, Ukrainian has a specific sound for “Г г” (similar to \[h\] in ‘aha!’) which Russian doesn’t have. For this letter, Russian uses the \[g\] sound which is similar to the ‘g’ in ‘go’ or ‘guard’. As a consequence, it’s very easy to differentiate a Ukrainian speaker from a Russian speaker as Ukrainians sometimes overlook the usage of \[g\] instead of \[h\].
@@ -157,8 +152,9 @@ The powerful video editing program for your Windows PC</a>
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Learn Ukrainian, Russian and more in just 10 minutes a day
 
  Do you want to learn languages fast? Get Mondly, the award-winning language app that will help you speak Ukrainian, Russian and more from day 1.
@@ -179,8 +175,6 @@ The powerful video editing program for your Windows PC</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -188,6 +182,24 @@ The powerful video editing program for your Windows PC</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-freeaudvault-review-unveiling-the-full-potential-of-2024/"><u>[New] FreeAudVault Review Unveiling the Full Potential of 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-mac-os-unveiled-comprehensive-review-of-screenflow-v4-for-2024/"><u>[New] Mac OS Unveiled Comprehensive Review of ScreenFlow V4 for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/uick-queries-character-and-sound-crossover/"><u>[New] Quick Queries Character & Sound Crossover</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unlocking-luminous-images-a-comprehensive-lightroom-guide/"><u>[Updated] 2024 Approved Unlocking Luminous Images A Comprehensive Lightroom Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-top-tricks-for-smooth-auditory-paths-for-2024/"><u>[Updated] Top Tricks for Smooth Auditory Paths for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/add-background-scores-via-premiere-pro-for-2024/"><u>Add Background Scores via Premiere Pro for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/comprehensive-review-of-the-hp-zbook-studio-g9-unmatched-quality-for-professionals-seeking-versatile-graphics-solutions/"><u>Comprehensive Review of the HP ZBook Studio G9: Unmatched Quality for Professionals Seeking Versatile Graphics Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-ease-the-fastest-path-to-proficient-czech-use/"><u>Digital Ease: The Fastest Path to Proficient Czech Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-downunder-slang-with-us/"><u>Dive Into Downunder Slang with Us</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-on-apple-iphone-13-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code On Apple iPhone 13 in the Best Ways</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-lens-legends-choice-the-finest-6-4k-dslr-cameras/"><u>In 2024, Lens Legends Choice The Finest 6 4K DSLR Cameras</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-global-opportunities-leading-3-linguistic-advancement-apps/"><u>Jumpstart Global Opportunities: Leading 3 Linguistic Advancement Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-at-expo-2020-dubai-the-future-of-language-learning/"><u>Mondly At Expo 2020 Dubai: The Future Of Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-in-17-key-spanish-phrases/"><u>Speak Like a Local in 17 Key Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-expressive-german-idioms-top-25/"><u>The Ultimate Guide to Expressive German Idioms (Top 25)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-three-asian-languages-quick-sort-and-keep-track/"><u>Top Three Asian Languages: Quick Sort & Keep Track</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-hearts-through-multilingual-understanding/"><u>Uniting Hearts Through Multilingual Understanding</u></a></li>
+</ul></div>
 

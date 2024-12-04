@@ -1,7 +1,7 @@
 ---
 title: Unraveling Five Misconceptions in Acquiring New Tongues
-date: 2024-11-20T21:35:15.298Z
-updated: 2024-11-24T20:52:41.447Z
+date: 2024-11-28T20:02:21.305Z
+updated: 2024-12-04T03:43:05.346Z
 tags:
   - speak
   - english
@@ -21,35 +21,35 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
  Here are the most common myths and the way in which reality comes to the rescue:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Not everyone can learn a foreign language
 
  False! Everyone with the right motivation can learn a foreign language. The amount of effort and time invested is different for experienced learners and beginners, but the fact remains that anyone can do it. Once you ‘learn how to learn’, certain patterns become visible, especially with grammar, and this makes learning much faster.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Language learning requires a high IQ
 
  So untrue! There are so many smart people who only speak one language. This is because a high IQ doesn’t make anyone a natural-born [polyglot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . An average IQ combined with persuasiveness, sensitivity and lots of practice is a much better recipe for becoming fluent in another language.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Failing to learn a language in school makes the student incompetent
 
  There are so many stories of students who left school thinking that they were incapable of learning French or Spanish, and later in life, they became fluent within a few months of living in Latin countries. The reason why students fail to learn a language in school is mostly due to the professor’s incompetence.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Grammar is difficult
 
  Here’s a fun fact: grammar is a language’s least difficult element and it takes the least time to master. Every language, no matter how remote, is built on clear grammar rules and the experienced learner can easily figure out patterns that he or she can use to accelerate the learning process.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Conversations require fluency
@@ -78,7 +78,7 @@ Thank YOU, Alan!
 Get Mondly now and speak any language like you never dreamed you would ![Learn a new language](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-72&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-72%26mt%3D8 "Learn a new language")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -96,19 +96,15 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-mastering-the-art-of-text-insertion-in-digital-pictures/"><u>[New] 2024 Approved Mastering the Art of Text Insertion in Digital Pictures</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-instagram-tutorial-upload-and-share-video/"><u>2024 Approved Instagram Tutorial Upload and Share Video</u></a></li>
-<li><a href="https://techidaily.com/guide-on-how-to-free-up-apple-iphone-12-pro-max-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Free Up Apple iPhone 12 Pro Max Space | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2671529-9780752481630-haunted-staffordshire/"><u>Haunted Staffordshire | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/parsing-rules-or-linguistic-fluency/"><u>Parsing Rules or Linguistic Fluency?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polish-skills-boost-quick-start-guide/"><u>Polish Skills Boost: Quick Start Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/regional-dialects-asias-top-3-prowess/"><u>Regional Dialects: Asia's Top 3 Prowess</u></a></li>
-<li><a href="https://facebook.techidaily.com/seamless-personalization-your-social-media-dream-now-reality/"><u>Seamless Personalization - Your Social Media Dream Now Reality</u></a></li>
-<li><a href="https://extra-information.techidaily.com/skill-elevation-rising-through-the-ranks-in-designing/"><u>Skill Elevation Rising Through the Ranks in Designing</u></a></li>
-<li><a href="https://win-webster.techidaily.com/southwest-airlines-shares-great-updates-for-all-passengers-bill-gates-left-out-zdnet-coverage/"><u>Southwest Airlines Shares Great Updates for All Passengers, Bill Gates Left Out - ZDNet Coverage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-journey-essentials-the-most-useful-93-phrases-listed-here/"><u>Spanish Journey Essentials: The Most Useful 93 Phrases Listed Here</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-ultimate-selection-best-true-crime-podcast-series/"><u>The Ultimate Selection: Best True Crime Podcast Series</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>What is the best Pokemon for pokemon pvp ranking On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/world-words-within-the-web-of-english-language/"><u>World Words Within the Web of English Language</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-strategies-for-effective-obs-live-feeds-on-facebook/"><u>[New] In 2024, Strategies for Effective OBS Live Feeds on Facebook</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-navigating-the-world-of-speech-to-text-with-google-expertly-for-2024/"><u>[New] Navigating the World of Speech-to-Text with Google Expertly for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-pioneering-pedagogy-choosing-from-the-premier-10-lecture-recorders/"><u>2024 Approved Pioneering Pedagogy Choosing From the Premier 10 Lecture Recorders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-a-successful-decade-at-mondlyback/"><u>Celebrating a Successful Decade at MondlyBack</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-mosaic-benefits-of-embracing-multiple-languages/"><u>Cultural Mosaic: Benefits of Embracing Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-best-strategies-for-virtual-finnish-proficiency/"><u>Discover the Best Strategies for Virtual Finnish Proficiency</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/macxdvd-tutorials-and-guides-comprehensive-insights-on-dvd-management/"><u>MacXDVD Tutorials and Guides: Comprehensive Insights on DVD Management</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580114355-norsk-noob-to-novice-in-just-ten-minutes/"><u>Norsk Noob to Novice - In Just Ten Minutes</u></a></li>
+<li><a href="https://program-issues.techidaily.com/r-type-final-2-stability-issues-how-to-prevent-pc-game-crashes/"><u>R-Type Final 2 Stability Issues: How to Prevent PC Game Crashes</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-complete-breakdown-of-facebooks-changes-for-2024/"><u>The Complete Breakdown of Facebook's Changes for 2024</u></a></li>
 </ul></div>
 

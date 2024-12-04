@@ -1,7 +1,7 @@
 ---
 title: "International Eloquence: Expressing Thanks Worldwide (152) [Trimmed to Fit]"
-date: 2024-11-21T18:32:46.918Z
-updated: 2024-11-24T20:15:11.916Z
+date: 2024-12-02T20:02:34.553Z
+updated: 2024-12-03T19:20:49.935Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
@@ -61,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -127,15 +127,21 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-mastering-video-segmentation-the-easy-fades-way/"><u>[New] Mastering Video Segmentation The Easy Fades Way</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-verbatim-conversion-programs-available/"><u>Best Verbatim Conversion Programs Available</u></a></li>
-<li><a href="https://driver-error.techidaily.com/bus-controller-protocols-streamlined-in-win11/"><u>Bus Controller Protocols Streamlined in Win11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/friend-to-friend-game-borrowing-tips-for-the-xbox-one-console/"><u>Friend-to-Friend Game Borrowing Tips for the Xbox One Console</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/innovative-fb-ad-campaigns-boosting-patient-care/"><u>Innovative FB Ad Campaigns Boosting Patient Care</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-multiple-languages-with-help-from-googled-editors-mondly/"><u>Mastering Multiple Languages with Help From Googled Editors - Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-editor-choice-for-enhanced-language-acquisition/"><u>Mondly's Editor Choice for Enhanced Language Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-lifespan-in-learning-7-triumphant-years/"><u>Mondly's Lifespan in Learning: 7 Triumphant Years</u></a></li>
-<li><a href="https://win11.techidaily.com/offline-entertainment-unlimited-quick-download-movies-shows-songs-and-special-features-for-on-the-go-viewing/"><u>Offline Entertainment Unlimited: Quick-Download Movies, Shows, Songs, and Special Features for On-The-Go Viewing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/reflecting-on-10-years-mondlybacks-filters-evolution/"><u>Reflecting on 10 Years: MondlyBack's Filters Evolution</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/usic-mastery-essentials-high-quality-dj-video-samples-for-2024/"><u>[New] Music Mastery Essentials High-Quality DJ Video Samples for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-unleashing-potential-advanced-tiktok-visual-enhancements/"><u>[Updated] In 2024, Unleashing Potential Advanced TikTok Visual Enhancements</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-minute-blitz-for-fluency-in-urdu-language/"><u>10-Minute Blitz for Fluency in Urdu Language</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-achieve-social-stardom-essential-tips-for-thriving-instagram-unboxings/"><u>2024 Approved Achieve Social Stardom Essential Tips for Thriving Instagram Unboxings</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-best-screen-capture-alternatives-for-the-cost-conscious-user/"><u>2024 Approved Best Screen Capture Alternatives for the Cost-Conscious User</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-defying-language-acquisition-tips/"><u>Age-Defying Language Acquisition Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparing-brazilian-and-european-portuguese/"><u>Comparing Brazilian And European Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-cultural-gratitude-thanking-in-30-languages-154/"><u>Cross-Cultural Gratitude: Thanking in 30 Languages (154)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-german-a-foundational-guide-for-language-enthusiasts/"><u>Deciphering German: A Foundational Guide for Language Enthusiasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/discover-the-art-of-quickly-tweaking-game-characters-voices-in-pubg/"><u>Discover the Art of Quickly Tweaking Game Characters' Voices in PUBG</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/and-inexpensive-techniques-for-youtube-cards/"><u>Easy and Inexpensive Techniques for YouTube Cards</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-of-romance-classic-italian-flirting-techniques/"><u>Echoes of Romance: Classic Italian Flirting Techniques</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-overcome-game-lag-issues-on-dying-light-action-survival-platformer/"><u>How to Overcome Game Lag Issues on Dying Light Action Survival Platformer</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-advanced-audio-softening-techniques-for-the-proficient-user-on-lumafusion/"><u>In 2024, Advanced Audio Softening Techniques for the Proficient User on Lumafusion</u></a></li>
+<li><a href="https://fox-search.techidaily.com/mastering-windows-10-restoration-bypass-the-limits-with-go-backless-techniques/"><u>Mastering Windows 10 Restoration: Bypass the Limits with Go-Backless Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581376421-quick-latvian-language-drills-10-minutesday/"><u>Quick Latvian Language Drills, 10 Minutes/Day!</u></a></li>
 </ul></div>
 

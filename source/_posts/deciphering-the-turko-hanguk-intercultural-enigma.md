@@ -1,7 +1,7 @@
 ---
 title: Deciphering the Turko-Hanguk Intercultural Enigma
-date: 2024-08-08T09:24:11.535Z
-updated: 2024-08-09T09:24:11.535Z
+date: 2024-11-30T17:29:04.631Z
+updated: 2024-12-03T17:03:03.714Z
 tags:
   - speak
   - english
@@ -25,8 +25,9 @@ thumbnail: https://thmb.techidaily.com/918241799e85f81dec9b4161207ab0693452bcd53
  Before exploring the intriguing points of intersection between Turkish and Korean, it’s important to look back at their historical roots.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### The Turkish Language
 
  The Turkish language (or “Türkçe” – as the Turkish people would say) is the most widely spoken Turkic language, with around 100 million native speakers worldwide. Turkish is a part of the Oghuz branch of the Turkic language family, along with Azerbaijani, Turkmen, and Qashqai.
@@ -52,8 +53,9 @@ thumbnail: https://thmb.techidaily.com/918241799e85f81dec9b4161207ab0693452bcd53
 ![k-pop](https://media.giphy.com/media/McOXfLCpYA6mAQkKDj/giphy-downsized-large.gif "Unveiling The Intriguing Relationship Between Turkish And Korean Languages 2")
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Controversial Altaic Language Family
 
  The major point of intersection between Turkish and Korean is what some linguists call the Altaic language family. But why is it controversial?
@@ -76,9 +78,6 @@ thumbnail: https://thmb.techidaily.com/918241799e85f81dec9b4161207ab0693452bcd53
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9782&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9782&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9782&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9782&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9782%26mt%3D8)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Similarities Between Turkish and Korean
 
  The Altaic family controversy was born mainly because of the remarkable linguistic features Turkish and Korean share. When you get to discover how similar these two languages actually are, you begin to understand why some experts strongly believe there’s a potential historical connection between them. (And you probably start to believe in it yourself.)
@@ -87,9 +86,6 @@ thumbnail: https://thmb.techidaily.com/918241799e85f81dec9b4161207ab0693452bcd53
 
  So, she watches K-dramas on Netflix in their original Korean with subtitles. The thing is – and you’re not gonna believe this – she claims to understand some of the Korean words and phrases used in the dialogue that – she says – are similar to Turkish. The thing is the woman speaks not a word of Korean. Isn’t this crazy? Aren’t Turkish and Korean supposed to be two completely different languages with completely different alphabets?
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![k-drama](https://media.giphy.com/media/3owzW9z4FkO6WzGIBW/giphy.gif "Unveiling The Intriguing Relationship Between Turkish And Korean Languages 4")
 
  Well, as it turns out, that’s not entirely true.**Turkish and Korean share a lot of similarities:**
@@ -114,6 +110,10 @@ Do you see now why some people still support the Altaic theory?
 
  Nevertheless, it was not until later that the young generations in Turkey developed a passion for Korean culture (and vice-versa, more recently).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Korean Pop Culture in Turkish Society
 
  Both Turkish and Korean enjoy an increasing worldwide popularity thanks to their TV series. Because yes, Turkish TV series have started to take the world by storm in the last couple of years.
@@ -122,10 +122,11 @@ Do you see now why some people still support the Altaic theory?
 
 [According to X](https://blog.twitter.com/en%5Fus/topics/insights/2022/-kpoptwitter-reaches-new-heights-with-7-8-billion-global-tweets) (formerly Twitter), Turkey is in the top 20 countries tweeting most about K-pop. If that doesn’t say something, I don’t know what will.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![K-pop in Turkey](https://edge.mondly.com/blog/wp-content/uploads/2024/01/kpop-in-turkey-960x540.jpg "Unveiling The Intriguing Relationship Between Turkish And Korean Languages 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The young generations in Turkey are such big fans of Hallyu that, in 2021, three girls fled their home in Istanbul to go to South Korea. Their action resulted in an investigation started by the Ministry of Family and Social Affairs in Turkey on the influence of K-pop and K-drama on Turkish youth.
 
@@ -151,6 +152,10 @@ Coming Soon
 
  The study contrasts the evolution of the Transeurasian languages with Chinese languages, attributing their development to separate agricultural practices. Additionally, it underlines that the formation of the Transeurasian (Altaic iteration) language family was not only the result of a single Neolithic migration but involved complex, prolonged interactions and mixing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Turkish-Korean Connection – A Mystery
 
 **Are Turkish and Korean part of a single language family?** Given the very little historical evidence, we can’t know for sure yet.
@@ -161,16 +166,10 @@ Coming Soon
 
 Before you go, make sure to check out these FAQs.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### How has the historical relationship between Turkey and Korea influenced their languages?
 
  The Korean Wave has influenced an increased interest in learning the Korean language in Turkey. Educational Turkish institutions and language centers have started offering Korean language courses to cater to this growing interest.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ### Are there any language learning resources available for those interested in Turkish and Korean?
 
  Mondly is one of the few language learning resources that allow you to learn both Turkish and Korean with one single app.
@@ -185,8 +184,9 @@ Before you go, make sure to check out these FAQs.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Learn both Turkish and Korean with one app
 
  Do you think Turkish and Korean are equally fascinating? Do you want to learn both languages in one go? Try Mondly, the award-winning language app that can teach you both.
@@ -209,8 +209,6 @@ Before you go, make sure to check out these FAQs.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -218,6 +216,24 @@ Before you go, make sure to check out these FAQs.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-how-to-document-your-nintendo-switch-adventures/"><u>[New] 2024 Approved How to Document Your Nintendo Switch Adventures</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-uploading-success-stories-mastering-igtv-content-posting/"><u>[New] In 2024, Uploading Success Stories Mastering IGTV Content Posting</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-navigating-the-landscape-of-fb-med-ad-optimization/"><u>[Updated] Navigating the Landscape of FB Med Ad Optimization</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-invisible-observers-the-ultimate-list-of-apps/"><u>2024 Approved Invisible Observers The Ultimate List of Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-century-and-more-in-free-daily-wisdom/"><u>A Century & More in Free Daily Wisdom</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-x9b-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/eliminate-lag-in-naraka-bladesport-a-comprehensive-solution/"><u>Eliminate Lag in Naraka Bladesport: A Comprehensive Solution</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-on-apple-iphone-13-pro-by-drfone-ios/"><u>How To Remove the Two Factor Authentication On Apple iPhone 13 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-advantages-and-motivations/"><u>Mastering English: Advantages and Motivations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-urdu-fast-one-short-session-daily/"><u>Mastering Urdu Fast: One Short Session Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-years-pledges-from-idea-to-action/"><u>New Year's Pledges: From Idea to Action</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-asian-tongues-leading-three-countries/"><u>Premier Asian Tongues: Leading Three Countries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seduction-syntax-romantic-german-words/"><u>Seduction Syntax: Romantic German Words</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unlock-humor-potential-with-kapwings-designer/"><u>Unlock Humor Potential with Kapwing’s Designer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verbale-reue-im-deutschen-praktizieren/"><u>Verbale Reue Im Deutschen Praktizieren</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabverve-at-dubai-2020-pioneering-multilingualism/"><u>VocabVerve at Dubai 2020: Pioneering Multilingualism</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Daily Slices of Success: Learn Slovak Online, 10 Minutes Each"
-date: 2024-08-08T09:28:25.475Z
-updated: 2024-08-09T09:28:25.475Z
+date: 2024-12-02T22:19:18.461Z
+updated: 2024-12-03T23:39:44.911Z
 tags:
   - speak
   - english
@@ -21,8 +21,9 @@ thumbnail: https://thmb.techidaily.com/18a804e379d2e35c3dce7adfbd6c31163356bdf9f
  Consisting of super fun, efficient and accessible language lessons, the new Slovak course is now available on [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4562&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4562?mother%5Flang=en%5Fus?target%5Flang=sk&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4562?mother%5Flang=en%5Fus?target%5Flang=sk) ,[Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4562&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4562?mother%5Flang=en%5Fus?target%5Flang=sk&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4562?mother%5Flang=en%5Fus?target%5Flang=sk) and [web](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4562&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4562?mother%5Flang=en%5Fus?target%5Flang=sk&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4562?mother%5Flang=en%5Fus?target%5Flang=sk) .
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Slovak language in a nutshell
 
  Slovak or alternatively Slovakian, is a West Slavic language of the Czech–Slovak group closely related to Czech, Polish, and the Sorbian languages of eastern Germany. Slovak is the official language of Slovakia and one of the 24 official languages of the European Union.
@@ -31,16 +32,18 @@ thumbnail: https://thmb.techidaily.com/18a804e379d2e35c3dce7adfbd6c31163356bdf9f
 
  However, the [earliest-known attempts](https://en.wikipedia.org/wiki/History%5Fof%5Fthe%5FSlovak%5Flanguage) to increase the use of written Slovak came in the 17th and 18th centuries, when the language was standardized and the first important books in and about Slovak appeared. Probably the most important among these were _The [Czech](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Grammar_ (1603) and Romuald Hadvabný of Červený Kláštor’s_Latin-Slovak Dictionary_ (1763).
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![slovak language course](https://edge.mondly.com/blog/wp-content/uploads/2020/03/slovak-language-course-277x600.jpg "Learn Slovak Online In Just 10 Minutes A Day 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Learn Slovak with Mondly
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Slovak vs Czech – how similar are they?
 
  As you probably already know, the sister language of Slovak is Czech (also available to [learn in Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4562&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4562?mother%5Flang=en%5Fus?target%5Flang=cs&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4562?mother%5Flang=en%5Fus?target%5Flang=cs) ) because of their very high degree of mutual intelligibility. Meaning, if you already know one language you will probably understand a great deal of the second.
@@ -52,8 +55,9 @@ thumbnail: https://thmb.techidaily.com/18a804e379d2e35c3dce7adfbd6c31163356bdf9f
  Other languages that share history and vocabulary with Slovak are Latin, German, Czech, Hungarian,[Polish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Greek.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10 basic Slovak phrases and words you can learn right now
 
  Are you excited to learn Slovak yet? Did you know that Slovak uses the Latin script supplemented with diacritics and has a total of 46 letters? It is**the longest Slavic and European alphabet!**
@@ -77,8 +81,9 @@ thumbnail: https://thmb.techidaily.com/18a804e379d2e35c3dce7adfbd6c31163356bdf9f
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Start learning Slovak today
 
  It can be really tricky to master Slovak pronunciation if you don’t actively live in Slovakia. But with Mondly, the award-winning language learning app, you’ll have access to a unique, fast and highly efficient learning method that allows you to learn Slovak naturally with practical topics, authentic conversations and bite-sized Daily Lessons.
@@ -93,8 +98,6 @@ thumbnail: https://thmb.techidaily.com/18a804e379d2e35c3dce7adfbd6c31163356bdf9f
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -102,6 +105,22 @@ thumbnail: https://thmb.techidaily.com/18a804e379d2e35c3dce7adfbd6c31163356bdf9f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-tweet-to-tune-video-to-audible-file/"><u>[New] Tweet-to-Tune Video to Audible File</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-behind-the-scenes-filmmaking-tips-from-youtube-experts/"><u>[Updated] Behind-the-Scenes Filmmaking Tips From YouTube Experts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-the-weave-of-wisdom-mastering-looms-tech/"><u>[Updated] The Weave of Wisdom Mastering Loom's Tech</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-top-tech-tool-extract-facebook-videos-as-mp4/"><u>[Updated] Top Tech Tool Extract Facebook Videos as MP4</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/australian-vernacular-vocabulary-compendium/"><u>Australian Vernacular Vocabulary Compendium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embark-on-spanish-numerals-1-10/"><u>Embark on Spanish Numerals 1-10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gratitude-across-cultures-thank-you-phrases-in-30-languages-154/"><u>Gratitude Across Cultures: Thank-You Phrases in 30 Languages (154)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartfelt-temptation-italian-courtship-expressions/"><u>Heartfelt Temptation: Italian Courtship Expressions</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-repair-non-functional-pebble-sound-systems-easily/"><u>How to Repair Non-Functional Pebble Sound Systems Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-communication-through-turkey-and-korea/"><u>Intercultural Communication Through Turkey and Korea</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/investigating-whether-chatgpt-can-be-involved-in-malware-design-processes/"><u>Investigating Whether ChatGPT Can Be Involved in Malware Design Processes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-champions-innovation-seizes-award/"><u>Mondly Champions Innovation, Seizes Award</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/renewed-set-of-interview-starters-for-attractive-listenership-for-2024/"><u>Renewed Set of Interview Starters for Attractive Listenership for 2024</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-meizu-21-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-asian-linguistic-titans-unveiled/"><u>Top 3 Asian Linguistic Titans Unveiled</u></a></li>
+</ul></div>
 

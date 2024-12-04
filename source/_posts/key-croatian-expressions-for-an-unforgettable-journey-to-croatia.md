@@ -1,7 +1,7 @@
 ---
 title: Key Croatian Expressions for an Unforgettable Journey to Croatia
-date: 2024-11-17T16:10:04.891Z
-updated: 2024-11-24T21:47:42.808Z
+date: 2024-12-02T21:14:46.233Z
+updated: 2024-12-03T20:38:16.840Z
 tags:
   - speak
   - english
@@ -62,11 +62,11 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 
 ![croatian phrasebook](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-phrasebook-1024x683.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 2")
 
- “Plitvice Lakes National Park” by Jonatan Pie©
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ “Plitvice Lakes National Park” by Jonatan Pie©
 
 ## 2\. Basic Croatian phrases for travelers that need help
 
@@ -86,6 +86,10 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 * Please stop here. –_Stanite ovdje, molim._
 * Please wait a moment. –_Pričekajte trenutak, molim Vas._
 * I’ll be back immediately. –_Odmah se vraćam._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Croatian phrases for food lovers
 
@@ -108,10 +112,6 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 * I would like a coffee. –_Rado bih kavu._
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Basic Croatian for travelers who need a place to spend the night
 
  Finding the perfect place to stay can get stressful sometimes. Now imagine you found the perfect place on Airbnb, but the host only**speaks Croatian.** It wouldn’t hurt knowing some**basic Croatian** in this situation, would it?
@@ -131,6 +131,10 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 
 ![croatian to english](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-to-english-960x766.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Cavtat, Croatia” by Conor Rees©
 
 * Is there a pub here? –_Ima li ovdje pub?_
@@ -141,10 +145,6 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 * How much does a ticket cost? –_Kolika je cijena karte?_
 * One ticket, please. –_Jednu kartu bih Vas molio._
 * Are there seats available? –_Ima li slobodnih mjesta?_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. Croatian phrases about love
 
@@ -168,13 +168,13 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 ![croatian words](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-words-1024x682.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Primošten, Croatia” by Hrvoje Klaric©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Learn Croatian for your shopping sprees
@@ -256,16 +256,24 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-webster.techidaily.com/comment-desactiver-onedrive-efficacement-les-5-meilleures-methodes/"><u>« Comment Désactiver OneDrive Efficacement : Les 5 Meilleures Méthodes »</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-boosting-video-impact-integrating-free-luts-into-your-obs-workflow/"><u>[Updated] Boosting Video Impact Integrating Free LUTs Into Your OBS Workflow</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-full-length-video-view-remove-youtube-preview-for-2024/"><u>[Updated] Full-Length Video View Remove YouTube Preview for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-professional-thumbnail-creation-for-youtube-macos-style/"><u>2024 Approved Professional Thumbnail Creation for YouTube (macOS Style)</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/branding-breakthrough-constructing-logos-for-podcasts/"><u>Branding Breakthrough Constructing Logos for Podcasts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-edunet-at-bett-2022-bridging-educator-communities-worldwide/"><u>Global Edunet at BETT 2022: Bridging Educator Communities Worldwide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-app-for-oculus-quest-mondlys-latest-feature/"><u>Language App for Oculus Quest - Mondly's Latest Feature</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/shanty-speak-for-the-swashbuckler-essential-pirate-words/"><u>Shanty-Speak for the Swashbuckler: Essential Pirate Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speech-recognition-revolutionizing-augmented-interaction/"><u>Speech Recognition: Revolutionizing Augmented Interaction</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-revolutionary-ai-chat-experience-has-arrived/"><u>The Revolutionary AI Chat Experience Has Arrived</u></a></li>
-<li><a href="https://discover-best.techidaily.com/vhsdvd2/"><u>VHSからDVDへ直接録画：2つのシンプルな変換手段</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-streamlabs-rival-in-the-eye-of-a-streamer/"><u>[New] Streamlabs' Rival in the Eye of a Streamer</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-harmonizing-hit-hits-building-the-perfect-youtube-soundtrack-for-2024/"><u>[Updated] Harmonizing Hit Hits Building the Perfect YouTube Soundtrack for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-optimization-for-new-vloggers/"><u>2024 Approved YouTube Optimization for New Vloggers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussteigende-verabschiedungssprunge-im-deutschen/"><u>Aussteigende Verabschiedungssprünge Im Deutschen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendre-les-vaisseaux-du-corps-anatomie-simplifiee-en-francais/"><u>Comprendre Les Vaisseaux Du Corps: Anatomie Simplifiée en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-difficult-dialogues-pronunciation-techniques-unveiled/"><u>Decoding Difficult Dialogues: Pronunciation Techniques Unveiled</u></a></li>
+<li><a href="https://fox-where.techidaily.com/get-your-free-bootable-data-rescue-app-specifically-designed-for-windows-11-systems/"><u>Get Your FREE Bootable Data Rescue App Specifically Designed for Windows 11 Systems</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-get-the-newest-version-of-canoscan-lide-120-scanner-driver-downloaded-for-easy-setup/"><u>How to Get the Newest Version of CanoScan LiDE 120 Scanner Driver Downloaded for Easy Setup</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-stolen-apple-iphone-x-in-different-conditionsin-by-drfone-ios/"><u>In 2024, How To Unlock Stolen Apple iPhone X In Different Conditionsin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-proficiency-prowess-countdown-to-6-benefits/"><u>Language Proficiency Prowess: Countdown to #6 Benefits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-liberation-unleashing-the-potential-in-your-forties-through-language-learning/"><u>Linguistic Liberation: Unleashing the Potential in Your Forties Through Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-journey-to-linguistic-excellence-the-2022-leader/"><u>Mondly’s Journey to Linguistic Excellence - The 2022 Leader</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearson-and-mondly-unite-for-superior-gsl-excellence/"><u>Pearson & Mondly Unite for Superior GSL Excellence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/propel-business-forward-expertise-in-corporate-discourse-training/"><u>Propel Business Forward: Expertise in Corporate Discourse Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rising-sun-talk-exchanging-good-morning-across-cultures/"><u>Rising Sun Talk: Exchanging 'Good Morning' Across Cultures</u></a></li>
+<li><a href="https://win-able.techidaily.com/smooth-sailing-ahead-resolving-game-crashes-on-sea-of-thieves/"><u>Smooth Sailing Ahead - Resolving Game Crashes on Sea of Thieves</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/step-by-step-initiating-instagram-live-shows-for-2024/"><u>Step-by-Step Initiating Instagram Live Shows for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/step-by-step-screencasting-team-virtual-gatherings-for-2024/"><u>Step-by-Step Screencasting Team Virtual Gatherings for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/trasforma-i-tuoi-file-wma-in-aac-gratuitamente-su-internet-utilizzando-leditor-movavi/"><u>Trasforma I Tuoi File WMA in AAC Gratuitamente Su Internet Utilizzando L'editor Movavi</u></a></li>
 </ul></div>
 

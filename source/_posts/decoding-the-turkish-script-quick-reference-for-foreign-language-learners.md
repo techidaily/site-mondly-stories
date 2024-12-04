@@ -1,7 +1,7 @@
 ---
 title: "Decoding the Turkish Script: Quick Reference for Foreign Language Learners"
-date: 2024-08-08T09:25:32.925Z
-updated: 2024-08-09T09:25:32.925Z
+date: 2024-11-27T20:12:41.653Z
+updated: 2024-12-04T00:15:35.098Z
 tags:
   - speak
   - english
@@ -23,18 +23,20 @@ thumbnail: https://thmb.techidaily.com/62017b9a75f2be738008dfd82e88e32736119212b
  But Turkish didn’t always use the Latin script. Let’s look a little bit at the history and see how today’s Turkish alphabet was born.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Turkish alphabet – a short history
 
  The Turkik languages have a long history of [writing systems](https://en.wikipedia.org/wiki/Turkish%5Falphabet) . Over time, these languages have been written using different alphabets like Cyrillic, Uyghur, Greek, Arabic, Latin and some other Asiatic writing systems.
 
  But when it comes to Turkish, **the earliest proof of a Turkish alphabet goes back to the 7th century** when the Orkhon script was used. Then, **for over 1,000 years, the Turkish language was written using a Turkish form of the Arabic script.** That is also probably why some people believe that Turks speak Arabic.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![turkish language](https://edge.mondly.com/blog/wp-content/uploads/2019/10/turkish-language-1024x713.jpg "Turkish Alphabet And Pronunciation: A Quick Guide 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “The Blue Mosque, Istanbul, Turkey” by Adli Wahid©
 
@@ -45,13 +47,9 @@ thumbnail: https://thmb.techidaily.com/62017b9a75f2be738008dfd82e88e32736119212b
  Fortunately, **in 1928, Mustafa Kemal Atatürk, the founder of the Turkish Republic, finally adopted the 29-letter Latin script as a part of his famous Reforms in Turkey – the same alphabet that Turks use today.**
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The pronunciation of each letter of the Turkish alphabet
 
  The 29-letter Turkish alphabet is modified from the Latin alphabet and it includes seven Turkish letters that are not in the English alphabet: Ç, Ğ, I, İ, Ö, Ş, and Ü. What’s more, there are also three English letters – Q, W and X – that the Turkish alphabet doesn’t have.
@@ -60,16 +58,18 @@ thumbnail: https://thmb.techidaily.com/62017b9a75f2be738008dfd82e88e32736119212b
 
  As already mentioned, Turkish is an almost entirely phonetic language, so once you master the pronunciation of each of its 29 letters, you’ll know exactly how to read in Turkish. Let’s dive in and discover the pronunciation of the Turkish alphabet:
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![turkish alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2019/10/turkish-alphabet-pronunciation-scaled-960x679.jpg "Turkish Alphabet And Pronunciation: A Quick Guide 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The pronunciation of the 29 letters of the Turkish alphabet
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Rules to help you get started with Turkish
 
  Language aficionados such as yourself know that Turkish is not [the hardest language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you can learn.[The FSI](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) (Foreign Service Institute) from the US government puts **Turkish on the fourth tier of their Interagency Language Roundtable (IRL) with 1100 hours or 44 weeks of study needed to achieve professional working proficiency.** This means that Turkish is indeed profoundly different from English.
@@ -110,8 +110,6 @@ thumbnail: https://thmb.techidaily.com/62017b9a75f2be738008dfd82e88e32736119212b
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -119,6 +117,23 @@ thumbnail: https://thmb.techidaily.com/62017b9a75f2be738008dfd82e88e32736119212b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-accelerated-record-functionality-and-narrator-support-for-2024/"><u>[Updated] Accelerated Record Functionality & Narrator Support for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-achieve-superior-zoom-sound-2-essential-tweaks-explored/"><u>2024 Approved Achieve Superior Zoom Sound 2 Essential Tweaks Explored</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/4-ways-to-unlock-iphone-xr-to-use-usb-accessories-without-passcode-drfone-by-drfone-ios/"><u>4 Ways to Unlock iPhone XR to Use USB Accessories Without Passcode | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-friday-bonanza-learn-any-language-zero-cost/"><u>Black Friday Bonanza: Learn Any Language, Zero Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendiendo-botones-de-relojes-ensenanza-basica/"><u>Comprendiendo Botones De Relojes - Enseñanza Básica</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581448693-epic-deals-on-global-communication-today-only/"><u>Epic Deals on Global Communication Today Only!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-best-to-greatest-mondlys-journey-in-german-learning/"><u>From Best to Greatest: Mondly’s Journey in German Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-brain-power-music-driven-language-acquisition-techniques/"><u>Harmonizing Brain Power: Music-Driven Language Acquisition Techniques</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-the-two-finger-touchpad-scrolling-issue-solved/"><u>How To Fix The Two-Finger Touchpad Scrolling Issue - Solved</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-vivo-y56-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo Y56 5G without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-advanced-pip-setup-elevating-your-visual-presentations-on-macos/"><u>In 2024, Advanced PIP Setup Elevating Your Visual Presentations on macOS</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-on-apple-iphone-13-pro-maxipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock on Apple iPhone 13 Pro Max/iPad/iPod</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/is-conversational-ai-like-chatgpt-jeopardizing-personal-data-security/"><u>Is Conversational AI Like ChatGPT Jeopardizing Personal Data Security?</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/mobile-eraser-pro-the-ultimate-stellar-erase-app-for-mac-users/"><u>Mobile Eraser Pro: The Ultimate Stellar Erase App for Mac Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-precision-meets-gsl-excellence-from-pearson/"><u>Mondly's Precision Meets GSL Excellence From Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-skill-sharpen-back-button-focus/"><u>Speaking Skill Sharpen: Back Button Focus</u></a></li>
+</ul></div>
 

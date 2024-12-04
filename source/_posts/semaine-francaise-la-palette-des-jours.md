@@ -1,7 +1,7 @@
 ---
 title: "Semaine Française: La Palette Des Jours"
-date: 2024-11-17T17:56:10.917Z
-updated: 2024-11-24T19:53:40.700Z
+date: 2024-12-01T01:17:24.282Z
+updated: 2024-12-03T22:28:22.739Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/d02ecec5426e8e1f2da5e128e095f9718e5fc3c11
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Days of the week in French
@@ -78,7 +78,7 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -125,22 +125,18 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-experience-advanced-note-organization-on-mematic/"><u>[New] Experience Advanced Note Organization on Mematic</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-odins-legacy-destiny-of-ragnarok/"><u>[New] Odin's Legacy Destiny of Ragnarök</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-snapchat-soundtrack-sourcebook-choosing-from-the-best-websites/"><u>[Updated] 2024 Approved Snapchat Soundtrack Sourcebook Choosing From the Best Websites</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-social-network-power-play-understanding-igtv-vs-youtubes-dynamics/"><u>[Updated] Social Network Power Play Understanding IGTV Vs. YouTube's Dynamics</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-step-by-step-recording-slideshow-via-webcam-for-2024/"><u>[Updated] Step-by-Step Recording Slideshow via Webcam for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-nokia-g310-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Nokia G310 | Dr.fone</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/auto-translate-youtube-videos-into-different-languages-for-2024/"><u>Auto Translate YouTube Videos Into Different Languages for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/expert-insights-evaluating-the-samsung-galaxy-a71-5g-as-a-cost-effective-competitor-to-premium-phones/"><u>Expert Insights: Evaluating the Samsung Galaxy A71 5G as a Cost-Effective Competitor to Premium Phones</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/immerse-in-the-german-language-via-popular-dark-series/"><u>Immerse in the German Language via Popular Dark Series</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-infinix-note-30-vip-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Infinix Note 30 VIP? Fixed | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-nuances-between-american-and-british-cultures/"><u>Language Nuances Between American and British Cultures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/population-and-prevalence-of-french-speaking-societies/"><u>Population & Prevalence of French-Speaking Societies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapid-bengali-lessons-daily/"><u>Rapid Bengali Lessons (Daily)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/say-it-like-you-mean-it-how-to-say-i-love-you-in-32-different-languages/"><u>Say It Like You Mean It: How to Say “I Love You” In 32 Different Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/starting-urdu-learning-journey-with-keywords/"><u>Starting Urdu Learning Journey with Keywords</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-your-enterprise-via-advanced-linguistic-education/"><u>Transform Your Enterprise via Advanced Linguistic Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukranian-for-beginners-short-daily-dumps-of-talk-94-chars/"><u>Ukranian for Beginners: Short Daily Dumps of Talk (94 Chars)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-essential-cameras-of-the-year-top-10-reviewed/"><u>[Updated] Essential Cameras of the Year - Top 10 Reviewed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-naming-rules-and-guidelines-how-to-ensure-originality-in-streaming-for-2024/"><u>[Updated] Naming Rules and Guidelines How to Ensure Originality in Streaming for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eng-speaks-other-languages-a-lexical-mosaic/"><u>ENG Speaks Other Languages: A Lexical Mosaic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-students-with-dynamic-spanish-learning/"><u>Engaging Students with Dynamic Spanish Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-language-bonds-turkey-and-korea/"><u>Exploring Language Bonds: Turkey and Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-french-greetings-for-every-occasion-and-setting/"><u>Expressive French Greetings for Every Occasion & Setting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-conversationalist-essential-chinese-greeting-skills/"><u>From Novice to Conversationalist: Essential Chinese Greeting Skills</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/how-to-correctly-address-and-fix-error-0x80070652-during-a-windows-10-update/"><u>How to Correctly Address and Fix Error 0X80070652 During a Windows 10 Update</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-core-definitions-of-cyber-storytelling/"><u>In 2024, Core Definitions of Cyber Storytelling</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-tecno-spark-go-2024-by-drfone-android/"><u>In 2024, How to Bypass FRP from Tecno Spark Go (2024)?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/launching-laughter-hilarious-initiation-hints-for-2024/"><u>Launching Laughter Hilarious Initiation Hints for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/quick-guide-repairing-a-non-functional-corsair-void-mic/"><u>Quick Guide: Repairing a Non-Functional Corsair Void Mic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eygnwmwn-glwttothpeio-gkreman/"><u>Ευγνώμων Γλωττοτηπειό Γκρεμάν</u></a></li>
 </ul></div>
 

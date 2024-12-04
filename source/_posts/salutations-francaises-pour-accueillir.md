@@ -1,7 +1,7 @@
 ---
 title: Salutations Françaises Pour Accueillir
-date: 2024-11-19T20:25:53.818Z
-updated: 2024-11-24T19:29:31.178Z
+date: 2024-11-27T18:57:09.627Z
+updated: 2024-12-04T03:08:31.836Z
 tags:
   - speak
   - english
@@ -23,10 +23,6 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  However, expressing your gratitude in French is a bit more nuanced than you may expect. This is due, in large part, to the varying degrees of formality in the [French language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . In fact, there are several ways to say you’re welcome in French. It all depends on the context, who you are talking to and how well you know that person.
 
  In this quick French lesson, we’ll take you through the four most popular examples – the only ones you actually need in real life. As a result, you’ll be familiar with what they mean, when to use them and what the key differences between them actually are.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 1\. The most common “you’re welcome”:_de rien_
 
@@ -51,20 +47,20 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 ![de rien](https://edge.mondly.com/blog/wp-content/uploads/2021/05/de-rien-960x540.jpg "4 Popular Ways To Say You’re Welcome In French 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Strasbourg, France” by Patrick Robert Doyle©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. The informal “you’re welcome”:_je t’en prie_
 
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
 
  It is most common amongst very close friends and family members. This particular form is most appropriate when you want to express a higher level of gratitude than_‘de rien’_ , but with somebody close to you, with whom your relationship is casual.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The literal translation of_‘je t’en prie’_
 
@@ -76,15 +72,15 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
  B:_Je t’en prie !_ (“You’re welcome!”)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. The formal “you’re welcome”:_je vous en prie_
 
  You’ll notice that this particular way to say ‘you’re welcome’ in French is very similar to the previous example. In fact, the phrase is almost identical. The only thing that’s changed is the personal pronoun. Instead of using the informal you –_‘tu’_ – we use the formal counterpart –_‘vous’_ .
 
  This should make_‘je vous en prie’_ nice and easy to remember. Just be careful not to use it with close friends. Using_‘vous’_ will sound unnatural if you are in close company. Likewise, always use this version of you’re welcome in French if you are speaking with somebody you do not know, no matter their level of seniority.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The literal translation of_‘je vous en prie’_
 
@@ -104,13 +100,13 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
  “Southern France, Toulouse” by DAT VO©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. The easiest to remember:_pas de problème_
 
  When you’re in the early stages of [learning French](https://travel-lingual.com/how-long-take-to-learn-french/) , sometimes the most sensible thing to do is use what you can remember. The word_‘problème’_ in this particular French expression resembles the English word ‘problem’ and should not be too difficult for you to learn. Be cautious of the [French grave accent](https://travel-lingual.com/french-accent-marks/) on the_‘e’_ as this alters the pronunciation of the word.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The literal translation of_‘pas de problème’_
 
@@ -155,6 +151,10 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Speak French fluently in just 10 minutes a day
 
  **Do you want to [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) like a fluent speaker?** Get Mondly, the award-winning language learning app that will help you speak French as if you were Paris-born.
@@ -180,22 +180,16 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-enhancing-your-recording-setup-with-rl-tech-insights/"><u>[Updated] Enhancing Your Recording Setup with RL Tech Insights</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-crafting-a-memorable-look-back-experience-on-fb/"><u>2024 Approved Crafting a Memorable Look Back Experience on FB</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-hero5-black-pro-photography-and-cinematography-techniques/"><u>2024 Approved Mastering Hero5 Black Pro Photography & Cinematography Techniques</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-shake-eliminator-gear-for-handhocal-cams-2022/"><u>2024 Approved Shake Eliminator Gear for Handhocal Cams 2022</u></a></li>
-<li><a href="https://win11.techidaily.com/amplify-keystroke-speed-with-typingaid-tools/"><u>Amplify Keystroke Speed with TypingAid Tools</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-samsung-galaxy-m14-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Samsung Galaxy M14 5G to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-the-freeframe-forum-a-collectors-paradise-for-budget-friendly-backgrounds/"><u>In 2024, The FreeFrame Forum A Collector's Paradise for Budget-Friendly Backgrounds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introductory-spanish-numerical-conjugation/"><u>Introductory Spanish Numerical Conjugation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-spanish-verb-usage/"><u>Mastering the Art of Spanish Verb Usage</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/new-mac-os-video-editing-lumafusion-installation-and-top-alternatives/"><u>New Mac OS Video Editing Lumafusion Installation and Top Alternatives</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nombre-y-significado-de-cada-dia-en-espanol-desde-el-domingo-a-martes/"><u>Nombre Y Significado De Cada Día en Español: Desde El Domingo a Martes</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/quick-glance-fastest-photo-viewer-in-11-os/"><u>Quick Glance Fastest Photo Viewer in 11 OS</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/start-your-french-reading-journey-with-these-top-20-novels/"><u>Start Your French Reading Journey with These Top 20 Novels</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-days-of-the-week-in-french/"><u>The Days of the Week in French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-richness-of-language-in-macau/"><u>The Richness of Language in Macau</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-reference-for-mastering-english-grammar-conjunctions-and-contractions/"><u>The Ultimate Reference for Mastering English Grammar Conjunctions & Contractions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unleashing-linguistic-potential-mondlys-success-story-2022/"><u>Unleashing Linguistic Potential: Mondly's Success Story, 2022</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-best-8-platforms-for-professional-linux-editing/"><u>[New] 2024 Approved Best 8 Platforms for Professional Linux Editing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-elevating-dialogue-and-storytelling-in-filmmaking/"><u>[Updated] 2024 Approved Elevating Dialogue and Storytelling in Filmmaking</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-conquer-with-titans-top-7-strategic-multiplayer-battles/"><u>[Updated] Conquer with Titans Top 7 Strategic Multiplayer Battles</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-want-to-see-all-the-photos-and-videos-my-contacts-share-in-messages/"><u>2024 Approved Want to See All the Photos & Videos My Contacts Share in Messages</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-and-academic-success-what-every-student-should-steer-clear-of/"><u>ChatGPT and Academic Success: What Every Student Should Steer Clear Of</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/demystifying-kanji-your-guide-to-japanese-writing/"><u>Demystifying Kanji: Your Guide to Japanese Writing</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-fix-apple-iphone-xr-unavailable-issue-with-ease-by-drfone-ios/"><u>How To Fix Apple iPhone XR Unavailable Issue With Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-skills-superior-thinking/"><u>Multilingual Skills = Superior Thinking</u></a></li>
+<li><a href="https://win-able.techidaily.com/solving-common-audio-issues-in-halo-infinite-a-step-by-step-guide/"><u>Solving Common Audio Issues in Halo Infinite: A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-vernacular-prevails-in-israel/"><u>Which Vernacular Prevails in Israel?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shmanthseis-kalwn-eyxaimatos-gkreman/"><u>Σημαντήσεις Καλών Ευχαίματος Γκρεμάν</u></a></li>
 </ul></div>
 

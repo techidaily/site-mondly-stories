@@ -1,7 +1,7 @@
 ---
 title: "Jeringas Lingüísticos en Inglés-Español: Conjunto De 50"
-date: 2024-11-18T21:48:23.973Z
-updated: 2024-11-24T16:35:07.365Z
+date: 2024-11-28T01:54:42.978Z
+updated: 2024-12-03T22:40:00.971Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  Luckily, we are coming to your aid with a comprehensive list of some of the most common English-Spanish cognates and false Spanish cognates. Read on to understand the differences and choose the correct words for your next conversation in Spanish.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What are cognates, false cognates and false friends?
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 ![false friends words](https://edge.mondly.com/blog/wp-content/uploads/2020/04/false-friends-words-600x399.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “We are not false friends!” by Alvan Nee©
@@ -70,7 +70,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * addi**tion** and   _adi**ción**_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Spanish Cognates that change “-nt” to “-nte”
@@ -103,6 +103,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  “Mommy, what are cognates?” by Josh Applegate©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Spanish cognates that add an “-o”
 
 * academic and   _académic**o**_
@@ -132,7 +136,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * control and   _control**ar**_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Spanish cognates that change “-ly” to “-mente”
@@ -177,10 +181,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  Even experienced Spanish second-language speakers get headaches with this one. Although it looks like the English “large”,_largo_ actually means “long” in Spanish. Mind-twisting, I know.
 
 ![false cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/false-cognates-600x400.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 4")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Haha! Gotcha!” by olio creative©
 
@@ -240,24 +240,19 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-7-creative-video-concepts-to-boost-your-fitness-channel/"><u>[New] 7 Creative Video Concepts to Boost Your Fitness Channel</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-conquer-time-lapse-with-your-canon-camera/"><u>[New] In 2024, Conquer Time-Lapse with Your Canon Camera</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-discover-the-leading-sites-offering-customizable-text-flair/"><u>[New] In 2024, Discover the Leading Sites Offering Customizable Text Flair</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-excellence-in-dialogue-maker-land/"><u>[Updated] Excellence in Dialogue Maker Land</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/i-numero-italiani-uniti-da-1-a-1000-esplorazioni/"><u>I Numero Italiani Uniti: Da 1 a 1000 Esplorazioni</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-iphones-ultimate-strategy-for-seamless-podcast-downloading/"><u>In 2024, IPhone's Ultimate Strategy for Seamless Podcast Downloading</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-prime-oculus-rift-games-captivating-players-worldwide/"><u>In 2024, Prime Oculus Rift Games Captivating Players Worldwide</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-still-using-pattern-locks-with-vivo-x-flip-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Vivo X Flip? Tips, Tricks and Helpful Advice</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jours-de-la-semaine-apprendre-en-francais/"><u>Jours De La Semaine: Apprendre en Français</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-and-pearson-buttonfilters-a-new-standard-rising/"><u>Mondly & Pearson ButtonFilters: A New Standard Rising</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unites-engaging-diverse-70plus-million-learners-across-borders/"><u>Mondly Unites: Engaging Diverse 70+ Million Learners Across Borders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/official-and-vernacular-languages-in-croatia/"><u>Official and Vernacular Languages in Croatia</u></a></li>
-<li><a href="https://win11.techidaily.com/tackling-system-hardware-errors-in-w11w10/"><u>Tackling System Hardware Errors in W11/W10</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-expressing-friendliness-in-mandarin/"><u>The Essentials of Expressing Friendliness in Mandarin</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-learning-finnish-from-home/"><u>The Ultimate Guide to Learning Finnish From Home</u></a></li>
-<li><a href="https://some-skills.techidaily.com/transform-images-into-textbooks-photo-text-editor-hacks-for-2024/"><u>Transform Images Into Textbooks Photo Text Editor Hacks for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-africas-language-tapestry/"><u>Unlocking Africa's Language Tapestry</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unmasking-the-linguistic-landscape-in-israel/"><u>Unmasking the Linguistic Landscape in Israel?</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/win10s-best-bet-for-screen-snaps-and-recordings/"><u>Win10's Best Bet for Screen Snaps and Recordings</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-ezvid-video-recorder-review/"><u>[Updated] 2024 Approved Ezvid Video Recorder Review</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-cut-buffering-time-turn-on-av1-in-youtube-settings/"><u>[Updated] Cut Buffering Time – Turn On AV1 in YouTube Settings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580359221-2022-goals-achieved-speak-like-a-native-at-half-the-cost/"><u>2022 Goals Achieved - Speak Like a Native at Half the Cost</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-step-into-virtuality-comparing-best-vr-treadmills/"><u>2024 Approved Step Into Virtuality Comparing Best VR Treadmills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-practices-learn-lithuanian-seamlessly-online/"><u>Best Practices: Learn Lithuanian Seamlessly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childhood-wellness-and-tasty-treats-google-plays-best-kids-app-mondly-kids-guide-of-2017/"><u>Childhood Wellness and Tasty Treats - Google Play’s Best Kids App, Mondly Kids Guide of 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/continental-symphony-of-african-linguistics/"><u>Continental Symphony of African Linguistics</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/elevate-your-organization-with-these-6-advanced-ai-notes-apps/"><u>Elevate Your Organization with These 6 Advanced AI Notes Apps</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-up-to-date-graphics-drivers-for-nvidias-geforce-rtx-3080-ti-on-win-11107-platforms/"><u>Get Up-to-Date Graphics Drivers for NVIDIA's GeForce RTX 3080 Ti on Win 11/10/7 Platforms</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ipad-vs-ipad-air-whats-the-difference/"><u>IPad Vs. IPad Air: What’s the Difference?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581002513-journey-to-a-new-world-start-learning-croatian-today-for-these-7-reasons/"><u>Journey to a New World – Start Learning Croatian Today for These 7 Reasons</u></a></li>
+<li><a href="https://fox-info.techidaily.com/leading-gopro-filmmaking-platforms/"><u>Leading GoPro Filmmaking Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577544885-unlock-romance-say-i-love-you-in-10plus-languages/"><u>Unlock Romance: Say I Love You In 10+ Languages</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-motorola-defy-2-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Motorola Defy 2 Has Black Screen of Death? | Dr.fone</u></a></li>
 </ul></div>
 

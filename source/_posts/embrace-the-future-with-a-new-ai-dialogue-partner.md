@@ -1,7 +1,7 @@
 ---
 title: Embrace the Future with a New AI Dialogue Partner
-date: 2024-08-08T09:25:55.778Z
-updated: 2024-08-09T09:25:55.778Z
+date: 2024-12-02T02:56:13.355Z
+updated: 2024-12-03T18:18:52.983Z
 tags:
   - speak
   - english
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/597edf717990ca62361393de3d070cd39e4e090d7
 
  Ever wished for a tutor that’s available 24/7 and helps you build your confidence when speaking English? We’ve got good news for you. **Soon you’ll have the opportunity to practice your English language skills with your new AI Conversation Partner.** The waitlist is now open and you can register to be among the first learners to meet LUNA.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Get Ready To Meet Your New Ai Conversation Partner 2")
 
 ##### Join the waitlist now
@@ -40,8 +37,9 @@ thumbnail: https://thmb.techidaily.com/597edf717990ca62361393de3d070cd39e4e090d7
  Mondly by Pearson’s new AI conversation partner changes all of this. An innovative new way to take you one step closer to achieving your language goals. Say hello to LUNA.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why LUNA?
 
 * LUNA is powered by AI. So she will not judge you, speak over you, try to complete your sentence, or get bored. She will listen, respond, help you understand when you don’t get it 100% right, and she will do that as many times as you need to build your confidence.
@@ -57,8 +55,9 @@ thumbnail: https://thmb.techidaily.com/597edf717990ca62361393de3d070cd39e4e090d7
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### About Mondly by Pearson
 
  Mondly by Pearson is a leading online language learning platform that enables over 100 million learners from 190 countries to learn 41 languages. Launched in 2014, it quickly became a household name in the mobile space, reaching the #1 position in Education in most European countries, LATAM and Asia. Mondly is also a pioneer in VR Education, with its most recent launch on Meta Quest being in the top 10 VR apps worldwide.
@@ -73,8 +72,6 @@ thumbnail: https://thmb.techidaily.com/597edf717990ca62361393de3d070cd39e4e090d7
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -82,6 +79,19 @@ thumbnail: https://thmb.techidaily.com/597edf717990ca62361393de3d070cd39e4e090d7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-audacity-on-mac-a-beginners-guide-to-recording-audio-for-2024/"><u>[New] Audacity on Mac A Beginner's Guide to Recording Audio for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-downloading-the-latest-hits-top-youtube-playlist-savers-for-pc-for-2024/"><u>[Updated] Downloading the Latest Hits Top YouTube Playlist Savers for PC for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsche-entschuldigungsfloskel-erlernen/"><u>Deutsche Entschuldigungsfloskel Erlernen</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/discover-prime-spots-to-purchase-quality-mobile-devices/"><u>Discover Prime Spots to Purchase Quality Mobile Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-budget-friendly-secret-to-superior-sound-amazon-basics/"><u>Discover the Budget-Friendly Secret to Superior Sound: Amazon Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579786685-instant-language-proficiency-master-slovak-in-just-ten-minutes/"><u>Instant Language Proficiency? Master Slovak in Just Ten-Minutes!</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/launchpad-logic-the-complete-framework-for-founders-of-a-reviews-channel-for-2024/"><u>Launchpad Logic The Complete Framework for Founders of a Reviews Channel for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-up-with-confidence-9-proven-english-speaking-strategies/"><u>Speak Up with Confidence: 9 Proven English-Speaking Strategies</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-selection-of-ipad-air-sleeves-expert-evaluation-and-recommendations-engadget/"><u>Ultimate Selection of iPad Air Sleeves : Expert Evaluation & Recommendations | Engadget</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-global-communication-late-is-just-a-number/"><u>Unlocking Global Communication: Late Is Just a Number</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unveiling-the-top-9-powerful-chatgpt-tools/"><u>Unveiling the Top 9 Powerful ChatGPT Tools</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unveiling-top-tier-displays-optimize-your-xbox-series-x-gaming-for-2024/"><u>Unveiling Top-Tier Displays - Optimize Your Xbox Series X Gaming for 2024</u></a></li>
+</ul></div>
 

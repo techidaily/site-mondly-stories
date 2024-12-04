@@ -1,7 +1,7 @@
 ---
 title: "Embark on Arabic: Beginner's Pathway"
-date: 2024-08-08T09:25:08.696Z
-updated: 2024-08-09T09:25:08.696Z
+date: 2024-11-29T21:23:43.600Z
+updated: 2024-12-04T00:23:10.215Z
 tags:
   - speak
   - english
@@ -35,20 +35,19 @@ thumbnail: https://thmb.techidaily.com/6a18129a35160648e7ff206817c86c3e7a35764f1
 I’d really stick by these if I were you!
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Decision time
 
  Ok, you can’t really learn all the Arabic, since there are many types of it (Palestinian, Iraqi, Egyptian, Levantine). To be more precise, there’s the mother tongue, which is the official language, but also different accents and a lot of pronunciations depending on the locale. So, choose the type of Arabic you want to learn in relation to the region/regions you are interested in. There’s also Modern Standard Arabic, one of the official languages of the UN.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Commence with just the basics
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![arabic bead necklace](https://edge.mondly.com/blog/wp-content/uploads/2022/01/arabic-bead-necklace-960x640.jpg "Arabic For Beginners: A Step By Step Guide 2")
 
  ‘Arabic bead necklace’ by Carlos Eduardo de Meneses©
@@ -57,9 +56,6 @@ I’d really stick by these if I were you!
 
  So, when you encounter a written word there will be no way of knowing how to pronounce it unless you’ve heard it before. And this is where Mondly comes in handy! We provide you with real-life conversations, a speech recognition chatbot, and quality recordings. You’ll get used to Arabic words in no time. Ok, final note, you write from left to right, not the other way around.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ### Learn how to use an Arabic dictionary
 
  Ah, one of the most trusted friends of any language learner, the dictionary is here to save the day yet again. But, with Arabic things will be a little more complicated. So, in an Arabic dictionary, the words will be organized around roots made up of three letters. With me so far?
@@ -67,20 +63,26 @@ I’d really stick by these if I were you!
  In order to find a word, you need to already know its root and the letter that the root starts with, and this letter is not always the first letter in the word. So yeah, learning to use the dictionary will take some practice, but once you’ve mastered it will make things much simpler.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Start practicing and speaking
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![coworkers talking](https://edge.mondly.com/blog/wp-content/uploads/2022/01/coworkers-talking-960x640.jpg "Arabic For Beginners: A Step By Step Guide 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  ‘Coworkers’ by Mikhail Nilov©
 
  Now that you know the basics, it’s high time you started using them. But hearing and seeing isn’t nearly enough if you don’t speak too! So, start conversing in Arabic with other people. Ok, it might be difficult to find a conversation partner where you live, but then again, there are other resources out there, such as Mondly! We give you access to pre-recorded conversations that you can train with.
 
  When you do get a chance to speak Arabic live, don’t be nervous or shy. What if you don’t get the grammar right on the first try? Mistakes are there to help you learn.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Immerse yourself in the Arabic language
 
@@ -107,8 +109,6 @@ I’d really stick by these if I were you!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -116,6 +116,16 @@ I’d really stick by these if I were you!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-pushing-boundaries-with-yis-action-camera-and-4k-capture/"><u>[Updated] 2024 Approved Pushing Boundaries with Yi's Action Camera & 4K Capture</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-optimizing-audio-and-video-quality-during-zoom-recordings/"><u>2024 Approved Optimizing Audio & Video Quality During Zoom Recordings</u></a></li>
+<li><a href="https://games-able.techidaily.com/emulating-xbox-games-a-pc-experience-via-xemu/"><u>Emulating Xbox Games: A PC Experience via Xemu</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-advice-restoring-access-to-a-non-responsive-dhcp-server/"><u>Expert Advice: Restoring Access to a Non-Responsive DHCP Server</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-dialogue-deciphering-turkey-and-korea/"><u>Intercultural Dialogue: Deciphering Turkey and Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lenguaje-animal-lista-de-60-nombres-hispanoparlantes/"><u>Lenguaje Animal: Lista De 60 Nombres Hispanoparlantes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguasphere-revolutionizing-educational-vr/"><u>LinguaSphere: Revolutionizing Educational VR</u></a></li>
+<li><a href="https://games-able.techidaily.com/streamers-playlist-the-top-6-game-mix/"><u>Streamers' Playlist: The Top 6 Game Mix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-voyage-unraveling-the-bards-lingual-roots/"><u>Vocabulary Voyage: Unraveling the Bard's Lingual Roots</u></a></li>
+</ul></div>
 

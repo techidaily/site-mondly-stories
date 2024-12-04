@@ -1,7 +1,7 @@
 ---
 title: "Macau: A Study in Linguistic Convergence"
-date: 2024-11-19T18:31:34.258Z
-updated: 2024-11-24T22:31:10.760Z
+date: 2024-12-01T02:49:00.005Z
+updated: 2024-12-03T16:10:10.435Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
  Ready to find our more about the rich linguistic mosaic of Macau? Read on to discover the intriguing history behind this captivating blend of languages.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The History of Macau
 
  The current linguistic mosaic of Macau began taking shape almost 500 years ago. It all started in 1557, when**the Ming dynasty leased Macau to Portugal** as a trading post. Naturally, this marked the beginning of a significant Portuguese presence in Macau, introducing the Portuguese language and culture to the region.
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
  Furthermore, approximately two-thirds of the city’s land area consists of reclaimed land from the sea, making the territory highly urbanized.
 
  Despite its tumultuous history, Macau is the perfect example of a happy ending.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Multilingualism in Macau
 
@@ -51,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 ![Cantonese in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/cantonese.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Macanese: A Distinctive Creole Language of Macau
@@ -72,19 +80,11 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
  The linguistic connection between Macau and Portugal also results in significant movement between the two regions. According to the [2021 Macau Census](https://www.dsec.gov.mo/Censos2021/en-US/) , individuals born in Portugal make up around 0.3% of Macau’s total population, indicating a notable presence of Portuguese-born residents in Macau.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Official Portuguese Usage in Macau
 
  Despite the relatively small number of Portuguese speakers in Macau, the local government remains committed to promoting the Portuguese language. In public schools, students are taught Chinese, English, and Portuguese, reflecting the importance of these languages in the education system. Additionally, the government offers free programs to facilitate the learning of Portuguese among the general population.
 
  In official government documents, both written Portuguese and written Chinese (traditional) are used. This dual-language approach demonstrates the recognition and value given to both languages in administrative matters. In daily life, it is common to come across signs and displays in Macau that feature written Chinese and written Portuguese. This parallel use of languages is similar to the coexistence of written Chinese and British English in Hong Kong.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Cantonese: The Dominant Language of Macau
 
@@ -95,7 +95,7 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 ![multilingualism in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/multilingualism-in-macau.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Cantonese serves as the primary medium of instruction in the majority of schools in Macau. Additionally, there are mandatory classes that focus on Mandarin, ensuring students have exposure to and proficiency in the official language of China.
@@ -113,7 +113,7 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
  English is not as widely spoken in Macau compared to Cantonese. However, due to Macau’s status as popular gambling destination, English is commonly understood and spoken. Many signs, menus, and information for tourists are also available in English. Additionally, English is taught as a compulsory subject in schools, contributing to a level of English proficiency among the younger generation.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Are there any efforts to revitalize endangered languages in Macau?
@@ -156,24 +156,24 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-leading-microphone-reviews-podcastings-best/"><u>[New] In 2024, Leading Microphone Reviews Podcasting's Best</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-editorial-elegance-at-the-end/"><u>[Updated] 2024 Approved Editorial Elegance at the End</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-render-and-upload-your-youtube-video-faster/"><u>[Updated] How to Render and Upload Your YouTube Video Faster?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-pinnacle-cloud-solutions-highest-rated-reviewed/"><u>2024 Approved Pinnacle Cloud Solutions Highest-Rated Reviewed</u></a></li>
-<li><a href="https://media-tips.techidaily.com/access-your-epic-fantasy-adventure-live-play-skyrim-via-geforce-now/"><u>Access Your Epic Fantasy Adventure: Live Play Skyrim via GeForce Now!</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/crafters-guide-to-crafting-a-unique-tiktok-keyphrase-for-2024/"><u>Crafters' Guide to Crafting a Unique TikTok Keyphrase for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-samsung-galaxy-m14-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Samsung Galaxy M14 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-chatter-mastery-top-simplest-languages-guidebook/"><u>Global Chatter Mastery: Top Simplest Languages Guidebook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-leap-fast-track-bulgarian-learning/"><u>Language Leap: Fast-Track Bulgarian Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-ecosystem-foreign-words-thriving-in-eng/"><u>Linguistic Ecosystem: Foreign Words Thriving in ENG</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/making-sense-of-english-language-contractions-strategies-and-tips/"><u>Making Sense of English Language Contractions: Strategies and Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-hopes-for-the-resurrection-festival/"><u>Multilingual Hopes for the Resurrection Festival</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-threads-weaving-into-english-vocabulary/"><u>Multilingual Threads Weaving Into English Vocabulary</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oui-bienvenue-en-france-une-douceur-exprimee/"><u>Oui, Bienvenue! En France: Une Douceur Exprimée</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/refine-fluency-in-english-discourse-9-key-tactics/"><u>Refine Fluency in English Discourse – 9 Key Tactics</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolved-class-registration-issues-in-windows-10-how-to-guide/"><u>Resolved: Class Registration Issues in Windows 10 - How-To Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-with-confidence-learn-tagalog-each-day/"><u>Speak with Confidence: Learn Tagalog Each Day</u></a></li>
-<li><a href="https://win-able.techidaily.com/ultimate-guide-activating-and-setting-up-hyper-v-virtualization-in-windows-10/"><u>Ultimate Guide: Activating & Setting Up Hyper-V Virtualization in Windows 10</u></a></li>
-<li><a href="https://techtrends.techidaily.com/what-to-expect-from-your-upgrade-a-look-at-the-third-generation-apple-tv-with-ultra-hd/"><u>What to Expect From Your Upgrade: A Look at the Third Generation Apple TV with Ultra HD</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-uniting-friends-across-operating-systems-with-skype-groups/"><u>[New] Uniting Friends Across Operating Systems with Skype Groups</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nveiling-video-capabilities-dslr-or-mirrorless-in-2024/"><u>[New] Unveiling Video Capabilities DSLR or Mirrorless, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-step-up-your-content-learn-how-to-make-captivating-youtube-shorts/"><u>[Updated] In 2024, Step Up Your Content Learn How to Make Captivating YouTube Shorts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-reasons-why-learning-a-foreign-language-will-change-your-life/"><u>10 Reasons Why Learning A Foreign Language Will Change Your Life</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-step-by-step-guide-to-youtube-video-editing-mastery/"><u>2024 Approved Step by Step Guide to YouTube Video Editing Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-hidden-benefits-that-extend-beyond-communication/"><u>5 Hidden Benefits That Extend Beyond Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubre-el-corazon-humano-en-espanol-un-viaje-intrigante-desde-el-niveles-superiores-al-subterraneo/"><u>Descubre El Corazón Humano en Español: Un Viaje Intrigante Desde El Niveles Superiores Al Subterráneo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-bilingual-superpowers-6-highlighted/"><u>Exploring Bilingual Superpowers: #6 Highlighted</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-eloquence-top-tutors-for-articulation-skills/"><u>Expressive Eloquence: Top Tutors for Articulation Skills</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-google-pixel-8-pro-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Google Pixel 8 Pro Unlock Without Password</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/navigating-the-starscape-a-guide-to-influencers-for-your-needs/"><u>Navigating the Starscape A Guide to Influencers for Your Needs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ranking-nations-by-their-number-of-french-communicators/"><u>Ranking Nations by Their Number of French Communicators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-multilanguage-mastery-at-your-fingertips-top-3-platforms/"><u>Seamless Multilanguage Mastery at Your Fingertips: Top 3 Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-world-of-arabic-beckons-unveil-the-6-best-online-learning-reasons-through-mondly/"><u>The World of Arabic Beckons! Unveil the 6 Best Online Learning Reasons Through Mondly</u></a></li>
+<li><a href="https://os-tips.techidaily.com/top-24-issues-with-the-iphone-6-comprehensive-troubleshooting-guide/"><u>Top 24 Issues with the iPhone 6: Comprehensive Troubleshooting Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-tongues-of-terra-firma/"><u>Top Tongues of Terra Firma</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/unleash-your-creativity-10-top-rated-music-video-makers-for-2024/"><u>Unleash Your Creativity 10 Top-Rated Music Video Makers for 2024</u></a></li>
 </ul></div>
 

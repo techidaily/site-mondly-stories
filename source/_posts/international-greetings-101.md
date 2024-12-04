@@ -1,7 +1,7 @@
 ---
 title: International Greetings 101
-date: 2024-11-22T18:35:34.346Z
-updated: 2024-11-24T18:40:55.147Z
+date: 2024-11-27T22:00:11.948Z
+updated: 2024-12-03T21:34:48.936Z
 tags:
   - speak
   - english
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/80eceb8d178e7070d961e9242a3b69515c63dafd8
  If you want to learn more about how to say ‘hello’ in Spanish, here’s a more in-depth [guide on Spanish greetings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hello in Russian — Здравствуйте (Zdravstvuyte)
@@ -44,15 +44,15 @@ thumbnail: https://thmb.techidaily.com/80eceb8d178e7070d961e9242a3b69515c63dafd8
 
  Wanna dig deeper into Russian greetings? Here are five different ways to say [**‘hello’ in Russian**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Hello in Japanese — こんにちは (Kon’nichiwa)
 
  The same as the Spanish_hola_ ,**_Kon’nichiwa_** is a kind of universal Japanese greeting that can be used safely in all sorts of social contexts. There are two exceptions, though. Early in the morning and late at night, you should use the specific greetings dedicated to certain moments of the day. To learn more about them, check out this in-depth guide on how to say **[‘hello’ in Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
  Moreover, don’t forget that the Japanese culture is a culture of respect. If you want to go all-in and immerse yourself entirely in the Japanese culture, it’s best to [study Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) etiquette before your trip.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Hello in Korean — 안녕하세요 (Annyeonghaseyo)
 
@@ -61,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/80eceb8d178e7070d961e9242a3b69515c63dafd8
 _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello. By comparison,_안녕 (Annyeong)_ is a little more informal and it’s what you should use if you want to say**‘hi’ in Korean.**
 
 ![hello in japanese](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-japanese-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Mount Fuji, Japan” by David Edelstein©
 
@@ -71,10 +75,6 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
  And France makes no exception. **The most common way to say ‘hello’ in French is definitely_Bonjour_ ,** but if you need something a little more informal, you can safely go with S_alut_ . Furthermore, if it’s getting dark, don’t forget to switch to_Bonsoir,_ which is ‘good evening’ in French.
 
  Wanna find out more? Here are [12 French greetings beyond Bonjour](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Hello in German — Hallo
 
@@ -93,6 +93,10 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 * _Abend!_
 
 ![hello in french](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-french-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Antibes, France” by Reuben Mcfeeters©
 
@@ -120,10 +124,6 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
 
  To learn more about Portuguese greetings, check out our guide on how to say [**‘** **hello’ in Portuguese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Hello in different languages
 
  Now that we’ve properly covered some of the most spoken languages in the world let’s move on to the real gold mine of**‘hello’ in different languages.** From ‘hello’ in Arabic to ‘hello’ in Catalan and even Latin, you’ll find them all here. Besides, if you want to hear them in action in real conversations, spoken by fluent speakers, you can always get Mondly. Just choose the language you always wanted to speak, and you can be conversational from day 1.
@@ -131,7 +131,7 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
 ![hello in spanish](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-spanish-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 6")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Hello” by Octavian Dan©
@@ -202,22 +202,22 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-blur-free-photography-ranked-10-best-web-editing-tools-for-2024/"><u>[New] Blur-Free Photography Ranked 10 Best Web Editing Tools for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-perfect-discord-streams-tips-and-tricks/"><u>[Updated] 2024 Approved Perfect Discord Streams Tips & Tricks</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-step-by-step-guide-for-youtube-video-editing-pros-and-amateurs-alike/"><u>[Updated] 2024 Approved Step-by-Step Guide for YouTube Video Editing Pros and Amateurs Alike</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-unveiling-the-hidden-significance-of-pfp-in-tiktok-for-2024/"><u>[Updated] Unveiling the Hidden Significance of PFP in TikTok for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/celebrated-selections-honorable-websites-for-securing-snapchat-alerts-for-2024/"><u>Celebrated Selections Honorable Websites for Securing Snapchat Alerts for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/econopcs-meet-gaming-budget-board-guide/"><u>EconoPCs Meet Gaming: Budget Board Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hablar-en-espanol-el-ciclo-de-los-dias-del-mes/"><u>Hablar en Español: El Ciclo De Los Días Del Mes</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-fix-the-allow-chrome-to-access-the-network-in-your-firewall-or-antivirus-settings-error-on-windows/"><u>How to Fix the Allow Chrome to Access the Network in Your Firewall or Antivirus Settings Error on Windows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/israel-expedition-essentials-practical-advice-and-useful-dialogue/"><u>Israel Expedition Essentials: Practical Advice & Useful Dialogue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/la-structure-corporelle-revelee-parts-in-french/"><u>La Structure Corporelle Révélée: Parts in French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastery-in-mouthage-elite-linguistic-training-plans/"><u>Mastery in Mouthage: Elite Linguistic Training Plans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/optimal-language-learning-platforms-for-success/"><u>Optimal Language Learning Platforms for Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/origins-of-the-germanic-dialektaal-voortgang/"><u>Origins of the Germanic Dialektaal Voortgang</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/seamless-conversion-tactics-switching-your-video-from-vob-to-avi-with-ease/"><u>Seamless Conversion Tactics: Switching Your Video From VOB to AVI with Ease</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sverige-mojligen-allt-i-gorelse/"><u>Sverige Möjligen: Allt I Görelse</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-dawn-of-verbalized-augmented-experiences/"><u>The Dawn of Verbalized Augmented Experiences</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/unveiling-youtubes-full-rotation-streaming-potential-for-2024/"><u>Unveiling YouTube’s Full-Rotation Streaming Potential for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-visual-virtuosity-unleashed-professional-tips-to-elevate-your-photos/"><u>[Updated] 2024 Approved Visual Virtuosity Unleashed Professional Tips to Elevate Your Photos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-motorcycle-mastery-the-top-ranked-action-cameras-for-23-riders/"><u>[Updated] Motorcycle Mastery – The Top-Ranked Action Cameras for '23 Riders</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-capturing-adventure-top-5-methods-for-screening-minecraft-on-apple-machines/"><u>2024 Approved Capturing Adventure Top 5 Methods for Screening Minecraft on Apple Machines</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/choosing-the-perfect-tablet-a-comparison-of-apples-latest-innovations-the-m1-vs-m2-ipad-pro/"><u>Choosing the Perfect Tablet: A Comparison of Apple's Latest Innovations - The M1 Vs. M2 iPad Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/conquer-broadcasting-unite-obs-and-streamlabs-for-mac/"><u>Conquer Broadcasting Unite OBS & Streamlabs for Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-pronunciation-and-expression-in-english-talk/"><u>Enhancing Pronunciation & Expression in English Talk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-verb-patterns-and-usage/"><u>Essential Spanish Verb Patterns & Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/evaluating-usefulness-of-german-vs-french-languages/"><u>Evaluating Usefulness of German vs French Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-best-language-learning-apps-for-business-grow-your-teams-skills/"><u>Explore The Best Language Learning Apps For Business | Grow Your Team's Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-asia-mastering-vietnamese-language-skills/"><u>Exploring Asia: Mastering Vietnamese Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/express-yourself-in-italian-the-most-common-greetings-explained/"><u>Express Yourself in Italian: The Most Common Greetings Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-common-ground-beyond-words-in-couples/"><u>Finding Common Ground Beyond Words in Couples</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/fixing-a-broken-snipping-feature-in-windows-operating-systems-including-windows-11-edition/"><u>Fixing a Broken Snipping Feature in Windows Operating Systems, Including Windows 11 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/free-lessons-at-your-fingertips-mondly-and-ukrainian-linguists-unite/"><u>Free Lessons at Your Fingertips: Mondly & Ukrainian Linguists Unite</u></a></li>
+<li><a href="https://article-tips.techidaily.com/innovate-with-imagery-installing-the-windows-11-movie-maker-app-for-2024/"><u>Innovate with Imagery Installing the Windows 11 Movie Maker App for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/premier-platforms-to-rework-classic-ps3-titles/"><u>Premier Platforms to Rework Classic PS3 Titles</u></a></li>
+<li><a href="https://win-superb.techidaily.com/troubleshooting-tips-how-to-fix-malfunctioning-devices-insights-from-yl-computing/"><u>Troubleshooting Tips: How to Fix Malfunctioning Devices - Insights From YL Computing</u></a></li>
 </ul></div>
 
