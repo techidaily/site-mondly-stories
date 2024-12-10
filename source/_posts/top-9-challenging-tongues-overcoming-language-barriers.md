@@ -1,7 +1,7 @@
 ---
 title: "Top 9 Challenging Tongues: Overcoming Language Barriers"
-date: 2024-11-28T02:57:00.818Z
-updated: 2024-12-03T22:23:28.677Z
+date: 2024-12-04T16:36:00.063Z
+updated: 2024-12-10T17:23:47.289Z
 tags:
   - speak
   - english
@@ -22,16 +22,12 @@ thumbnail: https://thmb.techidaily.com/3da10c18ed5eb1d81fc33e9b77c3f37bbadf61804
 
  And the award for**the most difficult language to learn** by the native English speakers goes to…**Arabic, Chinese, Japanese and Korean** ! So yeah, not just one, but four languages! As the FSI confirms, the native English speaker would need about**2200 hours or 88 weeks of study to achieve fluency** in one of these languages. Read on for more information about the hardest languages to learn for English speakers.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Arabic
 
 ![book in arabic](https://edge.mondly.com/blog/wp-content/uploads/2019/02/book-in-arabic-960x640.jpg "The 9 Hardest Languages To Learn 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Holy book in Arabic” by T Foz©
@@ -48,15 +44,15 @@ thumbnail: https://thmb.techidaily.com/3da10c18ed5eb1d81fc33e9b77c3f37bbadf61804
 
  Also, why is written Chinese one of the most difficult languages to learn? If you’re eager to discover, [start learning Chinese online](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  ! Don’t worry, we’ll begin with something easy like [“hello”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and [“thank you”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Japanese
 
  Just as hard to learn for an English native is Japanese, an isolated language that uses three separate writing systems: katakana, hiragana, and kanji (although if you are an anime fan, you might already know some words and phrases in Japanese,at least [“hello”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ).
 
 ![street in japan](https://edge.mondly.com/blog/wp-content/uploads/2019/02/street-in-Japan-960x640.jpg "The 9 Hardest Languages To Learn 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Streets of Japan” by Darren Chan©
 
@@ -66,10 +62,6 @@ thumbnail: https://thmb.techidaily.com/3da10c18ed5eb1d81fc33e9b77c3f37bbadf61804
 
  One of the most difficult languages to learn, Korean, the 13th most spoken language in the world, is also in our top. Benefitting from two different writing systems ([Hangul](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Hanja), Korean is spoken by more than 75 million people of whom 72 million live in South Korea and North Korea. What’s interesting about Korean, is the fact that there is no general consensus on the relationship of the Korean language to other languages. The most likely relationships suggested are to Japanese and to the languages of the Altaic group (Mongolian, Turkic, and Tungus).One of the [best ways to learn Korean](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is to get interested in hit shows like [Squid Game](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ! You’ll know the [days of the week in Korean](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in no time.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Polish
 
  You’ve been curious about this one. No,[German is not that hard to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) for an English speaker, but **Polish together with Icelandic, Finnish, Greek, Croatian, Turkish, and Hungarian** is. All these languages would require some**1100 hours (44 weeks) of practice** for a professional working proficiency level.
@@ -77,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/3da10c18ed5eb1d81fc33e9b77c3f37bbadf61804
 [Polish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is the most spoken Western Slavic language and the second-largest Slavic language after Russian. It has 9 letters that English does not have (ą ć ę ł ń ś ó ź ż) and it contains a great number of words borrowed from Latin,[Czech](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , German, Belarusian, and Ukrainian. Along with the other West Slavic languages, it has a fixed stress accent. In contrast to the others, however, Polish has nasalized vowels (spelled ę and ą), indirectly continuing the nasalized vowels of early Slavic.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Finnish
@@ -87,6 +79,10 @@ thumbnail: https://thmb.techidaily.com/3da10c18ed5eb1d81fc33e9b77c3f37bbadf61804
 ## 7\. Hungarian
 
  Since we mentioned complicated grammar, we couldn’t forget about Hungarian, the bane of English speakers. Boasting 26 different cases and suffixes that dictate the possession and tense instead of the word order, be ready to think differently when learning this one. Much like with Japanese, it will be doubly taxing to learn Hungarian in isolation as the cultural overtones are vital to figuring out what fluent speakers mean.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Turkish
 
@@ -105,6 +101,10 @@ thumbnail: https://thmb.techidaily.com/3da10c18ed5eb1d81fc33e9b77c3f37bbadf61804
 ![danish flag](https://edge.mondly.com/blog/wp-content/uploads/2019/02/danish-flag-960x640.jpg "The 9 Hardest Languages To Learn 4")
 
  “Danish flag at sea” by LEMUR©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Most difficult languages to learn: how to master them?
 
@@ -138,22 +138,20 @@ thumbnail: https://thmb.techidaily.com/3da10c18ed5eb1d81fc33e9b77c3f37bbadf61804
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-how-to-switch-between-normal-and-picture-in-picture-views-in-youtube/"><u>[New] 2024 Approved How to Switch Between Normal and Picture In Picture Views in Youtube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-art-of-sharing-online-videos-from-youtube-to-facebook/"><u>[New] In 2024, The Art of Sharing Online Videos From YouTube to Facebook</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-advanced-cameras-front-screen-center-stage/"><u>[Updated] Advanced Cameras Front Screen Center Stage</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-comprehensive-setup-steps-for-wm6/"><u>[Updated] Comprehensive Setup Steps for WM6</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-essential-guide-to-pre-eminent-video-conferencing-tools-for-2024/"><u>[Updated] Essential Guide to Pre-Eminent Video Conferencing Tools for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-secrets-to-standout-final-scenes-on-yt-platforms/"><u>[Updated] In 2024, Secrets to Standout Final Scenes on YT Platforms</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-in-depth-analysis-complete-overhaul-of-facetune-app/"><u>[Updated] In-Depth Analysis Complete Overhaul of Facetune App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engage-confidently-with-these-9-speaking-up-techniques/"><u>Engage Confidently with These 9 Speaking Up Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-communication-tools-for-vietnam-tours/"><u>Essential Communication Tools for Vietnam Tours</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-slavic-bonds-ukrainian-and-russian-language-analysis/"><u>Exploring Slavic Bonds: Ukrainian & Russian Language Analysis</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fast-track-fluency-in-the-polska-language/"><u>Fast-Track Fluency in the Polska Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fifty-plus-multilingualism-a-journey-worth-embarking-on/"><u>Fifty-Plus Multilingualism: A Journey Worth Embarking On</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/finding-the-best-new-language-option-for-me/"><u>Finding The Best New-Language Option for Me</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-social-etiquette-for-travelers-mastering-the-art-of-saying-hello/"><u>French Social Etiquette for Travelers: Mastering the Art of Saying Hello</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-fumbling-to-fluency-the-learning-curve/"><u>From Fumbling To Fluency - The Learning Curve</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-concoct-laughter-in-image-format-giphy-style/"><u>In 2024, Concoct Laughter in Image Format, Giphy Style</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/innovating-everyday-life-top-10-vr-accessory-guide-for-2024/"><u>Innovating Everyday Life Top 10 VR Accessory Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-hunt-for-impactful-personalities-navigating-influencer-spaces/"><u>[New] In 2024, Hunt for Impactful Personalities Navigating Influencer Spaces</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-channel-charisma-strategies-to-skyrocket-your-youtube-visibility/"><u>[Updated] Channel Charisma Strategies to Skyrocket Your YouTube Visibility</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-proven-methods-to-fully-integrate-with-languages/"><u>6 Proven Methods to Fully Integrate with Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-global-pick-of-the-day/"><u>Apple's Global Pick of the Day</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/crafting-inspiring-interview-experiences-for-2024/"><u>Crafting Inspiring Interview Experiences for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/extra-your-guide-to-joining-the-youtube-premium-club/"><u>Earn Extra Your Guide to Joining the YouTube Premium Club</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effective-solutions-to-fix-lg-usb-driver-glitches-on-windows-11-8-and-7-systems/"><u>Effective Solutions to Fix LG USB Driver Glitches on Windows 11, 8 & 7 Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-hanzi-a-primer-for-beginners/"><u>Grasping Hanzi: A Primer for Beginners</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Poco X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1728492152928-macusb/"><u>Macから写真データを効率良くUSBに転送する方法：選択肢一、二</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sweet-sonnets-the-heartbeat-of-italian-love-speeches/"><u>Sweet Sonnets: The Heartbeat of Italian Love Speeches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-easiest-languages-to-learn/"><u>Top 10 Easiest Languages to Learn</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/top-processor-performance-index-of-2024-comprehensive-cpu-ratings/"><u>Top Processor Performance Index of 2024: Comprehensive CPU Ratings</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unlock-your-phones-potential-with-ios-11-camera-tips/"><u>Unlock Your Phone's Potential with iOS 11 Camera Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wisdom-unlocked-language-learning-for-seniors/"><u>Wisdom Unlocked: Language Learning for Seniors</u></a></li>
 </ul></div>
 

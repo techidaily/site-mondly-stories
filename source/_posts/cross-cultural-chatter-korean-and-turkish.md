@@ -1,7 +1,7 @@
 ---
 title: "Cross-Cultural Chatter: Korean & Turkish"
-date: 2024-08-15T17:39:33.585Z
-updated: 2024-08-16T17:39:33.585Z
+date: 2024-12-03T16:16:10.876Z
+updated: 2024-12-10T16:10:33.282Z
 tags:
   - speak
   - english
@@ -25,8 +25,9 @@ thumbnail: https://thmb.techidaily.com/1215be7bf16e16d5f6b24b8264be95ca24fa72ef1
  Before exploring the intriguing points of intersection between Turkish and Korean, it’s important to look back at their historical roots.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### The Turkish Language
 
  The Turkish language (or “Türkçe” – as the Turkish people would say) is the most widely spoken Turkic language, with around 100 million native speakers worldwide. Turkish is a part of the Oghuz branch of the Turkic language family, along with Azerbaijani, Turkmen, and Qashqai.
@@ -39,9 +40,6 @@ thumbnail: https://thmb.techidaily.com/1215be7bf16e16d5f6b24b8264be95ca24fa72ef1
 
  Discovering more about the [modern Turkish alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) will help you understand its importance.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The Korean Language
 
  Unlike Turkish, Korean’s roots are more enigmatic. That means we don’t know much about its ancient history. However, we can say the language started its long road to becoming the Korean language we know today in ancient times, under the rule of the Three Kingdoms of Korea: Goguryeo, Baekje, and Silla.
@@ -53,8 +51,9 @@ thumbnail: https://thmb.techidaily.com/1215be7bf16e16d5f6b24b8264be95ca24fa72ef1
  In modern times, K-pop and K-dramas from South Korea have further disseminated the Korean language and culture worldwide.
 
 ![k-pop](https://media.giphy.com/media/McOXfLCpYA6mAQkKDj/giphy-downsized-large.gif "Unveiling The Intriguing Relationship Between Turkish And Korean Languages 2")
+
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Controversial Altaic Language Family
@@ -120,8 +119,9 @@ Do you see now why some people still support the Altaic theory?
 [According to X](https://blog.twitter.com/en%5Fus/topics/insights/2022/-kpoptwitter-reaches-new-heights-with-7-8-billion-global-tweets) (formerly Twitter), Turkey is in the top 20 countries tweeting most about K-pop. If that doesn’t say something, I don’t know what will.
 
 ![K-pop in Turkey](https://edge.mondly.com/blog/wp-content/uploads/2024/01/kpop-in-turkey-960x540.jpg "Unveiling The Intriguing Relationship Between Turkish And Korean Languages 5")
+
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The young generations in Turkey are such big fans of Hallyu that, in 2021, three girls fled their home in Istanbul to go to South Korea. Their action resulted in an investigation started by the Ministry of Family and Social Affairs in Turkey on the influence of K-pop and K-drama on Turkish youth.
@@ -140,6 +140,10 @@ Coming Soon
 
  No  No7 (26.92 %)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## New 2021 Study Reveals Millennia-Old Evidence on the Turkish-Korean link
 
  A [new 2021 study](https://www.reuters.com/world/china/japanese-korean-turkish-language-group-traced-farmers-ancient-china-2021-11-10/) revealed that the Transeurasian (Altaic iteration) language family, including languages like Japanese, Korean, and Turkish, originated from millet farmers in northeastern China 9,000 years ago. As you can see, the findings of the new study basically support the Altaic family theory.
@@ -148,9 +152,6 @@ Coming Soon
 
  The study contrasts the evolution of the Transeurasian languages with Chinese languages, attributing their development to separate agricultural practices. Additionally, it underlines that the formation of the Transeurasian (Altaic iteration) language family was not only the result of a single Neolithic migration but involved complex, prolonged interactions and mixing.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## The Turkish-Korean Connection – A Mystery
 
 **Are Turkish and Korean part of a single language family?** Given the very little historical evidence, we can’t know for sure yet.
@@ -161,9 +162,6 @@ Coming Soon
 
 Before you go, make sure to check out these FAQs.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### How has the historical relationship between Turkey and Korea influenced their languages?
 
  The Korean Wave has influenced an increased interest in learning the Korean language in Turkey. Educational Turkish institutions and language centers have started offering Korean language courses to cater to this growing interest.
@@ -173,8 +171,9 @@ Before you go, make sure to check out these FAQs.
  Mondly is one of the few language learning resources that allow you to learn both Turkish and Korean with one single app.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How did cultural exchange impact the connection between Turkish and Korean languages?
 
  According the historians and linguists, the direct impact of cultural exchange on the linguistic structures of Turkish and Korean is minimal. However, the recent interest in learning and appreciating each other’s languages as a result of cultural diplomacy, media exchange, and educational programs is a significant aspect of the connection between the two nations. This cultural exchange fosters a mutual understanding and respect, bridging the gap between the two cultures through language.
@@ -185,12 +184,9 @@ Before you go, make sure to check out these FAQs.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Learn both Turkish and Korean with one app
 
  Do you think Turkish and Korean are equally fascinating? Do you want to learn both languages in one go? Try Mondly, the award-winning language app that can teach you both.
@@ -213,8 +209,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -222,8 +216,26 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-the-best-cloud-storage-for-your-photos-free-and-paid-included-for-2024/"><u>[New] The Best Cloud Storage for Your Photos Free and Paid Included for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unifying-visual-experience-in-iphone-recording/"><u>[New] Unifying Visual Experience in iPhone Recording</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-simplest-scan-capture-app-on-windows-10/"><u>[Updated] In 2024, Simplest Scan-Capture App on Windows 10</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-navigating-the-world-of-android-video-snapshots/"><u>[Updated] Navigating the World of Android Video Snapshots</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-through-the-eyes-of-one-a-critical-look-at-3dr/"><u>[Updated] Through the Eyes of One A Critical Look at '3DR'</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/future-proof-tech-unveiled-the-lasting-appeal-of-modular-android-compared-to-latest-iphones-and-pixels-with-a-twist-zdnet-insights/"><u>Future-Proof Tech Unveiled: The Lasting Appeal of Modular Android Compared to Latest iPhones and Pixels, With a Twist | ZDNET Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-classroom-heroes-vocabulary-mosaic/"><u>Global Classroom Heroes: Vocabulary Mosaic</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Tecno Phantom V Fold? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-communication-standouts/"><u>International Communication Standouts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-language-in-a-playful-palette/"><u>Latin Language in a Playful Palette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/memorable-pick-up-lines-in-german-for-every-occasion/"><u>Memorable Pick-Up Lines in German for Every Occasion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestone-1500-days-of-priceless-education/"><u>Milestone: 1,500 Days of Priceless Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-offering-free-mobile-language-courses-for-millions-of-ukrainian-refugees/"><u>Mondly Is Offering Free Mobile Language Courses for Millions of Ukrainian Refugees</u></a></li>
+<li><a href="https://games-able.techidaily.com/optic-switches-vs-heavy-metal-in-games/"><u>Optic Switches Vs. Heavy Metal in Games</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/review-of-the-fujitsu-scansnap-ix1es-performance-in-home-offices-and-smbs/"><u>Review of the Fujitsu ScanSnap iX1e's Performance in Home Offices and SMBs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-new-era-of-advertising-embracing-the-metaverse/"><u>The New Era of Advertising Embracing the Metaverse</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thrilling-techniques-for-latin-learning/"><u>Thrilling Techniques for Latin Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-belgian-language-etiquette/"><u>Understanding Belgian Language Etiquette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unfolding-horizons-at-mondlylanguages-a-visionary-saga/"><u>Unfolding Horizons at MondlyLanguages - A Visionary Saga</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Break Language Barriers with Pearson Today
-date: 2024-08-15T17:38:01.695Z
-updated: 2024-08-16T17:38:01.695Z
+date: 2024-12-07T19:01:54.199Z
+updated: 2024-12-10T19:02:45.711Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/2c476a6511fdbc972cd3ba10e08b5da699f589d12
 
  Back in May 2022, Pearson announced that it had acquired Mondly to expand its reach in the language learning market and offer a full range of ways for people to learn and prove their English skills. Today,  Mondly by Pearson is stronger, more innovative and more focused than ever.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Everything you love about Mondly. Supercharged.**
 
  While our mission at Mondly remains the same, getting together with Pearson allows us to achieve our goal on a much larger scale. We will preserve the same learning experience everyone loves as we work to enhance the process and technology behind it. The aim is to harness the power of both Mondly and Pearson to supercharge language learning.
@@ -27,8 +31,9 @@ thumbnail: https://thmb.techidaily.com/2c476a6511fdbc972cd3ba10e08b5da699f589d12
  Here’s a video showcasing what brought us together and how we aim to help all of you make the most of the opportunities you are given.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Mondly by Pearson. Together.**
 
  Our union with Pearson brings together three essential principles: a commitment to the highest-quality educational materials, a belief in the transformative power of education, and an embedded culture of accessibility.
@@ -43,15 +48,17 @@ thumbnail: https://thmb.techidaily.com/2c476a6511fdbc972cd3ba10e08b5da699f589d12
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **About Pearson**
 
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **About Mondly**
 
  Mondly is a leading online language learning platform that enables over 100 million learners from 190 countries to learn 41 languages. Launched in 2014, it quickly became a household name in the mobile space, reaching the #1 position in Education in most European countries, LATAM and Asia. Mondly is also a pioneer in VR Education, with its most recent launch on Meta Quest being in the top 10 VR apps worldwide.
@@ -66,8 +73,6 @@ thumbnail: https://thmb.techidaily.com/2c476a6511fdbc972cd3ba10e08b5da699f589d12
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -75,8 +80,22 @@ thumbnail: https://thmb.techidaily.com/2c476a6511fdbc972cd3ba10e08b5da699f589d12
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-premier-listing-of-superior-free-lut-downloads/"><u>[New] Premier Listing of Superior Free LUT Downloads</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-expert-tactics-optimizing-freefire-video-content-for-2024/"><u>[Updated] Expert Tactics Optimizing FreeFire Video Content for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-office-design-evolution-trends-and-practices-for-maximum-output/"><u>[Updated] In 2024, Office Design Evolution Trends and Practices for Maximum Output</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-integrated-upload-sending-vids-to-twitter-and-tumblr/"><u>2024 Approved Integrated Upload Sending Vids to Twitter and Tumblr</u></a></li>
+<li><a href="https://win-tips.techidaily.com/1728473374816-aomei-backupper/"><u>AOMEI Backupperの機能:バックアップデータへの暗号化設定ガイド</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fixed-graphics-card-not-detected-issues/"><u>FIXED: Graphics Card Not Detected Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gsl-innovation-unveiled-the-pearson-and-mondly-duo/"><u>GSL Innovation Unveiled - The Pearson & Mondly Duo</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-as-an-lifelong-adventure-top-reasons-why-at-age-40plus-is-the-best-time-to-start/"><u>Language Learning as an Lifelong Adventure: Top Reasons Why at Age 40+ Is the Best Time to Start</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-milestone-moments-across-the-world/"><u>Mondly Milestone Moments Across the World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persian-past-unveiled-the-power-of-knowing-it/"><u>Persian Past Unveiled: The Power of Knowing It</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persuasive-prose-excellent-english-training-options/"><u>Persuasive Prose: Excellent English Training Options</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sultry-sentiments-spoken-in-french/"><u>Sultry Sentiments Spoken in French</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-5-reasons-ai-cannt-fulfill-creative-writing-demands/"><u>The 5 Reasons AI Cann't Fulfill Creative Writing Demands</u></a></li>
+<li><a href="https://techtrends.techidaily.com/turn-on-the-power-again-strategies-for-diagnosing-and-fixing-code-10-error-causes/"><u>Turn On the Power Again: Strategies for Diagnosing and Fixing Code 10 Error Causes</u></a></li>
+</ul></div>
 

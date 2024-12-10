@@ -1,7 +1,7 @@
 ---
 title: Celebrating Freedom, Spoken Everywhere
-date: 2024-08-15T17:40:29.229Z
-updated: 2024-08-16T17:40:29.229Z
+date: 2024-12-08T16:47:53.231Z
+updated: 2024-12-10T18:58:53.044Z
 tags:
   - speak
   - english
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/a0961ee471b397828689bb0499e11bd310468db6e
 
 The **4th of July** is an important day in American calendars. Lots of preparation, lots of anticipation, but what is the fuss all about? How come there is so much bustle and hustle for one day at the beginning of the hottest month, July? Let’s glimpse into the past!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **What is Independence Day USA?**
 
 241 years ago, namely in 1776, on July 4th, the American people gained their independence from British rule, signing a Declaration of Independence. Thirteen colonies under the governing and rule of Great Britain legally separated from them and became independent. From 1870 on (the year it was officially made the American National Day), year after year, the 4th of July is synonymous with American Independence Day and fireworks. American families from all over the country – and outside of it – prepare parties, parades, barbecues, carnivals, fairs, picnics, and other celebrations in order to commemorate American Independence Day.
@@ -27,8 +31,13 @@ The biggest attractions are the 4th of July fireworks. Cities all over the USA c
 ![fireworks 4th july](https://edge.mondly.com/blog/wp-content/uploads/2017/07/fireworks-4th-july.jpg "How To Say ‘Happy 4Th Of July’ In Different Languages 2")
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Say ‘Happy 4th of July’ in Various Languages
 
 Have you ever wondered how you say Happy 4th of July in other languages?
@@ -43,9 +52,6 @@ Probably not! That’s why we prepared something special for you. Below there is
 * **Turkish**: “4 Temmuz kutlu olsun!”
 * **Romanian**: “4 iulie fericit!”
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to say “Happy Independence Day” in 33 languages
 
 Now that you know how to say “Happy 4th of July” in different languages, you can also learn how to say “Happy Independence Day” in different languages, or “Happy Birthday”. As a matter of fact, if you want to be accurate, it is preferable to say “Happy Independence Day” instead of “Happy 4th of July”.
@@ -85,24 +91,19 @@ Now that you know how to say “Happy 4th of July” in different languages, you
 * **Vietnamese:** _Chúc mừng ngày độc lập_
 
 ![Learn languages free online with Mondly Learn English Spanish German French Chinese](https://edge.mondly.com/blog/wp-content/uploads/2017/05/Learn-languages-free-online-with-Mondly-Learn-English-Spanish-German-French-Chinese.png "How To Say ‘Happy 4Th Of July’ In Different Languages 3")
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **A step further**
 
 Now that you’re familiar with 33 ways of wishing Americans a “Happy Independence Day”, don’t you want to go further? [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-586&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-586&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-586) can help you! We have an app specifically designed to teach you American English and much more. Not only this, but you can also learn all of the above [33 languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) if you sign up to Mondly today!
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## American Independence Day: Did you know?
 
 According to historical documents, July 2nd is the real Independence Day of the USA, but it’s celebrated on the fourth. Why? Well, two days before the 4th of July, the Second Continental Congress voted to approve a resolution of independence. This had been proposed in June by Richard Henry Lee of Virginia. This resolution declared the United States independent from Great Britain rule. But in order to make the decision legal, they needed the Declaration of Independence, a document which had been prepared by Thomas Jefferson and a Committee of Five. Congress debated for two days and approved it on 4th of July, which was to become the American Independence Day.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ### What is the significance of the 4th of July in the United States?
 
 The 4th of July is celebrated as Independence Day in the United States. It commemorates the country's declaration of independence from Great Britain on July 4, 1776.
@@ -112,8 +113,9 @@ The 4th of July is celebrated as Independence Day in the United States. It comme
 Americans celebrate the 4th of July with various traditions and festivities. These often include fireworks displays, parades, barbecues, family gatherings, picnics, and patriotic-themed events.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Are there any alternative names for the 4th of July?
 
 In addition to being known as Independence Day, the 4th of July is sometimes referred to as America's Birthday or simply the Fourth.
@@ -136,8 +138,6 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -145,8 +145,23 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-advanced-tools-tweet-with-converted-videos/"><u>[New] 2024 Approved Advanced Tools Tweet with Converted Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-premier-5-time-lapse-camera-apps/"><u>[New] Premier 5 Time-Lapse Camera Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-optimized-video-engagement-with-peak-post-times/"><u>[Updated] Optimized Video Engagement with Peak Post Times</u></a></li>
+<li><a href="https://fox-http.techidaily.com/advanced-3d-design-for-stylish-text-creations-for-2024/"><u>Advanced 3D Design for Stylish Text Creations for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effective-strategies-for-verifying-medical-data-via-chatgpt-and-ai-platforms/"><u>Effective Strategies for Verifying Medical Data via ChatGPT & AI Platforms</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-infinix-hot-40i-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Infinix Hot 40i? Try These Fixes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-advocates-mondly-your-comprehensive-learning-companion/"><u>Google Advocates: Mondly - Your Comprehensive Learning Companion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/holidays-of-thankfulness-in-different-nations/"><u>Holidays of Thankfulness in Different Nations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-latvian-commit-to-10-daily-minutes/"><u>Jumpstart Your Latvian - Commit to 10 Daily Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/love-around-the-globe-multilingual-expressions-for-valentines-day/"><u>Love Around The Globe: Multilingual Expressions for Valentine's Day</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/peak-performance-memory-for-a7s-ii/"><u>Peak Performance Memory for A7S II</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-guide-to-french-pronunciation-how-to-speak-french-like-a-native/"><u>Quick Guide to French Pronunciation – How to Speak French Like a Native</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-updating-your-evga-gpu-drivers-in-windows/"><u>Step-by-Step Guide: Updating Your EVGA GPU Drivers in Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-to-mastering-conversational-skills/"><u>The Essential Guide to Mastering Conversational Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-6-benefits-embracing-arabic-learning-via-mondly-online/"><u>Top 6 Benefits: Embracing Arabic Learning via Mondly Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/utilizing-famebit-techniques-for-youtube-sponsorship-success-for-2024/"><u>Utilizing FameBit Techniques for YouTube Sponsorship Success for 2024</u></a></li>
+</ul></div>
 

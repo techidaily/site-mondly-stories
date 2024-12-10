@@ -1,7 +1,7 @@
 ---
 title: Empowering Ukraine's Citizens Through Learning
-date: 2024-08-08T09:31:04.443Z
-updated: 2024-08-09T09:31:04.443Z
+date: 2024-12-09T17:54:45.678Z
+updated: 2024-12-10T18:49:42.520Z
 tags:
   - speak
   - english
@@ -17,8 +17,9 @@ thumbnail: https://thmb.techidaily.com/a2ba2cec543d3cb7d73549581bf87f628b1caa22c
 ## Empowering Ukraine's Citizens Through Learning
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Language Courses for Ukrainian Refugees Program Updates – Mondly
 
  _Over half a million Ukrainian refugees learned languages with Mondly between March 2022 and May 2024\. During this period, they collectively completed over 14.5 million language lessons, helping them connect with their host communities and navigate their new environments more confidently._
@@ -53,8 +54,9 @@ _BRASOV, Romania, March 21, 2022_ **_–_ Mondly, one of the world’s leading l
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **About Mondly**
 
 Being named “ App of the Year” by Facebook, “ Best New App” by Apple, and “  Editors’ Choice” by Google Play, Mondly is a leading language learning platform with 100 million learners worldwide. Launched in 2014, it quickly became a leading app in the mobile space, reaching the #1 position in Education in most European countries, LATAM and Asia. According to Statista, Mondly is currently in the Top 5 language learning apps worldwide by number of downloads.
@@ -71,8 +73,6 @@ Being named “ App of the Year” by Facebook, “ Best New App” by Apple, an
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -80,6 +80,18 @@ Being named “ App of the Year” by Facebook, “ Best New App” by Apple, an
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/approved-leveraging-visuals-a-step-by-step-guide-for-youtube-trailers/"><u>2024 Approved Leveraging Visuals A Step-by-Step Guide for YouTube Trailers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/ideal-photo-and-video-shows-on-latest-iphone-models-xr-ios12/"><u>Ideal Photo & Video Shows on Latest iPhone Models (XR-iOS12)</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/invisible-edits-ensuring-confidentiality-in-media/"><u>Invisible Edits Ensuring Confidentiality in Media</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-quest-exciting-classroom-experiences/"><u>Latin Quest: Exciting Classroom Experiences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lundi-a-vendredi-francais/"><u>Lundi À Vendredi Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pares-linguisticos-entre-ingles-y-espanol-descubrimiento-de-50/"><u>Pares Lingüísticos Entre Inglés Y Español: Descubrimiento De 50</u></a></li>
+<li><a href="https://techtrends.techidaily.com/stealth-web-surfing-how-to-disable-tracking-across-top-internet-browsers/"><u>Stealth Web Surfing: How to Disable Tracking Across Top Internet Browsers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-10-password-cracking-tools-for-realme-gt-neo-5-se-by-drfone-android/"><u>Top 10 Password Cracking Tools For Realme GT Neo 5 SE</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-data-from-motorola-moto-g14-by-fonelab-android-recover-data/"><u>Undelete lost data from Motorola Moto G14</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-hangul-an-accessible-guide-to-asian-languages/"><u>Unlocking Hangul: An Accessible Guide to Asian Languages</u></a></li>
+</ul></div>
 

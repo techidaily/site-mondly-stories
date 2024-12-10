@@ -1,7 +1,7 @@
 ---
 title: Best Scandinavian Film Selections for Aspiring Danespeakers
-date: 2024-08-15T17:43:28.666Z
-updated: 2024-08-16T17:43:28.666Z
+date: 2024-12-06T18:11:56.476Z
+updated: 2024-12-10T17:35:39.461Z
 tags:
   - speak
   - english
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/46ff833f8451570b0da1aae3b5e240178f5309a15
 
 Grab the popcorn and enjoy!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Der kommer en dag (2016) (The Day Will Come)
 
 [**IMDb rating: 7,8**](https://www.imdb.com/title/tt4659056/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -35,8 +39,9 @@ Grab the popcorn and enjoy!
  Elmer and Erik try to become “invisible”, but that doesn’t spare them from being bullied by some of the older boys. Are they gonna find salvation? Watch it and find out.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Adams Æbler (2005) (Adam’s Apples)
 
 [**IMDb rating: 7,8**](https://www.imdb.com/title/tt0418455/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -48,8 +53,9 @@ Grab the popcorn and enjoy!
  “Adams Æbler” is a successful combination of black humor and drama guaranteed to keep you glued to the screen.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Efter brylluppet (2006) (After the Wedding)
 
 [**IMDb rating: 7,7**](https://www.imdb.com/title/tt0457655/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -61,8 +67,9 @@ Grab the popcorn and enjoy!
  This is only the second movie in the list blessed with the presence of Mads Mikkelsen, but hang in there! There’s more on the way.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Hævnen (2010) (In a Better World)
 
 [**IMDb rating: 7,6**](https://www.imdb.com/title/tt1340107/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -73,9 +80,6 @@ Grab the popcorn and enjoy!
 
  Academy Award winner for Best Foreign Language Film of the Year in 2011 (already convinced, aren’t you?), “Hævnen” is a story about friendship, choices, revenge, forgiveness and the consequences of our actions. There’s no way you won’t find yourself in it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. En kongelig affære (2012) (A Royal Affair)
 
 [**IMDb rating: 7,5**](https://www.imdb.com/title/tt1276419/?ref%5F=fn%5Fal%5Ftt%5F1)
@@ -87,17 +91,9 @@ Grab the popcorn and enjoy!
  The two lovers use their influence on King Christian to start a revolution that will change the nation forever. But will this be in their own best interest? Believe me, you absolutely have to watch this. Not only that this film was also nominated for an Oscar, but the costume design and the acting are absolutely amazing. Time watching it will not be time wasted.
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Jagten (2012) (The Hunt)
 
 [**IMDb rating: 8,3**](https://www.imdb.com/title/tt2106476/)
@@ -129,8 +125,6 @@ Grab the popcorn and enjoy!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -138,8 +132,19 @@ Grab the popcorn and enjoy!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-top-offline-speech-to-text-transcription-apps/"><u>[New] 2024 Approved Top Offline Speech-to-Text Transcription Apps</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-nokia-c210-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pushing-boundaries-with-film-color-grading-these-7/"><u>2024 Approved Pushing Boundaries with Film Color Grading (These 7)</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-on-iphone-6-plus-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock On iPhone 6 Plus Online</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/expert-nzxt-switchmix-assessment-the-ultimate-tech-savvy-solution-compactly-packaged/"><u>Expert NZXT SwitchMix Assessment: The Ultimate Tech-Savvy Solution Compactly Packaged</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introductory-urdu-fundamental-words-and-phrases/"><u>Introductory Urdu: Fundamental Words & Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jeringas-linguisticos-en-ingles-espanol-conjunto-de-50/"><u>Jeringas Lingüísticos en Inglés-Español: Conjunto De 50</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-collaborates-with-pearson-back-on-filter-feature/"><u>Mondly Collaborates with Pearson Back on Filter Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-learning-revolution-a-new-era-for-over-70-million-users/"><u>Mondly's Learning Revolution: A New Era for Over 70 Million Users</u></a></li>
+<li><a href="https://win-online.techidaily.com/1728503470854-onenote/"><u>OneNote により消去されたページ・ファイルの回復手順</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saghe-numeriche-in-italiano-comunicazione-e-lettura-intermedia/"><u>Saghe Numeriche in Italiano: Comunicazione E Lettura Intermedia</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/smart-image-management-adjusting-iphone-photo-sizes/"><u>Smart Image Management Adjusting iPhone Photo Sizes</u></a></li>
+</ul></div>
 

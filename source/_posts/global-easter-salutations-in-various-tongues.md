@@ -1,7 +1,7 @@
 ---
 title: Global Easter Salutations in Various Tongues
-date: 2024-11-30T02:17:04.753Z
-updated: 2024-12-03T19:41:59.954Z
+date: 2024-12-09T17:25:59.266Z
+updated: 2024-12-10T18:49:12.759Z
 tags:
   - speak
   - english
@@ -59,10 +59,6 @@ thumbnail: https://thmb.techidaily.com/288c4a8a533b0f1094aca3a28c5db0188ea8b5a3c
 
  Christians celebrate Easter as a happy holiday because it fulfills the Old Testament prophecies and shows God’s plan to save everyone. Easter celebrates the Resurrection of Jesus Christ, which defeated death on the third day and gives hope for salvation. Christians believe that Jesus’ death paid for humanity’s sins and his Resurrection gives believers hope for their own resurrection.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### What day is Easter?
 
  Easter is a “movable feast”, which means that it does not occur on a fixed date every year. Instead, it is celebrated on the first Sunday following the first full moon after the spring equinox (which falls on March 21), according to the Gregorian calendar. This means Easter can be observed on a Sunday between March 22 and April 25\. However, the Eastern Orthodox Church follows a slightly different method of calculation, which is based on the Julian calendar. As a result, Easter in the Eastern Orthodox tradition can fall on any Sunday between April 4 and May 8.
@@ -76,7 +72,7 @@ thumbnail: https://thmb.techidaily.com/288c4a8a533b0f1094aca3a28c5db0188ea8b5a3c
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-7544&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-7544%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is the Easter bunny real? Easter bunny origins
@@ -86,10 +82,6 @@ thumbnail: https://thmb.techidaily.com/288c4a8a533b0f1094aca3a28c5db0188ea8b5a3c
  On the other hand, if you really need an explanation right now, here it is. We hate to break to you, but the Easter bunny… is not real. 😭
 
  However, that doesn’t mean you shouldn’t believe in it. In a way, the Easter bunny is real as long as you believe in it because it continues to exist in your heart.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The origins of the Easter bunny
 
@@ -111,10 +103,6 @@ thumbnail: https://thmb.techidaily.com/288c4a8a533b0f1094aca3a28c5db0188ea8b5a3c
 
  Nowadays, the Easter egg hunt has become a fun activity enjoyed by children and parents alike.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Easter traditions around the world
 
 * In**Greece** , people dye the eggs only in red shades as red represents the blood of Jesus Christ.
@@ -125,6 +113,10 @@ thumbnail: https://thmb.techidaily.com/288c4a8a533b0f1094aca3a28c5db0188ea8b5a3c
 * In**Sweden and Finland** , it is an Easter tradition for children to dress as Easter witches. Like the trick-or-treating tradition of Halloween, they then go door to door and present hand-made carts and other greetings in exchange for sweets.
 * In**Haux, France** , locals serve a giant omelet in the town’s main square. The omelet is made of more than 15,000 eggs and feeds up to 1,000 people.
 * In**Vatican City** , on Good Friday, the Pope marks the Way of the Cross by beginning a procession at the Colosseum. Participants in the procession carry candles and stop 14 times along the way to represent the Stations of the Cross as they make their way around the amphitheater and up to Palatine Hill.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Easter greetings in different countries
 
@@ -144,15 +136,15 @@ thumbnail: https://thmb.techidaily.com/288c4a8a533b0f1094aca3a28c5db0188ea8b5a3c
 
 !['Happy Easter' by Priscilla Du Preez©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/happy-easter-960x640.jpg "Happy Easter In Different Languages &Amp; Easter Traditions 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Spanish – _¡Felices Pascuas!_
 
  ‘Easter’ in Spanish is_Pascuas_ . As previously mentioned, the Paschal greeting in Spanish is_“Cristo ha resucitado! – En verdad ha resucitado!”;_ however, Spanish people don’t really use it. Instead, they say_Felices Pascuas_ (‘Happy Easter’) or simply_Felices Fiestas_ which means ‘Happy Holidays’.
 
  The Easter menu during La Semana Santa (‘The Holy Week’) includes_torrijas_ which is a kind of French toast and_potaje de vigilia_ which is a chickpea soup.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. French –_Joyeuses Pâques !_
 
@@ -174,6 +166,10 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
 
  Traditional holiday foods in Italy include lamb or goat, artichokes, and special Easter breads that differ from region to region. Some popular Easter breads are_Pannetone_ sweet bread and_Colomba_ (dove-shaped) bread, which are often given as gifts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Portuguese –_Feliz Páscoa!_
 
  In Portugal, Easter is celebrated with great passion and religious fervor. The Holy Week of Easter_(Semana Santa)_ is like a somber carnival, with religious processions, Biblical re-enactments, and Roman period costumes, and is mostly celebrated outdoors.
@@ -182,15 +178,15 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
 
 In both countries, people eat salt cod on Good Friday.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Turkish –_Paskalyanız kutlu olsun!_
 
  Considering that 99 percent of the Turkish population is Muslim, it’s safe to say that Turkey doesn’t really celebrate Easter. However, some Christian Turkish citizens do.
 
  While you can say_Paskalyanız kutlu olsun_ to wish someone a Happy Easter in Turkish,_Paskalya Bayramınız kutlu olsun_ is the more “correct” version. Adding_“bayram”_ gives the meaning of having a holiday to celebrate.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. Romanian –_Paște Fericit!_
 
@@ -199,7 +195,7 @@ In both countries, people eat salt cod on Good Friday.
  Following the period of Lent (in varying degrees of strictness), the traditional Easter menu in Romania includes_cozonac_ (which is a type of sweet bread with nuts and Turkish delight),_drob_ (made from minced up offal and entrails) and oven-cooked lamb.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Polish –_Wesołego Alleluja!_
@@ -212,6 +208,10 @@ In both countries, people eat salt cod on Good Friday.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Learn languages as fast as the Easter Bunny
 
@@ -246,22 +246,24 @@ In both countries, people eat salt cod on Good Friday.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-digital-pioneers-handbook-making-a-mark-in-gif-artistry-for-2024/"><u>[New] Digital Pioneers' Handbook Making a Mark in GIF Artistry for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-steps-to-add-motion-blur-to-face-with-picsart/"><u>[New] Steps to Add Motion Blur to Face with Picsart</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-top-20-auto-surveillance-cams-reviews-for-2024/"><u>[New] Top 20 Auto Surveillance Cams Reviews for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-social-caricature-craft-design-your-distinctive-avatar/"><u>[Updated] Social Caricature Craft Design Your Distinctive Avatar</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-reviewing-changes-in-the-sony-s6500-blu-ray-system/"><u>2024 Approved Reviewing Changes in the Sony S6500 Blu-Ray System</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/battling-the-walls-of-german-study-challenges/"><u>Battling the Walls of German Study Challenges</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cognitive-empowerment-with-new-languages-learned-post-fifty/"><u>Cognitive Empowerment with New Languages Learned Post-Fifty</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/educational-excellence-unveiled-mondlys-german-achievement/"><u>Educational Excellence Unveiled: Mondly's German Achievement</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/tial-steps-for-seamless-youtube-video-loops/"><u>Essential Steps for Seamless YouTube Video Loops</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fluency-fast-track-daily-10-minute-dose-to-speaking-slovak-fluently/"><u>Fluency Fast Track: Daily 10-Minute Dose to Speaking Slovak Fluently</u></a></li>
-<li><a href="https://games-able.techidaily.com/internet-efficiency-solutions-to-lower-your-networks-response-time/"><u>Internet Efficiency: Solutions to Lower Your Network's Response Time</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-languages-essential-tips-for-deep-immersion/"><u>Mastering Languages: Essential Tips for Deep Immersion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-seven-years-of-global-educational-innovation/"><u>Mondly - Seven Years of Global Educational Innovation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multitasking-with-languages-the-ultimate-countdown-list/"><u>Multitasking with Languages: The Ultimate Countdown List</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-evaluation-of-a-fine-photo-frame/"><u>The Ultimate Evaluation of a Fine Photo Frame</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-global-opportunities-through-language-training/"><u>Unlock Global Opportunities Through Language Training</u></a></li>
-<li><a href="https://win-excellent.techidaily.com/1728496976289-windows-881/"><u>Windows 8/8.1で失われたファイルを無料プログラムで復元する方法</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-pros-of-choosing-best-pc-video-grabbers-for-win11/"><u>[Updated] 2024 Approved Pros of Choosing Best PC Video Grabbers for Win11</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enhancing-winter-vlogs-with-five-heartwarming-backdrops-for-2024/"><u>[Updated] Enhancing Winter Vlogs with Five Heartwarming Backdrops for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-smoothly-record-time-lapse-on-your-ipad/"><u>2024 Approved Smoothly Record Time-Lapse on Your iPad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-grammatical-journey-from-lisbon-to-brasilia/"><u>A Grammatical Journey From Lisbon to Brasília</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bring-your-chat-home-mondly-on-huawei/"><u>Bring Your Chat Home: Mondly on Huawei</u></a></li>
+<li><a href="https://common-error.techidaily.com/connect-to-the-web-anywhere-the-ultimate-guide-to-usb-tethering-in-windows-11/"><u>Connect to the Web Anywhere: The Ultimate Guide to USB Tethering in Windows 11</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-installation-tutorial-for-steelseries-arctis-5-drivers-enhance-your-audio-experience/"><u>Easy Installation Tutorial for SteelSeries Arctis 5 Drivers - Enhance Your Audio Experience</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-fast-lanes-for-jumbled-youtube-playlist-arrangement/"><u>In 2024, Fast Lanes for Jumbled YouTube Playlist Arrangement</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-humor-hubs-the-most-enjoyable-ringtone-downloads/"><u>In 2024, Humor Hubs The Most Enjoyable Ringtone Downloads</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-ultimate-viewer-count-challenge-worldwide-youtuber-leaders/"><u>In 2024, The Ultimate Viewer Count Challenge Worldwide YouTuber Leaders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inaugural-vocal-augmented-communication-tool/"><u>Inaugural Vocal-Augmented Communication Tool</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-to-speak-naturally-top-25-german-phrases/"><u>Learn to Speak Naturally: Top 25 German Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-marauders-tongue-20-expressions-for-elders/"><u>Master the Marauder’s Tongue: 20 Expressions for Elders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-associates-with-pearson-learning-consortium/"><u>Mondly Associates With Pearson Learning Consortium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/strategies-for-dominating-the-worlds-toughest-language-tests/"><u>Strategies for Dominating the World's Toughest Language Tests</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-effective-communicators-choice-german-vs-french/"><u>The Effective Communicator's Choice: German Vs French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-lifelong-learners-guide-to-new-languages/"><u>The Lifelong Learner's Guide to New Languages</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-studios-secret-for-seamless-video-editing/"><u>YouTube Studio's Secret for Seamless Video Editing</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Educational Entertainment with Latin Flair
-date: 2024-08-15T17:37:11.184Z
-updated: 2024-08-16T17:37:11.184Z
+date: 2024-12-05T17:39:31.850Z
+updated: 2024-12-10T16:06:39.390Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/d04592384de68d589b01721c4dc554252c1ab00ca
 
  I know you are excited. I am too. “How is this even possible?” – you’ll ask. Well, here’s a hint: brilliant minds invented very cool and immensely useful pieces of software called “language learning apps” that can make language learning fun. The problem is that most language learning apps ignore Latin. But not this one. This [language learning app](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5440&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5440?mother%5Flang=en%5Fus?target%5Flang=la&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5440?mother%5Flang=en%5Fus?target%5Flang=la) will change the way we learn Latin forever. Read on to find out more and you won’t be disappointed.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How I learned Latin like a pro (and how you can too!)
 
  I know your pain. I’ve been there too. I hated Latin when I was in high school. I could not see the point of learning a dead language.
@@ -37,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/d04592384de68d589b01721c4dc554252c1ab00ca
 Here’s how.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Veni, vidi, vici
 
  “I came; I saw; I conquered” – that’s exactly what happened when I started learning Latin with Mondly. And you know what? It took me about 5 minutes to fall in love with Latin in Mondly. It’s so fun it becomes addictive! I now get Julius Caesar and how good it feels to win and finally achieve a goal that seemed impossible a few years ago.
@@ -60,8 +65,9 @@ Here’s how.
  Latin made fun with language learning app Mondly
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## _Carpe diem_ and learn Latin the fun way
 
  Life’s too short to learn Latin the boring way. That’s why Mondly made it fun.
@@ -71,9 +77,9 @@ Here’s how.
  **I mean, how cool is it to be able to learn a 2,000 years old language on a device that literally fits in your pocket?**
 
 ![carpe diem latin](https://edge.mondly.com/blog/wp-content/uploads/2020/09/carpe-diem-latin-960x641.jpg "Back To School: Latin Made Fun And Easy For Students Of All Ages 4")
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Carpe diem” by Mr Autthaporn Pradidpong©
@@ -88,8 +94,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Speak Latin fluently in just 10 minutes a day
 
  The Latin language is no longer is secret code meant only for scholars or the Catholic Church. Starting right now, you can learn Latin with Mondly using bite-sized lessons and practical topics to help you discover how Romans conversed in their day-to-day life.
@@ -106,8 +113,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -115,6 +120,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-accelerated-editing-seamless-laptoppc-videos-with-inshot/"><u>[New] 2024 Approved Accelerated Editing Seamless Laptop/PC Videos with Inshot</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-pictorial-humor-ranking-10-memes-by-creativity/"><u>[New] 2024 Approved Pictorial Humor Ranking #10 Memes by Creativity</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-effortless-tricks-for-capturing-instagram-stories-for-2024/"><u>[New] Effortless Tricks for Capturing Instagram Stories for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-mastering-video-timestamps-on-youtube-platform-for-2024/"><u>[Updated] Mastering Video Timestamps on YouTube Platform for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-overview-and-assessment-parrots-advanced-edition/"><u>[Updated] Overview and Assessment - Parrot's Advanced Edition</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-lava-blaze-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ssing-the-power-of-asynchronous-programming-in-javascript-for-2024/"><u>Harnessing the Power of Asynchronous Programming in JavaScript for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nokia-c02-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Nokia C02 Phone without PIN</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Oppo Reno 8T 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leap-learning/"><u>Linguistic Leap Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shaping-global-citizens-with-non-native-language-education/"><u>Shaping Global Citizens with Non-Native Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-us-study-languages/"><u>Top U.S. Study Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-secrets-of-russian-numbers-for-new-learners/"><u>Unveiling the Secrets of Russian Numbers for New Learners</u></a></li>
+</ul></div>
 

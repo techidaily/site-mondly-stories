@@ -1,7 +1,7 @@
 ---
 title: Celebrating a Decade & Half of Free Lessons
-date: 2024-08-15T17:38:42.001Z
-updated: 2024-08-16T17:38:42.001Z
+date: 2024-12-05T17:30:58.468Z
+updated: 2024-12-10T16:20:22.448Z
 tags:
   - speak
   - english
@@ -18,13 +18,18 @@ thumbnail: https://thmb.techidaily.com/7ac9924553405319fc34adce73b50933080c4e0b7
 
  Today, we are thrilled to announce a new milestone: 1500 free daily lessons in 33 languages! Thank you for being a part of our story! No matter if you have joined Mondly from the beginning or just now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1500 daily lessons – thousands of hours of content
 
  If you never had premium, now would be the perfect time to get it because our new milestone marks thousands of hours of self-study material on over 40 topics such as travel, romance, fun or business. As a premium Mondly user you’ll get full access to all the 1500 daily lessons, 215 weekly quizzes and 50 monthly challenges we created for you since 2015 until now.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What is a daily lesson?
 
  The free daily lesson was (and still is) the most popular feature among the Mondly learners since the beginning. Compact and very entertaining, its aim is to enable you to beef up your knowledge every day for at least 5 minutes. Just set the desired time to learn and we will send you a friendly reminder every single day.
@@ -32,15 +37,17 @@ thumbnail: https://thmb.techidaily.com/7ac9924553405319fc34adce73b50933080c4e0b7
  To make the learning process more enjoyable for you, each Mondly daily lesson is a gamified experience: you swipe up and down, select the right answer, arrange letters into words and words into sentences, use your voice to repeat the correct pronunciation of certain words and earn points for every completed lesson. If you are motivated by having competition, do all the lessons and let the points decide your place in the national and international leaderboards.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why are they called “free daily lessons”?
 
  Each daily lesson is only free for one day: the day it becomes available inside the app. After that, it becomes accessible only with a Mondly premium account.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Mondly?
 
  With over 40 million downloads worldwide and an average rating of 4.7 out of 5 from over 1,000,000 reviews, Mondly is one of the most innovative language learning platforms in the world. Its many achievements – including 3 world premieres – have been endorsed by influential media companies like Forbes, CNN, Inc., Bloomberg, Gartner, and many others.
@@ -73,8 +80,6 @@ So what are you waiting for?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -82,8 +87,23 @@ So what are you waiting for?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-how-to-post-360-photos-on-iosandroid-to-facebook/"><u>[New] In 2024, How to Post 360 Photos on iOS/Android to Facebook</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-when-order-falls-premium-lineup-of-best-zombie-games/"><u>[New] In 2024, When Order Falls Premium Lineup of Best Zombie Games</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-game-capturing-titans/"><u>[New] In-Game Capturing Titans</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-musical-notes-on-call-creating-and-cutting-tamil-alert-songs-for-2024/"><u>[New] Musical Notes on Call Creating & Cutting Tamil Alert Songs for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-one-mans-quest-with-3d-tech-3dr-analysis/"><u>[Updated] 2024 Approved One Man's Quest with 3D Tech '3DR' Analysis</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-master-quick-youtube-video-uploads-and-rendering-secrets/"><u>[Updated] Master Quick YouTube Video Uploads and Rendering Secrets</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-time-warp-techniques-harnessing-classic-80s-visual-flair-in-videos/"><u>2024 Approved Time Warp Techniques Harnessing Classic 80S Visual Flair in Videos</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-what-you-lose-by-sticking-to-older-iphones-make-the-switch-to-iphone-15-today-zdnet/"><u>Discover What You Lose by Sticking to Older iPhones – Make the Switch to iPhone 15 Today! | ZDNet</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-vivo-v27e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lhospitalite-francaise-en-phrase-simple/"><u>L'Hospitalité Française En Phrase Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-leap-forward-bridging-education-for-over-70-million-learners/"><u>Mondly's Leap Forward: Bridging Education for Over 70 Million Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-eslefl-interactive-classroom/"><u>Pearson's ESL/EFL Interactive Classroom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-innovative-vr-language-learning/"><u>Speak Like a Native: Innovative VR Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-cooking-key-principles-that-will-take-your-dishes-to-new-heights/"><u>The Art of Cooking: Key Principles that Will Take Your Dishes to New Heights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-grammar-gap-understanding-por-que-and-por-que/"><u>The Grammar Gap: Understanding Por Que and Por Qué</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-communication-skills-with-these-10-essential-and-versatile-spanish-salutations/"><u>Unlock Communication Skills With These 10 Essential & Versatile Spanish Salutations</u></a></li>
+</ul></div>
 

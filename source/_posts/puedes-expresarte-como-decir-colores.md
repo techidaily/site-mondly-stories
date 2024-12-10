@@ -1,7 +1,7 @@
 ---
 title: "Puedes Expresarte: Cómo Decir Colores"
-date: 2024-12-01T21:45:14.053Z
-updated: 2024-12-03T22:49:07.900Z
+date: 2024-12-03T16:32:20.408Z
+updated: 2024-12-10T16:58:22.244Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/bff355a17bbebb56de3c041755295c5c8bf9f4acf
  Color is omnipresent in our lives. From the very first moment we become aware of our surroundings, color stimulates our senses. Our mother’s blue eyes comfort us, the yellow banana makes us drool, the red toy car brings excitement and the green veggies are “healthy but disgusting”. Naturally, colors are some of the first words we learn, not just in our native language but in any language. Learning to say the colors in Spanish is also an important first step in [learning basic Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . So, let’s dive right in and learn how to say **_red, blue, green,_ and** **_more_ in Spanish** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The colors in Spanish
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/bff355a17bbebb56de3c041755295c5c8bf9f4acf
 ![blue orange](https://edge.mondly.com/blog/wp-content/uploads/2021/04/blue-orange-960x640.jpg "Learn The Colors In Spanish – Quick Pronunciation Guide 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Blue orange” by davisuko©
@@ -69,7 +69,7 @@ Want more? Here’s lesson two of colors in Spanish with Mondly:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in Spanish
@@ -100,20 +100,17 @@ Want more? Here’s lesson two of colors in Spanish with Mondly:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-toolwiz-visualize-a-comprehensive-2023-evaluation/"><u>[New] Toolwiz Visualize - A Comprehensive 2023 Evaluation</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-exploring-the-world-through-your-camera-lens-a-beginners-roadmap-for-success/"><u>[Updated] In 2024, Exploring the World Through Your Camera Lens A Beginner's Roadmap for Success</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-premier-mp4-converter-for-smooth-fb-integration/"><u>[Updated] In 2024, Premier MP4 Converter for Smooth FB Integration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579055981-discovering-santas-language-proficiency/"><u>Discovering Santa's Language Proficiency!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-davy-jones-vocabulary-pool/"><u>Dive Into Davy Jones' Vocabulary Pool</u></a></li>
-<li><a href="https://techtrends.techidaily.com/effective-solutions-for-powerpoint-playback-sound-issues/"><u>Effective Solutions for PowerPoint Playback Sound Issues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/germanys-educational-beacon-mondly-named-champion/"><u>Germany's Educational Beacon: Mondly Named Champion</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-13-mini-by-phone-number-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 13 mini by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/join-the-international-english-community-at-pearson/"><u>Join the International English Community at Pearson</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-slovak-quickly-daily-lessons-for-rapid-fluency/"><u>Master Slovak Quickly: Daily Lessons for Rapid Fluency!</u></a></li>
-<li><a href="https://win-online.techidaily.com/meistere-die-kunst-der-wiedererweckung-windows-11-zugang-schnell-wiederherstellen-lassen/"><u>Meistere Die Kunst Der Wiedererweckung: Windows 11-Zugang Schnell Wiederherstellen Lassen!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-framework-for-effective-learning/"><u>Mondly's Framework for Effective Learning</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-tutorial-on-refreshing-usb-drivers-for-samsung-devices/"><u>Step-by-Step Tutorial on Refreshing USB Drivers for Samsung Devices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-key-phrases-a-beginners-journey-through-latin-american-vernaculars/"><u>Understanding Key Phrases: A Beginner's Journey Through Latin American Vernaculars</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-unleash-your-creativity-top-rated-alternatives-to-windows-10-photos-for-2024/"><u>Updated Unleash Your Creativity Top-Rated Alternatives to Windows 10 Photos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-command-the-clicks-mastering-engagement-tactics-for-instagram/"><u>[New] In 2024, Command the Clicks Mastering Engagement Tactics for Instagram</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-premium-vfx-setup-options/"><u>[Updated] 2024 Approved Premium VFX Setup Options</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/accurate-atmospheres-expert-picks-of-windows-11s-weather-apps/"><u>Accurate Atmospheres: Expert Picks of Windows 11'S Weather Apps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/effortless-guide-converting-your-macs-dvds-into-ts-files-with-ease/"><u>Effortless Guide: Converting Your Mac's DVDs Into TS Files with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enriching-life-in-golden-years-through-multilingualism/"><u>Enriching Life in Golden Years Through Multilingualism</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-oppo-reno-10-proplus-5g-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Oppo Reno 10 Pro+ 5G?</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-7-to-other-iphone-13-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 7 To Other iPhone 13 devices? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyglot-dreams-late-beginnings-are-fine/"><u>Polyglot Dreams - Late Beginnings Are Fine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tap-into-the-full-potential-with-mondly/"><u>Tap Into the Full Potential with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-comprehensible-guide-to-formal-and-informal-french-greetings/"><u>The Comprehensible Guide to Formal & Informal French Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-evolution-of-my-speaking-skills-through-mondly-the-top-10-key-factors/"><u>The Evolution of My Speaking Skills Through Mondly: The Top 10 Key Factors</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-samsung-galaxy-a24-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Samsung Galaxy A24 Device</u></a></li>
 </ul></div>
 

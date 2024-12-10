@@ -1,7 +1,7 @@
 ---
 title: "Los Diez Nombres Del Mundo en Español: Un Curso Semanal"
-date: 2024-11-30T18:02:47.147Z
-updated: 2024-12-03T23:16:26.492Z
+date: 2024-12-05T19:16:35.274Z
+updated: 2024-12-10T18:59:52.230Z
 tags:
   - speak
   - english
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/6f6094ec46399b3ab308c1c10a0d303a8a2fe57d5
  But no more talking. Let’s dive in and find out how to say Monday in Spanish.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The days of the week in Spanish
@@ -56,7 +56,7 @@ thumbnail: https://thmb.techidaily.com/6f6094ec46399b3ab308c1c10a0d303a8a2fe57d5
 ![spanish days of the week](https://edge.mondly.com/blog/wp-content/uploads/2019/09/spanish-days-of-the-week.png "Monday To Domingo - Learn The Days Of The Week In Spanish 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The days of the week in Spanish in a nutshell.
@@ -69,7 +69,7 @@ And only now you’re free to say that that was easy peasy lemon squeezy!
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Speak Spanish in just 10 minutes a day
@@ -77,7 +77,7 @@ And only now you’re free to say that that was easy peasy lemon squeezy!
  Do you want to see_los días de la semana_ in action? Check Mondly, the revolutionary language learning platform that makes language learning fun, fast and easy ![Mondly](https://en.wikipedia.org/wiki/Mondly) is a pocket-held language tutor that allows you to put your brain on autopilot and enjoy the ride to fluency in more than 30 languages.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  By combining solid neural science, cutting-edge technologies, bite-sized Daily Lessons and a gamified experience guaranteed to make you addicted to learning languages, Mondly is ready to literally glue the Spanish language into your brain.
@@ -101,24 +101,24 @@ And only now you’re free to say that that was easy peasy lemon squeezy!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-spectacular-top-5-slow-motion-cams/"><u>[New] 2024 Approved Spectacular Top 5 Slow Motion Cams</u></a></li>
-<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-sony-xperia-5-v-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Sony Xperia 5 V Wont Charge | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/7-years-75-million-learners-mondly-leads-the-way/"><u>7 Years, 75 Million Learners, Mondly Leads the Way</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/catalan-language-sprint-10-minsday/"><u>Catalan Language Sprint – 10 Mins/Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/commanding-communicators-best-linguistic-solutions/"><u>Commanding Communicators: Best Linguistic Solutions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/croatian-speaking-communities/"><u>Croatian Speaking Communities</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivating-conversational-british-eloquence/"><u>Cultivating Conversational British Eloquence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutsche-wochen-terminierung-lernen/"><u>Deutsche Wochen-Terminierung Lernen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-mutual-understanding-turkey-and-koreas-language-journey/"><u>Discovering Mutual Understanding: Turkey & Korea's Language Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/easily-access-worldwide-languages-for-next-to-nothing/"><u>Easily Access Worldwide Languages for Next to Nothing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-multilingualism-in-the-new-year/"><u>Embrace Multilingualism in the New Year</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/expert-picks-15-no-fee-bootable-security-solutions-revealed/"><u>Expert Picks: 15 No-Fee Bootable Security Solutions Revealed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigate-the-skies-with-style-x-plane-11s-revolutionary-visual-experience-explored/"><u>Navigate the Skies with Style: X-Plane 11'S Revolutionary Visual Experience Explored</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/overcome-computer-sluggishness-effective-fixes-for-persistent-lag-and-lockups/"><u>Overcome Computer Sluggishness: Effective Fixes for Persistent Lag and Lockups</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/samsung-strategies-efficaces-pour-la-migration-des-donnees-comment-choisir-correctement-votre-destination/"><u>Samsung : Stratégies Efficaces Pour La Migration Des Données, Comment Choisir Correctement Votre Destination ?</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/symphony-silhouette-audio-studio-mac-for-2024/"><u>Symphony Silhouette Audio Studio Mac for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95870916-9781846015694-the-little-book-of-mumfulness/"><u>The Little Book of Mumfulness | Free Book</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210292937-9781645692119-the-spirit-has-our-back/"><u>The Spirit Has Our Back | Free Book</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-ultimate-verdict-how-big-performance-meets-small-design-in-iphone-12-mini/"><u>The Ultimate Verdict: How Big Performance Meets Small Design in iPhone 12 Mini</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-pioneering-the-path-transitioning-xbox-sessions-to-fb/"><u>[New] 2024 Approved Pioneering the Path Transitioning Xbox Sessions to FB</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-zoom-mastery-effective-ways-to-convert-video-formats-for-2024/"><u>[New] Zoom Mastery Effective Ways to Convert Video Formats for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-from-watcher-to-participant-tiktok-live-integration/"><u>[Updated] 2024 Approved From Watcher to Participant TikTok Live Integration</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-free-srt-translation-leaders-a-select-8-guide/"><u>[Updated] In 2024, Free SRT Translation Leaders A Select 8 Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-unveiling-the-20-core-strategies-for-effective-facebook-video-ads/"><u>[Updated] In 2024, Unveiling the 20 Core Strategies for Effective Facebook Video Ads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adopting-english-boosts-your-career-trajectory/"><u>Adopting English: Boosts Your Career Trajectory</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-communication-gaps-with-mondlys-languages/"><u>Bridging Communication Gaps with Mondly's Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-countries-that-santa-can-speak-too/"><u>Discover the Countries That Santa Can Speak Too</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/earths-dominant-tongues-leading-fifteen-list/"><u>Earth's Dominant Tongues: Leading Fifteen List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/going-global-mondlys-selection-from-googled-editors/"><u>Going Global: Mondly's Selection From Googled Editors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/local-lingo-made-simple-speak-like-an-aussie/"><u>Local Lingo Made Simple: Speak Like an Aussie</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mimicking-your-penmanship-adapting-chatgpt-for-authentic-self-expressive-writing/"><u>Mimicking Your Penmanship: Adapting ChatGPT for Authentic Self-Expressive Writing</u></a></li>
+<li><a href="https://techidaily.com/next-steps-for-amazon-starlink-entering-the-protoflight-phase-of-development/"><u>Next Steps for Amazon Starlink: Entering the Protoflight Phase of Development</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/quickcapture-chromes-screen-recording-feature/"><u>QuickCapture Chrome's Screen Recording Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starters-pack-of-spanish-counting/"><u>Starter's Pack of Spanish Counting</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-5-service-picks-to-boost-and-polish-your-twitch-channel/"><u>The Ultimate 5 Service Picks to Boost and Polish Your Twitch Channel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-birthday-a-universal-happiness/"><u>U.S. Birthday: A Universal Happiness</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/windows-server-2019c/"><u>Windows Server 2019でシームレスなCドライブのクローニング手順</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zero-cost-maximum-impact-your-japanese-self-study-roadmap/"><u>Zero Cost, Maximum Impact - Your Japanese Self-Study Roadmap</u></a></li>
 </ul></div>
 

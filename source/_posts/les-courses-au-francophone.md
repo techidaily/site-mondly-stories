@@ -1,7 +1,7 @@
 ---
 title: Les Courses Au Francophone
-date: 2024-11-29T01:27:10.179Z
-updated: 2024-12-04T01:37:01.280Z
+date: 2024-12-03T17:26:22.407Z
+updated: 2024-12-10T17:44:09.936Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/dc5fff1a9acb5e2e1b1bb4c72b06c12c5151a76a3
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Days of the week in French
@@ -78,7 +78,7 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -125,19 +125,20 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-stream-your-webcam-in-real-time-using-vlc-software/"><u>[New] 2024 Approved Stream Your Webcam in Real Time Using VLC Software</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-step-by-step-turning-on-windows-11s-high-dynamic-range-mode/"><u>[New] Step-by-Step Turning On Windows 11'S High Dynamic Range Mode</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-best-budget-friendly-ticking-clocks-online/"><u>[Updated] 2024 Approved Best Budget-Friendly Ticking Clocks Online</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-capturing-excellence-a-full-breakdown-of-sj-cam-s6/"><u>2024 Approved Capturing Excellence A Full Breakdown of SJ-CAM S6</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-new-lexicon-unfolds-at-mondlylanguages-visionary-journey/"><u>A New Lexicon Unfolds at MondlyLanguages - Visionary Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/connect-with-italians-top-10-friendly-and-formal-salutations/"><u>Connect with Italians: Top 10 Friendly and Formal Salutations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daybreak-dialogue-expressing-good-morning-in-various-languages/"><u>Daybreak Dialogue: Expressing 'Good Morning' In Various Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-new-tongues-with-music-scientifically-validated-practices/"><u>Discover New Tongues with Music: Scientifically Validated Practices</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-steps-for-installing-latest-epson-printer-software-in-windows-10/"><u>Easy Steps for Installing Latest Epson Printer Software in Windows 10</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effortless-latino-studies-at-home/"><u>Effortless Latino Studies at Home</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-the-worlds-diversity-learn-for-just-a-small-price-increase/"><u>Embrace the World's Diversity - Learn for Just a Small Price Increase!</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/from-console-to-camera-3-simple-video-game-recording-methods/"><u>From Console to Camera 3 Simple Video Game Recording Methods</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-ultimate-budget-friendly-viewer-contests/"><u>In 2024, Ultimate Budget-Friendly Viewer Contests</u></a></li>
-<li><a href="https://win-blog.techidaily.com/stop-outriders-from-freezing-due-to-unreal-engine-issues-fixing-ue4-madness-errors-once-and-for-all/"><u>Stop Outriders From Freezing Due to Unreal Engine Issues - Fixing 'UE4-Madness' Errors Once and For All</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-a-critical-look-at-the-latest-camera-recording-systems/"><u>[New] 2024 Approved A Critical Look at the Latest Camera Recording Systems</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-simplified-approach-to-nvidia-screen-recording/"><u>[Updated] Simplified Approach to NVIDIA Screen Recording</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-pinterest-content-top-5-free-download-apps/"><u>2024 Approved Mastering Pinterest Content Top 5 FREE Download Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-friday-bonanza-learn-any-language-zero-cost/"><u>Black Friday Bonanza: Learn Any Language, Zero Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprendiendo-botones-de-relojes-ensenanza-basica/"><u>Comprendiendo Botones De Relojes - Enseñanza Básica</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-best-to-greatest-mondlys-journey-in-german-learning/"><u>From Best to Greatest: Mondly’s Journey in German Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-brain-power-music-driven-language-acquisition-techniques/"><u>Harmonizing Brain Power: Music-Driven Language Acquisition Techniques</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-credit-card-on-your-apple-iphone-se-2020-apple-id-and-apple-pay-by-drfone-ios/"><u>In 2024, How to Change Credit Card on Your Apple iPhone SE (2020) Apple ID and Apple Pay</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-peering-into-the-pinnacle-of-4k-monitoring-with-lgs-ultrafine-display/"><u>In 2024, Peering Into the Pinnacle of 4K Monitoring with LG’s UltraFine Display</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-precision-meets-gsl-excellence-from-pearson/"><u>Mondly's Precision Meets GSL Excellence From Pearson</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-pinnacle-studio-not-working-try-these-mac-alternatives-instead/"><u>New Pinnacle Studio Not Working? Try These Mac Alternatives Instead</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581839152-norgeenas-skill-spurt-daily-ten-minutes/"><u>Norge'enas Skill Spurt - Daily Ten Minutes!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ps3-controller-compatibility-with-windows-bypassing-the-need-for-motioninjoy-solutions/"><u>PS3 Controller Compatibility with Windows: Bypassing the Need for MotionINJoy Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-skill-sharpen-back-button-focus/"><u>Speaking Skill Sharpen: Back Button Focus</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/streamlining-your-instagram-storytelling-with-size-tweaks/"><u>Streamlining Your Instagram Storytelling with Size Tweaks</u></a></li>
 </ul></div>
 

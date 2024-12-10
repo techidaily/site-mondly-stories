@@ -1,7 +1,7 @@
 ---
 title: "Semaine Française: La Palette Des Jours"
-date: 2024-12-01T01:17:24.282Z
-updated: 2024-12-03T22:28:22.739Z
+date: 2024-12-06T18:31:57.937Z
+updated: 2024-12-10T18:42:28.004Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/d02ecec5426e8e1f2da5e128e095f9718e5fc3c11
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Days of the week in French
@@ -78,7 +78,7 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -125,18 +125,24 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-essential-cameras-of-the-year-top-10-reviewed/"><u>[Updated] Essential Cameras of the Year - Top 10 Reviewed</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-naming-rules-and-guidelines-how-to-ensure-originality-in-streaming-for-2024/"><u>[Updated] Naming Rules and Guidelines How to Ensure Originality in Streaming for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/eng-speaks-other-languages-a-lexical-mosaic/"><u>ENG Speaks Other Languages: A Lexical Mosaic</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engaging-students-with-dynamic-spanish-learning/"><u>Engaging Students with Dynamic Spanish Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-language-bonds-turkey-and-korea/"><u>Exploring Language Bonds: Turkey and Korea</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressive-french-greetings-for-every-occasion-and-setting/"><u>Expressive French Greetings for Every Occasion & Setting</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-conversationalist-essential-chinese-greeting-skills/"><u>From Novice to Conversationalist: Essential Chinese Greeting Skills</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/how-to-correctly-address-and-fix-error-0x80070652-during-a-windows-10-update/"><u>How to Correctly Address and Fix Error 0X80070652 During a Windows 10 Update</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-core-definitions-of-cyber-storytelling/"><u>In 2024, Core Definitions of Cyber Storytelling</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-tecno-spark-go-2024-by-drfone-android/"><u>In 2024, How to Bypass FRP from Tecno Spark Go (2024)?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/launching-laughter-hilarious-initiation-hints-for-2024/"><u>Launching Laughter Hilarious Initiation Hints for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/quick-guide-repairing-a-non-functional-corsair-void-mic/"><u>Quick Guide: Repairing a Non-Functional Corsair Void Mic</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/eygnwmwn-glwttothpeio-gkreman/"><u>Ευγνώμων Γλωττοτηπειό Γκρεμάν</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-gimbal-mastery-seamless-camera-handling-and-tracking/"><u>[New] Gimbal Mastery Seamless Camera Handling & Tracking</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-weibo-stars-quick-chats-on-snapchat/"><u>[New] In 2024, Weibo Stars Quick Chats on Snapchat</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-developing-dynamic-instagram-feed-slides-for-2024/"><u>[Updated] Developing Dynamic Instagram Feed Slides for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asian-lingo-triad-priority-save-easy-reordering/"><u>Asian Lingo Triad: Priority Save, Easy Reordering</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangladesh-by-ten-minutes-a-day/"><u>Bangladesh by Ten Minutes a Day!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-the-ice-in-russia-100plus-basic-phrases-for-newcomers/"><u>Break the Ice in Russia: 100+ Basic Phrases for Newcomers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/clarity-command-conquer-twisters-for-perfection/"><u>Clarity Command: Conquer Twisters for Perfection</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expert-review-choosing-the-ideal-computer-chips-for-your-workstation/"><u>Expert Review: Choosing the Ideal Computer Chips for Your Workstation</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/fortgeschrittene-dateisynchronisierung-profitiert-von-dem-top-frei-verfugbaren-tool-auf-externer-speichergerat/"><u>Fortgeschrittene Dateisynchronisierung: Profitiert Von Dem Top-Frei Verfügbaren Tool Auf Externer Speichergerät</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-down-under-to-yours-learn-aussie-sayings/"><u>From Down Under to Yours: Learn Aussie Sayings</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-a-deep-dive-into-previewed-fb-interactions-necessity-or-risk/"><u>In 2024, A Deep Dive Into Previewed FB Interactions Necessity or Risk?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-fashion-filming-simplified-for-macos-users/"><u>In 2024, Fashion Filming Simplified for MacOS Users</u></a></li>
+<li><a href="https://driver-install.techidaily.com/increase-operating-system-stability-with-e1659fwv-update/"><u>Increase Operating System Stability with E1659FWV Update</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-juggling-journey/"><u>Language Juggling Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-weekdays-in-korea-comprehensive-tutorials/"><u>Mastering Weekdays in Korea: Comprehensive Tutorials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/one-minute-a-day-for-fluent-urdu/"><u>One Minute a Day for Fluent Urdu</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-windows-no-fullscreen-game-issue/"><u>Resolving Windows: No FullScreen Game Issue</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-comprerant-guide-to-picture-scaling-in-windows-11/"><u>The Compreran't Guide to Picture Scaling in Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-benefits-of-bilingualism-in-english/"><u>Unlock the Benefits of Bilingualism in English</u></a></li>
 </ul></div>
 

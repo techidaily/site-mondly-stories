@@ -1,7 +1,7 @@
 ---
 title: Mondly Collaborates with Pearson Back on Filter Feature
-date: 2024-11-30T21:43:04.687Z
-updated: 2024-12-03T19:34:01.536Z
+date: 2024-12-05T19:16:41.425Z
+updated: 2024-12-10T16:33:04.422Z
 tags:
   - speak
   - english
@@ -36,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **About Pearson**
@@ -44,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **About Mondly**
@@ -68,20 +68,20 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-exemplary-brain-challenge-video-libraries/"><u>[New] Exemplary Brain Challenge Video Libraries</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-from-fuzzy-frames-to-sharpness-the-v22-journey/"><u>[New] In 2024, From Fuzzy Frames to Sharpness - The V2.2 Journey</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-learning-the-art-of-softly-amplifying-audio-tracks/"><u>[Updated] 2024 Approved Learning the Art of Softly Amplifying Audio Tracks</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-convenient-methods-for-storing-webinars-windows-and-mac-solutions-for-2024/"><u>[Updated] Convenient Methods for Storing Webinars Windows & Mac Solutions for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-crucial-steps-to-preserve-your-youtube-live-video/"><u>[Updated] In 2024, Crucial Steps to Preserve Your Youtube LIVE Video</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-esteemed-creators-best-of-breed-insta-hlv-makers/"><u>2024 Approved Esteemed Creators Best-of-Breed Insta HLV Makers</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-top-7-android-ad-blockers-your-choice-comparison/"><u>2024 Approved Top 7 Android Ad Blockers Your Choice Comparison</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/attraction-tactics-romantic-german-phrases/"><u>Attraction Tactics: Romantic German Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-the-cultural-chasm-key-techniques-for-universal-understanding/"><u>Bridging the Cultural Chasm: Key Techniques for Universal Understanding</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/broadening-horizons-the-rewards-of-language-education/"><u>Broadening Horizons: The Rewards of Language Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/clarity-commands-best-practices-for-clear-dialogue/"><u>Clarity Commands: Best Practices for Clear Dialogue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-expressions-in-portuguese-brazil-vs-europe/"><u>Cultural Expressions in Portuguese: Brazil Vs. Europe</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-german-idioms-a-curated-list-of-top-25/"><u>Decoding German Idioms - A Curated List of Top 25</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/diverse-tongues-common-purpose-in-classrooms/"><u>Diverse Tongues, Common Purpose in Classrooms</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/mastering-mac-capturing-screens-with-record-feature-for-2024/"><u>Mastering Mac Capturing Screens with Record Feature for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-tiktok-top-ten-for-cutting-edge-content-creation/"><u>[New] TikTok Top Ten for Cutting-Edge Content Creation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-performance-the-truth-about-the-tp-link-powerline-wifi-signal-expander-av1300/"><u>Assessing Performance: The Truth About the TP-Link Powerline WiFi Signal Expander (AV1300)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsch-eine-auswahl-an-verabschiedungsformen/"><u>Deutsch: Eine Auswahl an Verabschiedungsformen</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-effortless-video-transfer-importing-and-exporting-in-adobe-premiere-pro-2023/"><u>In 2024, Effortless Video Transfer Importing and Exporting in Adobe Premiere Pro 2023</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-10-must-have-accessories-for-sj4000/"><u>In 2024, Top 10 Must Have Accessories for SJ4000</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/integrating-ai-assistants-into-slides-with-s2t/"><u>Integrating AI Assistants Into Slides with S2T</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-ultimate-2022-language-experience/"><u>Mondly - The Ultimate 2022 Language Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-italy-must-know-expressions-for-guests/"><u>Navigating Italy: Must-Know Expressions for Guests</u></a></li>
+<li><a href="https://extra-information.techidaily.com/pinnacle-creation-hub-synopsis-studio-assessment-2023/"><u>Pinnacle Creation Hub Synopsis, Studio Assessment 2023</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-british-lexicon-explorer-learn-quickly-and-easily/"><u>The British Lexicon Explorer: Learn Quickly & Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essence-free-knowledge-every-day/"><u>The Essence: Free Knowledge Every Day</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unlock-the-secrets-to-fixing-your-wiredwireless-adapter-issues-in-windows-7/"><u>Unlock the Secrets to Fixing Your Wired/Wireless Adapter Issues in Windows 7</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-japons-language-with-key-salutations/"><u>Unlocking Japon's Language with Key Salutations</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/yl-software-insights-easily-update-your-desktop-image-on-windows-systems/"><u>YL Software Insights: Easily Update Your Desktop Image on Windows Systems</u></a></li>
 </ul></div>
 

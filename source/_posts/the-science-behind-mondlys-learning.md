@@ -1,7 +1,7 @@
 ---
 title: The Science Behind Mondly's Learning
-date: 2024-11-27T20:38:53.296Z
-updated: 2024-12-04T03:09:38.775Z
+date: 2024-12-05T16:48:28.125Z
+updated: 2024-12-10T18:58:30.599Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -102,19 +102,20 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-get-the-facts-about-youtube-keyword-research/"><u>[New] 2024 Approved Get the Facts About YouTube Keyword Research</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-full-circle-camera-unboxing-and-tests/"><u>[New] In 2024, Full Circle Camera Unboxing & Tests</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-capturing-clear-and-clean-vocal-audio-for-your-videos/"><u>[Updated] In 2024, Capturing Clear and Clean Vocal Audio for Your Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-pro-quality-footage-selecting-the-ultimate-7-cameras/"><u>[Updated] In 2024, Pro Quality Footage Selecting the Ultimate 7 Cameras</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-efficient-strategies-for-posting-srt-files-to-social-media/"><u>2024 Approved Efficient Strategies for Posting SRT Files to Social Media</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accent-across-the-seas-from-british-to-american-cockney-isms/"><u>Accent Across the Seas: From British to American Cockney-Isms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/arabic-starter-pack-essential-steps-for-novices/"><u>Arabic Starter Pack: Essential Steps for Novices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ausreden-vermeiden-deutsche-art-zu-bedauern-sagen/"><u>Ausreden Vermeiden – Deutsche Art Zu Bedauern Sagen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/edunet-global-hub-bett-2022-highlights/"><u>Edunet Global Hub - BETT 2022 Highlights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578098370-from-novice-to-speaker-in-croatia-here-are-the-top-7-reasons/"><u>From Novice to Speaker in Croatia - Here Are The Top 7 Reasons</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/movavis-no-cost-tool-for-instantly-transforming-audio-from-ape-to-wav-streaming-files/"><u>Movavi's No-Cost Tool for Instantly Transforming Audio From APE to WAV Streaming Files</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580803493-multilingual-momentum-speak-and-travel-without-leaving-home/"><u>Multilingual Momentum: Speak and Travel without Leaving Home!</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211082774-9798886503845-protection-spells-for-new-witches/"><u>Protection Spells for New Witches | Free Book</u></a></li>
-<li><a href="https://games-able.techidaily.com/repairing-unresponsive-windows-steam-remote-play/"><u>Repairing Unresponsive Windows Steam Remote Play</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-choosing-androids-favorite-freepaid-video-tile-tools-8-ranked/"><u>[New] Choosing Android's Favorite Free/Paid Video Tile Tools #8 Ranked</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-cutting-edge-creativity-on-tiktok-mastering-video-designs-in-minutes/"><u>[Updated] In 2024, Cutting-Edge Creativity on TikTok Mastering Video Designs in Minutes</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-navigating-telegram-web-essential-steps-unveiled/"><u>[Updated] Navigating Telegram Web Essential Steps Unveiled</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-driving-sales-not-just-views-monetizing-your-social-media-videos/"><u>2024 Approved Driving Sales, Not Just Views Monetizing Your Social Media Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-the-future-of-packaging-experiential-gifting-excellence/"><u>2024 Approved The Future of Packaging Experiential Gifting Excellence</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-unlock-iphone-se-2022-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>3 Ways to Unlock iPhone SE (2022) without Passcode or Face ID | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/encontros-em-portugal-todos-os-gritos-de-ola/"><u>Encontros Em Portugal: Todos Os Gritos De Olá</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guia-facil-para-combinar-y-superponer-imagenes-con-herramientas-en-linea/"><u>Guía Fácil Para Combinar Y Superponer Imágenes Con Herramientas en Línea</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-the-cosmos-of-3d-printing-an-expert-review-on-elegoos-revolutionary-neptune-4-plus-with-speedy-outputs/"><u>Mastering the Cosmos of 3D Printing - An Expert Review on Elegoo's Revolutionary Neptune 4 Plus with Speedy Outputs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingualism-emphasizing-english/"><u>Multilingualism: Emphasizing English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-years-savings-alert-get-96-off-lifetime-access-to-mondly-premium/"><u>New Year's Savings Alert: Get 96% OFF Lifetime Access To Mondly Premium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/soundscape-of-seducation-the-language-of-italian-romance/"><u>Soundscape of Seducation: The Language of Italian Romance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-up-language-learning-mondlys-augmented-reality-expedition/"><u>Step Up Language Learning - Mondly's Augmented Reality Expedition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-language-learner-mondlys-2022-champion/"><u>Top Language Learner: Mondly's 2022 Champion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-rights-policy-updates-now-available/"><u>Your Rights - Policy Updates Now Available</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Quick and Convenient Online Latin Studies Hub
-date: 2024-12-01T19:05:28.248Z
-updated: 2024-12-03T22:23:32.594Z
+date: 2024-12-09T18:04:19.760Z
+updated: 2024-12-10T17:17:05.912Z
 tags:
   - speak
   - english
@@ -27,7 +27,7 @@ _Ergo_ (“therefore”), the easiest way to learn Latin online is now literally
  If you are wondering why Latin, a dead language, was added to Mondly’s language portfolio and – most importantly – what are the reasons to learn Latin, continue reading the following paragraphs and your questions shall be answered._Mihi crede‌_ (“trust me”).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Latin language, the core of Romance languages
@@ -41,7 +41,7 @@ _Ergo_ (“therefore”), the easiest way to learn Latin online is now literally
 ![latin language](https://edge.mondly.com/blog/wp-content/uploads/2020/02/latin-language-600x450.jpg "This Is The Easiest Way To Learn Latin Online 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Hercules furens” by Seneca.
@@ -49,7 +49,7 @@ _Ergo_ (“therefore”), the easiest way to learn Latin online is now literally
 _Ergo_ , history makes Latin the backbone of many present-day languages and studying it could help you gain valuable insight into the infrastructure of many other languages.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Latin grammar and the Latin alphabet
@@ -61,7 +61,7 @@ A fascinating origin story, isn’t it?
  With three distinct genders, up to seven noun cases, five declensions, four verb conjugations, six tenses, three persons, three moods, two voices, two or three aspects and two numbers, Latin grammar may seem complicated. But once you start your Latin classes with Mondly and learn to read Latin, you’ll be surprised how fast you can actually master this language due to the knowledge you already possess.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Common Latin phrases and expressions we still use today
@@ -91,7 +91,7 @@ A fascinating origin story, isn’t it?
 * _amor vincit omnia_ – love conquers all (is also the name of a painting by the Italian Baroque artist Caravaggio)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Reasons to learn Latin
@@ -134,17 +134,17 @@ A fascinating origin story, isn’t it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-facebook-fiasco-getting-back-to-social-networking/"><u>[New] In 2024, Facebook Fiasco? Getting Back to Social Networking</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-master-the-art-of-garnering-more-facebook-fans/"><u>[New] Master the Art of Garnering More Facebook Fans</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-leading-drone-endurance-top-10-long-flight-contenders/"><u>[Updated] Leading Drone Endurance Top 10 Long-Flight Contenders</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-covert-creation-of-personal-snaps-on-snapchat/"><u>[Updated] The Covert Creation of Personal Snaps on Snapchat</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-advocacy-with-precision-in-professional-vernacular/"><u>Accelerate Advocacy with Precision in Professional Vernacular</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-foreign-flicks-to-learn-a-new-tongue/"><u>Best Foreign Flicks To Learn A New Tongue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brussels-dialects-and-beyond-a-linguistic-journey/"><u>Brussels Dialects and Beyond: A Linguistic Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578479086-celebrate-new-beginnings-by-saving-big-with-mondly-pros-free-access/"><u>Celebrate New Beginnings by Saving Big with Mondly Pro's Free Access!</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-step-by-step-sharing-media-from-one-iphone-to-another/"><u>In 2024, Step-by-Step Sharing Media From One iPhone to Another</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-secrets-to-seamless-zoom-talks-mastering-online-communication-skills/"><u>In 2024, The Secrets to Seamless Zoom Talks Mastering Online Communication Skills</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/step-by-step-guide-setting-up-database-snapshots-in-microsoft-sql-server-versions-2012-through-2nineteen/"><u>Step-by-Step Guide: Setting Up Database Snapshots in Microsoft SQL Server Versions 2012 Through 2Nineteen</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/transforming-ideas-into-action-a-critical-review-of-the-innovative-makeblock-mbot-diy-robotic-kit/"><u>Transforming Ideas Into Action: A Critical Review of the Innovative Makeblock mBot DIY Robotic Kit</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-capture-emotion-not-just-photos-iphone-images-through-leading-lines/"><u>[Updated] Capture Emotion, Not Just Photos IPhone Images Through Leading Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrate-with-a-smile-no-words-needed/"><u>Celebrate with a Smile, No Words Needed</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/discover-how-photoscape-revolutionizes-image-editing-for-everyone-with-its-free-user-friendly-platform/"><u>Discover How PhotoScape Revolutionizes Image Editing for Everyone with Its Free, User-Friendly Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grundkurs-deutsch-aufbauend-bis-100-in-der-deutschen-zahlenreihe/"><u>Grundkurs Deutsch: Aufbauend Bis 100 in Der Deutschen Zahlenreihe</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-vivo-s17-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-unveiling-the-superiority-of-the-samsung-galaxy-s21-ultra-in-android-world/"><u>In-Depth Review: Unveiling the Superiority of the Samsung Galaxy S21 Ultra in Android World</u></a></li>
+<li><a href="https://review-topics.techidaily.com/itel-unlock-tool-remove-android-phone-password-pin-pattern-and-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Itel Unlock Tool - Remove android phone password, PIN, Pattern and fingerprint</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/novel-selection-for-newbies-top-french-literature-list/"><u>Novel Selection for Newbies: Top French Literature List</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/setting-up-audacity-for-effective-mac-based-sound-capture/"><u>Setting Up Audacity for Effective Mac-Based Sound Capture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turko-korean-codex-of-communications/"><u>Turko-Korean Codex of Communications</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-premiere-rush-vs-the-competition-top-4-rivals-for-2024/"><u>Updated Premiere Rush vs The Competition Top 4 Rivals for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-zte-blade-a73-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On ZTE Blade A73 5G? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

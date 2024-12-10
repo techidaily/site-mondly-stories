@@ -1,7 +1,7 @@
 ---
 title: Beginner's Companion to Turkish Writing & Speaking Patterns
-date: 2024-08-15T17:40:56.861Z
-updated: 2024-08-16T17:40:56.861Z
+date: 2024-12-08T16:43:06.469Z
+updated: 2024-12-10T19:09:16.206Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/a01205544ff8168a67a8bfa126c67a299939543e9
 
  But Turkish didn’t always use the Latin script. Let’s look a little bit at the history and see how today’s Turkish alphabet was born.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Turkish alphabet – a short history
 
  The Turkik languages have a long history of [writing systems](https://en.wikipedia.org/wiki/Turkish%5Falphabet) . Over time, these languages have been written using different alphabets like Cyrillic, Uyghur, Greek, Arabic, Latin and some other Asiatic writing systems.
@@ -29,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/a01205544ff8168a67a8bfa126c67a299939543e9
  But when it comes to Turkish, **the earliest proof of a Turkish alphabet goes back to the 7th century** when the Orkhon script was used. Then, **for over 1,000 years, the Turkish language was written using a Turkish form of the Arabic script.** That is also probably why some people believe that Turks speak Arabic.
 
 ![turkish language](https://edge.mondly.com/blog/wp-content/uploads/2019/10/turkish-language-1024x713.jpg "Turkish Alphabet And Pronunciation: A Quick Guide 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “The Blue Mosque, Istanbul, Turkey” by Adli Wahid©
 
@@ -39,8 +47,9 @@ thumbnail: https://thmb.techidaily.com/a01205544ff8168a67a8bfa126c67a299939543e9
  Fortunately, **in 1928, Mustafa Kemal Atatürk, the founder of the Turkish Republic, finally adopted the 29-letter Latin script as a part of his famous Reforms in Turkey – the same alphabet that Turks use today.**
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The pronunciation of each letter of the Turkish alphabet
 
  The 29-letter Turkish alphabet is modified from the Latin alphabet and it includes seven Turkish letters that are not in the English alphabet: Ç, Ğ, I, İ, Ö, Ş, and Ü. What’s more, there are also three English letters – Q, W and X – that the Turkish alphabet doesn’t have.
@@ -50,15 +59,17 @@ thumbnail: https://thmb.techidaily.com/a01205544ff8168a67a8bfa126c67a299939543e9
  As already mentioned, Turkish is an almost entirely phonetic language, so once you master the pronunciation of each of its 29 letters, you’ll know exactly how to read in Turkish. Let’s dive in and discover the pronunciation of the Turkish alphabet:
 
 ![turkish alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2019/10/turkish-alphabet-pronunciation-scaled-960x679.jpg "Turkish Alphabet And Pronunciation: A Quick Guide 3")
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The pronunciation of the 29 letters of the Turkish alphabet
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Rules to help you get started with Turkish
 
  Language aficionados such as yourself know that Turkish is not [the hardest language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you can learn.[The FSI](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) (Foreign Service Institute) from the US government puts **Turkish on the fourth tier of their Interagency Language Roundtable (IRL) with 1100 hours or 44 weeks of study needed to achieve professional working proficiency.** This means that Turkish is indeed profoundly different from English.
@@ -99,8 +110,6 @@ thumbnail: https://thmb.techidaily.com/a01205544ff8168a67a8bfa126c67a299939543e9
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -108,8 +117,19 @@ thumbnail: https://thmb.techidaily.com/a01205544ff8168a67a8bfa126c67a299939543e9
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-android-tricks-changing-video-ordering/"><u>[New] Android Tricks Changing Video Ordering</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-lava-blaze-2-pro-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/beware-of-blind-faith-in-ai-top-6-concerns-to-consider/"><u>Beware of Blind Faith in AI: Top 6 Concerns to Consider</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/glad-attack-grev-for-sverige/"><u>Glad Attack: Grev För Sverige</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/groundbreaking-ai-powered-ar-speaker/"><u>Groundbreaking AI-Powered AR Speaker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonious-easter-wishes-in-multiple-languages/"><u>Harmonious Easter Wishes in Multiple Languages</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-easily-transform-your-gif-files-into-mp4-format-for-any-device-without-costing-a-dime/"><u>How To Easily Transform Your GIF Files Into MP4 Format for Any Device Without Costing a Dime</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-review-of-samsung-galaxy-watch-active-2-boasting-improved-connectivity-and-insightful-features-relative-to-original-version/"><u>In-Depth Review of Samsung Galaxy Watch Active 2: Boasting Improved Connectivity & Insightful Features Relative to Original Version</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leap-into-korean-proficiency-with-these-6-websites/"><u>Leap Into Korean Proficiency with These 6 Websites</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-15-free-web-based-image-enhancers-2023/"><u>Top 15 Free Web-Based Image Enhancers 2023</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-graphics-workstation-laptops-analyzed-by-professionals-a-comprehensive-guide-zdnet/"><u>Top-Rated Graphics Workstation Laptops Analyzed by Professionals - A Comprehensive Guide | ZDNET</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-chatgpt-in-2024/"><u>Updated What Is ChatGPT, In 2024</u></a></li>
+</ul></div>
 
