@@ -1,7 +1,7 @@
 ---
 title: "Compassionate Columbia: Fundacion Danny's Support System"
-date: 2024-08-23T00:18:53.378Z
-updated: 2024-08-24T00:18:53.378Z
+date: 2024-12-09T20:24:11.752Z
+updated: 2024-12-16T21:46:16.662Z
 tags:
   - speak
   - english
@@ -30,11 +30,19 @@ thumbnail: https://thmb.techidaily.com/4fdba735ca68de32414a243ab29c0a7ff66726341
 
  **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Unlocking the power of social good
 
  When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
 
 ![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Graduation at the Danny Foundation.
 
@@ -50,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/4fdba735ca68de32414a243ab29c0a7ff66726341
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Learn a new language in just 10 minutes a day
 
@@ -69,8 +81,6 @@ thumbnail: https://thmb.techidaily.com/4fdba735ca68de32414a243ab29c0a7ff66726341
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -78,12 +88,24 @@ thumbnail: https://thmb.techidaily.com/4fdba735ca68de32414a243ab29c0a7ff66726341
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-enhance-gaming-experience-with-voice-adjustment/"><u>[New] 2024 Approved Enhance Gaming Experience with Voice Adjustment</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-optimal-videography-minimizing-sound-interference-effectively/"><u>[New] 2024 Approved Optimal Videography Minimizing Sound Interference Effectively</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-tune-up-clips-import-audio-into-inshot-easily/"><u>[New] In 2024, Tune Up Clips Import Audio Into InShot Easily</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-vivid-video-visualization-the-essential-5-tools-guide/"><u>[Updated] In 2024, Vivid Video Visualization The Essential 5 Tools Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-chronicle-of-unrestrained-learning-days/"><u>A Chronicle of Unrestrained Learning Days</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridge-cultures-effortlessly-mondlys-revamped-phrase-compendium/"><u>Bridge Cultures Effortlessly: Mondly’s Revamped Phrase Compendium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/career-advancement-through-fluency-across-languages/"><u>Career Advancement Through Fluency Across Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-study-on-english-grammar-patterns/"><u>Comparative Study on English Grammar Patterns</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/craft-the-perfect-cinematic-journey-with-imovie/"><u>Craft the Perfect Cinematic Journey with iMovie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivate-politeness-in-german-learn-these-16-thanks-phrases/"><u>Cultivate Politeness in German: Learn These 16 Thanks Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-why-arabic-online-mondly-lessons-and-advantages/"><u>Discover Why Arabic Online: Mondly Lessons & Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dominant-dialects-of-croatia/"><u>Dominant Dialects of Croatia</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1725285187991-dvd-flick/"><u>DVD Flick変換失敗時に遭遇する一般的なエラーと解決策</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-learning-of-swedish-letters-and-tones/"><u>Effortless Learning of Swedish Letters & Tones</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-latest-hp-officejet-3830-driver-and-installation-help-on-windows-pc/"><u>Get the Latest HP OfficeJet 3830 Driver & Installation Help on Windows PC</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-vivo-s17-pro-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Vivo S17 Pro to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/master-the-art-of-preventing-minecraft-from-crashing-a-simple-guide/"><u>Master the Art of Preventing Minecraft From Crashing - A Simple Guide!</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->

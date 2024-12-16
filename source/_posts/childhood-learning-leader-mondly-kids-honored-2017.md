@@ -1,7 +1,7 @@
 ---
 title: "Childhood Learning Leader: Mondly Kids Honored 2017"
-date: 2024-08-15T17:44:45.537Z
-updated: 2024-08-16T17:44:45.537Z
+date: 2024-12-15T21:24:13.891Z
+updated: 2024-12-16T19:07:36.711Z
 tags:
   - speak
   - english
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/82946b1471bda0a94f0756d1b1276fee19eddaa45
 
  Children are always the best critics. They are disarmingly honest and have an innocent way of being straightforward. If they don’t like you, they will tell you right away, so it’s not totally preposterous to think that they would make great judges in almost any kind of competition. This is why we were proud and honored when **Google Play notified us that MondlyKids was selected as one of the Best Apps of 2017** in a children’s category. And before we could properly celebrate the news,**Google Play** announced that**MondlyKids** is giving us yet another milestone to celebrate in 2017:[Editors’ Choice language app](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Our journey of learning and creating
 
  We, at [Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-942&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-942%26utm%5Fsource%3Dblog-post-id-942&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-942%26utm%5Fsource%3Dblog-post-id-942&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-942%26utm%5Fsource%3Dblog-post-id-942&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-942%26mt%3D8) , started our journey of learning and creating almost five years ago. It required a lot of work, but it was worth every step of the way. Our aim was to create immersive learning experiences. We wanted to never stop innovating. So here we are today:
@@ -25,8 +29,9 @@ thumbnail: https://thmb.techidaily.com/82946b1471bda0a94f0756d1b1276fee19eddaa45
 > _We think your app was one of the best on Google Play in 2017\. We know that you and your team have worked hard to create a unique and compelling experience, so consider this our way of saying thank you for bringing your innovation and expertise to the Play Store._  – Google Play
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## MondlyKids – a new learning experience for children
 
  After our first language app launch, it became quite clear the concept we were trying to tackle: learning through play. In an era labeled by visual stimuli and the constant lack of time, people are always looking for the fastest and most enjoyable ways to learn. This is why they chose and will continue to choose our innovative approach.
@@ -36,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/82946b1471bda0a94f0756d1b1276fee19eddaa45
  The result? We created a child-friendly app with an eye-catching design and a cool story for 5 to 12 years old children that have a great thirst for knowledge and like gamified experiences. Cool sound effects and music are also here to keep the children engaged. Over the course of our 11 main lessons, children will become competitive and eager to learn, discover and interact more with their new virtual native speaker chipmunk friend.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### The road to success
 
  In order for the new Mondly app to match its exigent young target, we had to give children a new angle on progress and how important it is in the learning experience. This is the point where we decided to create our design around a map where the learning progress would be visualized in terms of traveling to new places – this is why a completed set of lessons will get you to a new place on the map; because knowledge broadens the mind and lets you travel.[Mondly for Kids - free languages for kids (small)](https://edge.mondly.com/blog/wp-content/uploads/2017/12/Mondly-for-Kids-free-languages-for-kids-small-1024x921.png "Google Play Selects Mondly’s Kids App As One Of The Best Apps Of 2017 2") ](https://play.google.com/store/apps/details?id=com.atistudios.mondly.kids.languages&hl=en)
@@ -57,8 +63,6 @@ thumbnail: https://thmb.techidaily.com/82946b1471bda0a94f0756d1b1276fee19eddaa45
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -66,8 +70,20 @@ thumbnail: https://thmb.techidaily.com/82946b1471bda0a94f0756d1b1276fee19eddaa45
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/updated-flawless-coexistence-of-linktree-and-tiktok-biographies/"><u>[Updated] Flawless Coexistence of Linktree and TikTok Biographies</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/ai-europe-201/"><u>AI Europe 201</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-linguistics-a-turk-korean-odyssey/"><u>Comparative Linguistics: A Turk-Korean Odyssey</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-syma-x5c-remote-controlled-quadcopter-cost-effective-for-starters/"><u>Comprehensive Analysis of the SYMA X5C Remote Controlled Quadcopter - Cost-Effective for Starters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-courtesy-express-gratitude-in-30-languages-148-under-156-but-original-concept/"><u>Cultural Courtesy: Express Gratitude in 30 Languages (148) [Under 156 but Original Concept]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-new-languages-easily-only-047-more-than-before/"><u>Discover New Languages Easily – Only $0.47 More than Before</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-russian-counting-patterns-and-formulas/"><u>Discovering Russian Counting Patterns and Formulas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-italys-non-verbal-communication-traditions/"><u>Embracing Italy's Non-Verbal Communication Traditions</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211330467-9780063014589-good-mourning/"><u>Good Mourning | Free Book</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-xiaomi-redmi-k70e-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Xiaomi Redmi K70E Without PUK Codes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-3-ways-to-unlock-your-apple-iphone-15-plus-for-free-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Your Apple iPhone 15 Plus for Free</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-huawei-p60-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Huawei P60</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-realme-note-50-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Realme Note 50 Lock Screen Password?</u></a></li>
+</ul></div>
 

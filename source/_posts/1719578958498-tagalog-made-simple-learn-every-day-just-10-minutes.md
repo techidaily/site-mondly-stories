@@ -1,7 +1,7 @@
 ---
 title: "Tagalog Made Simple: Learn Every Day, Just 10 Minutes"
-date: 2024-08-23T00:21:05.441Z
-updated: 2024-08-24T00:21:05.441Z
+date: 2024-12-13T18:54:58.012Z
+updated: 2024-12-16T21:58:03.894Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/fe5fb2202d31ead27c9d026582d857fbe91d9882c
 
  Consisting of super fun, effective and accessible language lessons, the new Tagalog course is now available on [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4502&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4502?mother%5Flang=en%5Fus?target%5Flang=tl&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4502?mother%5Flang=en%5Fus?target%5Flang=tl) ,[Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4502&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4502?mother%5Flang=en%5Fus?target%5Flang=tl&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4502?mother%5Flang=en%5Fus?target%5Flang=tl) and [web](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4502&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4502?mother%5Flang=en%5Fus?target%5Flang=tl&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4502?mother%5Flang=en%5Fus?target%5Flang=tl) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Learn Tagalog, the language of the river dwellers
 
  Behind the beautiful Tagalog language, there are centuries of rich and fascinating history guaranteed to make you even more eager to learn Tagalog. For example, the first likely words of Old Tagalog origin are attested in the [Laguna Copperplate Inscription](https://en.wikipedia.org/wiki/Laguna%5FCopperplate%5FInscription) from 900 CE, a legal document which is largely written in Old Malay.
@@ -29,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/fe5fb2202d31ead27c9d026582d857fbe91d9882c
  Spanish missionaries, who probably served as the first teachers in the area, introduced Filipinos to Christianity, the Latin alphabet and the Spanish language. Naturally, as you will see for yourself during your Tagalog training, Spanish, together with English, had a great influence on the [Filipino language](https://en.wikipedia.org/wiki/History%5Fof%5Fthe%5FPhilippines) that is today the official language of the Philipines and the standardized version of the Tagalog language.
 
 ![tagalog for beginners](https://edge.mondly.com/blog/wp-content/uploads/2020/03/tagalog-for-beginners-1-600x450.jpg "Learn Tagalog Online In Just 10 Minutes A Day 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “El Nido, Philippines” by Cris Tagupa©
 
@@ -44,9 +52,6 @@ thumbnail: https://thmb.techidaily.com/fe5fb2202d31ead27c9d026582d857fbe91d9882c
 
  Therefore,**your language of choice should definitely be Tagalog** as you’ll have a much easier time in your travels to the beautiful Philippines.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## The languages of the Philippines
 
  Fun fact: did you know that the number of established languages listed for the Philippines is 186? According to [Ethnologue](https://www.ethnologue.com/country/PH) , 184 of these are living and 2 are extinct. Of the total of 184 living languages, 175 are indigenous and 9 are non-indigenous. Furthermore, 37 are institutional, 68 are developing, 38 are vigorous, 30 are in trouble, and 11 are dying. Also listed are 3 unestablished languages.
@@ -54,8 +59,9 @@ thumbnail: https://thmb.techidaily.com/fe5fb2202d31ead27c9d026582d857fbe91d9882c
  Ten of the most used languages in the Philippines besides Tagalog, Filipino and English (an official language as well) are Cebuano, Ilocano, Hiligaynon, Waray-Waray, Kapampangan, Bicolano, Pangasinense, Maranaoan and Tausug.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tagalog for beginners or how to speak Tagalog fast
 
  There are nine basic parts of speech in Tagalog: verbs_(pandiwa)_ , nouns_(pangngalan)_ , adjectives_(pang-uri)_ , adverbs_(pang-abay)_ , prepositions_(pang-ukol)_ , pronouns_(panghalip)_ , conjunctions_(pangatnig)_ , ligatures_(pang-angkop)_ and particles. Tagalog uses the verb-subject-object order and has fairly complex verb conjugation rules, but that won’t stop Mondly help you speak Tagalog from day 1.
@@ -63,9 +69,9 @@ thumbnail: https://thmb.techidaily.com/fe5fb2202d31ead27c9d026582d857fbe91d9882c
 ![speak tagalog](https://edge.mondly.com/blog/wp-content/uploads/2020/03/speak-tagalog-2-277x600.jpg "Learn Tagalog Online In Just 10 Minutes A Day 3")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Learn Tagalog with Mondly
 
  While it is said that Tagalog is difficult to learn by English speakers, you’ll soon discover that the Tagalog vocabulary mimics many English and [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . These are the result of the above-mentioned Spanish colonization and a half of a century of American control of the Philippines.
@@ -78,8 +84,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ---
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Speak Tagalog today
 
  It can be really tricky to master Tagalog pronunciation if you don’t actively live in the Philippines. But with Mondly, the award-winning language learning app, you can learn Tagalog naturally with practical topics, authentic conversations and bite-sized Daily Lessons.
@@ -94,8 +101,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -103,8 +108,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/nhancing-youtube-experience-with-a-structured-watch-later-plan-for-2024/"><u>[New] Enhancing YouTube Experience with a Structured Watch Later Plan for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-a-comprehensive-guide-to-achieving-smooth-color-keying/"><u>[Updated] A Comprehensive Guide to Achieving Smooth Color-Keying</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exploring-the-extents-of-vr-technology/"><u>[Updated] Exploring the Extents of VR Technology</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-decoding-srt-a-detailed-guide-for-file-format-conversions/"><u>[Updated] In 2024, Decoding SRT A Detailed Guide for File Format Conversions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-5-leading-tools-for-crafting-superior-video-titles-and-tags/"><u>2024 Approved 5 Leading Tools for Crafting Superior Video Titles and Tags</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-streamlining-the-process-of-making-smaller-images-tips-and-tricks/"><u>2024 Approved Streamlining the Process of Making Smaller Images Tips & Tricks</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-google-pixel-fold-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-deep-dive-into-buttons-used-by-brazilians-and-europeans/"><u>A Deep Dive Into Buttons Used by Brazilians and Europeans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amp-up-mastering-japanese-digits-with-minutes/"><u>Amp Up: Mastering Japanese Digits with Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendiendo-la-linea-del-tiempo-en-espanol-de-martes-al-domingo/"><u>Aprendiendo La Línea Del Tiempo en Español De Martes Al Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-english-vs-american-english-differences-spelling-pronunciation-and-more/"><u>British English vs American English Differences: Spelling, Pronunciation and More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-pathways-to-master-a-foreign-language-today/"><u>Digital Pathways to Master a Foreign Language Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-commerce-through-powerful-language-programs/"><u>Elevate Commerce Through Powerful Language Programs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/essential-steps-for-flawless-inshot-edits-for-2024/"><u>Essential Steps for Flawless Inshot Edits for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581198562-norges-language-leap-10-minute-magic/"><u>Norge's Language Leap - 10-Minute Magic</u></a></li>
+</ul></div>
 

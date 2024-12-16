@@ -1,7 +1,7 @@
 ---
 title: "Universal Breeze: Simplified Language Mastery Rankings"
-date: 2024-12-09T17:54:45.762Z
-updated: 2024-12-10T16:56:58.776Z
+date: 2024-12-09T20:57:24.656Z
+updated: 2024-12-16T20:21:32.697Z
 tags:
   - speak
   - english
@@ -35,7 +35,7 @@ As [the FSI confirms](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFF
 Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) !
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Swedish
@@ -54,6 +54,10 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
  The story started back in the 15th century after the union of Norway with Denmark. That’s when Old Norwegian writing traditions gradually began to die out, and Dano-Norwegian took over. Then, in 1814, Norway became independent, and although the linguistic union with Danish persisted, the people felt they needed a language of their own. That’s when the New Norwegian norm began to be used. Today, the people of Norway learn to read and write in New Norwegian, but only about 20% of them use it as their language of choice in writing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Afrikaans – the easiest language to learn for both English and Dutch speakers
 
  Afrikaans, the same as English, Dutch, Danish, Norwegian and Swedish, is a Germanic language. This is what makes it obviously easier to learn by a native English speaker. These languages use the same alphabet as English, have comparable stress and intonation patterns, and sometimes even share some vocabulary words.
@@ -62,15 +66,15 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
  Thus, if you are a language nerd that also wants to become a [polyglot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , with Dutch you can kill one and three-quarters of a bird with one stone because you’ll also understand a big part of the Afrikaans language. If simplicity isn’t enough for you, here are [7 more reasons to learn Afrikaans!](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Dutch
 
  As we already mentioned, Dutch can be considered Afrikaans’ oldest sibling since they share almost the same vocabulary (90-95%). With around 24 million speakers, Dutch is the third most widely spoken Germanic language – the first two being English and German – and the official language of the Netherlands and [Belgium](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) (together with French and German).
 
  Careful though! The spoken language of Dutch is tricky as it has many dialects. While Standard Dutch is used for official purposes, its dialects are used in a great variety of informal situations. Sometimes you’ll find villages that use a Dutch dialect of their own.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Romance languages are almost just as easy to learn
 
@@ -92,15 +96,15 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
  Seriously now, Italian is also highly readable, with a shorter alphabet than English: 21 letters instead of 26.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Spanish
 
  Since we talked about Italian, Spanish couldn’t be far behind, right? The same advantages as with Italian apply here as well, the many [cognates](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) making the learning experience a lot easier.
 
  When it comes to pronunciation, things are also pretty straightforward, as it’s a phonetic language through and through. But keep in mind that, same as with French, grammar could be a little bewildering at first: we’re talking about different verb tenses, grammar rules, and exceptions. What more incentive do you need to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , aside from the fact that it is the second most spoken language in the world?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Romanian
 
@@ -111,10 +115,6 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 ![romanian castle](https://edge.mondly.com/blog/wp-content/uploads/2019/06/romanian-castle-960x641.jpg "Top 10 Easiest Languages To Learn 4")
 
  ‘Peleș Castle, România’ by Majkl Velner©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Portuguese
 
@@ -128,7 +128,7 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Speak a new language in just 10 minutes a day
@@ -161,24 +161,18 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-fabulous-review-and-diverse-options-for-2024/"><u>[New] Fabulous Review & Diverse Options for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-ultimate-list-youtube-alternatives-for-video-creators/"><u>[New] The Ultimate List YouTube Alternatives for Video Creators</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-unveiling-the-best-mobile-tools-to-pull-videos-from-youtube/"><u>[Updated] Unveiling the Best Mobile Tools to Pull Videos From YouTube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutsch-ein-uberblick-uber-verabschiedungsformeln/"><u>Deutsch: Ein Überblick Über Verabschiedungsformeln</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/efficient-norge-language-skills-10-minute-routine/"><u>Efficient Norge Language Skills, 10-Minute Routine!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhance-communication-skills-in-hindi-discover-7-powerful-mondly-advantages/"><u>Enhance Communication Skills in Hindi - Discover 7 Powerful Mondly Advantages!</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-building-a-reliable-routine-for-google-meet-sessions/"><u>In 2024, Building a Reliable Routine for Google Meet Sessions</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 12 Pro | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/lessons-in-frustration-a-firsthand-look-at-southwest-airlines-disappointing-digital-services-as-revealed-by-zdnet/"><u>Lessons in Frustration: A Firsthand Look at Southwest Airlines' Disappointing Digital Services, as Revealed by ZDNet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lingo-uncovered-exploring-english-slang-and-its-origins/"><u>Lingo Uncovered: Exploring English Slang and Its Origins</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/mini-dragon-maximum-return-the-ultimate-spyro-reignited-trilogy-assessment/"><u>Mini Dragon, Maximum Return - The Ultimate Spyro Reignited Trilogy Assessment</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576425842-must-learn-croatian-dialogues-for-smooth-expat-experiences/"><u>Must-Learn Croatian Dialogues for Smooth Expat Experiences!</u></a></li>
-<li><a href="https://howto.techidaily.com/play-store-stuck-on-downloading-of-nokia-c32-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Nokia C32? 7 Ways to Resolve | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-pathways-to-mastering-language-barriers/"><u>Quick Pathways to Mastering Language Barriers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spandexs-progeny-countries-listed-here/"><u>Spandex's Progeny Countries Listed Here</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579211674-start-with-croatian-find-out-the-top-7-reasons-for-today/"><u>Start with Croatian: Find Out the Top 7 Reasons for Today</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/tips-for-perfected-framing-implementing-letterboxing-on-social-media/"><u>Tips for Perfected Framing Implementing Letterboxing on Social Media</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-rated-magsafe-chargers-and-batteries-comprehensive-reviews-by-tech-experts-zdnet/"><u>Top-Rated MagSafe Chargers & Batteries : Comprehensive Reviews by Tech Experts | ZDNet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/verbalrealms-dive-into-new-worlds-of-language-learning/"><u>VerbalRealms: Dive Into New Worlds of Language Learning</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-making-marks-trendsetting-on-social-media-platforms/"><u>[Updated] 2024 Approved Making Marks Trendsetting on Social Media Platforms</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ape-to-wma-conversion-online-free-download-with-movavi/"><u>APE to WMA Conversion Online - Free Download with Movavi</u></a></li>
+<li><a href="https://extra-information.techidaily.com/battling-the-invisible-screen-on-social-media-a-chromesafari-guide/"><u>Battling the Invisible Screen on Social Media A Chrome/Safari Guide</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-make-the-most-of-your-iphone-se-2020-lock-screen-with-notifications-drfone-by-drfone-ios/"><u>How to Make the Most of Your iPhone SE (2020) Lock Screen with Notifications? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/improve-your-printers-performance-download-updated-epson-xp-420-drivers/"><u>Improve Your Printer’s Performance - Download Updated Epson XP-420 Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/join-our-free-access-family-get-lifetime-mondly-pro-for-no-cost/"><u>Join Our Free Access Family - Get Lifetime Mondly Pro for No Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-leapfrogging-from-preschoolers-to-fifth-grade/"><u>Language Learning Leapfrogging: From Preschoolers To Fifth Grade</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/locked-out-of-apple-iphone-xs-max-5-ways-to-get-into-a-locked-apple-iphone-xs-max-by-drfone-ios/"><u>Locked Out of Apple iPhone XS Max? 5 Ways to get into a Locked Apple iPhone XS Max</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-czech-fast-top-online-learning-methods/"><u>Mastering Czech Fast: Top Online Learning Methods</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-the-art-of-excel-functionality-within-microsoft-word-a-step-by-step-guide/"><u>Mastering the Art of Excel Functionality Within Microsoft Word: A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-bards-legacy-36-phrases-in-modern-speech/"><u>The Bard’s Legacy: 36 Phrases in Modern Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-comprerante-guide-to-mastering-international-languages-tests/"><u>The Comprerante Guide to Mastering International Languages Tests</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-evolution-over-ten-years-at-mondly/"><u>The Evolution Over Ten Years at Mondly</u></a></li>
 </ul></div>
 

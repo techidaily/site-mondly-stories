@@ -1,7 +1,7 @@
 ---
 title: "Israel Expedition Essentials: Practical Advice & Useful Dialogue"
-date: 2024-12-09T16:07:06.615Z
-updated: 2024-12-10T19:15:56.835Z
+date: 2024-12-15T20:38:44.966Z
+updated: 2024-12-16T18:11:49.905Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
  So here are some tips and all the basic Hebrew phrases you need to know before packing your bags for the long-awaited trip to Israel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Here’s what you should know before traveling to Israel
 
 **The best time to go to Israel:** If you want to sunbathe on the beaches of Tel Aviv or snorkel in Eilat, the best time to go to Israel is between June and September. On the other hand, if you are a person that feels more comfortable with lower temperatures, the periods between April – May and October-November are the best for you to explore the country and spend time in Jerusalem. However, during these months you should pack clothes that you can wear in layers because the weather can change fast from really sunny to cold and vice-versa.
@@ -39,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 ![hebrew phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/09/hebrew-phrases-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Mahane Yehuda Market, Jerusalem, Israel” by Roxanne Desgagnés©
@@ -83,7 +87,7 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
  Before moving on to the Hebrew travel phrases that will make your vacation ten times better (yes, learning the language of the natives does that!), let’s discover the top five most beautiful places in Israel. Like we already mentioned, this country is a dream. From beaches to gardens and holy sanctuaries. So let’s discover the most beautiful of them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Jerusalem and Nazareth
@@ -97,13 +101,13 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 ![hebrew words](https://edge.mondly.com/blog/wp-content/uploads/2019/09/hebrew-words-1024x767.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Tel Aviv-Yafo, Israel” by Shai Pal©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. The Dead Sea
@@ -111,10 +115,6 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
  With its surface and shores at 1,412 ft (430.5 meters) below sea level, The Dead Sea is Earth’s lowest elevation on land. With only that fact in mind, The Dead Sea immediately becomes a must-see place not only for Israel but for the entire world. On top of it all, it is also one of the world’s saltiest bodies of water.
 
 ![travel to israel](https://edge.mondly.com/blog/wp-content/uploads/2019/09/travel-to-israel-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 5")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “The Dead Sea” by Dave Herring©
 
@@ -140,10 +140,6 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
  First, we will explore Hebrew greetings, continue with some common ways to ask for help in Hebrew, basic phrases for when you’ll go to an Israeli restaurant and some basic phrases for shopping sprees. Happy learning!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Hebrew Greetings and other basics
 
 * Good morning! –_בוקר טוב. – Boker tov._
@@ -167,10 +163,6 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
  “Ein Gedi Oasis, Israel” by Robert Bye©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Common Hebrew phrases for travelers that need help
 
 * Can you help me? –_תוכל לעזור לי? – Tookhal la’azor lee?_
@@ -181,6 +173,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 * Where is a pharmacy? –_איפה יש בית מרקחת? – Eyfo yesh beyt merkakhat?_
 * Where is a supermarket? –_איפה יש סופרמרקט? – Eyfo yesh soopermarket?_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Learn Hebrew to experience the local cuisine
 
 * We are ready to order. –_אנחנו מוכנים להזמין. – Anakhnoo mookhaneem le’hazmeen._
@@ -190,6 +186,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 * I’d like an orange juice. –_אני רוצה מיץ תפוזים. – Anee rotseh meets tapoozeem._
 * I would like a salad. –_אני רוצה סלט. – Anee rotseh salat._
 * I would like a soup. –_אני רוצה מרק. – Anee rotseh marak._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Basic Hebrew phrases for shopping sprees
 
@@ -229,21 +229,22 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-spotlight-play-how-to-stand-out-with-youtube-gaming-for-2024/"><u>[Updated] Spotlight Play How to Stand Out with YouTube Gaming for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/2024-ultimate-ipad-guide-in-depth-expert-analysis-and-ratings-zdnet/"><u>2024 Ultimate iPad Guide: In-Depth Expert Analysis & Ratings | ZDNET</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/a-stepwise-approach-to-film-color-grading-with-look-up-tables-luts-from-cg-central/"><u>A Stepwise Approach to Film Color Grading with Look-Up Tables (Luts) From CG Central</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-samsung-galaxy-a05-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Samsung Galaxy A05</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discover-the-ultimate-list-free-pdf-editing-tools-ranked/"><u>Discover the Ultimate List: Free PDF Editing Tools Ranked</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/1723964505544-diving-deep-with-toms-hardware-unveiling-cutting-edge-technology-today/"><u>Diving Deep with Tom's Hardware - Unveiling Cutting-Edge Technology Today</u></a></li>
-<li><a href="https://win-able.techidaily.com/1723014108462-enhance-your-pc-experience-no-more-hell-let-loose-game-crashes-here/"><u>Enhance Your PC Experience - No More Hell Let Loose Game Crashes Here</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-unmissable-vr-storytelling-masterpieces/"><u>In 2024, Unmissable VR Storytelling Masterpieces</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-japanese-anywhere-10-no-cost-online-platforms-revealed/"><u>Learn Japanese Anywhere: 10 No-Cost Online Platforms Revealed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mundo-lunar-en-espanol-del-domingo-al-lunes-y-todos-los-dias-en-camino/"><u>Mundo Lunar en Español: Del Domingo Al Lunes, Y Todos Los Días En Camino</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/no-more-payments-mondly-unlocked-forever/"><u>No More Payments: Mondly Unlocked Forever</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sculpting-success-in-global-language-assessments-and-certifications/"><u>Sculpting Success in Global Language Assessments & Certifications</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sveriges-mojligheter-svensk-forsal/"><u>Sveriges Möjligheter: Svensk Försal</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-significance-of-ai-in-modern-educational-practices/"><u>The Significance of AI in Modern Educational Practices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unleashing-adventure-and-strategy-an-insider-review-of-yakuza-like-a-dragon-a-compelling-rpg-quest/"><u>Unleashing Adventure and Strategy: An Insider Review of Yakuza: Like A Dragon, A Compelling RPG Quest</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/varfor-sweden-svensk-forsalar/"><u>Varför Sweden? - Svensk Försalar</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-auditory-storytelling-in-cinematic-openings/"><u>[New] Auditory Storytelling in Cinematic Openings</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-from-silence-to-soundtrack-making-music-centric-tiktoks/"><u>[New] In 2024, From Silence to Soundtrack Making Music-Centric TikToks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-grandest-directors-trailers-for-2024/"><u>[Updated] Grandest Director's Trailers for 2024</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/easy-instructional-video-on-converting-avi-videos-to-mp4-using-vlc-software/"><u>Easy Instructional Video on Converting AVI Videos to MP4 Using VLC Software</u></a></li>
+<li><a href="https://win-answers.techidaily.com/five-effective-techniques-to-repair-a-malfunctioning-touchscreen-on-windows-10/"><u>Five Effective Techniques to Repair a Malfunctioning Touchscreen on Windows 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grateful-words-across-borders-say-thank-you-in-30-languages-156/"><u>Grateful Words Across Borders: Say Thank You in 30 Languages (156)</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-10-premier-alternative-activities-to-watching-sports/"><u>In 2024, 10 Premier Alternative Activities to Watching Sports</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-celebrating-the-best-top-stop-motion-films-of-all-times/"><u>In 2024, Celebrating the Best Top Stop-Motion Films of All Times</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-expression-essentials/"><u>Intercultural Expression Essentials</u></a></li>
+<li><a href="https://extra-information.techidaily.com/m1-edge-revolutionary-editors-uninterrupted-creativity/"><u>M1 Edge Revolutionary Editors, Uninterrupted Creativity</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/mastering-hevch265-a-comprehensive-guide-for-mac-users/"><u>Mastering HEVC/H.265: A Comprehensive Guide for Mac Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-crowned-at-2021-witsas-ict-summit/"><u>Mondly Crowned at 2021 WITSA's ICT Summit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-latvian-lessons-achieve-proficiency-fast/"><u>Quick Latvian Lessons - Achieve Proficiency Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-innate-ability-of-children-to-learn-multiple-languages/"><u>The Innate Ability of Children to Learn Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-english-contractions/"><u>The Ultimate Guide To English Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-asian-linguistic-varieties-easy-reordering/"><u>Top Asian Linguistic Varieties: Easy Reordering</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-language-skills-upgrade-in-minutes-a-day-106-chars/"><u>Ukranian Language Skills Upgrade in Minutes a Day (106 Chars)</u></a></li>
 </ul></div>
 

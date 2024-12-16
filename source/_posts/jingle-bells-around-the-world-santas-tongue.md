@@ -1,7 +1,7 @@
 ---
 title: Jingle Bells Around the World - Santa's Tongue
-date: 2024-12-08T16:16:20.533Z
-updated: 2024-12-10T18:05:35.649Z
+date: 2024-12-13T19:50:35.877Z
+updated: 2024-12-16T18:06:37.790Z
 tags:
   - speak
   - english
@@ -20,13 +20,13 @@ thumbnail: https://thmb.techidaily.com/a1e8fe269369af735ad826d0f64961c6d5b364117
 
  Examining the Santa legend from the perspective of language learning is interesting. If Santa Claus was a real person today, what language would he speak? The area where the real St. Nicholas originated was once called Lycia, and the official language was Greek. Therefore, we can determine that Greek was Santa’s first spoken language.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Santa Claus in Various Cultures: Christmas in All Foreign Languages
 
  A variety of countries have their own legends about Santa, which is why he’s become such an interesting symbol of Christmas worldwide.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Santa Claus in Norway
 
@@ -34,12 +34,16 @@ thumbnail: https://thmb.techidaily.com/a1e8fe269369af735ad826d0f64961c6d5b364117
 
  The Norwegian contribution to the Santa legend means that Santa is likely fluent in Norwegian. That’s a wonderful thing for Norwegian kids, who send over 30,000 letters to Santa Claus each year. If Santa didn’t speak Norwegian, the kids would have to learn a language before writing him!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Santa Claus in Mexico
 
  Christmas is an exciting part of the year for Mexican families, lasting from December to the second day of February, a holiday known as Candelaria. Epiphany is another special holiday that marks the season. It takes place on the sixth day of the [new year](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and involves presents being left by the Three Kings. Visits from Santa can be expected on Christmas Eve, same as in most other cultures around the world. Since he’s been responding to the wishes of Spanish-speaking children in Mexico for many years, it makes sense to believe that Santa is [fluent in Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Santa Claus in Russia
@@ -49,16 +53,12 @@ thumbnail: https://thmb.techidaily.com/a1e8fe269369af735ad826d0f64961c6d5b364117
  Even if the story is a bit different, the Russians seem to have a strong grasp on the Santa concept. That must mean that Santa has spent time in the country and can certainly [speak Russian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as a result!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Santa Claus in Sweden
 
  If you expected Sweden to have its own spin on the Santa tale, you were correct. The [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) version of Santa is known as Jultomten, which translates to the Christmas gnome. He brings presents to children with the help of other gnomes, similar to the elf legend we see in other versions of the story. In Sweden, Christmas extends all the way to January 13th, when Christmas trees are officially taken down. With all that extra time in Sweden, it makes sense that Santa would have picked up Swedish.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Santa Claus in Finland
 
@@ -70,7 +70,7 @@ thumbnail: https://thmb.techidaily.com/a1e8fe269369af735ad826d0f64961c6d5b364117
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn a Language Like Santa: It Won’t Take Long
@@ -94,14 +94,21 @@ thumbnail: https://thmb.techidaily.com/a1e8fe269369af735ad826d0f64961c6d5b364117
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-innocence-betrayed-consequences-of-acquiring-sham-supporters-in-social-media/"><u>[New] Innocence Betrayed Consequences of Acquiring Sham Supporters in Social Media</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aussies-easy-guide-to-slang-and-sayings/"><u>Aussie's Easy Guide to Slang and Sayings</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-poco-c65-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Poco C65? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effortless-slovak-learning-in-just-ten-minutes-online/"><u>Effortless Slovak Learning in Just Ten Minutes Online!</u></a></li>
-<li><a href="https://win-blog.techidaily.com/guide-enduring-chrome-stalls-on-windows-11-using-easy-techniques/"><u>Guide: Enduring Chrome Stalls on Windows 11 Using Easy Techniques</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-digital-storytelling-unlocked-creating-memorable-slideshows-on-fb/"><u>In 2024, Digital Storytelling Unlocked Creating Memorable Slideshows on FB</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579686935-the-ultimate-hindi-adventure-awaits-dive-into-8-engaging-mondly-reasons/"><u>The Ultimate Hindi Adventure Awaits: Dive Into 8 Engaging Mondly Reasons!</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/ultimate-film-making-camera-lineup-best-of-all-levels/"><u>Ultimate Film-Making Camera Lineup Best of All Levels</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-easter-embrace-linguistic-connections/"><u>Worldwide Easter Embrace: Linguistic Connections</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-best-tools-and-techniques-adding-frames-to-digital-images-2023-edition/"><u>[New] 2024 Approved Best Tools & Techniques - Adding Frames to Digital Images, 2023 Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-secrets-to-subtle-sound-diminishment-in-lumafusion/"><u>[Updated] The Secrets to Subtle Sound Diminishment in Lumafusion</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-unveil-images-clearly-10-online-editors-guide-for-2024/"><u>[Updated] Unveil Images Clearly 10 Online Editors' Guide for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-masterclass-in-high-speed-recording/"><u>2024 Approved Masterclass in High-Speed Recording</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/guide-obtaining-ios-15-developer-beta-without-an-apple-developer-program-membership/"><u>Guide: Obtaining iOS 15 Developer Beta Without an Apple Developer Program Membership</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-engaging-audiences-through-vimeo-shares/"><u>In 2024, Engaging Audiences Through Vimeo Shares</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-aspiration/"><u>Language Learning Aspiration</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mudar-seus-formatos-com-eficiencia-ferramenta-de-conversao-mef-free-do-movavi/"><u>Mudar Seus Formatos Com Eficiência - Ferramenta De Conversão MEF Free Do Movavi</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/should-language-be-free-from-grammatical-chains/"><u>Should Language Be Free From Grammatical Chains?</u></a></li>
+<li><a href="https://win-data.techidaily.com/simple-steps-effortlessly-duplicating-your-windows-os-on-a-usb-stick/"><u>Simple Steps: Effortlessly Duplicating Your Windows OS on a USB Stick</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplify-english-words-the-oxford-mondly-way/"><u>Simplify English Words: The Oxford-Mondly Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-italian-with-ease-on-your-next-trip/"><u>Speaking Italian with Ease on Your Next Trip</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-compre-written-guide-mastery-over-spanish-accent-types/"><u>The Compre Written Guide: Mastery Over Spanish Accent Types</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-trustworthy-basics-of-ups-in-depth-review-of-the-cyberpower-cp685avrg/"><u>The Trustworthy Basics of UPS: In-Depth Review of the Cyberpower CP685AVRG</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transformative-english-learning-using-mondly-strategies/"><u>Transformative English Learning Using Mondly Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-english-benefits-explored/"><u>Why Learn English? Benefits Explored</u></a></li>
 </ul></div>
 
