@@ -1,7 +1,7 @@
 ---
 title: "Semaine Française: La Palette Des Jours"
-date: 2024-12-06T18:31:57.937Z
-updated: 2024-12-10T18:42:28.004Z
+date: 2024-12-22T16:45:57.425Z
+updated: 2024-12-25T16:31:26.980Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/d02ecec5426e8e1f2da5e128e095f9718e5fc3c11
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Days of the week in French
@@ -78,7 +78,7 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -125,24 +125,18 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-gimbal-mastery-seamless-camera-handling-and-tracking/"><u>[New] Gimbal Mastery Seamless Camera Handling & Tracking</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-weibo-stars-quick-chats-on-snapchat/"><u>[New] In 2024, Weibo Stars Quick Chats on Snapchat</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-developing-dynamic-instagram-feed-slides-for-2024/"><u>[Updated] Developing Dynamic Instagram Feed Slides for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/asian-lingo-triad-priority-save-easy-reordering/"><u>Asian Lingo Triad: Priority Save, Easy Reordering</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bangladesh-by-ten-minutes-a-day/"><u>Bangladesh by Ten Minutes a Day!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-the-ice-in-russia-100plus-basic-phrases-for-newcomers/"><u>Break the Ice in Russia: 100+ Basic Phrases for Newcomers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/clarity-command-conquer-twisters-for-perfection/"><u>Clarity Command: Conquer Twisters for Perfection</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/expert-review-choosing-the-ideal-computer-chips-for-your-workstation/"><u>Expert Review: Choosing the Ideal Computer Chips for Your Workstation</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/fortgeschrittene-dateisynchronisierung-profitiert-von-dem-top-frei-verfugbaren-tool-auf-externer-speichergerat/"><u>Fortgeschrittene Dateisynchronisierung: Profitiert Von Dem Top-Frei Verfügbaren Tool Auf Externer Speichergerät</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-down-under-to-yours-learn-aussie-sayings/"><u>From Down Under to Yours: Learn Aussie Sayings</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-a-deep-dive-into-previewed-fb-interactions-necessity-or-risk/"><u>In 2024, A Deep Dive Into Previewed FB Interactions Necessity or Risk?</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-fashion-filming-simplified-for-macos-users/"><u>In 2024, Fashion Filming Simplified for MacOS Users</u></a></li>
-<li><a href="https://driver-install.techidaily.com/increase-operating-system-stability-with-e1659fwv-update/"><u>Increase Operating System Stability with E1659FWV Update</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-juggling-journey/"><u>Language Juggling Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-weekdays-in-korea-comprehensive-tutorials/"><u>Mastering Weekdays in Korea: Comprehensive Tutorials</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/one-minute-a-day-for-fluent-urdu/"><u>One Minute a Day for Fluent Urdu</u></a></li>
-<li><a href="https://win11.techidaily.com/resolving-windows-no-fullscreen-game-issue/"><u>Resolving Windows: No FullScreen Game Issue</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/the-comprerant-guide-to-picture-scaling-in-windows-11/"><u>The Compreran't Guide to Picture Scaling in Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-the-benefits-of-bilingualism-in-english/"><u>Unlock the Benefits of Bilingualism in English</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-best-boutique-online-portals-for-individualized-gift-artistry/"><u>[New] Best Boutique Online Portals for Individualized Gift Artistry</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-gaming-beyond-reality-top-5-psvr-games-on-the-approach/"><u>[Updated] In 2024, Gaming Beyond Reality Top 5 PSVR Games on the Approach</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-restore-pristine-photos-easily-discover-top-10-online-enhancers/"><u>[Updated] In 2024, Restore Pristine Photos Easily Discover Top 10 Online Enhancers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-beyond-playfulness-a-closer-look-at-snapchats-emojis/"><u>2024 Approved Beyond Playfulness A Closer Look at Snapchat's Emojis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-anywhere-speak-everywhere-enjoy-a-major-discount-on-language-lessons/"><u>Learn Anywhere, Speak Everywhere – Enjoy a Major Discount on Language Lessons!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-punctuation-part-2-a-guide-to-understanding-and-using-english-contractions/"><u>Mastering Punctuation, Part 2: A Guide to Understanding and Using English Contractions</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/meme-mastery-iphone-edition/"><u>Meme Mastery IPhone Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/read-in-french-20plus-best-french-novels-for-beginners/"><u>Read In French: 20+ Best French Novels For Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythms-for-roots-musical-language-mastery-techniques/"><u>Rhythms for Roots: Musical Language Mastery Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-fluent-korean-unveiling-the-top-6-digital-tools/"><u>Speak Fluent Korean: Unveiling the Top 6 Digital Tools</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/strengthen-cybersecurity-with-google-chromes-new-trilogy-of-features-to-elevate-your-internet-safety-and-confidentiality-cybernews/"><u>Strengthen Cybersecurity with Google Chrome's New Trilogy of Features to Elevate Your Internet Safety and Confidentiality | CyberNews</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-google-pixel-8-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Google Pixel 8 Pro Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-spanish-speaking-states-index/"><u>Worldwide Spanish-Speaking States Index</u></a></li>
 </ul></div>
 

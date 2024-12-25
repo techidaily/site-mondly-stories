@@ -1,7 +1,7 @@
 ---
 title: Want To Understand The Squid Game In Korean? Learn The Language
-date: 2024-12-07T18:44:30.300Z
-updated: 2024-12-10T17:51:54.561Z
+date: 2024-12-18T16:53:24.926Z
+updated: 2024-12-25T16:15:17.927Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ So what’s there to be done?
 
  Easy. What everybody else has been doing:**learn Korean and never get lost in translation ever again.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## There’s an entire ‘Korean wave’ behind Squid Game, Parasite and BTS
 
  This is not the first time Korean culture blew our minds. If you haven’t lived under a rock, you already know that there’s so much more to it. Just two years ago, we marveled at the brilliance of Parasite, the Korean masterpiece that won four Oscars.
@@ -36,19 +40,11 @@ So what’s there to be done?
 
 ![squid game korean netflix](https://edge.mondly.com/blog/wp-content/uploads/2021/10/squid-game-korean-960x539.jpg "Obsessed With Squid Game, But Lost In Translation? Learn Korean 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  ‘Squid Game on Netflix’ by Jonas Augustin©
 
  So with Squid Game, all that the Korean culture did was to prove once again its hypnotic power over us. If you think about it, this is a whole new world beyond our own. Beyond the pop culture we already know. A whole new world we’re all eager to explore. For me, it’s all about the movies. My passion for cinema has never been the same again after watching the Korean film Oldboy. And this is just an example. Korean cinema is more than rich in masterpieces.
 
  Now, this global phenomenon even has its own name. **The cultural boom coming from South Korea since the 1990s is known today as the Korean wave or [hallyu](https://en.wikipedia.org/wiki/Korean%5Fwave) .** Basically, everything we love about Korean pop culture is embedded in hallyu.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why Squid Game got lost in translation
 
@@ -63,7 +59,7 @@ So what’s there to be done?
 ![korean culture](https://edge.mondly.com/blog/wp-content/uploads/2021/10/learn-korean-960x640.jpg "Obsessed With Squid Game, But Lost In Translation? Learn Korean 6")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  ‘Korean women’ by zero take©
@@ -74,15 +70,15 @@ So there’s only one conclusion we can draw from this…
 
 **Like Thanos, getting lost in translation is inevitable.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Learn Korean and overcome the one-inch-tall barrier of subtitles
 
  It’s amazing how people learn languages for love. There’s no greater drive than love. And I’m not talking just about romantic love. The fact that so many people are learning Korean after they watched Squid Game, it’s an act of love. All these people learn Korean out of love for this show. Others have been learning the language out of love for BTS. You could even go so far as to say that love makes us smarter. Or better.
 
 ![squid game love](https://media.giphy.com/media/USVF7ZnGqVuoABCBUr/giphy.gif "Obsessed With Squid Game, But Lost In Translation? Learn Korean 7")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  **Would you [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) out of love for hallyu?** In 2020, in his Oscar acceptance speech, ‘Parasite’ director Bong Joon Ho said something the world will never forget:
 
@@ -91,6 +87,10 @@ So there’s only one conclusion we can draw from this…
  And he’s right. Learning Korean is all worth it. **If you want to enter the colorful world of Korean pop culture without getting lost in mistranslations, you should learn Korean.**
 
  And you know what’s the second-best thing about this? You’ll be in great company. Since the launch of Squid Game, Mondly has seen a massive increase in people starting to learn Korean. You can join them all **[here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko)**  .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Even the English language wants to learn Korean
 
@@ -104,7 +104,7 @@ So there’s only one conclusion we can draw from this…
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in Korean
@@ -135,19 +135,17 @@ So there’s only one conclusion we can draw from this…
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/deal-screener-tech-elevating-your-youtube-presence-for-2024/"><u>[New] Ideal Screener Tech Elevating Your YouTube Presence for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-strategies-to-enhance-your-viewing-experience-on-facebook/"><u>[New] In 2024, Strategies to Enhance Your Viewing Experience on Facebook</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-elite-hd-video-recorder-macpc-fullscreen/"><u>[Updated] In 2024, Elite HD Video Recorder MacPC Fullscreen</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-navigating-youtube-cards-and-tags/"><u>2024 Approved Navigating YouTube Cards and Tags</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/advanced-techniques-to-correct-delayed-audio-in-live-broadcasts/"><u>Advanced Techniques to Correct Delayed Audio in Live Broadcasts</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/geometric-future-flamingo-model-0-ultra-slim-foldable-desktop-enclosure-perfect-for-your-mini-itx-motherboard/"><u>Geometric Future Flamingo Model 0 - Ultra-Slim, Foldable Desktop Enclosure Perfect for Your Mini-ITX Motherboard</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/japanese-on-calls-a-cultural-insight/"><u>Japanese On-Calls: A Cultural Insight</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-dilemma-opting-for-german-or-french/"><u>Language Dilemma: Opting for German or French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-exploration-the-top-ten-rationales-for-multilingualism/"><u>Language Exploration: The Top Ten Rationales for Multilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-korean-from-home-cutting-edge-online-resource-list/"><u>Mastering Korean From Home: Cutting-Edge Online Resource List</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-shines-in-google-plays-finest-selection/"><u>Mondly Kids App Shines in Google Play's Finest Selection</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-iphone-volume-dilemma-eliminate-total-loss-of-sound-and-clarity/"><u>Solving iPhone Volume Dilemma: Eliminate Total Loss of Sound and Clarity</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sprache-und-kultur-alternative-deutschen-begrussungen-ohne-hallo/"><u>Sprache Und Kultur: Alternative Deutschen Begrüßungen Ohne 'Hallo'</u></a></li>
-<li><a href="https://blog-min.techidaily.com/mkv-mp3/"><u>スムーズに MKV を MP3 形式にコンバートするためのガイド</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-bandicam-or-camtasia-best-recording-and-editing-software/"><u>[New] In 2024, Bandicam or Camtasia Best Recording & Editing Software?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-composers-guide-to-creating-youtube-music-cohorts/"><u>[New] The Composer's Guide to Creating YouTube Music Cohorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-decoding-the-marketplace-where-to-invest-in-monetized-channels-for-2024/"><u>[Updated] Decoding the Marketplace Where to Invest in Monetized Channels for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/bypass-the-hiccups-simple-ways-to-fix-a-malfunctioning-magic-mouse-tracker/"><u>Bypass the Hiccups: Simple Ways to Fix a Malfunctioning Magic Mouse Tracker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/globally-trending-app-by-apple/"><u>Globally Trending App by Apple</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-sony-xperia-5-v-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Sony Xperia 5 V Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-anywhere-anytime-with-mondlys-advanced-phrases-guide/"><u>Learn Anywhere, Anytime with Mondly's Advanced Phrases Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-latvian-super-fast-a-daily-dedication/"><u>Learn Latvian Super Fast: A Daily Dedication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-voyage-to-language-success-the-best/"><u>Mondly's Voyage to Language Success, The Best</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578481846-why-learn-croatian-discover-these-7-reasons-to-start-your-journey-today/"><u>Why Learn Croatian? - Discover These 7 Reasons to Start Your Journey Today!</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/1728495130056-onedrive/"><u>デスクトップファイルが失われたら、OneDriveでどうやってそれを復元しますか？</u></a></li>
 </ul></div>
 

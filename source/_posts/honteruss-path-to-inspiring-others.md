@@ -1,7 +1,7 @@
 ---
 title: Honterus’s Path to Inspiring Others
-date: 2024-12-12T19:39:20.966Z
-updated: 2024-12-16T19:53:54.535Z
+date: 2024-12-19T16:53:26.265Z
+updated: 2024-12-25T16:26:55.767Z
 tags:
   - speak
   - english
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
  We at [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5187) are beyond proud to be able to pave the way to innovation and help millions of people worldwide learn languages from the very heart of Romania, in idyllic Transylvania. Although miles away from important high technology and innovation centers such as Berlin, London or Silicon Valley, we find inspiration everywhere around us – in people, places, art or even history. For example, one of the local historical figures who inspires us to be better every day is [Johannes Honterus](https://en.wikipedia.org/wiki/Johannes%5FHonter) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The first humanist gymnasium in Southeast Europe
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
  In our journey to help those who need it most, we draw inspiration from Honterus and pledge to give students the tools to succeed and the opportunity to learn in ways they never could have imagined. This is why we unveiled multiple state-of-the-art [iMac labs](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) at the Transilvania University of Brașov and several other high schools. In total, there are now 60 brand new iMacs helping young minds innovate in schools all over Brașov.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Rudimenta Cosmographica, the first European-wide manual
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 ![honterus map](https://edge.mondly.com/blog/wp-content/uploads/2020/06/honterus-map-600x467.jpeg "Great Personalities Who Inspire Us: Johannes Honterus 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The map of the world by Johannes Honterus
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
  Additionally,_Rudimenta Cosmographica_ contained 13 maps of all known parts of the world engraved by Honterus himself. The book proved to be so successful that there were printed 39 editions of it in Brașov, Basel, Prague, Zürich, Antwerp and Cologne. Many consider_Rudimenta Cosmographica_ to be the first European-wide manual and the first Minor Atlas in Central and South-Eastern Europe.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Draw inspiration from the best
@@ -78,7 +78,7 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
 Get Mondly now and speak any language like you never dreamed you would ![Get Mondly now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-5187&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-5187%26utm%5Fsource%3Dblog-post-id-5187&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-5187%26mt%3D8 "Get Mondly now")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -96,24 +96,21 @@ Get Mondly now and speak any language like you never dreamed you would ![Get Mon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-the-3-elemental-strategies-for-writing-effective-social-media-promotions/"><u>[New] 2024 Approved The 3 Elemental Strategies for Writing Effective Social Media Promotions</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-freedomsongextractors-evolution-in-the-2024-landscape/"><u>[New] FreedomSongExtractor's Evolution in the 2024 Landscape</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-innovative-solutions-exceeding-standard-fbx-recorders-for-2024/"><u>[Updated] Innovative Solutions Exceeding Standard FBX Recorders for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-non-fbx-innovations-leading-the-way-in-gameplay-tracking-for-2024/"><u>[Updated] Non-FBX Innovations Leading the Way in Gameplay Tracking for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-shopping-journey-to-visual-storytelling-hauling-edition/"><u>2024 Approved Shopping Journey to Visual Storytelling Hauling Edition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engage-in-authentic-conversations-anywhere-mondly-vr-for-language-mastery/"><u>Engage in Authentic Conversations Anywhere - Mondly VR for Language Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhance-your-vocabulary-for-more-influential-conversations/"><u>Enhance Your Vocabulary for More Influential Conversations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/entrelacando-o-portugues-melhores-frases-para-fazer-amizade/"><u>Entrelaçando O Português: Melhores Frases Para Fazer Amizade</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/european-languages-spectrum-unity-through-diversity-on-europe-day/"><u>European Languages Spectrum: Unity Through Diversity on Europe Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-ais-role-in-shaping-linguistic-abilities/"><u>Exploring AI's Role in Shaping Linguistic Abilities</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-eloquence-korean-turkish-lingua/"><u>Exploring Eloquence: Korean-Turkish Lingua</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/express-yourself-like-a-german-with-these-25-sayings/"><u>Express Yourself Like a German with These 25 Sayings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-bean-to-bite-translating-chocolate-in-global-tongues/"><u>From Bean to Bite: Translating 'Chocolate' In Global Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-far-and-wide-the-role-of-foreign-terminology-in-english/"><u>From Far and Wide: The Role of Foreign Terminology in English</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/how-to-innovate-your-tiktok-intro-video-a-mac-perspective-for-2024/"><u>How to Innovate Your TikTok Intro Video - A Mac Perspective for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/navigating-to-windows-ease-of-access-in-5-steps/"><u>Navigating to Windows Ease of Access in 5 Steps</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-easily-edit-avi-files-a-step-by-step-guide-to-trimming-and-splitting/"><u>New Easily Edit AVI Files A Step-by-Step Guide to Trimming and Splitting</u></a></li>
-<li><a href="https://win-great.techidaily.com/sign-up-anytime-pay-later-karaoke-cloud-pros-new-flexible-terms-for-dj-enthusiasts/"><u>Sign Up Anytime, Pay Later - Karaoke Cloud Pro's New Flexible Terms for DJ Enthusiasts</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/smooth-soundscape-fading-techniques-with-lumafusion-for-2024/"><u>Smooth Soundscape Fading Techniques with Lumafusion for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-aural-tapestry-weaving-sounds-into-cinematic-threads/"><u>[Updated] Aural Tapestry Weaving Sounds Into Cinematic Threads</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-design-ideas-top-6-mc-village-residences-for-2024/"><u>[Updated] Design Ideas Top 6 MC Village Residences for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-a-comprehensive-tutorial-for-srt-filters-in-social-space/"><u>[Updated] In 2024, A Comprehensive Tutorial for SRT Filters in Social Space</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-lava-blaze-pro-5g-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Lava Blaze Pro 5G to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-the-enigma-of-stardew-valley-unearthed-on-ginger-island/"><u>2024 Approved The Enigma of Stardew Valley, Unearthed on Ginger Island</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1725285885854-winxvideo-ai/"><u>利用 WinxVideo AI進行預見式屏幕和網路攝影解碼方法</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-leaps-with-educational-fun-facts/"><u>Latin Leaps with Educational Fun Facts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifelong-education-top-four-reasons-to-learn-languages-at-age-40plus-for-enriched-life-experiences/"><u>Lifelong Education: Top Four Reasons to Learn Languages at Age 40+ for Enriched Life Experiences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-budget-no-problem-top-online-solo-journey-to-japan-proficiency/"><u>No Budget? No Problem! Top Online, Solo Journey to Japan Proficiency</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/online-assistance-hub-for-winx-media-tools-dvd-ripping-and-video-conversion-solutions/"><u>Online Assistance Hub for WinX Media Tools: DVD Ripping & Video Conversion Solutions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/optimal-placement-boosting-youtube-video-visibility-for-2024/"><u>Optimal Placement Boosting YouTube Video Visibility for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saudacoes-basicas-em-portugues-para-ficar-de-olho/"><u>Saudações Básicas Em Português Para Ficar De Olho</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/solving-non-existent-device-error-in-windows-11/"><u>Solving Non-Existent Device Error in Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-techniques-for-efficient-language-learning/"><u>Swift Techniques for Efficient Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/time-optimization-for-numerical-japanese/"><u>Time Optimization for Numerical Japanese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-lithuanian-journey-top-tutorial-recommendations/"><u>Virtual Lithuanian Journey: Top Tutorial Recommendations</u></a></li>
 </ul></div>
 

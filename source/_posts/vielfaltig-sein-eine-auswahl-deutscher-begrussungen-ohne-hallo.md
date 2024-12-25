@@ -1,7 +1,7 @@
 ---
 title: "Vielfältig Sein: Eine Auswahl Deutscher Begrüßungen Ohne Hallo"
-date: 2024-12-05T19:11:32.276Z
-updated: 2024-12-10T18:17:16.831Z
+date: 2024-12-18T16:14:51.926Z
+updated: 2024-12-25T16:03:15.670Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ _Hallo!_ It’s nice to be properly greeted, isn’t it? Everywhere in the world
 
  Meanwhile, don’t forget that ‘hello’ is probably the simplest way to sound fluent. Throw in a smile and you’ll also look like one!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Hallo – the universal ‘hello’ in German
 
 _Hallo_ is the simplest and most straightforward way to say ‘hello’ in German. It’s short, sweet, and common across the entire German-speaking world. Besides, it’s friendly and can be used successfully in any social situation – either formal or informal.
@@ -39,6 +35,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Kidding, but you did get the point. This tiny, little hello is reserved for very informal situations.
 
  Since we’re discussing diminutives, let’s also mention that_tschüss_ (‘bye’) can become_tschüssi_ . How cute!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Guten Tag – “Hello” or “Good day”
 
@@ -57,7 +57,7 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Abend!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Wie geht es dir? – “How’s it going?”
@@ -74,10 +74,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Was ist los? – “What’s up?”
 
  Very similar to_alles klar?_ ,_was ist los?_ is appropriate for very casual conversations.
@@ -85,10 +81,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  When someone asks you_was ist los?_ , you have to pay close attention to their tone of voice. While in the context of greetings it can mean “what’s up?” or “what’s going on?”, if given the right tone, it can also mean “what’s wrong?” or “what’s the matter?”.
 
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Regional German greetings
 
@@ -111,6 +103,10 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** mostly northern Germany.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Moin moin – “Hi”
 
  The ‘harsh’ German language strikes again. Imagine you’re in Hamburg and people are cheerfully saying_moin_ or_moin moin_ or even_moinsten_ to you. What do you do? You say_moin_ back, of course!
@@ -125,6 +121,10 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
 
 **Localization:** Switzerland.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Grüß Gott – “God bless you”
 
  Mainly used by the older generations,_Grüß Gott_ is a very formal greeting that literally means “greetings (from) God” or “God greets you”.
@@ -134,7 +134,7 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
 **Localization:** Bavaria (south-eastern Germany) and Austria.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Servus – “At your service”
@@ -185,24 +185,21 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-elevate-your-videography-7-free-sound-effects-collection-for-2024/"><u>[New] Elevate Your Videography - 7 Free Sound Effects Collection for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-hack-the-art-world-essential-free-3d-psd-files/"><u>[New] Hack the Art World Essential Free 3D PSD Files</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-visualedits-exploration-in-depth-look-at-androvid/"><u>[New] In 2024, VisualEdits Exploration – In-Depth Look at AndroVid</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-simplicity-in-skewing-photographic-content/"><u>[Updated] 2024 Approved Simplicity in Skewing Photographic Content</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-top-windows-10-capture-apps-ultimate-guide/"><u>[Updated] In 2024, Top Windows 10 Capture Apps Ultimate Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-navigating-through-instagram-video-woes-with-ease/"><u>[Updated] Navigating Through Instagram Video Woes with Ease</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/crafting-unhackable-dialog-button-for-hardware-disconnect-in-win11/"><u>Crafting Unhackable Dialog Button for Hardware Disconnect in Win11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/educonnect-uniting-international-educators-at-bett-2022/"><u>EduConnect - Uniting International Educators at BETT 2022</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-mondlys-transformative-journey-for-you/"><u>From Novice to Expert - Mondly's Transformative Journey for You</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-from-idea-to-income-a-comprehensive-instagram-guide/"><u>In 2024, From Idea to Income A Comprehensive Instagram Guide</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-tecno-camon-30-pro-5g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Tecno Camon 30 Pro 5G</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578058069-learn-latvian-online-in-just-10-minutes-a-day/"><u>Learn Latvian Online In Just 10 Minutes A Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-leap-forward-our-special-95-off-language-program/"><u>Linguistic Leap Forward: Our Special 95% Off Language Program!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/symphony-of-syntax-musics-impact-on-learning-languages/"><u>Symphony of Syntax: Music's Impact on Learning Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ten-years-countless-connections-at-mondly/"><u>Ten Years, Countless Connections at Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-best-of-mondly-now-at-your-fingertips/"><u>The Best of Mondly, Now at Your Fingertips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-contrast-between-brazilian-and-european-keyboard-features/"><u>The Contrast Between Brazilian & European Keyboard Features</u></a></li>
-<li><a href="https://some-skills.techidaily.com/ultimate-list-meme-design-masterpieces-for-2024/"><u>Ultimate List Meme Design Masterpieces for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-germanys-most-heartfelt-ways-of-saying-thank-you/"><u>Unveiling Germany’s Most Heartfelt Ways of Saying 'Thank You'</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-best-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones/"><u>[New] 2024 Approved Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-interactive-therapy-in-the-virtual-world-for-2024/"><u>[New] Interactive Therapy in the Virtual World for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-streamlining-lenovo-capture-features-for-2024/"><u>[New] Streamlining Lenovo Capture Features for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-essential-zoom-substitutes-for-pcs-tablets-for-2024/"><u>[Updated] Essential Zoom Substitutes for PCs, Tablets for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-guide-to-nikon-d500-4k-performance/"><u>[Updated] In 2024, The Ultimate Guide to Nikon D500 4K Performance</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-instantly-examine-windows-documents-efficiently/"><u>2024 Approved Instantly Examine Windows Documents Efficiently</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-unlocked-10-minute-daily-learning-sessions/"><u>Bangla Unlocked: 10-Minute Daily Learning Sessions</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-startechs-professional-vga-driver-suite-with-usb-connectivity/"><u>Download StarTech's Professional VGA Driver Suite with USB Connectivity</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-apple-iphone-6s-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 6s Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-best-time-lapse-video-editing-software-freeandpaid/"><u>In 2024, Best Time-Lapse Video Editing Software Free&Paid</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-echoes-36-words-birthed-by-the-globe/"><u>Linguistic Echoes: 36 Words Birthed by the Globe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-passion-across-continents/"><u>Linguistic Passion Across Continents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reality-check-for-popular-year-end-commitments/"><u>Reality Check for Popular Year-End Commitments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-japanese-script-from-basics-to-proficiency/"><u>The Japanese Script: From Basics to Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleashing-your-potential-in-the-new-year/"><u>Unleashing Your Potential in the New Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-communications-complexities-learning-9-struggle-filled-dialects/"><u>Unlocking Communication's Complexities: Learning 9 Struggle-Filled Dialects</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Mondly's Principles for Knowledge Acquisition
-date: 2024-12-13T20:45:53.951Z
-updated: 2024-12-16T16:44:19.479Z
+date: 2024-12-18T16:02:42.091Z
+updated: 2024-12-25T16:33:05.609Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -102,17 +102,22 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ow-to-search-comments-on-youtube-quickly/"><u>[New] How to Search Comments on YouTube Quickly?</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-leading-8-cameras-that-make-live-streaming-shine/"><u>[New] In 2024, Leading 8 Cameras That Make Live Streaming Shine</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-ultimate-checklist-for-fb-cover-video-excellence/"><u>[Updated] 2024 Approved The Ultimate Checklist for FB Cover Video Excellence</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-demystifying-creator-studio-a-practical-handbook/"><u>[Updated] Demystifying Creator Studio A Practical Handbook</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/effiziente-datensicherung-auf-dvd-herstellen-einer-iso-von-videodateien-mit-dvd-xilisoft/"><u>Effiziente Datensicherung Auf DVD: Herstellen Einer ISO Von Videodateien Mit DVD Xilisoft</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-handbook-for-j-alphabets-and-symbols/"><u>Essential Handbook for J-Alphabets and Symbols</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-the-multilingual-fabric-of-macau/"><u>Exploring the Multilingual Fabric of Macau</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fast-track-to-fluency-dive-into-urdu-for-10-minsday/"><u>Fast Track to Fluency: Dive Into Urdu for 10 Mins/Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-flirt-the-language-of-seduction/"><u>French Flirt: The Language of Seduction</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-basic-to-breakthrough-mondlys-english-journey/"><u>From Basic to Breakthrough: Mondly's English Journey</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-15-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 15 Without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/streamline-your-social-media-video-sharing-with-fb-tech-for-pcandroid-for-2024/"><u>Streamline Your Social Media Video Sharing with FB Tech for PC/Android for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-optimizing-live-streams-with-onestream-a-beginners-guide/"><u>[New] In 2024, Optimizing Live Streams with OneStream A Beginner's Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-effortless-gameplay-capture-a-compreayers-approach-to-xbox-recording/"><u>[Updated] 2024 Approved Effortless Gameplay Capture A Compreayer's Approach to Xbox Recording</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-languages-spanish-por-que-and-english-why/"><u>Bridging Languages: Spanish 'Por Que' And English 'Why'</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-driven-solutions-enhance-your-site-with-smart-ppc-management/"><u>Cookiebot-Driven Solutions: Enhance Your Site with Smart PPC Management</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-kids-world-safely-mondlys-back-and-filter-features/"><u>Discover Kids’ World Safely - Mondly's Back and Filter Features</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/from-still-life-to-dynamic-visual-narrative/"><u>From Still Life to Dynamic Visual Narrative</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-improve-english-speaking-9-tips-and-tricks/"><u>How To Improve English Speaking: 9 Tips And Tricks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-xiaomi-redmi-note-12-pro-4g-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Xiaomi Redmi Note 12 Pro 4G Devices</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-mondlys-dynamic-comprehensive-phrase-list/"><u>Introducing Mondly's Dynamic, Comprehensive Phrase List</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-smooth-layers-techniques-for-overcoming-3d-printer-issues/"><u>Mastering Smooth Layers: Techniques for Overcoming 3D Printer Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-pearson-unite-for-next-gen-filtering-tools/"><u>Mondly and Pearson Unite for Next-Gen Filtering Tools</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/pourquoi-devrais-je-reformater-ma-cle-usb-sur-demande/"><u>Pourquoi Devrais-Je Reformater Ma Clé USB Sur Demande?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sea-gypsy-slang-speak-like-a-swashbuckler-today/"><u>Sea Gypsy Slang: Speak Like a Swashbuckler Today</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/step-by-step-guide-transferring-images-from-your-olympus-camera/"><u>Step-by-Step Guide: Transferring Images From Your Olympus Camera</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tackling-language-barriers-in-the-world-of-squid-game/"><u>Tackling Language Barriers in the World of Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-transformation-from-frankish-to-nederlands/"><u>The Transformation From Frankish to Nederlands</u></a></li>
 </ul></div>
 

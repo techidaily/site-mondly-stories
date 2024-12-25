@@ -1,7 +1,7 @@
 ---
 title: Unlocking Essential Expressions for Daily Conversations in China
-date: 2024-12-10T21:50:05.440Z
-updated: 2024-12-16T16:40:02.502Z
+date: 2024-12-22T16:21:18.162Z
+updated: 2024-12-25T16:21:06.111Z
 tags:
   - speak
   - english
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
 
 ![mandarin hello](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mandarin-hello-1024x683.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Li River, China” by Sam Beasley©
 
  Now that you know the easiest and most popular way to say “hello” in Chinese, let’s move on to more advanced Mandarin Chinese greetings that are guaranteed to make you sound fluent.
@@ -42,19 +38,23 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
 
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. 你好吗? (nǐ hǎo ma) – “How are you?” in Chinese
 
 Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. 你吃了吗？(nǐ chī le ma) – “Have you eaten?”
 
@@ -75,7 +75,7 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Hello there!” by Theodor Lundqvist©
@@ -85,7 +85,7 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. 下午好 (xiàwǔ hǎo) – “Good afternoon” in Chinese
@@ -97,7 +97,7 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
@@ -136,24 +136,18 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-21-edition-spotlight-the-new-era-of-sports-betting-in-vegas-pro/"><u>[New] 2024 Approved '21 Edition Spotlight – The New Era of Sports Betting in Vegas Pro</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-best-80s-movie-magic-for-contemporary-edits/"><u>[Updated] Best 80S Movie Magic for Contemporary Edits</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-microsofts-glimpse-into-augmented-reality-the-hololens-journey/"><u>[Updated] Microsoft’s Glimpse Into Augmented Reality – The HoloLens Journey</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-ps3-gaming-reimagined-best-emulators-of-the-year/"><u>[Updated] PS3 Gaming Reimagined Best Emulators of the Year</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/4-manieres-francaises-de-celebrer-laccueil/"><u>4 Manières Françaises De Célébrer L'Accueil</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/affordable-elite-vr-with-the-new-oculus-quest-2-an-in-depth-review/"><u>Affordable Elite VR with the New Oculus Quest 2 – An In-Depth Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apple-acknowledges-mondlys-stellar-performance-in-educational-arena/"><u>Apple Acknowledges Mondly's Stellar Performance in Educational Arena</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brain-benefits-for-the-golden-generation/"><u>Brain Benefits for the Golden Generation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brain-enhancements-through-bilingualism/"><u>Brain Enhancements Through Bilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprehensive-insight-into-spanish-verbs/"><u>Comprehensive Insight Into Spanish Verbs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dispelling-top-5-myths-about-multilingualism/"><u>Dispelling Top 5 Myths About Multilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/educational-leap-forwards-with-mondly/"><u>Educational Leap Forwards with Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-your-global-presence-learn-croatian-and-these-7-benefits/"><u>Elevate Your Global Presence - Learn Croatian and These 7 Benefits!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-global-citizenship-why-learning-a-language-after-40-makes-sense/"><u>Embrace Global Citizenship: Why Learning a Language After 40 Makes Sense</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-a-comprehensive-guide-to-iphone-15-plus-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iPhone 15 Plus Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-easy-steps-to-youtubing-prosperity-channel-size-not-a-barrier/"><u>In 2024, Easy Steps to Youtubing Prosperity Channel Size Not a Barrier</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-seamless-integration-of-fb-video-on-tv-screens/"><u>In 2024, Seamless Integration of Fb Video on TV Screens</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Apple iPhone 7? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/list-of-pokemon-go-joysticks-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-echo-music-into-your-whatsapp-narrative/"><u>[Updated] 2024 Approved Echo Music Into Your WhatsApp Narrative</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-exclusive-rescue-regaining-fb-passwords/"><u>[Updated] 2024 Approved Exclusive Rescue Regaining FB Passwords</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-understanding-the-zip-to-srt-file-transition/"><u>[Updated] 2024 Approved Understanding the Zip to Srt File Transition</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-from-basic-to-brilliant-top-100plus-biographies-that-captivate-audiences-for-2024/"><u>[Updated] From Basic to Brilliant Top 100+ Biographies that Captivate Audiences for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-craft-meme-magic-adobe-edition/"><u>2024 Approved Craft Meme Magic, Adobe Edition</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-kernelbasedll-error-without-hitches-fast-solutions-inside/"><u>How To Fix KernelBase.dll Error Without Hitches - Fast Solutions Inside!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-triumphs-the-premier-online-german-learning-portal/"><u>Mondly Triumphs: The Premier Online German Learning Portal</u></a></li>
+<li><a href="https://program-issues.techidaily.com/pc-gaming-saved-solving-persistent-crash-problems-in-tower-of-fantasy-title/"><u>PC Gaming Saved: Solving Persistent Crash Problems in Tower of Fantasy Title</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/skip-windows-emulators-top-linux-gaming-stores-offering-officially-compatible-titles/"><u>Skip Windows Emulators: Top Linux Gaming Stores Offering Officially Compatible Titles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pronunciation-pathway-deciphering-hard-word-sounds/"><u>The Pronunciation Pathway: Deciphering Hard Word Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-secret-to-fluent-french-chats-perfecting-bonjour-in-daily-life/"><u>The Secret to Fluent French Chats: Perfecting 'Bonjour' In Daily Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-basics-of-spanish-numbers/"><u>Understanding The Basics Of Spanish Numbers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-go-digital-with-arabic-top-6-insights-from-mondly/"><u>Why Go Digital with Arabic? Top 6 Insights From Mondly</u></a></li>
 </ul></div>
 

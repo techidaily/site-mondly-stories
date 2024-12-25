@@ -1,7 +1,7 @@
 ---
 title: Advance Your Company Dialogue, Leadership & Influence
-date: 2024-08-27T22:44:17.554Z
-updated: 2024-08-28T22:44:17.554Z
+date: 2024-12-18T16:49:12.085Z
+updated: 2024-12-25T16:30:35.026Z
 tags:
   - speak
   - english
@@ -40,22 +40,20 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
  Every aspect of this culture, from how hierarchies and resources are managed to the preferred style of collaborative problem-solving, it all intersects with language use.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ### Cultural impact on language training goals
 
  Consider two companies: one, a traditional, meticulously formal corporate structure with a preference for detailed, hierarchical language use; and the other, a young, vibrant startup with an informal, creative approach to language studies.
 
  The [language learning](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) goals for both will differ drastically. The former may require employees to master business etiquette and speak in [multiple languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , while language learning goals for the latter may emphasize conversational proficiency in phrases, words and industry buzzwords.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Identifying training objectives
 
  Language proficiency is not a monolith. The expectations for language work of a customer-facing salesperson will vary significantly from those of either person or R&D team member. This step is about precision and intentionality.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Assessing needs per role
 
  Conducting role-based language assessments is the first step towards granularity in language courses.
@@ -65,8 +63,9 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
  Sales professionals may focus on learning techniques for cultivating persuasive language, for example, while tech teams could gravitate towards comprehending complex technical manuals in a foreign language.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Setting clear and measurable goals
 
  It’s not enough to vaguely aim for ‘fluency’. Smart corporations set out [language skills training](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) objectives that are Specific, Measurable, Achievable, Relevant and Time-Bound (SMART).
@@ -86,21 +85,23 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
  If innovation is a top priority, for example, then speaking the vernacular vocabulary of patents and inventions is a training staple.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Incorporating industry-specific lingo
 
  Language can be as idiosyncratic as culture. Medical, legal, technical and financial industries have their own lexicons of words, phrases, vocabulary, syntax and other tools of jargon.
 
  Corporate [language training](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) should include context-appropriate language and the ability to learn vocabulary that’s indigenous to your sector.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Engaging stakeholders
 
  The journey towards linguistic empowerment is ultimately a collective one. Involving all concerned parties in the practice of speaking and learning a language together early on is a winning strategy.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### HR and trainers as partners
 
  HR managers are the gatekeepers of talent development, while corporate trainers are the architects of [language learning](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) programs.
@@ -115,21 +116,19 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
  Remember, the goal for language learners isn’t just learning to speak a new language; it’s entwining it naturally with a person or team member’s personal growth, progress and success.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Measuring success
 
  The adage ‘what gets measured, gets managed’ holds especially true for language training effectiveness.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### Developing KPIs for language skills
 
  How does [language learning and fluency impact your business](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ? Is it a crucial aspect of employee engagement, enabling them to negotiate contracts for foreign services and foster cross-cultural teamwork?
 
  KPIs for [language training must be quantifiable and aligned with business](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) objectives. This might involve fluency tests, error rates in communication during language courses, or even increased customer satisfaction scores from multilingual support.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tracking progress and being flexible
 
@@ -152,9 +151,9 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 ## Frequently asked questions
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How can we evaluate the effectiveness of a customized language training program within our organization?
 
  Successful language learning can be evaluated using various approaches. These include pre- and post-training assessment tests that demonstrate improvement in language skills, feedback from employees on the relevance and practicality of the training, and the monitoring of performance metrics related to communication, such as error rates in customer communication or post-training efficiency in employee collaboration. It is crucial to directly link these metrics to the goals set in the SMART objective framework to determine their impact on business outcomes.
@@ -163,24 +162,30 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
  Learning languages should be aligned with corporate values through the development of tailored lesson plans that integrate your company's mission and vision. This involves creating scenarios and content that reflect your corporate culture, as well as incorporating industry-specific terminology that is relevant to your business. Moreover, collaborating with trainers to contextualize language learning within the framework of your company's ethos can facilitate the practical application of language skills in accordance with your values.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Can language training be scaled to cater to different departments with varying levels of language proficiency and functional needs?
 
  Absolutely. A modular approach to language training allows for the scalability required to suit different departments and proficiency levels. This entails creating a core program with basic language skills and offering elective modules focused on specific departmental functions or advanced language skills. Regular skills assessments and role-based customization ensure that every team’s unique requirements are catered for efficiently and effectively.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How can we maintain employee motivation throughout the language training process?
 
  To sustain motivation in language learning, it's crucial to emphasize the direct benefits for employees, such as career advancement and skill enrichment in the target language. Enhance engagement by incorporating gamification elements, acknowledging achievements, providing regular feedback, and creating practical, interactive learning experiences tied to real-life scenarios. Periodically revisiting and reminding the workforce of the overarching company goals and how their language training contributes to those objectives can also be helpful.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### In what ways can HR work with managers to integrate language training with routine work schedules without compromising productivity?
 
  HR and managers can collaborate to create training schedules that align with work demands—this may include off-peak learning hours or leveraging technology for on-demand, self-paced training modules. Moreover, incorporating language training into everyday work activities, such as formal presentations or meetings in the target language, can ensure practical application while minimizing disruption to daily productivity.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### What should be considered when selecting a language training service provider to partner with?
 
  When selecting an online language training provider, HR professionals should consider providers with a proven track record of developing customized language learning programs that align with corporate cultures and values. Look for providers that offer thorough needs analysis, experienced instructors with a background in corporate training, flexible scheduling options and a strong support system for learners. Additionally, the ability to deliver measurable results and provide detailed reporting should play a crucial role in your decision-making process for online courses.
@@ -194,9 +199,6 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Take the first step
 
  In today’s globalized business environment, an investment in a language learning management system like [Mondly by Pearson](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) isn’t just desirable – it’s a strategic necessity. With its innovative features, proven success, and a solid track record in businesses of all sizes,[Mondly by Pearson](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) stands as the preferred choice for businesses looking to scale new heights of global success.
@@ -211,8 +213,6 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -220,8 +220,19 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mastering-instagram-the-ultimate-guide-to-viral-popularity/"><u>[New] 2024 Approved Mastering Instagram The Ultimate Guide to Viral Popularity</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-essential-filter-selection-best-9-streaming-aids/"><u>[Updated] Essential Filter Selection Best 9 Streaming Aids</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-8-premier-free-html-editing-tools-for-windows-users/"><u>Discover the 8 Premier Free HTML Editing Tools for Windows Users</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-cricket-iphone-12-pro-max-for-free-by-drfone-ios/"><u>How To Unlock Cricket iPhone 12 Pro Max for Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/identifying-the-more-beneficial-european-language-german-vs-french/"><u>Identifying The More Beneficial European Language: German vs French</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-flashlight-from-apple-iphone-13-pro-max-lock-screen-by-drfone-ios/"><u>In 2024, How To Remove Flashlight From Apple iPhone 13 Pro Max Lock Screen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/major-focus-most-popular-foreign-languages-us/"><u>Major Focus: Most Popular Foreign Languages U.S</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-art-and-science-of-fb-video-ads-unveiling-20-crucial-steps/"><u>The Art and Science of FB Video Ads Unveiling 20 Crucial Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rogues-repertoire-diving-into-sea-slang-lexicon/"><u>The Rogue's Repertoire: Diving Into Sea Slang Lexicon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/trick-or-treating-through-global-lenses/"><u>Trick-or-Treating Through Global Lenses</u></a></li>
+<li><a href="https://games-able.techidaily.com/understanding-and-solving-the-top-4-gpu-hurdles-efficiently/"><u>Understanding & Solving the Top 4 GPU Hurdles Efficiently</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-apple-iphone-7-plus-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On Apple iPhone 7 Plus</u></a></li>
+</ul></div>
 

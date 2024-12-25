@@ -1,7 +1,7 @@
 ---
 title: Analyzing Mondly's Educational Framework
-date: 2024-08-23T00:22:26.288Z
-updated: 2024-08-24T00:22:26.288Z
+date: 2024-12-22T16:20:31.059Z
+updated: 2024-12-25T16:15:37.379Z
 tags:
   - speak
   - english
@@ -20,8 +20,6 @@ thumbnail: https://thmb.techidaily.com/acf5d83720813eafd1cf11dcdf7186bac5b4ef33c
 
  The answer is simpler than you think. They learn by doing. And that’s the best approach for you too.
 
-
-
  After years of working abroad and learning several languages, the founders of what would soon become Mondly made a decision. They needed to bring this amazing approach to an app. And they did.
 
 ![language learning app](https://edge.mondly.com/blog/wp-content/uploads/2021/01/language-learning-app-960x761.png "The Learning Method Behind Mondly 4")
@@ -31,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/acf5d83720813eafd1cf11dcdf7186bac5b4ef33c
  **Mondly is based on the inductive method: learn by doing, context and example, and extrapolate to rules.** In other words, start thinking in the language that you’d like to learn rather than construct a phrase in your native language, apply the rules and only then translate it accordingly.
 
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
 
@@ -44,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/acf5d83720813eafd1cf11dcdf7186bac5b4ef33c
 
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
@@ -51,6 +57,10 @@ thumbnail: https://thmb.techidaily.com/acf5d83720813eafd1cf11dcdf7186bac5b4ef33c
 [Studies](https://academic.oup.com/applij/article-abstract/34/4/457/199564?redirectedFrom=fulltext) have shown that knowing as little as 100 words helps you understand 50% of any text in the language you’re learning. Surprising as it may seem, it’s true. Knowing 1,000 words will give you a high coverage of 75% of any text. Here’s how much lexical coverage you need to reach fluency in almost any language:
 
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lexical coverage overview
 
@@ -64,8 +74,9 @@ thumbnail: https://thmb.techidaily.com/acf5d83720813eafd1cf11dcdf7186bac5b4ef33c
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Take Mondly for a test drive
 
  Take your language learning experience to the next level. With Mondly, you’ll learn by doing.
@@ -82,8 +93,6 @@ thumbnail: https://thmb.techidaily.com/acf5d83720813eafd1cf11dcdf7186bac5b4ef33c
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -91,8 +100,19 @@ thumbnail: https://thmb.techidaily.com/acf5d83720813eafd1cf11dcdf7186bac5b4ef33c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/updated-acknowledgments-galore-cost-effective-templates-here/"><u>[Updated] Acknowledgments Galore Cost-Effective Templates Here</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/1728510179566-windows-10-8/"><u>提高 Windows 1^0 系统文件传输速率的8项改进步骤 |已修复问题</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/battling-chromes-blank-screens-for-your-facebook-clips-for-2024/"><u>Battling Chrome's Blank Screens for Your Facebook Clips for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-fix-pc-issues-keeping-your-game-of-frontier-running-smoothly/"><u>How to Fix PC Issues: Keeping Your Game of Frontier Running Smoothly</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-breaking-down-the-barriers-effective-rtmp-streaming-in-premiere/"><u>In 2024, Breaking Down the Barriers Effective RTMP Streaming in Premiere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-a-man-who-matters/"><u>Johannes Honterus: A Man Who Matters</u></a></li>
+<li><a href="https://blog-min.techidaily.com/masterclass-en-windows-xdvd-una-guia-completa-y-utilitaria-para-profesionales/"><u>Masterclass en Windows XDVD: Una Guía Completa Y Utilitaria Para Profesionales</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-social-etiquette-in-chinese-dialogues/"><u>Navigating Social Etiquette in Chinese Dialogues</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/optimize-day-to-day-with-these-4-chatgpt-productivity-techniques/"><u>Optimize Day-to-Day with These 4 ChatGPT Productivity Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-greetings-common-phrases-and-basic-words/"><u>Russian Greetings: Common Phrases and Basic Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-catalan-comprehension-minutes-only/"><u>Speedy Catalan Comprehension, Minutes Only</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-for-downloading-logitech-wheel-drivers-on-your-pc-supports-win7win8win10/"><u>Step-by-Step Guide for Downloading Logitech Wheel Drivers on Your PC - Supports Win7/Win8/Win10</u></a></li>
+</ul></div>
 

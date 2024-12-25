@@ -1,7 +1,7 @@
 ---
 title: Mondly Collaborates with Pearson Back on Filter Feature
-date: 2024-12-05T19:16:41.425Z
-updated: 2024-12-10T16:33:04.422Z
+date: 2024-12-21T16:47:39.744Z
+updated: 2024-12-25T16:58:54.740Z
 tags:
   - speak
   - english
@@ -36,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **About Pearson**
@@ -44,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **About Mondly**
@@ -68,20 +68,22 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-tiktok-top-ten-for-cutting-edge-content-creation/"><u>[New] TikTok Top Ten for Cutting-Edge Content Creation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/assessing-performance-the-truth-about-the-tp-link-powerline-wifi-signal-expander-av1300/"><u>Assessing Performance: The Truth About the TP-Link Powerline WiFi Signal Expander (AV1300)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutsch-eine-auswahl-an-verabschiedungsformen/"><u>Deutsch: Eine Auswahl an Verabschiedungsformen</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-effortless-video-transfer-importing-and-exporting-in-adobe-premiere-pro-2023/"><u>In 2024, Effortless Video Transfer Importing and Exporting in Adobe Premiere Pro 2023</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-top-10-must-have-accessories-for-sj4000/"><u>In 2024, Top 10 Must Have Accessories for SJ4000</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/integrating-ai-assistants-into-slides-with-s2t/"><u>Integrating AI Assistants Into Slides with S2T</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-the-ultimate-2022-language-experience/"><u>Mondly - The Ultimate 2022 Language Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-italy-must-know-expressions-for-guests/"><u>Navigating Italy: Must-Know Expressions for Guests</u></a></li>
-<li><a href="https://extra-information.techidaily.com/pinnacle-creation-hub-synopsis-studio-assessment-2023/"><u>Pinnacle Creation Hub Synopsis, Studio Assessment 2023</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-british-lexicon-explorer-learn-quickly-and-easily/"><u>The British Lexicon Explorer: Learn Quickly & Easily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essence-free-knowledge-every-day/"><u>The Essence: Free Knowledge Every Day</u></a></li>
-<li><a href="https://change-location.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/unlock-the-secrets-to-fixing-your-wiredwireless-adapter-issues-in-windows-7/"><u>Unlock the Secrets to Fixing Your Wired/Wireless Adapter Issues in Windows 7</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-japons-language-with-key-salutations/"><u>Unlocking Japon's Language with Key Salutations</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/yl-software-insights-easily-update-your-desktop-image-on-windows-systems/"><u>YL Software Insights: Easily Update Your Desktop Image on Windows Systems</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-rgbs-role-in-modern-color-standards-compared-to-srgb/"><u>[New] 2024 Approved Rgb's Role in Modern Color Standards Compared to Srgb</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-prime-portable-canvas-apps-for-windows-free-and-charged/"><u>[New] Prime Portable Canvas Apps for Windows Free and Charged</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-review-of-asus-proart-pa-329q-professional-4k-screen/"><u>[New] The Ultimate Review of Asus ProArt PA 329Q Professional 4K Screen</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-delving-into-the-world-of-video-grading-styles/"><u>[Updated] Delving Into the World of Video Grading Styles</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/apples-game-changing-macbook-air-with-m1-chip-an-immersive-review-of-its-unprecedented-speed-and-power-in-2020-models/"><u>Apple's Game-Changing MacBook Air with M1 Chip: An Immersive Review of Its Unprecedented Speed and Power in 2020 Models</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-bridges-dannys-colombian-aid-initiative/"><u>Building Bridges: Danny's Colombian Aid Initiative</u></a></li>
+<li><a href="https://win11.techidaily.com/combat-plan-against-dual-programming-issues/"><u>Combat Plan Against Dual Programming Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-french-communication-skills-for-your-next-french-trip/"><u>Essential French Communication Skills for Your Next French Trip</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-phrases-and-words-for-urdu-beginners/"><u>Essential Phrases and Words for Urdu Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-english-learning-via-pearson-services/"><u>Global English Learning via Pearson Services</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-delete-all-photos-from-iphone-x-beyond-scope-of-recovery-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Delete All Photos from iPhone X Beyond Scope of Recovery? | Stellar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/iberian-differences-spanish-and-portuguese-language-study/"><u>Iberian Differences: Spanish and Portuguese Language Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lineage-tracing-spanish-and-portuguese-roots/"><u>Linguistic Lineage: Tracing Spanish & Portuguese Roots</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcome-in-use-error-precision-in-local-device-identification/"><u>Overcome In-Use Error: Precision in Local Device Identification</u></a></li>
+<li><a href="https://win-dash.techidaily.com/surface-book-2-driver-update-made-simple-download-and-installation-tips/"><u>Surface Book 2 Driver Update Made Simple - Download & Installation Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-technologies-mondly-plus-pearson-buttons-fusion/"><u>Uniting Technologies: Mondly + Pearson Buttons Fusion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-select-arabic-6-insights-on-mondlys-online-platform/"><u>Why Select Arabic: 6 Insights on Mondly's Online Platform</u></a></li>
 </ul></div>
 

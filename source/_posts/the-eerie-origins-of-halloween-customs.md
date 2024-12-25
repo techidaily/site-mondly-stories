@@ -1,7 +1,7 @@
 ---
 title: The Eerie Origins of Halloween Customs
-date: 2024-12-03T17:56:27.420Z
-updated: 2024-12-10T17:33:32.134Z
+date: 2024-12-18T16:17:42.837Z
+updated: 2024-12-25T16:17:07.226Z
 tags:
   - speak
   - english
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 
  Nevertheless, there are many countries around the world that have their own Halloween-like traditions celebrating the afterlife. For example, in some parts of the world, on All Hallows’ Eve, people visit the graveyards of their loved ones to pray and place flowers. But let’s dive in already and look at **four of the most fascinating Halloween-like traditions from different corners of the world.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Halloween-like Traditions Worldwide
 
 ### Mexico: Día de Muertos (Day of the Dead)
@@ -34,16 +38,12 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Calaveras” by Valeria Almaraz©
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### China: The Hungry Ghost Festival
@@ -53,10 +53,6 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
  Celebrated yearly during the seventh month in the lunar calendar (September, also known as the Ghost Month) with a peak on the 15th day (also known as Ghost Day), one of the most interesting traditions of the Hungry Ghost Festival is serving meals (often vegetarian) with empty seats for each deceased in the family and treating the deceased as if they are still living.
 
 ![Traditional practices during the Hungry Ghost Festival in China](https://edge.mondly.com/blog/wp-content/uploads/2019/09/9609227445_5a2c7c2f90_o-960x640.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 7")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “The Hungry Ghost Festival” by Matthew Kang©
 
@@ -69,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
@@ -81,12 +77,16 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 ![halloween in different countries](https://edge.mondly.com/blog/wp-content/uploads/2019/09/neonbrand-A59lWOrZVnw-unsplash-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Halloween party” by NeONBRAND©
 
  Contrary to what you may believe, pumpkins and asking for candy and gifts are traditions of the past that were popular in many Italian regions before the American Halloween became so notorious.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Romania: Saint Andrew’s Day
 
@@ -136,20 +136,18 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-advanced-strategies-for-screen-recording-on-ipad/"><u>[New] 2024 Approved Advanced Strategies for Screen Recording on iPad</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-quick-start-5-simple-ways-to-document-your-minecraft-journey-on-a-mac/"><u>[New] Quick Start 5 Simple Ways to Document Your Minecraft Journey on a Mac</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-gain-profit-power-the-secret-of-successful-youtube-marketing-and-500plus/"><u>[Updated] 2024 Approved Gain Profit Power The Secret of Successful Youtube Marketing & 500+</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-top-gear-youtube-pros-choice-in-shaky-free-video-capture-for-2024/"><u>[Updated] Top Gear YouTube Pros' Choice in Shaky-Free Video Capture for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brazilian-and-european-linguistic-tools-a-buttons-perspective/"><u>Brazilian & European Linguistic Tools: A Buttons Perspective</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-strategies-for-acquiring-french-at-home/"><u>Essential Strategies for Acquiring French at Home</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expeditious-french-hue-pronunciation-guide/"><u>Expeditious French Hue Pronunciation Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-goodwill-on-american-celebratory-date/"><u>Global Goodwill on American Celebratory Date</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/hear-divine-voices-downloading-and-altering-ringtone-audio-for-2024/"><u>Hear Divine Voices Downloading & Altering Ringtone Audio for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-for-security-reasons-from-apple-iphone-15-pro-max-find-the-best-solution-here-by-drfone-ios/"><u>In 2024, Apple ID Locked for Security Reasons From Apple iPhone 15 Pro Max? Find the Best Solution Here</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-vernacular-infusions-in-english/"><u>International Vernacular Infusions in English</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-hurdles-in-playing-robocop-rogue-city-for-xbox-and-ps5-including-tips-for-pc-users/"><u>Overcoming Hurdles in Playing 'RoboCop: Rogue City' For Xbox and PS5, Including Tips for PC Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-up-career-stages-via-language-training/"><u>Step Up Career Stages via Language Training</u></a></li>
-<li><a href="https://win-best.techidaily.com/ultimate-guide-to-selecting-the-best-3-backup-software-options-for-windows-11-users/"><u>Ultimate Guide to Selecting the Best 3 Backup Software Options for Windows 11 Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579254555-year-of-linguistics-cut-costs-by-95-today/"><u>Year of Linguistics? Cut Costs by 95% Today</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhancing-viewership-maintaining-youtubes-creative-commons/"><u>[New] 2024 Approved Enhancing Viewership Maintaining YouTube's Creative Commons</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-6-rising-stars-non-periscope-video-sharing-on-mobile-devices/"><u>[New] 6 Rising Stars Non-Periscope Video Sharing on Mobile Devices</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-ultimate-buzz-generating-tie/"><u>[New] In 2024, Ultimate Buzz-Generating Tie</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-write-a-script-for-a-youtube-video/"><u>[Updated] 2024 Approved How to Write a Script for a YouTube Video</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-your-roadmap-to-acquiring-facebooks-esteemed-verification/"><u>[Updated] 2024 Approved Your Roadmap to Acquiring Facebook’s Esteemed Verification</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-advanced-tricks-for-quick-webp-to-jpg-conversion/"><u>[Updated] Advanced Tricks for Quick WebP to JPG Conversion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-essential-guidelines-for-perfecting-english-grammar-advised-by-an-esl-guru/"><u>8 Essential Guidelines for Perfecting English Grammar, Advised by an ESL Guru</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/excellent-quality-hd-screen-recorders-for-2024/"><u>Excellent Quality HD Screen Recorders for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-tecno-pova-5-pro-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Tecno Pova 5 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-learning-from-screen-dialogues/"><u>Interactive Learning From Screen Dialogues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-to-spanish-salutations-top-10-ways-to-say-hello/"><u>Introduction to Spanish Salutations: Top 10 Ways To Say Hello</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-and-craft-of-english-language-contractions-explained/"><u>The Art & Craft of English Language Contractions Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-comprehensive-starter-guide-to-german-pronunciation-and-script/"><u>The Comprehensive Starter Guide to German Pronunciation & Script</u></a></li>
 </ul></div>
 

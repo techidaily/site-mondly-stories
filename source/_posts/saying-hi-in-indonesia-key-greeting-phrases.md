@@ -1,7 +1,7 @@
 ---
 title: "Saying Hi in Indonesia: Key Greeting Phrases"
-date: 2024-12-12T19:54:58.835Z
-updated: 2024-12-16T18:30:49.218Z
+date: 2024-12-23T16:20:13.124Z
+updated: 2024-12-25T16:22:00.814Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
 
  Besides, you’ll love [learning Indonesian words](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6912&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id) as some of them sound very cute to English speakers. Known as_Bahasa Indonesia_ to Indonesians, Indonesian calls the dolphin_lumba-lumba_ and the teeth_gigi_ . Cute. Told ‘ya!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## When and how should you say hello in Indonesia
 
  Unlike other Asian countries that place a big emphasis on the culture of respect, Indonesia doesn’t necessarily use honorifics. Besides, just like in English, Indonesian greetings don’t have formal variations for elders or those of a higher social status.
@@ -36,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
@@ -71,7 +71,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -81,7 +81,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say goodbye
@@ -126,21 +126,20 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-elevate-the-art-of-storytelling-6-leading-snapchat-apps/"><u>[New] 2024 Approved Elevate the Art of Storytelling 6 Leading Snapchat Apps</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-micro-videos-in-the-spotlight-who-wins-youtube-shorts-or-tiktok-in-2024/"><u>[Updated] Micro-Videos in the Spotlight Who Wins, YouTube Shorts or TikTok, In 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/effortless-solutions-for-correcting-the-missing-bootmgr-error-illustrated-tutorial/"><u>Effortless Solutions for Correcting the Missing BOOTMGR Error – Illustrated Tutorial</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On OnePlus 11R | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-samsung-galaxy-a25-5g-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Samsung Galaxy A25 5G? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-xiaomi-redmi-a2plus-lock-screen-password-by-drfone-android/"><u>How to Reset your Xiaomi Redmi A2+ Lock Screen Password</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Lava Blaze 2 Pro? | Dr.fone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/in-depth-review-asus-zenbook-s16-and-amd-ryzen-ai-9-hx-370-performance-breakdown/"><u>In-Depth Review: Asus Zenbook S16 & AMD Ryzen AI 9 HX 370 Performance Breakdown</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lhospitalite-en-francais-une-demeure-cherie/"><u>L’Hospitalité En Français: Une Demeure Chérie</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-english-core-expressions-effortlessly-oxford-and-mondly/"><u>Learn English Core Expressions Effortlessly - Oxford & Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-grow-thrive-with-mondly-in-ukraine/"><u>Learn, Grow, Thrive with Mondly in Ukraine</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-lithuanian-online-top-tutorials-guide/"><u>Mastering Lithuanian Online: Top Tutorials Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oxford-mondly-the-core-vocabulary-journey/"><u>Oxford-Mondly: The Core Vocabulary Journey</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/stepwise-reduction-tactics-for-audio-levels-in-fl-studio/"><u>Stepwise Reduction Tactics for Audio Levels in FL Studio</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-lexicon-leap-new-age-methods-for-mastering-languages/"><u>The Lexicon Leap: New Age Methods for Mastering Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-discover-the-best-language-learning-platforms/"><u>Unlock Your Potential: Discover the Best Language Learning Platforms</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/2024s-step-by-step-solution-why-isnt-my-rust-mic-working-how-to-fix-it/"><u>2024'S Step-by-Step Solution: Why Isn't My Rust Mic Working? How to Fix It</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/opusflac-movavi/"><u>自由下載 OPUS到FLAC - 使用 Movavi 音頻格式转换器</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apprendre-en-cinq-jours-semaine-francaise/"><u>Apprendre en Cinq Jours: Semaine Française</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/chromes-picture-in-picture-capabilities-explained/"><u>Chrome's Picture-In-Picture Capabilities Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-belgian-tongue-conundrum/"><u>Decoding the Belgian Tongue Conundrum</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-multilingual-gaming-mondly-writes-the-new-rules-for-oculus-quest/"><u>Dive Into Multilingual Gaming: Mondly' Writes the New Rules for Oculus Quest</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-hp-laserjet-1018-driver-fast-install-guide-and-downloads/"><u>Get Your HP LaserJet 1018 Driver - Fast Install Guide & Downloads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmony-through-communication-multilingual-relationship-guide/"><u>Harmony Through Communication: Multilingual Relationship Guide</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-vivo-y77t-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Vivo Y77t FRP Bypass Instantly</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-australian-lingo-100plus-slang-terms-and-sayings-to-speak-like-an-aussieback-buttonfilter-button/"><u>Master Australian Lingo: 100+ Slang Terms & Sayings To Speak Like An AussieBack ButtonFilter Button</u></a></li>
+<li><a href="https://review-topics.techidaily.com/poco-c65-music-recovery-recover-deleted-music-from-poco-c65-by-fonelab-android-recover-music/"><u>Poco C65 Music Recovery - Recover Deleted Music from Poco C65</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-and-effective-norwegian-bokmal-learning-in-10-minutes-a-day/"><u>Quick And Effective Norwegian (Bokmål) Learning In 10 Minutes A Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-digital-dialect-learning-languages-in-the-information-era/"><u>The Digital Dialect: Learning Languages in the Information Era</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/xboxs-foray-into-vr-unveiling-potential-specs-expected-price-points-and-launch-windows/"><u>Xbox's Foray Into VR: Unveiling Potential Specs, Expected Price Points, and Launch Windows</u></a></li>
 </ul></div>
 

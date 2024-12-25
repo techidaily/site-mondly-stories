@@ -1,7 +1,7 @@
 ---
 title: Starting Your Journey to Speaking Spanish
-date: 2024-12-08T16:35:48.901Z
-updated: 2024-12-10T19:17:09.262Z
+date: 2024-12-24T16:42:05.472Z
+updated: 2024-12-25T16:46:52.387Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
  Learning how to count is crucial if you decide to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Although we may not always acknowledge it, numbers or_números_ (as you’d call them in Spanish) are essential to our day-to-day lives. From shopping to setting up a meeting, telling time, or giving someone your phone number – they really are one of the most basic and important language lessons. So let’s crack the mystery and discover what comes after_uno_ ,_dos,_ and_tres_ . Because Pitbull only gets us so far.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish numbers 1 to 30
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Spanish numbers to 40
@@ -79,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Count to 100 in Spanish
@@ -112,7 +112,7 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish numbers to 1000 and beyond
@@ -153,7 +153,7 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Barcelona, Spain
@@ -205,15 +205,24 @@ Here are some more examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-enhancing-youtube-watching-with-list-rearrangement/"><u>[Updated] 2024 Approved Enhancing YouTube Watching with List Rearrangement</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-guide-to-fb-video-repositories-windows-and-macos/"><u>[Updated] In 2024, Guide to FB Video Repositories Windows & macOS</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-visual-mastery-the-ultimate-list-of-the-best-photo-editing-displays-for-2024/"><u>[Updated] Visual Mastery - The Ultimate List of the Best Photo Editing Displays for 2024</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/2024-approved-top-rated-dog-howling-and-growling-sounds-for-filmmakers/"><u>2024 Approved Top-Rated Dog Howling and Growling Sounds for Filmmakers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/basic-latin-american-phrases-a-comprehensive-guide-for-english-speakers/"><u>Basic Latin American Phrases: A Comprehensive Guide for English Speakers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/in-a-flash-japanese-numbers-unlocked/"><u>In a Flash: Japanese Numbers Unlocked</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-urdu-quickly-every-day/"><u>Master Urdu Quickly, Every Day</u></a></li>
-<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Huawei P60 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-global-tapestry-of-romantic-speech/"><u>The Global Tapestry of Romantic Speech</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-vivo-v27e-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Vivo V27e Phone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-superior-drones-at-affordable-prices-for-2024/"><u>[Updated] Superior Drones at Affordable Prices for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-guide-to-mac-videos-for-snapchat/"><u>[Updated] The Ultimate Guide to Mac Videos for Snapchat</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-video-platform-review-is-vimeo-best-over-youtubes-and-dailymotions/"><u>2024 Approved Video Platform Review Is Vimeo Best Over YouTubes and DailyMotions?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amor-in-motion-ingenious-italian-flirting-strategies/"><u>Amor in Motion: Ingenious Italian Flirting Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/craft-your-own-french-journey-from-anywhere/"><u>Craft Your Own French Journey From Anywhere!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/early-years-the-optimal-time-for-language-learning/"><u>Early Years: The Optimal Time for Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-tongues-foreign-flavor-syntax-and-vocabulary-shifts/"><u>English Tongue's Foreign Flavor: Syntax & Vocabulary Shifts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/europes-vibrant-verbal-tapestry-celebrate-it-today/"><u>Europe's Vibrant Verbal Tapestry – Celebrate It Today</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-apple-iphone-15-pro-max-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>Forgot Apple iPhone 15 Pro Max Backup Password? Heres What to Do | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-vivo-s17-pro-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Vivo S17 Pro</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-oppo-find-x6-pro-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Oppo Find X6 Pro</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Motorola Moto G23? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-mondly-unlock-ultimate-features/"><u>Mastering Mondly: Unlock Ultimate Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestone-mondlybacks-10-year-filter-legacy/"><u>Milestone: MondlyBack’s 10-Year Filter Legacy</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/quick-tips-editing-dall-e-3-generated-images-from-webp-to-classic-jpg-and-png/"><u>Quick Tips: Editing DALL-E 3 Generated Images From WebP to Classic JPG and PNG</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/secrets-to-save-your-favorite-igtv-on-phoneandroid-for-2024/"><u>Secrets to Save Your Favorite IGTV on Phone/Android for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tandu-update-better-control-enhanced-clarity/"><u>T&U Update: Better Control, Enhanced Clarity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-tools-for-efficient-foreign-language-proficiency-growth/"><u>Top Tools for Efficient Foreign Language Proficiency Growth</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlocking-missing-chatgpt-records/"><u>Unlocking Missing ChatGPT Records</u></a></li>
 </ul></div>
 

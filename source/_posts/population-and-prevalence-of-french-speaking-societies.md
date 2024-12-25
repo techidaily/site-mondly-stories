@@ -1,7 +1,7 @@
 ---
 title: Population & Prevalence of French-Speaking Societies
-date: 2024-12-11T16:20:00.068Z
-updated: 2024-12-16T18:21:46.096Z
+date: 2024-12-22T16:46:04.529Z
+updated: 2024-12-25T16:40:56.900Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 
  Meanwhile, if you’re not sure whether you should [learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or not, our advice would be to go for it. **French has been adopted as the official language of the largest number of countries after English.** For this reason alone, speaking French will help you make friends and easily communicate all over the world.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How many people speak French?
 
  **According to recent data from [Ethnologue](https://www.ethnologue.com/language/fra) , 274 million people speak French worldwide.** However, the ‘unofficial’ number could be much closer to 300 million speakers.
@@ -36,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 
  In fact, the French language is so popular that according to current [projections](https://www.forbes.com/sites/pascalemmanuelgobry/2014/03/21/want-to-know-the-language-of-the-future-the-data-suggests-it-could-be-french/?sh=51a894376d58) , there will be over 750 million French speakers around the world by 2050\. So it’s definitely a good idea to [start learning French](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-7067&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7067?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7067?mother%5Flang=en%5Fus?target%5Flang=fr) right now!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## List of French-speaking countries
 
 **French is the official language of 29 countries:** **Belgium, Benin, Burkina Faso, Burundi, Cameroon,** **Central African Republic,**   **Canada, Chad, the Ivory Coast, Comoros, Congo, the Democratic Republic of the Congo (DRC), Djibouti, Equatorial Guinea, France, Gabon, Guinea, Haiti, Luxembourg, Madagascar, Mali, Monaco, Niger, Rwanda,[Senegal](https://www.familiesgotravel.com/2016/03/africa-kids-what-to-do-in-senegal/) , Seychelles, Switzerland, Togo and Vanuatu.**
@@ -47,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
  Now let’s go into a little more detail and split the countries into continents.
 
 ![how many people speak french](https://edge.mondly.com/blog/wp-content/uploads/2022/10/how-many-people-speak-french-960x600.jpg "Top French-Speaking Countries | How Many People Speak French? 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### French-speaking countries in Europe
 
@@ -102,7 +106,7 @@ Needless to say, the only French-speaking country in North America is:
 * Canada — 29% (percentage of the entire population speaking French).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### French-speaking countries in the Caribbean
@@ -116,11 +120,7 @@ We told you that French speakers could be found everywhere in the world!
 !['French speakers' by Claudia Altamimi©](https://edge.mondly.com/blog/wp-content/uploads/2022/10/french-speakers-960x720.jpg "Top French-Speaking Countries | How Many People Speak French? 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### French-speaking countries in Oceania
@@ -134,7 +134,7 @@ We told you that French speakers could be found everywhere in the world!
  Later, in the 1880s, France and the United Kingdom claimed parts of the archipelago and they agreed to manage it jointly. However, an independence movement arose in the 1970s, and the Republic of Vanuatu was founded in 1980\. And that’s the story of how the French language made it all the way to Australia.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Countries where French is spoken although it’s not an official language
@@ -193,21 +193,20 @@ We told you that French speakers could be found everywhere in the world!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-unlock-the-secrets-of-9gag-for-memetic-success/"><u>[New] 2024 Approved Unlock the Secrets of 9GAG for Memetic Success</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-ignite-conversations-top-10-creative-reaction-insights-for-videos/"><u>[New] Ignite Conversations Top 10 Creative Reaction Insights for Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-integrated-video-flow-linking-multiple-youtube-content/"><u>[New] In 2024, Integrated Video Flow Linking Multiple YouTube Content</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-polaroid-xs-100i-action-camera-review/"><u>[New] Polaroid XS 100I Action Camera Review</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-snapsnatcher-live-stream-repository-for-2024/"><u>[New] SnapSnatcher - Live Stream Repository for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-phased-opening-visuals/"><u>[Updated] Phased Opening Visuals</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-high-quality-youtube-images-download-without-any-cost/"><u>2024 Approved High-Quality YouTube Images Download Without Any Cost</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-ultimate-guide-resurrecting-non-displayed-fb-video-posts-2023/"><u>2024 Approved The Ultimate Guide Resurrecting Non-Displayed FB Video Posts, 2023</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effective-solutions-resolving-your-dota-2-game-crashes/"><u>Effective Solutions: Resolving Your Dota 2 Game Crashes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/google-play-rewards-mondly-kids-stands-out-in-2017/"><u>Google Play Rewards - Mondly Kids Stands Out in 2017</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/huaweis-appgallery-unveils-new-player-mondly/"><u>Huawei's AppGallery Unveils New Player, Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-japanese-numbers-in-just-10-minutes/"><u>Learn Japanese Numbers In Just 10 Minutes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seafaring-slang-survival-kit-mastering-piratical-vernacular/"><u>Seafaring Slang Survival Kit: Mastering Piratical Vernacular</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/the-complete-guide-to-live-streaming-on-instagram-via-obs-for-2024/"><u>The Complete Guide to Live Streaming on Instagram via OBS for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-tongue-of-truth-learning-hangul-for-ks/"><u>The Tongue of Truth: Learning Hangul for KS</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-speech-hegemony-quintessential-languages/"><u>Worldwide Speech Hegemony: Quintessential Languages</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-video-filter-installation-in-zoom-the-simplified-method/"><u>[New] Video Filter Installation in Zoom The Simplified Method</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-ensure-flawless-playback-how-to-set-youtube-video-size-right/"><u>2024 Approved Ensure Flawless Playback How to Set YouTube Video Size Right</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/3-dominant-platforms-for-seamless-multilingual-education/"><u>3 Dominant Platforms for Seamless Multilingual Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/advance-global-commerce-with-premium-multilingual-apps/"><u>Advance Global Commerce with Premium Multilingual Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amorates-anthology-flirtatious-italian-sayings/"><u>Amorate’s Anthology: Flirtatious Italian Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-a-vision-realized-mondlys-decade/"><u>Celebrating a Vision Realized: Mondly's Decade</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/do-you-pay-extra-for-data-restoration-services-by-yl-software/"><u>Do You Pay Extra for Data Restoration Services by YL Software?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonious-hearing-using-tunes-to-learn-new-languages/"><u>Harmonious Hearing: Using Tunes to Learn New Languages</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-update-your-asus-sound-card-drivers-for-optimal-performance-download-tutorial/"><u>How to Update Your ASUS Sound Card Drivers for Optimal Performance – Download Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577485164-learn-japanese-numbers-in-just-10-minutes/"><u>Learn Japanese Numbers In Just 10 Minutes!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/maximizing-engagement-a-pathway-to-higher-subscriber-numbers/"><u>Maximizing Engagement A Pathway to Higher Subscriber Numbers</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/perfecting-sound-on-snapchat-master-your-vocal-effects-in-minutes/"><u>Perfecting Sound on Snapchat Master Your Vocal Effects in Minutes</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolve-your-gaming-woes-fixing-recurring-crashes-in-outriders/"><u>Resolve Your Gaming Woes: Fixing Recurring Crashes in Outriders</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/step-into-the-future-of-gaming-updated-amd-hd-6950-drivers-for-win10/"><u>Step Into the Future of Gaming: Updated AMD HD 6950 Drivers for Win10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/this-innovative-virtual-reality-app-helps-you-learn-a-foreign-language-in-a-fun-way/"><u>This Innovative Virtual Reality App Helps You Learn a Foreign Language in a Fun Way</u></a></li>
 </ul></div>
 

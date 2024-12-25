@@ -1,7 +1,7 @@
 ---
 title: "Pearson's GSL Now: Mondly-Infused Exactitude"
-date: 2024-12-11T17:52:07.680Z
-updated: 2024-12-16T21:53:04.542Z
+date: 2024-12-23T16:47:12.682Z
+updated: 2024-12-25T16:54:08.409Z
 tags:
   - speak
   - english
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
  The Global Scale of Languages (GSL) helps educators and language learners know where they are, where they need to go and how they can get there.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Starting with the Global Scale of English (GSE)**
@@ -34,10 +34,6 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
 
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Introducing the Global Scale of Languages (GSL)**
 
 Building on this solid foundation, **Pearson has now introduced the Global Scale of Languages (GSL).**
@@ -46,12 +42,16 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **How Pearson created the GSL**
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Why the GSL stands out**
@@ -61,7 +61,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Why start with French, Spanish, and Italian?**
@@ -84,7 +84,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Fast-track your progress with Mondly by Pearson**
@@ -108,18 +108,20 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-harnessing-power-a-complete-ez-grabber-manual/"><u>[New] 2024 Approved Harnessing Power A Complete EZ Grabber Manual</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-jolly-video-recorder-critique/"><u>[New] Jolly Video Recorder Critique</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/google-endorses-mondly-for-immersive-language-mastery/"><u>Google Endorses Mondly for Immersive Language Mastery</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-nubia-red-magic-9-pro-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Nubia Red Magic 9 Pro to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-the-complete-guide-to-virtual-whiteboard-excellence-for-zoom-sessions-desktopiosandroid/"><u>In 2024, The Complete Guide to Virtual Whiteboard Excellence for Zoom Sessions (Desktop/iOS/Android)</u></a></li>
-<li><a href="https://review-topics.techidaily.com/issues-playing-h-265-hevc-video-on-xiaomi-redmi-note-12t-pro-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Issues playing H.265 HEVC video on Xiaomi Redmi Note 12T Pro</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/navigating-career-milestones-using-gpt-technology/"><u>Navigating Career Milestones Using GPT Technology</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/solving-the-issue-of-unwanted-humming-sounds-in-your-earbuds/"><u>Solving the Issue of Unwanted Humming Sounds in Your Earbuds</u></a></li>
-<li><a href="https://fox-http.techidaily.com/strategies-for-merging-youtube-music-and-video-content-effectively-for-2024/"><u>Strategies for Merging YouTube Music & Video Content Effectively for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-best-way-to-study-portuguese-6-tips-that-will-work-wonders/"><u>The Best Way To Study Portuguese - 6 Tips That Will Work Wonders</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/twitter-scams-battle-and-metasigs-rising-significance/"><u>Twitter Scams Battle and Metasig's Rising Significance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-the-science-of-second-language-acquisition/"><u>Understanding the Science of Second Language Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unravel-english-core-with-oxford-and-mondly/"><u>Unravel English Core with Oxford & Mondly</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-reinstating-windows-photo-viewer-ways-for-windows-11-users-for-2024/"><u>[New] Reinstating Windows Photo Viewer Ways for Windows 11 Users for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-grab-speech-file-and-review/"><u>[Updated] Grab Speech File & Review</u></a></li>
+<li><a href="https://win-latest.techidaily.com/comprehensive-step-by-step-manual-mastering-the-hp-cloud-recovery-app-on-windows-11/"><u>Comprehensive Step-by-Step Manual: Mastering the HP Cloud Recovery App on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-connection-to-complication-7-negative-aspects-unveiled/"><u>From Connection to Complication: 7 Negative Aspects Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-talk-like-a-pirate-20-pirate-wordsback-buttonfilter-button/"><u>How To Talk Like A Pirate: 20 Pirate WordsBack ButtonFilter Button</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-meizu-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Meizu</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-of-imac-with-apples-m1-chip-enhanced-performance-and-sleek-design/"><u>In-Depth Analysis of iMac with Apple's M1 Chip - Enhanced Performance & Sleek Design</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-movies-that-teach-languages-better/"><u>International Movies That Teach Languages Better</u></a></li>
+<li><a href="https://extra-information.techidaily.com/master-organization-with-mematics-toolkit/"><u>Master Organization with Mematic's Toolkit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-joins-with-pearson-learning-networks/"><u>Mondly Joins With Pearson Learning Networks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-the-language-of-germany-a-guide-to-25-idioms/"><u>Navigate the Language of Germany - A Guide to 25 Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-korean-days-your-easy-guide/"><u>Navigating Korean Days: Your Easy Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickfire-ways-to-conquer-foreign-languages/"><u>Quickfire Ways to Conquer Foreign Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tiempo-y-segundo-guia-para-iniciarse-en-espanol/"><u>Tiempo Y Segundo: Guía Para Iniciarse en Español</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154532783-zuckerberg-discloses-pet-goats-name-is-blockchain/"><u>Zuckerberg Discloses: Pet Goat's Name Is 'Blockchain'.</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Cultural Wealth of Farsi & Its Rewards
-date: 2024-12-10T22:15:29.688Z
-updated: 2024-12-16T22:08:39.042Z
+date: 2024-12-18T16:48:39.780Z
+updated: 2024-12-25T16:52:09.266Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  Here’s a quick guide to all the basics you need to know about Persian before deciding whether you want to learn Persian or not.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Persian a language?
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  In other words, the confusion arises from the fact that there’s currently no country on Earth named Persia in the same way there’s no language we can call the ‘Iranian language’. Persian does belong to the Iranian languages, but the Iranian languages are a branch of the Indo-Iranian languages in the Indo-European language family. So they are not an individual language.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Persian language – history and facts
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The Arab rule
@@ -55,10 +55,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  After the end of Arab rule in Persia in the 9th century, the Persian language and culture were reborn and a new period of classic literature and poetry arose. One such important piece of literature was Ferdowsi’s_Shahnameh_ (the “Book of Kings”), which is said to be the longest work of epic poetry ever written. Because of its influence on Persian literature and culture, the Persian language remains relatively unchanged to this day. It is said that Ferdowsi deliberately limited the use of Arabic loan words in his epic poem in order to preserve the integrity of the Persian language.
 
 !["Ferdowsi Shahnameh" by McGill Library©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/mcgill-library-AH42Li7NKUc-unsplash-960x629.jpg "Persian Language: History &Amp; Benefits Of Learning Farsi/Persian 2")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
 
@@ -70,6 +66,10 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  As a matter of fact, there are even some English words of Persian origin. Some of them came directly into English from Persian, but most of them came indirectly into English via a different language. Some examples include bronze, jackal, lemon, mogul, mummy, scarlet, serendipity, shawl, tulip, turban, typhoon, khaki, caravan, and paradise. Probably the most interesting borrowing is the word “checkmate,” which comes from the Persian_Shah Mat_ , meaning “the king is dead”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Persian vs Farsi: Is Farsi the same as Persian?
 
  The short answer is yes, Farsi and Persian are the same language. The confusion comes from the fact that ‘Persian’ is the term used by English speakers and ‘Farsi’ is the term used by Iranian speakers to refer to Persian, the official language of Iran.
@@ -79,10 +79,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  Over the course of history, the word ‘Farsi’ developed from the terms the natives used to refer to Old Persian, Middle Persian, and New Persian, which are_Parsa, Parsik_ or_Parsig_ and_Fars_ , respectively.
 
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Persian vs Arabic: Is Persian similar to Arabic?
 
@@ -116,6 +112,10 @@ Other benefits of learning Persian include:
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Learn Persian online with Mondly
 
  Are you now ready to learn Persian fast? Try Mondly, the award-winning language app that is serious about making learning Persian fun.
@@ -147,24 +147,24 @@ Other benefits of learning Persian include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-mastering-screen-capture-io-screener-guide/"><u>[New] 2024 Approved Mastering Screen Capture IO Screener Guide</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-navigate-through-dynamic-gifs-find-these-best-recorders-in-winos/"><u>[Updated] In 2024, Navigate Through Dynamic GIFs Find These Best Recorders in WinOS</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-macs-visual-excellence-10-list-of-ultimate-screens/"><u>[Updated] Mac's Visual Excellence #10 List of Ultimate Screens</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-how-to-make-a-hyperlapse-video/"><u>2024 Approved How to Make A Hyperlapse Video</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-platform-power-play-which-one-dominates-vimeo-youtubeplusdailymotion/"><u>2024 Approved Platform Power Play Which One Dominates - Vimeo, YouTube+DailyMotion?</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-unearth-17-methods-a-complete-guide-to-tracking-internet-radio/"><u>2024 Approved Unearth 17 Methods A Complete Guide to Tracking Internet Radio</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/best-free-dvd-ripping-tools-fur-windows-11-die-top-3-im-jahr-2023-vergleichen/"><u>Best FREE DVD Ripping Tools Für Windows 11: Die TOP-3 Im Jahr 2023 Vergleichen</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Itel S23+ | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-auto-lock-greyed-out-on-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, How To Fix Auto Lock Greyed Out on iPhone 12 Pro Max</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-multiple-tongues-with-black-fridays-ultimate-sale/"><u>Master Multiple Tongues with Black Friday's Ultimate Sale</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pc-gaming-troubles-why-is-my-rec-room-mic-not-working-fixes-and-tips-latest-guide/"><u>PC Gaming Troubles: Why Is My Rec Room Mic Not Working? Fixes & Tips (Latest Guide)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-introduction-to-hangul-an-asian-script-essentials-guide/"><u>Quick Introduction to Hangul: An Asian Script Essentials Guide</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/step-by-step-instructions-on-how-to-refresh-audio-technicas-software/"><u>Step-by-Step Instructions on How to Refresh Audio Technica's Software</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-evolution-of-my-language-mastery-with-mondly-the-10-key-factors/"><u>The Evolution of My Language Mastery with Mondly - The 10 Key Factors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-rated-online-strategies-to-learn-and-excel-in-new-languages/"><u>Top-Rated Online Strategies to Learn and Excel in New Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voice-colors-brightly-in-french-fast/"><u>Voice Colors Brightly in French Fast</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vr-babel-fish-transform-flingish-to-fluency/"><u>VR Babel Fish: Transform Flingish to Fluency!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-are-the-leading-foreign-languages-studied-by-americans/"><u>What Are The Leading Foreign Languages Studied by Americans?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/zestfully-mastering-latin-through-games/"><u>Zestfully Mastering Latin Through Games</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-metaverse-versus-multi-meva-comprehensive-differences-overviewed/"><u>[Updated] The Metaverse Versus Multi-Meva Comprehensive Differences Overviewed</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-motorola-edge-40-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Motorola Edge 40 Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/best-mc-housing-plans-for-vibrant-villages/"><u>Best MC Housing Plans for Vibrant Villages</u></a></li>
+<li><a href="https://win-special.techidaily.com/decoding-cyber-threats-how-malware-differs-from-spyware-with-insights-from-malwarefox/"><u>Decoding Cyber Threats: How Malware Differs From Spyware with Insights From MalwareFox</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-business-potential-through-optimal-linguistic-tools/"><u>Elevate Business Potential Through Optimal Linguistic Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-ai-in-pedagogy-and-language-acquisition/"><u>Embracing AI in Pedagogy and Language Acquisition</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/film-making-mastery-guidebook-for-2024/"><u>Film Making Mastery Guidebook for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-native-the-power-of-27-french-sayings/"><u>From Novice to Native: The Power of 27 French Sayings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gain-german-proficiency-from-binge-watched-show/"><u>Gain German Proficiency From Binge-Watched Show</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-ukraine-collaborating-for-comprehensive-communication-skills/"><u>Mondly & Ukraine: Collaborating for Comprehensive Communication Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-enriches-your-huawei-experience-today/"><u>Mondly Enriches Your Huawei Experience Today</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ps5-showdown-comparing-features-of-the-ps5-slim-to-full-ps5-model/"><u>PS5 Showdown: Comparing Features of the PS5 Slim to Full PS5 Model</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-step-korean-study-discover-the-best-6-online-sites/"><u>Quick-Step Korean Study: Discover the Best 6 Online Sites</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/restoring-lost-media-quick-tips/"><u>Restoring Lost Media: Quick Tips</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/solving-the-mystery-of-hulus-rununk13-issue-a-step-by-step-guide/"><u>Solving the Mystery of Hulu's RUNUNK13 Issue: A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sunlight-greetings-communicating-good-morning-across-cultures/"><u>Sunlight Greetings: Communicating 'Good Morning' Across Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-english-proficiency-learn-from-a-skilled-esl-speakers-grammar-guide/"><u>Unlock English Proficiency: Learn From a Skilled ESL Speaker's Grammar Guide</u></a></li>
+<li><a href="https://windows11.techidaily.com/unraveling-the-mystery-of-error-code-9999-in-win-based-audacity/"><u>Unraveling the Mystery of Error Code 9999 in Win-Based Audacity</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-google-pixel-8-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Google Pixel 8 Phones</u></a></li>
 </ul></div>
 

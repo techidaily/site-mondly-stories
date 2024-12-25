@@ -1,7 +1,7 @@
 ---
 title: US & UK English Discrepancies
-date: 2024-12-07T19:06:19.294Z
-updated: 2024-12-10T16:09:29.591Z
+date: 2024-12-23T16:06:52.491Z
+updated: 2024-12-25T16:59:45.988Z
 tags:
   - speak
   - english
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
 
 ![British vs American](https://media.giphy.com/media/SqmkZ5IdwzTP2/giphy.gif "British English Vs American English Differences: Spelling, Pronunciation And More 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The English language in the Americas
 
  Before diving into the most important differences between [British English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and American English, let’s put some historical context around the matter.
@@ -33,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
  Differences between American English and British English may be observed in pronunciation (Brits soften the pronunciation of the “R” sound while Americans [pronounce](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) it completely), vocabulary, grammar, spelling, punctuation, and even idioms. Additionally, Americans also chose to use different formatting for dates and numbers.
 
  Let’s dive into a little more detail and analyze each point of differentiation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## British vs American: most common vocabulary differences
 
@@ -63,10 +71,6 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
 
  Previous  Next
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Spellings differences: is it “colour” or “color”?
 
  That’s simple! “Colour” is the British spelling and “color” is the American spelling. Always remember that, when it comes to spelling, American English uses a simplified version. The explanation goes back to 1828 when Noah Webster wrote the first American dictionary –_An American Dictionary of the English Language._ Webster said he chose alternative spellings that were already in use in the United States “on such grounds as simplicity, analogy or etymology”.
@@ -96,16 +100,12 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
  If you speak English as a second language and you are not sure which is the correct spelling for the type of English you use, install a spell checker and let it do the job for you. In time, you’ll get used to the fitting spelling and learn to write correctly on your own.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Grammar differences
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Collective nouns
 
@@ -113,11 +113,19 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
 
  Thus, while**“The band is playing”** in the US, in the UK**“The band are playing”** . Likewise, if I’m in the US,**“My team is winning”** . But if I’m in the UK,**“My team are winning”** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Learned or learnt?
 
 **Learned** and**learnt** are both the correct past participle and past tense forms of the verb “to learn”. Easily overlooked in speech, but much more obvious in writing, this subtle difference addresses verbs.
 
  Many verbs that are irregular in the past tense in British English (_dreamt, burnt, learnt_), have been made regular in American English (_dreamed, burned, learned_).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Got or gotten?
 
@@ -140,10 +148,6 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
 
  British English vs American English
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Other grammar differences
 
@@ -172,10 +176,6 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Brush up your English in just 10 minutes a day
 
  Do you want to speak English like a true American? Or maybe you dream of acquiring the classy British accent? With [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5309&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5309&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5309) you can train for both.
@@ -201,16 +201,24 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/arabic-basics-unwrapped-for-starters/"><u>Arabic Basics Unwrapped for Starters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-the-symphony-of-multilingualism-with-science-and-melody/"><u>Discover the Symphony of Multilingualism with Science and Melody</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Itel A60s? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-use-face-id-to-pay-for-apps-on-iphone-15-pro-by-drfone-ios-unlock-ios-unlock/"><u>How to Use Face ID to Pay for Apps on iPhone 15 Pro?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Lava Storm 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/optimize-your-collection-with-quality-80s-movie-downloads-and-copies/"><u>Optimize Your Collection with Quality 80'S Movie Downloads & Copies</u></a></li>
-<li><a href="https://fox-that.techidaily.com/quick-solutions-how-to-repair-a-malfunctioning-imessage-on-ios-devices-and-computers/"><u>Quick Solutions: How to Repair a Malfunctioning iMessage on iOS Devices and Computers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saber-el-esquema-del-mes-dias-en-espanol-de-a-a-f/"><u>Saber El Esquema Del Mes: Días en Español De A a F</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/supercharge-global-business-interactions-with-prime-language-software/"><u>Supercharge Global Business Interactions with Prime Language Software</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-careers-with-multilingual-prowess/"><u>Transform Careers with Multilingual Prowess</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/unveiled-tactics-the-covert-campaign-of-advertising-by-tech-giants-to-underage-users/"><u>Unveiled Tactics: The Covert Campaign of Advertising by Tech Giants to Underage Users</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-best-practices-in-digital-media-capturing/"><u>[New] In 2024, Best Practices in Digital Media Capturing</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-direct-and-simple-idevice-media-transfer-to-youtube/"><u>[Updated] Direct and Simple IDevice Media Transfer to YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-streaming-royalty-ranking-the-top-10-platforms-for-real-time-content-for-2024/"><u>[Updated] Streaming Royalty Ranking the Top 10 Platforms for Real-Time Content for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-focus-and-depth-with-videoleaps-zoom-feature/"><u>2024 Approved Mastering Focus and Depth with Videoleap's Zoom Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-french-phonetics-a-beginners-approach/"><u>Decoding French Phonetics: A Beginner's Approach</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/essential-tips-for-freelancers-mastering-chatgpt-in-your-writing/"><u>Essential Tips for Freelancers: Mastering ChatGPT in Your Writing</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-does-predictive-ai-anticipate-future-trends-exploring-core-concepts/"><u>How Does Predictive AI Anticipate Future Trends? Exploring Core Concepts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/identifying-the-israeli-vernacular/"><u>Identifying the Israeli Vernacular?</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-vivo-y78plus-t1-edition-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Vivo Y78+ (T1) Edition | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-realme-narzo-60-pro-5g-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Realme Narzo 60 Pro 5G Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-into-arabic-the-newbies-companion/"><u>Journey Into Arabic: The Newbie's Companion</u></a></li>
+<li><a href="https://techtrends.techidaily.com/overcoming-the-challenge-of-a-non-existent-or-unfound-d3dx934dll-file/"><u>Overcoming the Challenge of a Non-Existent or Unfound d3dx9_34.dll File</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quebra-de-silencio-expressoes-e-manifestacoes-do-portugues/"><u>Quebra De Silêncio: Expressões E Manifestações Do Português</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revealing-the-methodology-of-mondly/"><u>Revealing the Methodology of Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speeding-up-ukrainian-mastery-quick-daily-routine-98-chars/"><u>Speeding Up Ukrainian Mastery: Quick Daily Routine (98 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-with-basic-sound-structures-in-german/"><u>Starting with Basic Sound Structures in German</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/step-by-step-guide-troubleshooting-and-fixing-issues-in-windows-11-and-10/"><u>Step-by-Step Guide: Troubleshooting and Fixing Issues in Windows 11 & 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-global-pearson-linguistic-network/"><u>The Global Pearson Linguistic Network</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-embrace-an-english-speaking-world/"><u>Why Embrace an English-Speaking World?</u></a></li>
 </ul></div>
 

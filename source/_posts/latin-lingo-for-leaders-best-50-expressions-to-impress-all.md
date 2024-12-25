@@ -1,7 +1,7 @@
 ---
 title: "Latin Lingo for Leaders: Best 50 Expressions to Impress All"
-date: 2024-12-10T16:03:51.751Z
-updated: 2024-12-16T18:28:43.837Z
+date: 2024-12-19T16:37:17.879Z
+updated: 2024-12-25T16:22:37.437Z
 tags:
   - speak
   - english
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/56c9727e1647faa9df05a7ff87a2cebb670ed94ea
  Far from being a dead language, Latin is very much alive in our day-to-day conversations._Carpe diem, et cetera, cum laude, curriculum vitae_ and_mea culpa_ are just a few of the Latin phrases still widely used today. It’s unclear whether Latin made a comeback or it has been this cool for hundreds of years. But one thing is sure: **Latin phrases are nowadays the cooler siblings of slang words.** And Julius Caesar approves this message. So, let’s see the most famous Latin phrases you can use to impress your friends.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Famous Latin Phrases you need to know
@@ -27,20 +27,20 @@ thumbnail: https://thmb.techidaily.com/56c9727e1647faa9df05a7ff87a2cebb670ed94ea
 These are nearly as famous as Julius Caesar himself.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Veni, vidi, vici. —** _I came, I saw, I conquered._
 
  Famously attributed to Julius Caesar in a message he supposedly sent to the Roman Senate to describe his swift, conclusive victory against King Pharnaces II of Pontus near Zela in 47 BC.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Alea iacta est. —** _The die has been cast._
 
  Another Latin phrase said by Julius Caesar upon crossing the Rubicon to enter Italy and begin the long civil war against Pompey and the Optimates. The meaning of this phrase refers to the point of no return.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Carpe diem. —** _Seize the day._
 
@@ -72,14 +72,10 @@ These are nearly as famous as Julius Caesar himself.
 
 ![latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-phrases.jpg "50 Popular Latin Phrases To Impress Your Friends 6")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Using some Latin phrases here and there will automatically make you look smarter.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Common Latin Words & Sayings
@@ -177,7 +173,7 @@ Get ready to bring your Roman alter ego to life in 3… 2… 1\. Go!
 ![common latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/common-latin-phrases-960x720.jpg "50 Popular Latin Phrases To Impress Your Friends 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Laughing” by Peter Lloyd©
@@ -278,6 +274,10 @@ Different phrase, same story. You’re welcome.
 
 ![latin words](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-words-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 9")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Roman statue” by engin akyurt©
 
 ## Latin Words and Phrases for Love
@@ -316,6 +316,10 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
  Latin words are used in law because of the historical influence Roman law has on the legal system of many countries. As the lingua franca of the Roman Empire, Latin not only shaped the empire's legal constructs but also left a lasting imprint on the evolution of legal systems, especially within Europe. As Roman law became the foundation for many modern legal codes, Latin legal words were passed on throughout history until the present day. This incorporation of Latin words in law ensures a degree of precision and continuity, bridging legal concepts across different eras and jurisdictions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why are Latin words powerful?
 
  Latin words are perceived as powerful most probably in relation to the Roman Empire, a civilization of immense historical influence and achievement. Additionally, Latin words may be considered powerful thanks to their ability to convey complex legal, scientific, and philosophical concepts succinctly. Their use in various specialized fields has endowed them with a sense of authority and timelessness, allowing for clear and unambiguous communication across different languages and cultures.
@@ -326,10 +330,6 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Speak Latin like Julius Caesar
 
@@ -356,16 +356,22 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-alternative-to-obs-innovative-livestream-tools/"><u>[New] Alternative to OBS Innovative Livestream Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/10-minutes-a-day-bengali-made-simple/"><u>10 Minutes a Day: Bengali Made Simple</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bilingual-bliss-dive-into-new-language-realities-with-vr/"><u>Bilingual Bliss: Dive Into New Language Realities with VR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-barriers-with-mondly-1-for-language-learning-2022-edition/"><u>Break Barriers with Mondly: #1 for Language Learning, 2022 Edition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/colloquial-contrasts-rio-vs-romes-linguistic-landscapes/"><u>Colloquial Contrasts: Rio Vs. Rome's Linguistic Landscapes</u></a></li>
-<li><a href="https://driver-download.techidaily.com/effortless-installation-of-the-magic-mouse-driver-for-windows-users/"><u>Effortless Installation of the Magic Mouse Driver for Windows Users</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/master-the-making-of-spectacular-slideshows-for-your-social-circle-for-2024/"><u>Master the Making of Spectacular Slideshows for Your Social Circle for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/resolving-the-missing-cddvd-drive-device-driver-issue-a-comprehensive-guide/"><u>Resolving the 'Missing CD/DVD Drive Device Driver' Issue: A Comprehensive Guide</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-perfect-game-time-setup-selecting-the-right-consoles-and-add-ons-for-children/"><u>The Perfect Game Time Setup: Selecting the Right Consoles and Add-Ons for Children</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/1723012171169-top-tips-to-eliminate-lag-in-rainbow-six-siege-enjoy-seamless-gaming/"><u>Top Tips to Eliminate Lag in Rainbow Six Siege – Enjoy Seamless Gaming</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unleash-creative-potential-with-top-tips-for-gopro-timelapses/"><u>Unleash Creative Potential with Top Tips for GoPro Timelapses</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-capturing-excellence-the-best-camera-lenses/"><u>[New] Capturing Excellence The Best Camera Lenses</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-from-novice-to-expert-a-comprehensive-guide-to-macscreencasting/"><u>[New] In 2024, From Novice to Expert A Comprehensive Guide to MacScreencasting</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-silence-social-advertisements-for-a-smoother-stream/"><u>[Updated] 2024 Approved Silence Social Advertisements for a Smoother Stream</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-begin-your-clip-and-cut-career-with-xps-editor-for-2024/"><u>[Updated] Begin Your Clip-and-Cut Career with XP's Editor for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-tips-to-fix-and-prevent-your-windows-11-computer-from-going-black/"><u>Expert Tips to Fix and Prevent Your Windows 11 Computer From Going Black</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/glad-grev-grev-till-sverige/"><u>Glad Grev: Grev Till Sverige</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-dialect-dashboard-simplest-languages-overview/"><u>Global Dialect Dashboard: Simplest Languages Overview</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-vivo-y200e-5g-lock-screen-password-by-drfone-android/"><u>How To Change Vivo Y200e 5G Lock Screen Password?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Infinix Note 30 Pro? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-collaboration-at-bett-a-gathering-of-educators/"><u>Learning Collaboration at BETT: A Gathering of Educators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-adventures-via-mondlys-augmented-realities/"><u>Linguistic Adventures via Mondly's Augmented Realities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722763601929-reviewing-the-insignia-ns-43df710na19-fire-tv-edition-with-integrated-alexa-and-ultra-hd-without-breaking-the-bank/"><u>Reviewing the Insignia NS-43DF710NA19 - Fire TV Edition With Integrated Alexa and Ultra HD, Without Breaking The Bank.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-language-learning-8-impactful-reasons-to-study-hindi-with-mondly/"><u>Revolutionize Language Learning: 8 Impactful Reasons to Study Hindi with Mondly!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-fluency-top-3-app-based-linguistic-advancement-platforms/"><u>Unlock Fluency: Top 3 App-Based Linguistic Advancement Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voicing-german-vibes-a-list-of-the-best-25-phrases-to-learn/"><u>Voicing German Vibes: A List of the Best 25 Phrases to Learn</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>What is Geo-Blocking and How to Bypass it On Apple iPhone SE (2020)? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-english-waveforms-australian-twang-vs-southern-us-drawl/"><u>World English Waveforms: Australian Twang Vs. Southern U.S. Drawl</u></a></li>
 </ul></div>
 

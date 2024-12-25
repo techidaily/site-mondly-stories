@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2024-12-14T17:09:13.573Z
-updated: 2024-12-16T20:36:20.261Z
+date: 2024-12-18T16:07:11.735Z
+updated: 2024-12-25T16:48:01.846Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
@@ -61,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -127,19 +127,18 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-brainy-entertainment-roundup-selective-trivia-haven/"><u>[New] Brainy Entertainment Roundup Selective Trivia Haven</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-elevate-video-appeal-crafting-unforgettable-thumbnail-images-for-2024/"><u>[New] Elevate Video Appeal Crafting Unforgettable Thumbnail Images for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-index-of-videography-gadgets-by-type-for-2024/"><u>[Updated] Index of Videography Gadgets by Type for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-instant-screener-chromeos-edition/"><u>[Updated] Instant Screener ChromeOS Edition</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/54sh5yqj5yyw/"><u>無劣化</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-beginners-journey-through-chinese-characters/"><u>A Beginner's Journey Through Chinese Characters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-comprehensive-look-at-spanish-accented-letters-and-symbols/"><u>A Comprehensive Look at Spanish Accented Letters & Symbols</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-xiaomi-redmi-note-12r-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Xiaomi Redmi Note 12R</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576001688-bokmaal-basics-accelerated-learning-path/"><u>Bokmaal Basics, Accelerated Learning Path!</u></a></li>
-<li><a href="https://app-tips.techidaily.com/complete-steps-to-transition-from-windows-to-linux-mint-for-optimized-performance-cnet/"><u>Complete Steps to Transition From Windows to Linux Mint for Optimized Performance | C|Net</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-the-impact-of-ai-on-language-education/"><u>Decoding the Impact of AI on Language Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/eloquent-exchange-linguistic-leaders-choice/"><u>Eloquent Exchange: Linguistic Leaders' Choice</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/exploring-different-techniques-in-process-mining-insights-from-abbyys-new-study/"><u>Exploring Different Techniques in Process Mining: Insights From ABBYY's New Study</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-roadmap-to-triumph-critical-improvements-required-by-apples-vision-pro-for-business-mastery-zdnet-analysis/"><u>The Roadmap to Triumph: Critical Improvements Required by Apple's Vision Pro for Business Mastery - ZDNet Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/por-que-the-english-interpretation-of-spanish-por-que/"><u>'Por Qué': The English Interpretation of Spanish 'Por Que'</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-transforming-your-igtv-presence-with-new-covers/"><u>2024 Approved Transforming Your IGTV Presence with New Covers</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/einfache-migration-von-windows-11-auf-einen-ssd-keine-neukonfiguration-erforderlich/"><u>Einfache Migration Von Windows 11 Auf Einen SSD - Keine Neukonfiguration Erforderlich!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ensure-perfect-printing-with-modern-samsung-printer-drivers-free-download-guide/"><u>Ensure Perfect Printing with Modern Samsung Printer Drivers: Free Download Guide.</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-realme-11-proplus-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Realme 11 Pro+ to Another | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlyar-redefining-communication-in-virtual-reality/"><u>MondlyAR: Redefining Communication in Virtual Reality</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-the-ultimate-fcp-guide-5-time-saving-editing-tricks-you-need-to-know-for-2024/"><u>New The Ultimate FCP Guide 5 Time-Saving Editing Tricks You Need to Know for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/phonic-finesse-master-english-with-twisters/"><u>Phonic Finesse: Master English With Twisters</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/synthesize-music-with-images-in-ppts-for-2024/"><u>Synthesize Music with Images in PPTs for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-minds-evolution-through-language-learning/"><u>The Mind's Evolution Through Language Learning</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-lenovo-chromebook-duet-why-this-2-in-1-is-a-game-changer-for-savvy-shoppers/"><u>The Ultimate Guide to Lenovo Chromebook Duet - Why This 2-In-1 Is a Game-Changer for Savvy Shoppers</u></a></li>
+<li><a href="https://apple-account.techidaily.com/top-notch-solutions-for-disabled-apple-id-from-iphone-xr-making-it-possible-by-drfone-ios/"><u>Top-Notch Solutions for Disabled Apple ID From iPhone XR Making It Possible</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/transformador-livre-online-do-3gpp-para-mp3-via-movavi-converter-de-clipes-de-video/"><u>Transformador Livre Online Do 3GPP Para MP3 via Movavi Converter De Clipes De Vídeo</u></a></li>
 </ul></div>
 

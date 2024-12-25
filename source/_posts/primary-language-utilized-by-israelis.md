@@ -1,7 +1,7 @@
 ---
 title: Primary Language Utilized by Israelis?
-date: 2024-12-13T19:37:18.895Z
-updated: 2024-12-16T17:58:03.320Z
+date: 2024-12-19T16:54:18.703Z
+updated: 2024-12-25T16:07:04.363Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/981f5aab13809d22943cf0e3715f6a9d6dac906b3
  Following a tumultuous and often violent history, the nation of Israel now has a [population](https://en.wikipedia.org/wiki/Israel#Demographics) of more than 9 million people. Out of this, 74.2% are Jews, 20.9% Arabs and 4.8% are Christians and people who have no religion listed in the civil registry. Despite the cultural diversity, almost the entire population speaks Hebrew, the country’s official language, either as a first or second language. However, this is not the full story of the languages of Israel. Let’s take a closer look at the country’s current linguistic landscape.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Israel language mosaic – what language is spoken in Israel?
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/981f5aab13809d22943cf0e3715f6a9d6dac906b3
  Although Hebrew can be seen and heard everywhere, Israel’s laws are officially published in Arabic and English as well. The same is true for most road signs, food labels, medicine brochures, safety regulations and messages published by the government.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hebrew
@@ -41,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/981f5aab13809d22943cf0e3715f6a9d6dac906b3
  What’s fascinating about [Hebrew](https://books.google.ro/books?id=EZCgpaTgLm0C&pg=PA1&redir%5Fesc=y#v=onepage&q&f=false) is that it ceased to be an everyday spoken language somewhere between the 2nd and 4th century CE. During the medieval period it survived only as a sacred language of Jewish liturgy and rabbinic literature. But then, toward the end of the 19th century and into the 20th century, with the rise of Zionism, it was revived as a spoken and literary language. Its renaissance is considered by many a linguistic miracle.
 
  Modern Hebrew is what you’ll hear on [the streets of Israel](https://link.springer.com/referenceworkentry/10.1007%2F978-3-030-02438-3%5F125) (and what you can [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5614&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he) ) and premodern Hebrew is now used only for prayer or study in Jewish communities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Arabic
 
@@ -53,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/981f5aab13809d22943cf0e3715f6a9d6dac906b3
  “Dome of the Rock, Jerusalem, Israel” by Stacey Franco©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Russian
@@ -65,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/981f5aab13809d22943cf0e3715f6a9d6dac906b3
 So, as you can see, Russian is surprisingly widespread in Israel.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Other languages
@@ -86,10 +90,6 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Speak Hebrew or Arabic fluently in just 10 minutes a day
 
@@ -116,19 +116,18 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-step-by-step-creating-your-channels-simple-subscribe-button/"><u>[New] In 2024, Step by Step Creating Your Channel's Simple Subscribe Button</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-the-impact-of-weather-on-syma-x8c-performance-for-2024/"><u>[New] The Impact of Weather on Syma X8C Performance for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-vivo-y28-5g-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Vivo Y28 5G Without Volume Buttons | Dr.fone</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Realme 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Tecno Spark 20 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-a-citizens-guide-to-poking-through-public-broadcast-archives/"><u>In 2024, A Citizen's Guide to Poking Through Public Broadcast Archives</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-croatian-experience-heres-the-7-reason-guide/"><u>Jumpstart Your Croatian Experience - Here's the 7-Reason Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-czech-fast-top-rated-online-language-apps/"><u>Learn Czech Fast: Top-Rated Online Language Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-bridge-crossing-with-top-10-easy-speak/"><u>Linguistic Bridge: Crossing with Top 10 Easy-Speak</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-the-language-of-thanksgiving-key-phrases/"><u>Mastering the Language of Thanksgiving: Key Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-speaking-scale-of-asia-preeminent-trimodal/"><u>The Speaking Scale of Asia: Preeminent Trimodal</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-realme-11-5g-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Realme 11 5G for Streaming | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1722997351873-troubleshooting-lol-launch-issues-top-solutions/"><u>Troubleshooting LoL Launch Issues: Top Solutions</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/tga-gif-movavi/"><u>인터넷을 통해 자바스위칭, 데이터매김 등에 적합한 무료 TGA GIF 변환 - Movavi</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-digital-retouch-fundamentals-eliminate-backdrops-with-ease/"><u>[New] Digital Retouch Fundamentals Eliminate Backdrops with Ease</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-capture-the-crash-expert-surfer-cameras-review/"><u>[New] In 2024, Capture the Crash - Expert Surfer Cameras Review</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-creative-techniques-for-incorporating-alternate-shots/"><u>[Updated] 2024 Approved Creative Techniques for Incorporating Alternate Shots</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-skilled-pilots-choice-selecting-top-5-pro-drones/"><u>[Updated] 2024 Approved Skilled Pilots' Choice - Selecting Top 5 Pro Drones</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-counterview-commentary-review/"><u>2024 Approved CounterView Commentary Review</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/adding-movies-to-your-playlist-an-intuitive-process-for-youtube-users/"><u>Adding Movies to Your Playlist An Intuitive Process for YouTube Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-blitz-hone-skills-quickly-each-day/"><u>Bangla Blitz: Hone Skills Quickly Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprehensive-spanish-accent-usage-guide-for-writers/"><u>Comprehensive Spanish Accent Usage Guide for Writers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cycle-des-jours-francais/"><u>Cycle Des Jours Français</u></a></li>
+<li><a href="https://article-tips.techidaily.com/enhancing-iphone-x-security-mending-facial-detection-glitches/"><u>Enhancing iPhone X Security Mending Facial Detection Glitches</u></a></li>
+<li><a href="https://win-answers.techidaily.com/getting-past-common-loading-problems-in-the-elder-scrolls-online/"><u>Getting Past Common Loading Problems in The Elder Scrolls Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-thank-you-globally-language-lessons-for-expressing-appreciation-154/"><u>Say Thank You Globally: Language Lessons for Expressing Appreciation (154)</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-guide-resolving-the-rununk13-error-on-hulu/"><u>Troubleshooting Guide: Resolving the 'RUNUNK13' Error on Hulu</u></a></li>
 </ul></div>
 

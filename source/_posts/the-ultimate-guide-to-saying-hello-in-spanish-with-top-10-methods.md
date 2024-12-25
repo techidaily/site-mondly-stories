@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide To Saying 'Hello' In Spanish With Top 10 Methods
-date: 2024-12-14T16:46:25.210Z
-updated: 2024-12-16T16:05:46.239Z
+date: 2024-12-24T17:09:01.886Z
+updated: 2024-12-25T17:03:07.102Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
  Let’s break down the most important Spanish greetings and introductions you’ll need for a basic conversation in Spanish. As Speedy Gonzales used to say:_¡Arriba, arriba! ¡Ándale, ándale!_ – meaning “Go, go! Come on, come on!”
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## “Hello” in Spanish: ¡Hola
 
 **¡Hola!** – pronounced without the “h” – is your safety net wherever you’ll go: to a date, meeting or a Spanish-speaking country. This is the absolute basic greeting you need to know in Spanish and it can be used to salute any person regardless of the circumstance: formal or informal.
@@ -27,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 **“Hola”, the cooler brother of “hello”** – as I like to call it – is so short, sweet & simple you’ll simply love using it even as a part of your English greetings.
 
 ![spanish greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/05/spanish-greetings-1024x720.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 2")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Hello” by Pablo Gentile©
 
@@ -51,14 +51,10 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 ![hi in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/04/hi-in-spanish-600x463.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  ¡Hola, señor! by Bruce Jastrow©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## “How are you?” in Spanish
 
@@ -73,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## “Yes”, “please” and “thank you” in Spanish
@@ -90,7 +86,7 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 * Nice to meet you – Encantado/Encantada de conocerte
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Goodbye in Spanish
@@ -109,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
  Or as The Terminator would say:**Hasta la vista, baby!**
 
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
@@ -142,22 +142,18 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-priority-tools-critical-6-fb-lite-downloads/"><u>[New] 2024 Approved Priority Tools Critical 6 FB Lite Downloads</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-decoding-youtubes-mystery-a-sequential-exploration-guide-for-2024/"><u>[Updated] Decoding YouTube's Mystery A Sequential Exploration Guide for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-optimal-quality-hd-screening-units/"><u>[Updated] In 2024, Optimal Quality HD Screening Units</u></a></li>
-<li><a href="https://facebook.techidaily.com/evasion-strategies-outsmarting-high-tech-hustlers/"><u>Evasion Strategies: Outsmarting High-Tech Hustlers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/get-fluent-in-swedish-script-and-sounds-speedily/"><u>Get Fluent in Swedish Script & Sounds Speedily</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Realme 11 5G | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/judging-the-adequacy-of-windows-11s-visual-extras/"><u>Judging the Adequacy of Windows 11'S Visual Extras</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-in-dialect-the-detailed-dissection-of-spanish-and-portuguese/"><u>Language in Dialect: The Detailed Dissection of Spanish & Portuguese</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-integrates-with-pearson-education-hub/"><u>Mondly Integrates with Pearson Education Hub</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolve-your-windows-11-display-dilemma-with-this-guide-to-fix-hdmi-tv-recognition/"><u>Resolve Your Windows 11 Display Dilemma with This Guide to Fix HDMI TV Recognition</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/the-ultimate-fix-for-immersive-game-audio-on-discord-now-explained/"><u>The Ultimate Fix for Immersive Game Audio on Discord – Now Explained!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/this-is-the-best-way-to-learn-finnish-online/"><u>This Is the Best Way to Learn Finnish Online</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/top-valheim-seeds-and-growth-techniques/"><u>Top Valheim Seeds & Growth Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transforming-online-language-lessons-into-a-real-world-experience-mondly-vr-app/"><u>Transforming Online Language Lessons Into a Real-World Experience - Mondly VR App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/trio-of-excellent-online-centers-for-quick-language-acquisition/"><u>Trio of Excellent Online Centers for Quick Language Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voyage-through-vietnam-a-language-primer/"><u>Voyage Through Vietnam: A Language Primer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-guide-to-croatian-proficiency-understand-these-7-advantages/"><u>Your Guide to Croatian Proficiency: Understand These 7 Advantages!</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-media-preservation-instagram-to-iphone-saved/"><u>[Updated] In 2024, Mastering Media Preservation Instagram to iPhone Saved</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtubes-video-editing-power-plus-professional-equivalents-for-2024/"><u>[Updated] YouTube's Video Editing Power + Professional Equivalents for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-ageing-language-learnings-untapped-potential/"><u>Beyond Ageing: Language Learning's Untapped Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bow-or-shake-hands-japanese-greetings-explained/"><u>Bow or Shake Hands? Japanese Greetings Explained</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/critical-security-flaw-in-popular-routers-why-hackers-love-them-and-how-to-protect-yourself/"><u>Critical Security Flaw in Popular Routers: Why Hackers Love Them & How To Protect Yourself</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-israels-preferred-mode-of-communication/"><u>Exploring Israel's Preferred Mode of Communication</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-apple-iphone-6-when-phone-is-broken-by-drfone-ios/"><u>In 2024, How to Turn Off Find My Apple iPhone 6 when Phone is Broken?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-and-modifying-netflix-playback-pace/"><u>In 2024, Navigating and Modifying Netflix Playback Pace</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580234171-new-years-gift-to-you-free-mondly-pro-for-life/"><u>New Year's Gift to You - Free Mondly Pro for Life</u></a></li>
+<li><a href="https://techidaily.com/reset-pattern-lock-tutorial-for-oppo-find-x6-pro-by-drfone-android-unlock-android-unlock/"><u>Reset pattern lock Tutorial for Oppo Find X6 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sonic-semantics-melody-enhanced-communication-techniques/"><u>Sonic Semantics: Melody-Enhanced Communication Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-greeting-guide/"><u>Universal Greeting Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-the-need-for-strict-ai-policies-who-holds-the-responsibility/"><u>Unveiling the Need for Strict AI Policies: Who Holds the Responsibility?</u></a></li>
 </ul></div>
 

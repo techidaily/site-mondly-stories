@@ -1,7 +1,7 @@
 ---
 title: Mondly's Accuracy Meets Pearson’s High-Quality GSL
-date: 2024-12-06T19:16:47.909Z
-updated: 2024-12-10T18:38:41.206Z
+date: 2024-12-22T16:56:48.610Z
+updated: 2024-12-25T17:08:43.917Z
 tags:
   - speak
   - english
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/93cb6ac8ec609718de42842a42295e1ee84908cc0
 
  The Global Scale of Languages (GSL) helps educators and language learners know where they are, where they need to go and how they can get there.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Starting with the Global Scale of English (GSE)**
 
  Before we delve deeper into the GSL, it’s crucial to understand its roots: the GSE.
@@ -33,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/93cb6ac8ec609718de42842a42295e1ee84908cc0
  The Global Scale of English (GSE) is not just another language framework; it’s an evolution in understanding linguistic proficiency.
 
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Introducing the Global Scale of Languages (GSL)**
 
@@ -43,22 +43,22 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **How Pearson created the GSL**
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Why the GSL stands out**
 
 * **Unparalleled insights:**  Going a step beyond traditional language measurement tools like the CEFR, the GSL provides a more detailed understanding of a learner’s skills through extensive global research.
 * **Confidence in clarity:**  The GSL enables learners to pinpoint their strengths in reading, writing, listening, and speaking with a straightforward 10-90 scale. This level of clarity fosters motivation and boosts learners’ confidence.
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Why start with French, Spanish, and Italian?**
 
@@ -69,7 +69,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Language learning backed by unparalleled global research**
@@ -84,7 +84,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Fast-track your progress with Mondly by Pearson**
@@ -108,14 +108,24 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/mandarin/"><u>祝福你的终年好 (Mandarin)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/babelbound-at-expo-dubai-2020-language-learning-revolution/"><u>BabelBound at Expo Dubai 2020: Language Learning Revolution</u></a></li>
-<li><a href="https://win-best.techidaily.com/conversor-libre-online-dpx-a-gif-por-movavi-una-guia-facil-y-rapida/"><u>Conversor Libre Online DPX a GIF Por Movavi: Una Guía Fácil Y Rápida</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-on-apple-iphone-6-plus-with-or-without-password-drfone-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID on Apple iPhone 6 Plus With or Without Password | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ru-cyrillic-sounds-mastery-guide/"><u>RU Cyrillic Sounds Mastery Guide</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/streamlining-agents-ai-tools-for-web-users/"><u>Streamlining Agents: AI Tools for Web Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tongues-of-wallonia-flanders-and-brussels/"><u>Tongues of Wallonia, Flanders & Brussels</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-nokia-c300-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Nokia C300 Location | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unlock-the-best-hdds-of-2024-a-comprehensive-review-for-peak-performance-and-storage-needs/"><u>Unlock the Best HDDs of 2024: A Comprehensive Review for Peak Performance and Storage Needs</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-macs-visionary-picks-the-10-elite-monitors-with-4k/"><u>[New] Mac's Visionary Picks The #10 Elite Monitors with 4K</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-eliminating-vibrational-distortion-in-drone-footage/"><u>[Updated] Eliminating Vibrational Distortion in Drone Footage</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-expert-strategies-for-effective-instagram-video-interactions-for-2024/"><u>[Updated] Expert Strategies for Effective Instagram Video Interactions for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-streamline-your-podcasts-for-apple-podcasts/"><u>[Updated] Streamline Your Podcasts for Apple Podcasts</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-streamlining-visual-storytelling-best-plugin-choices-in-ae/"><u>[Updated] Streamlining Visual Storytelling Best Plugin Choices in AE</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1-100-in-deutsch-einfache-methode-fur-anfanger/"><u>1 - 100 in Deutsch: Einfache Methode Für Anfänger</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-popular-latin-phrases-to-impress-your-friends/"><u>50 Popular Latin Phrases to Impress Your Friends</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chat-like-the-locals-the-best-17-immediate-spanish-phrases/"><u>Chat Like the Locals: The Best 17 Immediate Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-latin-like-never-before-conveniently-online/"><u>Embrace Latin Like Never Before, Conveniently Online</u></a></li>
+<li><a href="https://games-able.techidaily.com/execute-android-software-seamlessly-on-linux/"><u>Execute Android Software Seamlessly on Linux</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/express-appreciation-like-a-native-speaker-in-chinese/"><u>Express Appreciation Like a Native Speaker in Chinese</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-spectrums-impact-applying-color-dynamics/"><u>In 2024, The Spectrum's Impact Applying Color Dynamics</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-xmlssattml-to-srt-actionable-insights-for-media-professionals/"><u>In 2024, XML/SSA/TTML-to-SRT Actionable Insights for Media Professionals</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/next-steps-for-success-maximizing-the-potential-of-your-recent-flipbuilder-license-purchase/"><u>Next Steps for Success: Maximizing the Potential of Your Recent FlipBuilder License Purchase</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rediscovered-passion-for-communication-through-multilingualism-in-fifties/"><u>Rediscovered Passion for Communication Through Multilingualism in Fifties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seductive-syntax-pickup-lines-in-deutsch/"><u>Seductive Syntax: Pickup Lines in Deutsch</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-bottom-line-how-much-do-podcasters-take-home-for-2024/"><u>The Bottom Line How Much Do Podcasters Take Home for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-hardest-speakers-challenge-deciphering-tough-languages/"><u>The Hardest Speakers' Challenge: Deciphering Tough Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-polyglot-playbook-a-compreenas-guide-to-deep-immersion/"><u>The Polyglot Playbook: A Compreenas Guide to Deep Immersion</u></a></li>
 </ul></div>
 

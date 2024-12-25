@@ -1,7 +1,7 @@
 ---
 title: "Overcoming the Silence: Speaking Each Other's Languages"
-date: 2024-12-15T19:09:43.308Z
-updated: 2024-12-16T20:18:35.930Z
+date: 2024-12-18T16:23:26.393Z
+updated: 2024-12-25T16:58:43.477Z
 tags:
   - speak
   - english
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
  Back to the fun side of dating**someone who doesn’t speak your native tongue** , here are 10 funny or just downright real situations you’ll understand only if you ever dated a foreigner.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. You get frustrated. A lot
 
  If your name is not Harry Potter, chances are you won’t magically wake up one day knowing a foreign language. So, dating someone who doesn’t speak English can get really frustrating sometimes. Especially in the beginning, things can get really complicated because you are never sure if you got them right.
@@ -35,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![dating a foreigner](https://media.giphy.com/media/CmqNynXoenYnm/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  And it’s all fun and games until someone asks, “what are you thinking about?”. If answering this mythical question was hard before, imagine how challenging it becomes now that you are dating someone with bad English or no English at all. So take it from me and don’t go there! Abort mission! Practice some more and only then you’ll be ready for this quest. But you knew that already, didn’t you?
@@ -49,10 +45,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![multilingual relantionship](https://media.giphy.com/media/AelF2ps5xLKo/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 4")
 
  You either go through the entire dictionary or use the brilliance of Mondly to learn the language before one can say Jack Robinson.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. You deal with a lot of unfortunate translations
 
@@ -68,6 +60,10 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
  But if that’s not the case,[Mondly – the amazing language learning app](https://play.google.com/store/apps/details?id=com.atistudios.mondly.languages&hl=ro) – has an entire Romance category dedicated to your love. Just take it from there and see where you can get in just a few months.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Your fights are… sooo fun to watch
 
  Well… obviously! Do you know what a [hullabaloo](https://dictionary.cambridge.org/dictionary/english/hullabaloo) is? Because that’s how you’ll look like if you fight in public. What can I say?! An absolute delight for strangers.
@@ -81,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![overcoming language barriers](https://media.giphy.com/media/12nfFCZA0vyrSw/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 6")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. You come up with a sign language of your own
@@ -90,6 +86,10 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
 ![dating bad english](https://media.giphy.com/media/6tNOhcNvvynPa/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 8\. You focus less on words and more on action
 
  Language barriers are not actually barriers. You know that, don’t you? They are actually the absolute and ultimate cure for overthinking. “What did he or she mean by that?” becomes “well, I can’t put up with all that thinking now. Let’s make up… or out?”
@@ -97,7 +97,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![flirting language barrier](https://media.giphy.com/media/LoJjkPAVF8UH6/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. You absolutely love hearing him or her speak
@@ -111,7 +111,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 Watch at your own risk! They might steal your heart!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10\. You constantly get the reassurance of being truly and honestly loved
@@ -156,14 +156,14 @@ Watch at your own risk! They might steal your heart!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/enrich-your-dialogue-essential-french-sayings-and-idioms/"><u>Enrich Your Dialogue: Essential French Sayings & Idioms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-93-spanish-expressions-perfect-voyage-companion/"><u>Essential 93 Spanish Expressions: Perfect Voyage Companion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expertise-in-english-grammar-essential-tips-from-an-esteemed-esl-voice/"><u>Expertise in English Grammar: Essential Tips From an Esteemed ESL Voice</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-world-languages-effortlessly-with-googles-pick-mondly/"><u>Explore World Languages Effortlessly with Google's Pick - Mondly</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-huawei-nova-y91-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Huawei Nova Y91 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-itel-p55t-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Itel P55T | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-add-emojis-to-videos-the-ultimate-guide/"><u>In 2024, How to Add Emojis to Videos The Ultimate Guide</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Vivo Y200? | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ate-community-dos-and-donts-for-youtubers-for-2024/"><u>Ultimate Community Dos and Don'ts for Youtubers for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/free-download-enhance-your-scanning-experience-with-updated-hp-scanjet-drivers-for-windows-systems-win11win8win7/"><u>[Free Download] Enhance Your Scanning Experience with Updated HP Scanjet Drivers for Windows Systems (Win11/Win8/Win7)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-crafting-a-music-career-15-essential-video-tutorials-for-artists/"><u>[Updated] Crafting a Music Career 15 Essential Video Tutorials for Artists</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-prime-strategies-for-constructing-mcc-homes-for-2024/"><u>[Updated] Prime Strategies for Constructing MCC Homes for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/cambiar-archivos-de-audio-m4r-a-formato-aac-gratuito-en-linea-con-movavi/"><u>Cambiar Archivos De Audio M4R a Formato AAC Gratuito en Línea Con Movavi</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grammars-presence-in-the-quest-for-fluency/"><u>Grammar's Presence in the Quest for Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ten-minute-tidbits-learn-bengali-fast/"><u>Ten-Minute Tidbits: Learn Bengali Fast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-benefits-of-learning-a-new-language-in-your-senior-years/"><u>The Benefits of Learning a New Language in Your Senior Years</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/top-15-trends-in-snappy-storytelling-and-sharing-for-2024/"><u>Top 15 Trends in Snappy Storytelling and Sharing for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-different-spanish-greeting-phrases-a-must-know-list-of-10/"><u>Understanding Different Spanish Greeting Phrases - A Must Know List Of 10</u></a></li>
 </ul></div>
 

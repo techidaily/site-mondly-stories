@@ -1,7 +1,7 @@
 ---
 title: Salutations Françaises Pour Accueillir
-date: 2024-12-12T17:55:48.088Z
-updated: 2024-12-16T18:36:56.229Z
+date: 2024-12-20T16:55:39.664Z
+updated: 2024-12-25T16:11:07.340Z
 tags:
   - speak
   - english
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  In this quick French lesson, we’ll take you through the four most popular examples – the only ones you actually need in real life. As a result, you’ll be familiar with what they mean, when to use them and what the key differences between them actually are.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. The most common “you’re welcome”:_de rien_
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  You can use ‘_de rien’_ as an informal response to somebody who has thanked you. You’ll hear this expression used commonly throughout France in a range of situations.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The literal translation of_‘de rien’_
@@ -54,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
 ![de rien](https://edge.mondly.com/blog/wp-content/uploads/2021/05/de-rien-960x540.jpg "4 Popular Ways To Say You’re Welcome In French 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Strasbourg, France” by Patrick Robert Doyle©
 
 ## 2\. The informal “you’re welcome”:_je t’en prie_
@@ -61,10 +65,6 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
 
  It is most common amongst very close friends and family members. This particular form is most appropriate when you want to express a higher level of gratitude than_‘de rien’_ , but with somebody close to you, with whom your relationship is casual.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The literal translation of_‘je t’en prie’_
 
@@ -75,6 +75,10 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  A:_Manon, merci d’avoir payé mon loyer cette semaine !_ (“Manon, thank you for paying my rent this week!”)
 
  B:_Je t’en prie !_ (“You’re welcome!”)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. The formal “you’re welcome”:_je vous en prie_
 
@@ -98,15 +102,15 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
 ![you're welcome](https://edge.mondly.com/blog/wp-content/uploads/2021/05/youre-welcome-960x640.jpg "4 Popular Ways To Say You’re Welcome In French 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Southern France, Toulouse” by DAT VO©
 
 ## 4\. The easiest to remember:_pas de problème_
 
  When you’re in the early stages of [learning French](https://travel-lingual.com/how-long-take-to-learn-french/) , sometimes the most sensible thing to do is use what you can remember. The word_‘problème’_ in this particular French expression resembles the English word ‘problem’ and should not be too difficult for you to learn. Be cautious of the [French grave accent](https://travel-lingual.com/french-accent-marks/) on the_‘e’_ as this alters the pronunciation of the word.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The literal translation of_‘pas de problème’_
 
@@ -121,10 +125,6 @@ Example:
  B:_Non, desolé, aucune idée !_ (“No, sorry. No idea!”)
 
  A:_Pas de problème. Merci._ (“No problem. Thanks.”)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus: Less common ways to say “you’re welcome” in French
 
@@ -180,18 +180,24 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-connectedviewing-premium-streaming-plus-local-channels-synergy-for-2024/"><u>[New] ConnectedViewing Premium Streaming + Local Channels Synergy for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-language-arsenal-top-93-spanish-phrases-for-travelling/"><u>Essential Language Arsenal: Top 93 Spanish Phrases for Travelling</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-russian-expressions-for-international-wanderers/"><u>Essential Russian Expressions for International Wanderers</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/exploring-the-life-of-hannah-yang-acclaimed-writers-background/"><u>Exploring the Life of Hannah Yang - Acclaimed Writer's Background</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-speaking-interface-for-ar-worlds/"><u>First Speaking Interface for AR Worlds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/foreign-influences-on-the-english-language-borrowed-wordsback-buttonfilter-button/"><u>Foreign Influences On The English Language – Borrowed WordsBack ButtonFilter Button</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/friendly-farewells-and-welcomes-in-indonesia/"><u>Friendly Farewells & Welcomes in Indonesia</u></a></li>
-<li><a href="https://driver-error.techidaily.com/hd-audio-harmony-windows-11-style/"><u>HD Audio Harmony, Windows 11 Style</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-the-ultimate-valheim-planting-manual/"><u>In 2024, The Ultimate Valheim Planting Manual</u></a></li>
-<li><a href="https://win11.techidaily.com/methodical-approach-to-solving-your-ps4-controllers-disconnection-woes/"><u>Methodical Approach to Solving Your PS4 Controller's Disconnection Woes</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-pro-level-color-correction-in-final-cut-pro/"><u>New Pro-Level Color Correction in Final Cut Pro</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tips-to-eradicate-code-0x0000011b-error-in-win11/"><u>Tips to Eradicate Code 0X0000011B Error in Win11</u></a></li>
-<li><a href="https://techtrends.techidaily.com/troubleshooting-tactics-when-are-my-car-speakers-going-blind/"><u>Troubleshooting Tactics: When Are My Car Speakers Going Blind?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-key-to-unlocking-linguistic-adventures-on-oculus-quest/"><u>'Mondly': The Key to Unlocking Linguistic Adventures on Oculus Quest</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ickling-titles-top-10-comedy-centric-youtube-short-ideas/"><u>[New] Tickling Titles Top 10 Comedy-Centric YouTube Short Ideas</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-inside-the-innovations-of-vegaspro-19-for-2024/"><u>[Updated] Inside the Innovations of VegasPro '19 for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-voice-change-mastery-for-sony-game-systems/"><u>[Updated] Voice Change Mastery for Sony Game Systems</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/windows-11onedrive0x8004def7/"><u>解决方案：在Windows 11中处理OneDrive错误码0x8004def7</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-guide-to-unlock-your-motorola-edge-40-neo-by-drfone-android/"><u>Full Guide to Unlock Your Motorola Edge 40 Neo</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-oppo-find-x7-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-tongues-touching-english-lexical-diversification/"><u>Global Tongues Touching English: Lexical Diversification</u></a></li>
+<li><a href="https://extra-information.techidaily.com/high-quality-footage-made-easy-top-10-phones-with-superior-stabilization/"><u>High-Quality Footage Made Easy Top 10 Phones With Superior Stabilization</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-calendar-decoded-a-weekly-overview/"><u>Korean Calendar Decoded: A Weekly Overview</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-language-learning-for-norge-proficiency/"><u>Quick Language Learning for Norge Proficiency!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-du-mercredi/"><u>Semaine Française Du Mercredi</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/silence-no-more-troubleshooting-and-fixing-cyberpunk-2077s-sound-problems-on-windows-10/"><u>Silence No More: Troubleshooting and Fixing Cyberpunk 2077'S Sound Problems on Windows 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-bengali-language-bootcamp/"><u>Speedy Bengali Language Bootcamp</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-interactive-pearson-global-learning-experience/"><u>The Interactive Pearson Global Learning Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-letter-system-simplified-easy-reference-for-novices/"><u>Turkish Letter System Simplified: Easy Reference for Novices</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/unlock-the-power-of-broadcasts-how-to-master-youtube-and-twitch-using-obs/"><u>Unlock the Power of Broadcasts How to Master YouTube & Twitch Using OBS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-charm-of-german-speech-essential-25-phrases/"><u>Unlocking the Charm of German Speech - Essential 25 Phrases</u></a></li>
 </ul></div>
 

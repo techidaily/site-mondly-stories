@@ -1,7 +1,7 @@
 ---
 title: International Days of Gratitude Similar to US Thanksgiving
-date: 2024-12-09T18:30:53.845Z
-updated: 2024-12-10T19:02:35.226Z
+date: 2024-12-21T16:26:47.279Z
+updated: 2024-12-25T16:09:07.561Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
  Let’s learn more about these celebrations and discover seven of the most surprising countries that celebrate Thanksgiving (besides the US).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Canada
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
  Other sources trace the Canadian Thanksgiving to the French settlers who came to North America in the 17th century and held feasts to celebrate their successful harvests.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Germany, Austria, and Switzerland
@@ -58,10 +58,6 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Grenada
 
  Although it rhymes with Canada, you should know that Grenada is actually a Caribbean country and its Thanksgiving celebration is one of the youngest in the world. Every year, on the 25th of October, Grenadians commemorate the events that took place in 1983, when Grenada’s deputy prime minister executed the prime minister and seized the power. Only nine days later, the United States military came to the rescue and restored order in a matter of weeks.
@@ -71,6 +67,10 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 ![thanksgiving turkey](https://edge.mondly.com/blog/wp-content/uploads/2021/11/canadian-thanksgiving-960x641.jpg "What Countries Celebrate Thanksgiving? 3")
 
  “Thanksgiving turkey” by Claudio Schwarz©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Japan
 
@@ -82,15 +82,15 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
  However, the freed slaves from the United States who returned to the country around 1820, brought something back from the US: the Thanksgiving celebration. By the 1880s, it was declared a national holiday and nowadays, Liberia is probably the only other country in the world that celebrates the American Thanksgiving.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. the United Kingdom
 
  Yes, Thanksgiving is celebrated in the United Kingdom. Similar to the Erntedankfest celebration in German-speaking countries, Thanksgiving in the UK is actually a [Harvest Festival](https://en.wikipedia.org/wiki/Harvest%5Ffestival) held in late September or early October.
 
  During pre-Christian times in Britain, the Saxons would offer the first sheaf of cereals to fertility gods then come together and celebrate the harvest with a supper. Many traditions remained even though Christianity arrived in Britain so the present-day Harvest Festival is celebrated even by churches.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Brazil
 
@@ -104,7 +104,7 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn to give thanks in over 40 languages
@@ -137,18 +137,20 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-battle-for-bushido-next-level-titles-echoing-tsushis-spirit/"><u>[New] 2024 Approved Battle for Bushido Next-Level Titles Echoing Tsushi's Spirit</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-free-film-and-image-repository-highlights/"><u>[New] 2024 Approved Free Film and Image Repository Highlights</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-prime-gear-selection-must-have-supplementary-gopro-items/"><u>[New] Prime Gear Selection Must-Have Supplementary GoPro Items</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/8-ways-language-learning-reimagines-your-worldview/"><u>8 Ways Language Learning Reimagines Your Worldview</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-comprehensible-approach-for-learning-english-contractions/"><u>A Comprehensible Approach for Learning English Contractions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/building-bridges-in-bilingual-relationships/"><u>Building Bridges in Bilingual Relationships</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/converting-files-into-portable-document-format-pdf-on-your-pc-with-yls-simple-tutorial/"><u>Converting Files Into Portable Document Format (PDF) on Your PC with YL's Simple Tutorial</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/croatian-linguistic-landscape/"><u>Croatian Linguistic Landscape</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/enhancing-detail-in-minecraft-worlds-for-2024/"><u>Enhancing Detail in Minecraft Worlds for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/le-corps-humain-explique-en-francais-anatomie-basique/"><u>Le Corps Humain Expliqué en Français (Anatomie Basique)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580207699-speak-croatian-with-confidence-unveil-these-top-7-advantages-now/"><u>Speak Croatian with Confidence: Unveil These Top 7 Advantages Now</u></a></li>
-<li><a href="https://extra-information.techidaily.com/spotlight-on-top-video-making-talents/"><u>Spotlight on Top Video Making Talents</u></a></li>
-<li><a href="https://howto.techidaily.com/why-is-my-meizu-21-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Meizu 21 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-global-youtube-rich-list-pinnacle/"><u>[New] 2024 Approved Global YouTube Rich List Pinnacle</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-orchestrating-whatsapp-updates-with-music-for-2024/"><u>[New] Orchestrating WhatsApp Updates with Music for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-hit-the-bottom-finding-your-best-free-youtube-downloader-app-on-android/"><u>[Updated] 2024 Approved Hit the Bottom - Finding Your Best Free YouTube Downloader App on Android</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-video-movie-maker-for-windows-8/"><u>[Updated] 2024 Approved Video Movie Maker for Windows 8</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-select-8-android-apps-combining-free-and-paid-video-collages/"><u>2024 Approved Select 8 Android Apps Combining Free and Paid Video Collages</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/conquer-no-print-restoring-functionality-of-brother-printer-winoses/"><u>Conquer No-Print: Restoring Functionality of Brother Printer, WinOSes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-countries-that-santa-can-speak-too/"><u>Discover the Countries That Santa Can Speak Too</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/earths-dominant-tongues-leading-fifteen-list/"><u>Earth's Dominant Tongues: Leading Fifteen List</u></a></li>
+<li><a href="https://media-tips.techidaily.com/exploring-the-extra-perks-discovering-disneypluss-dvd-like-special-features/"><u>Exploring the Extra Perks: Discovering Disney+'s DVD-Like Special Features!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/local-lingo-made-simple-speak-like-an-aussie/"><u>Local Lingo Made Simple: Speak Like an Aussie</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/rapid-revamp-top-8-video-speed-enhancers-for-android-for-2024/"><u>Rapid Revamp Top 8 Video Speed Enhancers for Android for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/solace-for-strugglers-dannys-foundation-in-colombia/"><u>Solace for Strugglers: Danny's Foundation in Colombia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starters-pack-of-spanish-counting/"><u>Starter's Pack of Spanish Counting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-birthday-a-universal-happiness/"><u>U.S. Birthday: A Universal Happiness</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-poco-f5-5g-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Poco F5 5G Has Black Screen of Death? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Global Halloween Festivities & Customs
-date: 2024-12-14T19:14:18.050Z
-updated: 2024-12-16T17:45:49.226Z
+date: 2024-12-24T16:17:32.668Z
+updated: 2024-12-25T17:04:57.498Z
 tags:
   - speak
   - english
@@ -25,14 +25,10 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
  Nevertheless, there are many countries around the world that have their own Halloween-like traditions celebrating the afterlife. For example, in some parts of the world, on All Hallows’ Eve, people visit the graveyards of their loved ones to pray and place flowers. But let’s dive in already and look at **four of the most fascinating Halloween-like traditions from different corners of the world.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Halloween-like Traditions Worldwide
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Mexico: Día de Muertos (Day of the Dead)
 
@@ -42,13 +38,13 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Calaveras” by Valeria Almaraz©
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### China: The Hungry Ghost Festival
 
@@ -77,12 +73,16 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 ![halloween in different countries](https://edge.mondly.com/blog/wp-content/uploads/2019/09/neonbrand-A59lWOrZVnw-unsplash-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Halloween party” by NeONBRAND©
 
  Contrary to what you may believe, pumpkins and asking for candy and gifts are traditions of the past that were popular in many Italian regions before the American Halloween became so notorious.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Romania: Saint Andrew’s Day
 
@@ -91,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 ![dracula's castle](https://edge.mondly.com/blog/wp-content/uploads/2019/09/draculas-castle-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 9")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Dracula’s Castle in Romania” by Nomadic Julien©
@@ -136,24 +136,21 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-honorable-warriors-reimagined-best-matching-gaming-titles-for-2024/"><u>[New] Honorable Warriors, Reimagined Best Matching Gaming Titles for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/osplusandroid-tips-for-uninterrupted-youtube-viewing/"><u>[New] IOS+Android Tips for Uninterrupted YouTube Viewing</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-active-screen-capture-pro-does-it-reign-supreme/"><u>[Updated] 2024 Approved Active Screen Capture Pro Does It Reign Supreme?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-cutting-edge-motion-cameras-12-now-with-accurate-location-tracking-for-2024/"><u>[Updated] Cutting-Edge Motion Cameras 12 Now With Accurate Location Tracking for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-mastering-sound-shifts-in-free-fire/"><u>[Updated] Mastering Sound Shifts in Free Fire</u></a></li>
-<li><a href="https://extra-information.techidaily.com/echoes-encode-discovering-exceptional-audio-to-text-programs/"><u>Echoes Encode Discovering Exceptional Audio to Text Programs</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/high-quality-pubg-graphics-hd-walls-and-screensaver-visuals-from-yl-computings-design-studio/"><u>High-Quality PUBG Graphics: HD Walls and Screensaver Visuals From YL Computing's Design Studio</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-inexpensive-pcs-optimized-video-settings-guide/"><u>In 2024, Inexpensive PCs Optimized Video Settings Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/israelian-voyage-preparation-6-must-know-terms-and-insights/"><u>Israelian Voyage Preparation: 6 Must-Know Terms and Insights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/kommunikationskultur-deutsches-grazensummen-abseits-von-hallo/"><u>Kommunikationskultur: Deutsches Gräzensummen Abseits Von Hallo</u></a></li>
-<li><a href="https://win-answers.techidaily.com/mastering-the-art-of-video-watermarks-4-simple-methods-to-insert-images-with-ease/"><u>Mastering the Art of Video Watermarks: 4 Simple Methods to Insert Images with Ease</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/maximize-home-productivity-using-chatgpt-uncover-six-effective-techniques/"><u>Maximize Home Productivity Using ChatGPT: Uncover Six Effective Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/online-language-bridge-by-pearson-education/"><u>Online Language Bridge by Pearson Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quickbulgarian-quest-learn-in-bursts/"><u>QuickBulgarian Quest - Learn in Bursts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapidly-gain-proficiency-with-urdu-online/"><u>Rapidly Gain Proficiency with Urdu Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seamless-online-introduction-to-the-romance-language/"><u>Seamless Online Introduction to the Romance Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-slovak-straightforward-sneak-in-learning-during-your-free-minutes/"><u>Speak Slovak Straightforward: Sneak in Learning During Your Free Minutes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-fluency-excellent-ways-to-boost-verbal-abilities/"><u>Unlock Fluency: Excellent Ways to Boost Verbal Abilities</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-children-excel-in-multilingualism/"><u>Why Children Excel in Multilingualism</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-compare-and-save-with-top-6-affordable-camera-picks/"><u>[New] Compare and Save with Top 6 Affordable Camera Picks</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-100plus-gaming-channel-names-for-every-gamer-filmora-for-2024/"><u>[Updated] 100+ Gaming Channel Names for Every Gamer - Filmora for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-streamlining-discovery-the-key-to-effective-video-titling/"><u>[Updated] Streamlining Discovery The Key to Effective Video Titling</u></a></li>
+<li><a href="https://win11.techidaily.com/clearing-up-corruption-fix-your-win1011-recycle-error/"><u>Clearing up CORRUPTION! Fix Your WIN10/11 Recycle Error</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/croatias-primary-language/"><u>Croatia's Primary Language</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-on-apple-iphone-15-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud on Apple iPhone 15 Safe and Legal</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/erweiterung-der-arbeitspipeline-mit-dem-neuen-multilingualen-module-jobrouter-fur-fortschrittliche-abbyy-ocr-anwendung/"><u>Erweiterung Der Arbeitspipeline Mit Dem Neuen Multilingualen Module JobRouter Für Fortschrittliche ABBYY OCR Anwendung</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/feliz-navidad-spanish/"><u>Feliz Navidad (Spanish)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-frankish-to-frisian-the-dutch-voyage/"><u>From Frankish to Frisian: The Dutch Voyage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonize-learning-languages-through-science-based-melodies/"><u>Harmonize Learning Languages Through Science-Based Melodies</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-install-updated-epson-wf-3520-software-for-smooth-printing-on-your-windows-computer/"><u>How to Install Updated Epson WF-3520 Software for Smooth Printing on Your Windows Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-leap-the-future-of-formal-education/"><u>Language Learning Leap: The Future of Formal Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/masterys-journey-celebrating-1500-free-daily-educational-stops/"><u>Mastery's Journey: Celebrating 1500 Free, Daily Educational Stops</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-invests-in-technology-for-enhanced-learning-experience/"><u>Mondly Invests in Technology for Enhanced Learning Experience</u></a></li>
+<li><a href="https://win11.techidaily.com/streamlining-systems-replacing-aged-windows-drivers-efficiently/"><u>Streamlining Systems: Replacing Aged Windows Drivers Efficiently</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/visionary-tech-top-5-cutting-edge-cameras-of-2024/"><u>Visionary Tech Top 5 Cutting-Edge Cameras of 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Saudar a Portugal Com Flauta Dos Dialetos
-date: 2024-12-09T20:26:32.511Z
-updated: 2024-12-16T18:56:43.157Z
+date: 2024-12-20T16:29:49.883Z
+updated: 2024-12-25T17:02:34.876Z
 tags:
   - speak
   - english
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/fb9dc69321147c58e76f643c816e11fbbc732b6fd
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
@@ -37,13 +41,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Lisbon, Portugal” by Diego García©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
@@ -64,6 +68,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
@@ -90,7 +98,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
@@ -119,20 +127,12 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
 
@@ -165,20 +165,22 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-create-captivating-sports-videography/"><u>[Updated] In 2024, Create Captivating Sports Videography</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-architectural-marvels-best-6-mojave-homes/"><u>2024 Approved Architectural Marvels Best 6 Mojave Homes</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/elevate-your-metaverse-experience-expert-tips-on-avatar-creation/"><u>Elevate Your Metaverse Experience Expert Tips on Avatar Creation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expert-tips-for-fixing-the-ghost-runner-catastrophic-malfunction-in-windows-11-environment/"><u>Expert Tips for Fixing the 'Ghost Runner' Catastrophic Malfunction in Windows 11 Environment</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fast-frame-rates-and-uninterrupted-play-a-guide-to-fixing-lag-issues-in-warzone/"><u>Fast Frame Rates and Uninterrupted Play: A Guide to Fixing Lag Issues in Warzone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-use-life360-on-windows-pc-for-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For ZTE Axon 40 Lite? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-2023-save-big-and-gain-lifetime-access-to-mondly-premium/"><u>Jumpstart Your 2023: Save Big & Gain Lifetime Access to Mondly Premium!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leading-3-platforms-for-quick-and-seamless-language-learning/"><u>Leading 3 Platforms for Quick & Seamless Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-etiquette-key-phrases/"><u>Mastering Japanese Etiquette - Key Phrases</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/revolutionize-your-pc-top-winners-from-microsofts-store/"><u>Revolutionize Your PC: Top Winners From Microsoft's Store</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-for-the-curious-childs-mind/"><u>Spanish for the Curious Child's Mind</u></a></li>
-<li><a href="https://win-community.techidaily.com/transferring-media-files-between-iphones-techniques-for-moving-content-from-iphone-4s-to-iphone-6/"><u>Transferring Media Files Between iPhones: Techniques for Moving Content From iPhone 4S to iPhone 6</u></a></li>
-<li><a href="https://extra-information.techidaily.com/triller-unveiled-the-non-tiktok-tiktok-alternatives-secrets/"><u>Triller Unveiled The Non-TikTok, TikTok Alternative's Secrets</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-mondly-sets-the-bar-for-language-app-success/"><u>Why Mondly Sets the Bar for Language App Success</u></a></li>
-<li><a href="https://common-error.techidaily.com/windows-10-overcoming-copy-and-paste-hurdles/"><u>Windows 10: Overcoming Copy & Paste Hurdles</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-create-an-instagram-business-account-for-2024/"><u>[New] How to Create an Instagram Business Account for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-gamer-income-tactics/"><u>[Updated] 2024 Approved Gamer Income Tactics</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-the-art-of-music-laced-tiktok-production/"><u>[Updated] 2024 Approved The Art of Music-Laced TikTok Production</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-a-swift-guide-to-starting-conversations-on-instagram-for-2024/"><u>[Updated] A Swift Guide to Starting Conversations on Instagram for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerating-language-learning-time-vs-technique/"><u>Accelerating Language Learning: Time vs Technique</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/early-education-unveiled-kinder-to-fifth-grade-spanish-essentials/"><u>Early Education Unveiled: Kinder to Fifth-Grade Spanish Essentials</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-featuring-the-newest-tiktok-rappers-to-watch/"><u>In 2024, Featuring the Newest TikTok Rappers to Watch</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-90-pro-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor 90 Pro to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-an-ai-text-generator/"><u>In 2024, What Is an AI Text Generator?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-influences-reshaping-english-lexicon/"><u>International Influences Reshaping English Lexicon</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/1721268101549-introducing-the-groundbreaking-photo-restoration-and-fixing-tool-by-stellar-breaking-news/"><u>Introducing the Groundbreaking Photo Restoration & Fixing Tool by Stellar – Breaking News</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-grammar-holding-you-back-from-learning-a-language/"><u>Is Grammar Holding You Back From Learning a Language?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-the-installation-of-windows-11-on-new-drives-a-comprehensive-guide/"><u>Mastering the Installation of Windows 11 on New Drives: A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-enables-educational-transformation-for-ukrainians/"><u>Mondly Enables Educational Transformation for Ukrainians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overcoming-language-obstacles-mastering-the-toughest-dialects/"><u>Overcoming Language Obstacles: Mastering the Toughest Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sailor-talk-101-piratical-expressions/"><u>Sailor Talk 101: Piratical Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-swede-scribble-phonetics-unlocked/"><u>Swift Swede Scribble: Phonetics Unlocked</u></a></li>
 </ul></div>
 

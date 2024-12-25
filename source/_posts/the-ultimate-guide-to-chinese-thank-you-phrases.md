@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Chinese Thank You Phrases
-date: 2024-12-07T18:39:55.046Z
-updated: 2024-12-10T17:33:14.930Z
+date: 2024-12-24T16:28:41.973Z
+updated: 2024-12-25T16:37:56.155Z
 tags:
   - speak
   - english
@@ -39,13 +39,13 @@ thumbnail: https://thmb.techidaily.com/6b74a794374950c8c7d33f01e283b8595a0e02efb
 ![thanks in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/thanks-in-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Xiangxi, China” by Theodor Lundqvist©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Thank you very much in Chinese
@@ -83,7 +83,7 @@ Other variations include:
  “Jiaxing, China” by Jay©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Other ways to express your gratitude in Chinese
@@ -93,7 +93,7 @@ Other variations include:
  In fact, Chinese culture is known for its preference for modesty and humility. Deflecting a compliment rather than accepting it with a plain “thank you” is much more appreciated. Thus, another way to deflect a compliment (while secretly enjoying it) is to say 没有没有_méiyǒu méiyǒu_ – meaning “no, no, that’s nonsense”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## BONUS: You’re welcome in Chinese
@@ -110,7 +110,7 @@ Other variations include:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s how to speak Chinese in just 10 minutes a day
@@ -140,20 +140,18 @@ Other variations include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-dissolving-details-techniques-to-anonymize-youtube-media/"><u>[New] Dissolving Details Techniques to Anonymize YouTube Media</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-the-role-of-free-exchange-in-discovery-for-2024/"><u>[New] The Role of Free Exchange in Discovery for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-average-time-to-watch-a-20-megabit-movie/"><u>[Updated] 2024 Approved Average Time to Watch a 20 Megabit Movie</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-lightroom-hdr-tutorial-how-to-create-and-merge-stunning-hdr-images-in-lightroom/"><u>[Updated] Lightroom HDR Tutorial How to Create and Merge Stunning HDR Images in Lightroom</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-pioneering-creativity-innovative-mac-methods-for-tiktok-videos/"><u>[Updated] Pioneering Creativity Innovative Mac Methods for TikTok Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/become-an-aussie-speaker-with-ease/"><u>Become an Aussie Speaker with Ease</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-speaking-with-these-17-authentic-spanish-idioms/"><u>Conquer Speaking with These 17 Authentic Spanish Idioms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-croatian-language-phrases-a-preparatory-checklist-before-you-go/"><u>Essential Croatian Language Phrases – A Preparatory Checklist Before You Go</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exclusive-notice-updated-legal-info/"><u>Exclusive Notice: Updated Legal Info</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-7-ways-to-lock-apps-on-iphone-14-pro-max-and-ipad-securely-by-drfone-ios/"><u>In 2024, 7 Ways to Lock Apps on iPhone 14 Pro Max and iPad Securely</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-connections-ukranian-and-russian-linguistics/"><u>Language Connections: Ukranian & Russian Linguistics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lithuanias-language-unlocked-effective-online-techniques/"><u>Lithuania's Language Unlocked: Effective Online Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-languages-easier-mondlys-innovative-guidebook/"><u>Navigating Languages Easier: Mondly’s Innovative Guidebook</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-honor-x50-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Honor X50 Running Slow and Freezing | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-to-mention-youth-use-in-social-media/"><u>Strategies to Mention Youth Use in Social Media</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-sony-blu-ray-player-s6500-fresh-perspective/"><u>[Updated] Sony Blu-Ray Player S6500 Fresh Perspective</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-poco-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Poco .</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-vivo-t2-pro-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Vivo T2 Pro 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-samsung-galaxy-s23-fe-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Samsung Galaxy S23 FE to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-honor-magic-6-pro-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Honor Magic 6 Pro Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/j-script-mastery-an-all-encompassing-reference/"><u>J-Script Mastery: An All-Encompassing Reference</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-physique-des-corps-decomposer-les-differents-organes-en-francais/"><u>La Physique Des Corps: Décomposer Les Différents Organes en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-achieved-mondlys-best-of-2022-award/"><u>Language Mastery Achieved: Mondly's Best of 2022 Award</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-at-sixty-five-compelling-benefits/"><u>Mastering Languages at Sixty: Five Compelling Benefits</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-counter-strike-2-not-starting-problems-with-easy-fixes/"><u>Overcoming Counter-Strike 2 Not Starting Problems with Easy Fixes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/por-que-versus-por-que-deciphering-the-difference/"><u>Por Que Versus Por Qué: Deciphering the Difference</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saber-ajuda-com-expressoes-portuguesas-tudo-que-pensa/"><u>Saber Ajuda Com Expressões Portuguesas: Tudo Que Pensa</u></a></li>
 </ul></div>
 

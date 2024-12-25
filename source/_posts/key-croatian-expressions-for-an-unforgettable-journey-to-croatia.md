@@ -1,7 +1,7 @@
 ---
 title: Key Croatian Expressions for an Unforgettable Journey to Croatia
-date: 2024-12-14T19:06:06.782Z
-updated: 2024-12-16T19:14:11.142Z
+date: 2024-12-18T16:27:45.783Z
+updated: 2024-12-25T16:06:20.008Z
 tags:
   - speak
   - english
@@ -62,15 +62,7 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 
 ![croatian phrasebook](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-phrasebook-1024x683.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Plitvice Lakes National Park” by Jonatan Pie©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Basic Croatian phrases for travelers that need help
 
@@ -97,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 
 ![croatian translation](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-translation-1024x694.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Delicious” by Cel Lisboa©
 
 * I have a reservation. My name is \_\_\_\_\_. –_Imam rezervaciju. Moje ime je \_\_\_\_._
@@ -112,10 +108,6 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 * I would like a coffee. –_Rado bih kavu._
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Basic Croatian for travelers who need a place to spend the night
 
  Finding the perfect place to stay can get stressful sometimes. Now imagine you found the perfect place on Airbnb, but the host only**speaks Croatian.** It wouldn’t hurt knowing some**basic Croatian** in this situation, would it?
@@ -129,15 +121,15 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 * Very pleasant, thank you. –_Vrlo ugodan, hvala Vam._
 * Here is your bill, please look it over. –_Izvolite Vas Racun, molimo pregledajte ga._
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Croatian to English for tourists who want to have fun
 
  You’ll have to admit that parties connect people. Phones used to do that, but not anymore. Now going to a party is the best way to connect with people and get to know a new culture. Thus, if you have already planned your trip to Croatia, also squeeze in a night out to party and enjoy the Old Town from another perspective. It may reveal itself differently.
 
 ![croatian to english](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-to-english-960x766.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Cavtat, Croatia” by Conor Rees©
 
@@ -149,6 +141,10 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 * How much does a ticket cost? –_Kolika je cijena karte?_
 * One ticket, please. –_Jednu kartu bih Vas molio._
 * Are there seats available? –_Ima li slobodnih mjesta?_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Croatian phrases about love
 
@@ -171,11 +167,11 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 
 ![croatian words](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-words-1024x682.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 5")
 
- “Primošten, Croatia” by Hrvoje Klaric©
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ “Primošten, Croatia” by Hrvoje Klaric©
 
 ## 7\. Learn Croatian for your shopping sprees
 
@@ -187,6 +183,10 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 * Can I have a receipt? –_Mogu li dobiti račun?_
 * What would you like? –_Što bi željela?_
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Days of the week and numbers in Croatian
 
@@ -256,22 +256,16 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-how-to-convert-vimeo-footage-into-audio/"><u>[New] In 2024, How to Convert Vimeo Footage Into Audio</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-1-3-in-ipad-voice-memos-and-recorders/"><u>[Updated] 2024 Approved 1-3 in iPad Voice Memos & Recorders</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-xiaomi-redmi-note-13-proplus-5g-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Xiaomi Redmi Note 13 Pro+ 5G? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/9-methoden-zum-wechseln-des-ruhemodus-auf-ihrem-pc-mit-windows-11/"><u>9 Methoden Zum Wechseln Des Ruhemodus Auf Ihrem PC Mit Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-decade-of-digital-harmony-mondly/"><u>A Decade of Digital Harmony - Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/australian-slang-made-simple/"><u>Australian Slang Made Simple</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boost-your-speaking-credentials-with-these-9-strategies/"><u>Boost Your Speaking Credentials with These 9 Strategies</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/choosing-the-top-genai-tool-an-in-depth-comparison-between-notion-and-chatgpt-capabilities/"><u>Choosing the Top GenAI Tool: An In-Depth Comparison Between Notion and ChatGPT Capabilities</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/concurrent-communication-skills/"><u>Concurrent Communication Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-insights-basic-social-interactions-for-south-american-travelers/"><u>Cultural Insights: Basic Social Interactions for South American Travelers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/earths-linguistic-heavyweights-countdown-to-5/"><u>Earth's Linguistic Heavyweights: Countdown to #5</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580521776-how-to-learn-ukrainian-fast-in-just-10-minutes-a-day/"><u>How To Learn Ukrainian Fast In Just 10 Minutes A Day</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-from-zero-to-hero-on-twitter-live/"><u>In 2024, From Zero to Hero on Twitter Live</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-start-recording-youtube-content-on-your-own-terms/"><u>In 2024, Start Recording YouTube Content on Your Own Terms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577696916-quick-mastery-conquer-japanese-numbers-in-minutes/"><u>Quick Mastery: Conquer Japanese Numbers in Minutes!</u></a></li>
-<li><a href="https://windows11.techidaily.com/troubleshooting-stalled-netflix-app-on-windows/"><u>Troubleshooting Stalled Netflix App on Windows</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-free-video-stabilization-made-easy-top-8-online-tools-and-tutorials/"><u>Updated Free Video Stabilization Made Easy Top 8 Online Tools and Tutorials</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-essential-tips-for-creating-compelling-free-ads-on-youtube/"><u>[New] 2024 Approved Essential Tips for Creating Compelling Free Ads on YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-capture-without-capsule-the-no-limit-story-saving-app/"><u>[New] In 2024, Capture Without Capsule The No-Limit Story Saving App</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-step-by-step-subtitle-insertion-for-vimeo-videos-for-2024/"><u>[New] Step-by-Step Subtitle Insertion for Vimeo Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-game-masters-and-youtube-earning-strategies/"><u>[Updated] 2024 Approved Game Masters & YouTube Earning Strategies</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-samsung-galaxy-a24-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Samsung Galaxy A24 without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-mondlys-new-faq-section/"><u>Introducing Mondly’s New FAQ Section</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-swedish-sounds-a-quick-guide/"><u>Mastering Swedish Sounds: A Quick Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-commitments-for-a-better-you/"><u>Navigating Commitments for a Better You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-number-one-the-foundation/"><u>Spanish Number One: The Foundation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transforming-language-education-through-mondlys-ar-platform/"><u>Transforming Language Education Through Mondly's AR Platform</u></a></li>
 </ul></div>
 

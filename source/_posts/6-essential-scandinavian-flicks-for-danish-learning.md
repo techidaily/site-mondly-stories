@@ -1,7 +1,7 @@
 ---
 title: 6 Essential Scandinavian Flicks for Danish Learning
-date: 2024-08-23T00:22:49.107Z
-updated: 2024-08-24T00:22:49.107Z
+date: 2024-12-23T16:29:03.754Z
+updated: 2024-12-25T16:27:36.686Z
 tags:
   - speak
   - english
@@ -34,6 +34,10 @@ Grab the popcorn and enjoy!
 
  Elmer and Erik try to become “invisible”, but that doesn’t spare them from being bullied by some of the older boys. Are they gonna find salvation? Watch it and find out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Adams Æbler (2005) (Adam’s Apples)
 
 [**IMDb rating: 7,8**](https://www.imdb.com/title/tt0418455/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -45,8 +49,9 @@ Grab the popcorn and enjoy!
  “Adams Æbler” is a successful combination of black humor and drama guaranteed to keep you glued to the screen.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Efter brylluppet (2006) (After the Wedding)
 
 [**IMDb rating: 7,7**](https://www.imdb.com/title/tt0457655/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -58,8 +63,9 @@ Grab the popcorn and enjoy!
  This is only the second movie in the list blessed with the presence of Mads Mikkelsen, but hang in there! There’s more on the way.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Hævnen (2010) (In a Better World)
 
 [**IMDb rating: 7,6**](https://www.imdb.com/title/tt1340107/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -71,8 +77,9 @@ Grab the popcorn and enjoy!
  Academy Award winner for Best Foreign Language Film of the Year in 2011 (already convinced, aren’t you?), “Hævnen” is a story about friendship, choices, revenge, forgiveness and the consequences of our actions. There’s no way you won’t find yourself in it.
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. En kongelig affære (2012) (A Royal Affair)
 
 [**IMDb rating: 7,5**](https://www.imdb.com/title/tt1276419/?ref%5F=fn%5Fal%5Ftt%5F1)
@@ -84,8 +91,9 @@ Grab the popcorn and enjoy!
  The two lovers use their influence on King Christian to start a revolution that will change the nation forever. But will this be in their own best interest? Believe me, you absolutely have to watch this. Not only that this film was also nominated for an Oscar, but the costume design and the acting are absolutely amazing. Time watching it will not be time wasted.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Jagten (2012) (The Hunt)
 
 [**IMDb rating: 8,3**](https://www.imdb.com/title/tt2106476/)
@@ -117,8 +125,6 @@ Grab the popcorn and enjoy!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -126,8 +132,18 @@ Grab the popcorn and enjoy!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-content-seo-mastery-starts-here/"><u>[New] In 2024, Elevate Your Content SEO Mastery Starts Here</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-9-essential-apps-for-pulling-youtube-videos-android-for-2024/"><u>[Updated] 9 Essential Apps for Pulling YouTube Videos (Android) for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-speedy-inspector-for-windows-images/"><u>[Updated] Speedy Inspector for Windows Images</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/3g2wmv-movavi/"><u>網路上自由將3G2視頻轉成WMV - 使用Movavi的方法</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/best-free-disk-data-retrieval-programs-for-windows-users-versions-11-8-7/"><u>Best Free Disk Data Retrieval Programs for Windows Users (Versions 11, 8, 7)</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/first-steps-in-the-field-of-prompt-creation/"><u>First Steps in the Field of Prompt Creation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-latino-education-enthralling-youths/"><u>Interactive Latino Education: Enthralling Youths</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-to-basic-mathematical-terms-in-russian/"><u>Introduction to Basic Mathematical Terms in Russian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-british-lingo-book-saying-it-right/"><u>The British Lingo Book: Saying It Right</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-journey-to-fluent-japanese-greetings/"><u>The Essential Journey to Fluent Japanese Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wow-italians-discover-20plus-native-slang/"><u>Wow Italians! Discover 20+ Native Slang</u></a></li>
+</ul></div>
 

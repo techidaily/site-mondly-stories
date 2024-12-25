@@ -1,7 +1,7 @@
 ---
 title: A New Lexicon Unfolds at MondlyLanguages - Visionary Journey
-date: 2024-08-27T22:43:49.199Z
-updated: 2024-08-28T22:43:49.199Z
+date: 2024-12-22T16:40:24.004Z
+updated: 2024-12-25T16:13:59.651Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/f06ecdd32f0e95a7a4f703e01e2d64ef66252665c
 
  Two years ago we made that dream come true. We built a great language learning app and we made it our mission to offer everyone lessons in as many languages as possible.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## On May 28 2014, Mondly
 
  We started small, but kept thinking big at every step of the way. Our developers, designers, language experts and translators all worked together to build a language learning app that’s easy to use, fun to learn with, and effective in real life situations.
@@ -31,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/f06ecdd32f0e95a7a4f703e01e2d64ef66252665c
  With this in mind, we give you an infographic about where Mondly stands today. From here on, sky’s the limit.
 
 Thank you for being a part of our journey ![Mondly - 2 Years Infografic](https://edge.mondly.com/blog/wp-content/uploads/2016/05/2years-Infographic-v3-scaled.png "2 Years Of Mondly Languages 2") ](https://edge.mondly.com/blog/wp-content/uploads/2016/05/2years-Infographic-v3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhappy-2nd-birthday%2F&t=2+Years+of+Mondly+Languages "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
@@ -45,8 +53,6 @@ Thank you for being a part of our journey ![Mondly - 2 Years Infografic](https:/
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -54,12 +60,24 @@ Thank you for being a part of our journey ![Mondly - 2 Years Infografic](https:/
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-cutting-edge-camcorders-for-unmatched-video-quality/"><u>[New] Cutting-Edge Camcorders for Unmatched Video Quality</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nveil-top-8-websites-with-free-green-screen-video-treasures-for-2024/"><u>[New] Unveil Top 8 Websites with FREE Green Screen Video Treasures for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-evolved-methods-for-effective-game-file-logging-for-2024/"><u>[Updated] Evolved Methods for Effective Game File Logging for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-podcast-scriptwriting-made-easy-techniques-and-illustrative-templates/"><u>[Updated] Podcast Scriptwriting Made Easy Techniques and Illustrative Templates</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartbeats-in-verona-italian-charming-quips/"><u>Heartbeats in Verona: Italian Charming Quips</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-oneplus-nord-n30-se-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your OnePlus Nord N30 SE | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/ice-racing-royalty-olympians-highlights-2022/"><u>Ice Racing Royalty Olympians' Highlights, 2022</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/instant-visualization-techniques-for-timestamp-implementation/"><u>Instant Visualization Techniques for Timestamp Implementation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-mondly-to-your-huawei-device/"><u>Introducing Mondly to Your Huawei Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-language-top-100-most-commonly-misspelled-english-words/"><u>Master the Language: Top 100 Most Commonly Misspelled English Words</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-s-top-online-cartoon-video-editors-for-newbies/"><u>New S Top Online Cartoon Video Editors for Newbies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickstep-ukranian-proficiency-10-minute-daily-goal-84-chars/"><u>Quickstep Ukranian Proficiency, 10-Minute Daily Goal (84 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-year-with-unlimited-lifetime-access-to-mondly-premium-at-no-cost/"><u>Revolutionize Your Year with Unlimited Lifetime Access to Mondly Premium at No Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seafaring-savvy-essential-piratical-lexicon-unveiled/"><u>Seafaring Savvy: Essential Piratical Lexicon Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tech-driven-learning-mondlys-commitment-to-apples-tools-for-students/"><u>Tech-Driven Learning: Mondly's Commitment to Apple's Tools for Students</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-hungarian-languages-lovestory-tactics/"><u>Unveiling Hungarian Language's Lovestory Tactics</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

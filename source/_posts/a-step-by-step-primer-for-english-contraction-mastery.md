@@ -1,7 +1,7 @@
 ---
 title: A Step-by-Step Primer for English Contraction Mastery
-date: 2024-08-23T00:22:25.197Z
-updated: 2024-08-24T00:22:25.197Z
+date: 2024-12-21T16:23:06.998Z
+updated: 2024-12-25T16:09:26.337Z
 tags:
   - speak
   - english
@@ -27,8 +27,6 @@ thumbnail: https://thmb.techidaily.com/acfd39cea130b7076ba0e472a472a7627f6c0d070
  English contractions are the perfect way to sound more natural and save time when speaking. Essentially, contractions glue two or more words together and replace certain middle letters in the given union with an apostrophe. This is how phrases like_how did_ or_I would_ become shortened to_how’d_ and_I’d_ . Quite the letter economy, right?
 
  Contraction words are generally easy enough to sort out, but there are situations where they can get tricky. For all those situations, it’s necessary to keep an eye out for rules. That’s why**we are** – or let’s say_**we’re**_ – going to explain everything you need to know about the rules of contractions in English. And while we’re at it, we will also add a contraction word list to go perfectly with the explanations.
-
-
 
 ## What is a contraction?
 
@@ -74,11 +72,13 @@ Coming Soon
 ![contractions in English](https://edge.mondly.com/blog/wp-content/uploads/2023/11/contractions-in-english-960x960.png "The Ultimate Guide To English Contractions 3")
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Grammar rules for English contractions
 
  Before you go thinking you know everything about contractions, we must look over some rules for contractions grammar.
@@ -90,8 +90,9 @@ Coming Soon
 5. **Negative contractions and tag questions go together like English speakers and [misspelled words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :** A tag question is a short question added at the end of a sentence to turn it into a question. They are used to confirm information or engage the listener in the conversation. For example: “You’re coming to the party, aren’t you?”. When the declarative part of the sentence is affirmative, the question part is formulated as negative and conversely. If the tag question is negative, it’s your cue to use a contraction.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Common contractions in English
 
  Contraction word list
@@ -224,9 +225,6 @@ Coming Soon
 | you will                     | you’ll      |
 | you will; you shall          | you’ll      |
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Contractions in writing and their importance
 
  If you write in English on a daily basis, you probably use contractions quite a lot. And that’s perfectly fine if you talk to your family or friends. English contractions save time and space and make your daily communications sound friendlier.
@@ -238,9 +236,9 @@ Coming Soon
  However, if what you’re writing is semi-formal, you can use a couple of very popular contractions. The only condition is to not forget about the apostrophe, as the entire text will look unprofessional.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Examples of contractions in everyday language
 
  Now that you know the rules and have a comprehensive word list of contractions, it’s time to look at some examples of contractions from everyday language.
@@ -275,8 +273,9 @@ Coming Soon
 ---
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Improve your English fast
 
  Do you want to get better at speaking English? Try Mondly, the award-winning language app that is serious about making learning English fun.
@@ -299,8 +298,6 @@ Coming Soon
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -308,8 +305,20 @@ Coming Soon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/updated-unveiling-the-best-fb-movie-grabs-8-edition-for-2024/"><u>[Updated] Unveiling the Best FB Movie Grabs #8 Edition for 2024</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/discover-the-ultimate-replacement-for-getflv-on-macwindows-choose-allavsoft/"><u>Discover the Ultimate Replacement for GetFLV on Mac/Windows – Choose Allavsoft!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-logitech-m525-installation-and-update-packages-free/"><u>Get Logitech M525 Installation and Update Packages Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-ready-to-connect-your-ai-conversation-guide/"><u>Get Ready to Connect: Your AI Conversation Guide</u></a></li>
+<li><a href="https://article-helps.techidaily.com/harmonizing-sights-with-itunes-acoustics-for-2024/"><u>Harmonizing Sights with iTunes Acoustics for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-information-what-is-blue-video-icon-on-facebook-messenger/"><u>In 2024, Information | What Is Blue Video Icon on Facebook Messenger?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israelian-excursion-guide-must-know-phrases-and-practical-suggestions/"><u>Israelian Excursion Guide: Must-Know Phrases & Practical Suggestions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multipurpose-language-lesson/"><u>Multipurpose Language Lesson</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/no-more-quiet-computers-a-guide-to-restoring-mac-volume-issues/"><u>No More Quiet Computers – A Guide to Restoring Mac Volume Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/overcoming-barriers-in-german-learning/"><u>Overcoming Barriers in German Learning</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/photography-tutorial-how-to-shoot-and-create-impressive-hdr-portraits-for-2024/"><u>Photography Tutorial How to Shoot and Create Impressive HDR Portraits for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-introduction-to-the-chinese-alphabet-chinese-characters-and-pinyin/"><u>Quick Introduction to the Chinese Alphabet, Chinese Characters and Pinyin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-counting-companion-for-new-learners/"><u>Russian Counting Companion for New Learners</u></a></li>
+</ul></div>
 

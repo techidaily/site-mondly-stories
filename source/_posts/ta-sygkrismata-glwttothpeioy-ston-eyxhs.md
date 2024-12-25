@@ -1,7 +1,7 @@
 ---
 title: Τα Συγκρίσματα Γλωττοτηπειού Στον Ευχής
-date: 2024-12-07T16:52:05.469Z
-updated: 2024-12-10T17:31:13.764Z
+date: 2024-12-18T16:09:36.591Z
+updated: 2024-12-25T16:41:51.078Z
 tags:
   - speak
   - english
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/117606e709c16601f4ab8cc26b0c9a6396939e54d
  In this quick Greek lesson, we’ll show you only the practical ways to say thank you in Greek. The thanks you’ll actually need and use in real life. Additionally, we’ll also go over how to say ‘please’ or ‘you’re welcome’ in Greek. As a result, you’ll know exactly what to say and when to say it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What does efcharistó mean in Greek?
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/117606e709c16601f4ab8cc26b0c9a6396939e54d
 
  A funny but very good mnemonic for remembering how to say_efcharistó_ is to think of it as ‘ef-harry’s-toe’.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The informal ‘thank you’ in Greek
 
  It’s true that ευχαριστώ (_efcharistó_ – ‘thanks’) is more than enough to ‘survive’ in [Greece](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . It’s not a Greek tragedy if your Greek vocabulary is not on point. Most Greek people speak English and won’t expect you to be fluent in Greek.
@@ -43,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/117606e709c16601f4ab8cc26b0c9a6396939e54d
  If you are especially thankful to them, you can also say ευχαριστώ πολύ_(efcharistó poli)_ which means ‘thanks a lot’. Or even ευχαριστώ πάρα πολύ_(efcharistó para poli)_ meaning ‘thank you very much’.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The formal ‘thank you’ in Greek
@@ -56,14 +60,10 @@ thumbnail: https://thmb.techidaily.com/117606e709c16601f4ab8cc26b0c9a6396939e54d
 
 ![taverna in Greece](https://edge.mondly.com/blog/wp-content/uploads/2021/10/thanks-in-greek-960x720.jpg "All The Best Ways To Say Thank You In Greek 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Mýkonos, Greece” by Johnny Chen©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Examples of Greek thanks
@@ -77,6 +77,10 @@ thumbnail: https://thmb.techidaily.com/117606e709c16601f4ab8cc26b0c9a6396939e54d
 * Είμαι ευγνώμων. _(Eímai evgnómon.)_ – I am grateful/thankful.
 * Το εκτιμώ. _(To ektimó.)_ – I appreciate it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say ‘please’ and ‘you’re welcome’ in Greek
 
  Are you familiar with the German ‘_Bitte’_ or the Italian ‘_prego’_ that seem to mean everything from ‘please’ to ‘go ahead’ and ‘you’re welcome’?
@@ -84,10 +88,6 @@ thumbnail: https://thmb.techidaily.com/117606e709c16601f4ab8cc26b0c9a6396939e54d
  Well, the Greek παρακαλώ_(parakaló)_ works the same. If you want to say ‘please’ in Greek, you say παρακαλώ_(parakaló)._ If you want to say ‘you’re welcome’, παρακαλώ_(parakaló)_ works just fine again. If only everything would be so easy when learning Greek!
 
  But let’s not get ahead of ourselves and forget about the formal variation. To address someone older or a group of people, you should use the formal σας παρακαλούμε_(sas parakaloúme)_ . Did you recognize the_σας (sas)_ particle? If yes, then congratulations! That means you’re on the right track.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## When should you say ‘thank you’ in Greek?
 
@@ -128,22 +128,22 @@ thumbnail: https://thmb.techidaily.com/117606e709c16601f4ab8cc26b0c9a6396939e54d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-beam-your-content-upward-perfecting-youtube-seo-techniques/"><u>[New] In 2024, Beam Your Content Upward Perfecting YouTube SEO Techniques</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-common-issues-with-youtube-shorts-thumbnails/"><u>[Updated] 2024 Approved Common Issues with YouTube Shorts Thumbnails</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-create-a-puzzle-feed-on-instagram-to-catch-attention-for-2024/"><u>[Updated] How to Create a Puzzle Feed on Instagram to Catch Attention for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-top-10-best-sites-for-downloading-youtube-template-videos/"><u>[Updated] Top 10 Best Sites for Downloading YouTube Template Videos</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/aiweb6/"><u>AI仕様動画バックグラウンド即時透過Webサイト上位6選!!緑色の背景なしで一括設定</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazon-basics-7-port-usb-30-hub-comprehensive-review-your-ultimate-connectivity-solution/"><u>Amazon Basics 7-Port USB 3.0 Hub Comprehensive Review – Your Ultimate Connectivity Solution</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/como-identificar-animales-con-nombres-hispanos/"><u>Cómo Identificar Animales Con Nombres Hispanos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprendre-la-semaine-qui-sont-les-jours/"><u>Comprendre La Semaine : Qui Sont Les Jours?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/diving-into-traditional-han-characters/"><u>Diving Into Traditional Han Characters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elite-software-solutions-for-fluent-communication/"><u>Elite Software Solutions for Fluent Communication</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hora-y-segundo-un-curso-inicial-en-espanol/"><u>Hora Y Segundo: Un Curso Inicial en Español</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-restore-microphone-functionality-on-your-iphone-easily/"><u>How to Restore Microphone Functionality on Your iPhone Easily</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-avoiding-the-overflow-how-to-edit-your-pile-up-of-tiktok-drafts/"><u>In 2024, Avoiding the Overflow How to Edit Your Pile-Up of TikTok Drafts</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-harness-the-power-of-storytelling-making-captivating-reels-on-facebook/"><u>In 2024, Harness the Power of Storytelling Making Captivating Reels on Facebook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-10-innovative-methods-revolutionizing-learning-languages/"><u>Mondly’s 10 Innovative Methods Revolutionizing Learning Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfectly-poached-or-poured-tips-for-excellent-fried-eggs-106-characters-slightly-over-but-within-acceptable-limits-if-slight-adjustments-are-made-to-avoid-1/"><u>Perfectly Poached or Poured? Tips for Excellent Fried Eggs (106 Characters, Slightly over but Within Acceptable Limits if Slight Adjustments Are Made to Avoid Including Non-Relevant Content.)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/recursos-visuales-para-colores-espanol/"><u>Recursos Visuales Para Colores Español</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-top-quality-video-uplift-immaculate-resolution/"><u>[New] Top Quality Video Uplift Immaculate Resolution</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubing-into-visual-wonders-learn-from-greenscreen-pros/"><u>[New] Youtubing Into Visual Wonders – Learn From Greenscreen Pros</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-upgrading-zoom-video-fidelity-a-comprehensive-guide/"><u>[Updated] 2024 Approved Upgrading Zoom Video Fidelity A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-channel-conversion-guide-yt-to-igtv-strategies-for-2024/"><u>[Updated] Channel Conversion Guide YT to IGTV Strategies for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-celebrates-mondlys-victory-in-education-app-elite-league/"><u>Apple Celebrates Mondly’s Victory in Education App Elite League</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/augmenting-reality-first-speech-powered-app/"><u>Augmenting Reality: First Speech-Powered App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-language-skills-and-networking-through-mondly-vr/"><u>Boost Your Language Skills & Networking Through Mondly VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-knowledge-gaps-with-ai-assistance/"><u>Bridging Knowledge Gaps With AI Assistance</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-if-(securityfbcom)-is-a-secure-and-legitimate-mail-service-from-fb/"><u>Determining if <security@fb.com> Is a Secure and Legitimate Mail Service From FB</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/re-youtubes-finest-virtual-reality-content-for-2024/"><u>Explore YouTube's Finest Virtual Reality Content for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/globally-how-many-are-french-fluent-key-nations/"><u>Globally, How Many Are French Fluent? Key Nations</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-do-you-unlock-your-apple-iphone-7-plus-learn-all-4-methods-drfone-by-drfone-ios/"><u>How Do You Unlock your Apple iPhone 7 Plus? Learn All 4 Methods | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-the-czech-language-web-based-quickly-and-comfortably/"><u>Navigate the Czech Language Web-Based, Quickly & Comfortably</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rediscovering-the-joy-of-communication-at-50plus-with-a-new-language/"><u>Rediscovering the Joy of Communication at 50+ with a New Language</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/screen-sharing-showdown-obs-vs-twitch-studio-face-off-for-2024/"><u>Screen Sharing Showdown OBS vs Twitch Studio Face-Off for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ming-platforms-face-off-choosing-between-vimeo-youtube-dailymotion/"><u>Streaming Platforms Face-Off Choosing Between Vimeo, YouTube, DailyMotion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-mondly-excellence/"><u>Unlocking the Secrets of Mondly Excellence</u></a></li>
 </ul></div>
 

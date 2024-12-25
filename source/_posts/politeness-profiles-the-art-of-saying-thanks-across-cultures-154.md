@@ -1,7 +1,7 @@
 ---
 title: "Politeness Profiles: The Art of Saying Thanks Across Cultures (154)"
-date: 2024-12-09T16:37:57.925Z
-updated: 2024-12-16T17:08:52.074Z
+date: 2024-12-19T16:02:36.076Z
+updated: 2024-12-25T16:55:51.717Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
@@ -61,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -127,22 +127,20 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-crafting-your-ultimate-style-haul-video-for-2024/"><u>[New] Crafting Your Ultimate Style Haul Video for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-the-crazy-crews-top-10-unique-tiktok-games-for-2024/"><u>[New] The Crazy Crew's Top 10 Unique TikTok Games for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unlocking-cost-effective-clouds-for-the-budget-conscious/"><u>[New] Unlocking Cost-Effective Clouds for the Budget-Conscious</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-fluency-top-tips-for-learning-finnish-at-home/"><u>Accelerate Fluency: Top Tips for Learning Finnish at Home</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ballads-of-bilingualism-scientifically-supported-musical-tips/"><u>Ballads of Bilingualism: Scientifically Supported Musical Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/classical-greek-past-linguistics-to-present-day-relevance/"><u>Classical Greek: Past Linguistics to Present-Day Relevance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/compre-written-guide-to-spanish-infinitive-past-participle/"><u>Compre Written Guide to Spanish Infinitive, Past Participle</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conocer-horarios-en-espanol-manual-basico/"><u>Conocer Horarios en Español - Manual Básico</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-oppo-find-x7-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Oppo Find X7.</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211266715-9781958921579-goddess/"><u>Goddess | Free Book</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/ideal-screen-capturing-solutions-for-igadgets/"><u>Ideal Screen Capturing Solutions for iGadgets</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-a-list-mobile-applications-for-enhanced-gopro-videos/"><u>In 2024, A-List Mobile Applications for Enhanced GoPro Videos</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-samsung-galaxy-a25-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Samsung Galaxy A25 5G to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Meizu 21 Pro | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580741781-mondly-elite-unbeatable-ever-lasting-pricing/"><u>Mondly Elite: Unbeatable, Ever-Lasting Pricing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581649721-what-are-the-romance-languages/"><u>What Are the Romance Languages?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580557411-what-is-the-longest-word-in-the-world/"><u>What Is The Longest Word In The World?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-powerful-applications-to-extract-vimeo-content/"><u>[New] 2024 Approved Powerful Applications to Extract Vimeo Content</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-essential-chromebook-art-apps-ranked-from-best-to-worst/"><u>[New] In 2024, Essential Chromebook Art Apps Ranked From Best to Worst</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-recipe-reels-reimagined-the-top-7-edible-videography-secrets/"><u>[New] Recipe Reels Reimagined The Top 7 Edible Videography Secrets</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/best-fb-videos-top-10-watcher-tools/"><u>Best FB Videos Top 10 Watcher Tools</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/harnessing-power-of-ez-grabber-quick-start-guide-to-usage/"><u>Harnessing Power of EZ Grabber - Quick Start Guide to Usage</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-any-lava-yuva-3-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Lava Yuva 3 Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-instant-sticker-transformation-your-guide-to-making-gifs-pop-in-telegram-and-more/"><u>In 2024, Instant Sticker Transformation Your Guide to Making GIFs Pop in Telegram & More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-secures-prestigious-witsa-accolade/"><u>Mondly Secures Prestigious WITSA Accolade</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-insights-into-its-pedagogy/"><u>Mondly: Insights Into Its Pedagogy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/motivation-maestro-the-honterus-way/"><u>Motivation Maestro - The Honterus Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-made-easy-with-evidence-backed-music-techniques/"><u>Multilingual Mastery Made Easy with Evidence-Backed Music Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pumpkin-time-a-global-perspective/"><u>Pumpkin Time: A Global Perspective</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-steps-to-expertise-learn-latin-easily/"><u>Swift Steps to Expertise: Learn Latin Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tapping-into-ais-capabilities-for-academic-advancement/"><u>Tapping Into AI's Capabilities for Academic Advancement</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-how-to-configuring-your-universal-remote-with-simple-steps/"><u>The Ultimate How-To: Configuring Your Universal Remote with Simple Steps</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "International Eloquence: Expressing Thanks Worldwide (152) [Trimmed to Fit]"
-date: 2024-12-10T20:21:25.815Z
-updated: 2024-12-16T19:49:41.775Z
+date: 2024-12-19T16:42:23.448Z
+updated: 2024-12-25T16:14:13.641Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
@@ -61,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -127,20 +127,24 @@ thumbnail: https://thmb.techidaily.com/ebdad2a840dec3c1268566b70a55752afebf36210
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-diversify-your-laptop-editing-beyond-inshot/"><u>[New] 2024 Approved Diversify Your Laptop Editing Beyond Inshot</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-unveiling-the-art-of-documenting-real-time-facetime-discussions/"><u>[Updated] 2024 Approved Unveiling the Art of Documenting Real-Time FaceTime Discussions</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-audiovisual-alchemy-transforming-powerpoint-into-engagement-for-2024/"><u>[Updated] Audiovisual Alchemy Transforming PowerPoint Into Engagement for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/mp3-conversion-from-mp3-files-to-youtube-videos-3-ways-for-2024/"><u>Easy MP3 Conversion From MP3 Files to YouTube Videos [3 Ways] for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/english-echoes-worldwide-deciphering-canadian-aussie-and-brit-pronunciation/"><u>English Echoes Worldwide: Deciphering Canadian, Aussie, and Brit Pronunciation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enlightenment-without-cost-celebrating-1500-daily-no-fee-lessons/"><u>Enlightenment Without Cost: Celebrating 1500 Daily No-Fee Lessons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/experience-world-class-communication-with-huaweiplusmondly/"><u>Experience World-Class Communication with Huawei+Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-our-linguistic-antiquitys-greats/"><u>Exploring Our Linguistic Antiquity's Greats</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-flair-for-flirtatious-friendlinits/"><u>French Flair for Flirtatious Friendlinits</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-lisbon-to-rio-de-janeiro-eu-and-south-american-portunol/"><u>From Lisbon to Rio De Janeiro: EU and South American Portuñol</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gerer-le-temps-weekdays-en-francophonie/"><u>Gérer Le Temps: Weekdays en Francophonie</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Oppo A78 5G | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/maximize-file-transfer-speeds-expert-solutions-uncovered/"><u>Maximize File Transfer Speeds: Expert Solutions Uncovered</u></a></li>
-<li><a href="https://techtrends.techidaily.com/navigating-your-google-home-experience-from-your-personal-computer/"><u>Navigating Your Google Home Experience From Your Personal Computer</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-asus-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Asus Phone Hassle-Free</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-discounted-action-cams-for-the-budget-minded/"><u>[New] Discounted Action Cams for the Budget Minded</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-step-by-step-techniques-for-text-integration-in-tiktok-videos/"><u>[Updated] Step-by-Step Techniques for Text Integration in TikTok Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-youtube-alternatives-3-best-video-sharing-sites/"><u>2024 Approved YouTube Alternatives 3 Best Video Sharing Sites</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/beat-the-standard-a-complete-tutorial-for-adding-ringtones-and-sounds-to-android-for-2024/"><u>Beat the Standard A Complete Tutorial for Adding Ringtones & Sounds to Android for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-6-proven-ways-to-unlock-oppo-reno-11-pro-5g-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Oppo Reno 11 Pro 5G Phone When You Forget the Password</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-experts-choice-7-premium-videos-on-mac/"><u>In 2024, Expert's Choice 7 Premium Videos on Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/philosophical-phonology-from-classical-to-contemporary/"><u>Philosophical Phonology: From Classical to Contemporary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-filters-the-mondly-pearson-collaboration/"><u>Pioneering Filters: The Mondly-Pearson Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-policy-just-updated/"><u>Privacy Policy Just Updated</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-catalan-mastery-daily-10-minute-routine/"><u>Quick Catalan Mastery: Daily 10-Minute Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-balance-between-accuracy-and-understanding/"><u>The Balance Between Accuracy and Understanding</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-evolutionary-milestone-of-mondlys-journey/"><u>The Evolutionary Milestone of Mondly's Journey</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-insiders-guide-to-youtube-success-for-2024/"><u>The Insider's Guide to YouTube Success for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unlocking-advanced-ai-5-freebie-pathways-to-gpt-4-access/"><u>Unlocking Advanced AI: 5 Freebie Pathways to GPT-4 Access</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-googles-gemini-an-exploration-into-their-latest-ai-endeavor/"><u>Unveiling Google's Gemini: An Exploration Into Their Latest AI Endeavor</u></a></li>
+<li><a href="https://some-skills.techidaily.com/vectors-explained-an-entry-level-guide-to-forms-and-applications-for-2024/"><u>Vectors Explained An Entry-Level Guide to Forms and Applications for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtualang-revolutionizing-interactive-language-education/"><u>VirtuaLang: Revolutionizing Interactive Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/watch-dark-and-learn-a-new-language-germans/"><u>Watch 'Dark' And Learn a New Language, Germans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-breakfast-banter-how-to-say-good-morning/"><u>Worldwide Breakfast Banter: How to Say 'Good Morning'</u></a></li>
 </ul></div>
 

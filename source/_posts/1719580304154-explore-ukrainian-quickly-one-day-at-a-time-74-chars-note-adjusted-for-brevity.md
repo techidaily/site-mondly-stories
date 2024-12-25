@@ -1,7 +1,7 @@
 ---
 title: "Explore Ukrainian Quickly, One Day at a Time (74 Chars) - Note: Adjusted for Brevity"
-date: 2024-08-23T00:22:41.902Z
-updated: 2024-08-24T00:22:41.902Z
+date: 2024-12-23T16:10:25.544Z
+updated: 2024-12-25T16:56:57.898Z
 tags:
   - speak
   - english
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/d9580a0fe0d295d2fe4ac5bc754f7348af6d4884b
 
  Ukrainian is a fascinating language with a long history of foreign influences. Due to it being profoundly different from English, many people consider learning Ukrainian a personal triumph. And so should you. Here’s everything you need to know if you want to learn Ukrainian fast.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Ukrainian language in a nutshell
 
  Ukrainian, known as_украї́нська мо́ва_ (romanized:[_Ukraïns’ka mova_](https://www.britannica.com/topic/Ukrainian-language) ) to Ukrainians, is the official language of Ukraine and the descendant of the colloquial language used in Kievan Rus between the 10th and the 13th century. From there on, the language developed into what was called ‘the Ruthenian language’. As a result of Ukraine’s long political subordination, Ukrainian had almost no literary expression until the 18th century when the modern literary Ukrainian language was born.
@@ -26,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/d9580a0fe0d295d2fe4ac5bc754f7348af6d4884b
 
  Additionally, Ukrainian’s vocabulary also includes a large number of words borrowed from [Polish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) during the Polish rule from the 13th to the 17th centuries.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Is Ukrainian hard to learn?
 
  Due to being a Slavic language, Ukrainian is one of the hardest languages to learn by native English speakers. In fact, according to [the FSI](https://www.state.gov/foreign-language-training/) (Foreign Service Institute) of the US government, an English speaker would need about 1100 class hours or 44 weeks of practice to become fluent in Ukrainian. This makes Ukrainian as hard to learn as Polish, Icelandic or Finnish. However, you don’t have to get discouraged. Japanese, Chinese and Korean are still much harder to learn than Ukrainian.
@@ -33,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/d9580a0fe0d295d2fe4ac5bc754f7348af6d4884b
  Besides, choosing the right [Ukrainian course](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6604&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6604?mother%5Flang=en%5Fus?target%5Flang=ua&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6604?mother%5Flang=en%5Fus?target%5Flang=ua) can work wonders. Read on to discover what is the best way to learn Ukrainian fast.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Start with the Ukrainian alphabet
 
  One of the reasons why Ukrainian is a little bit harder to learn is its alphabet. As you probably already know, the Ukrainian language uses the same alphabet as Russian – the Cyrillic alphabet.
@@ -46,8 +55,9 @@ thumbnail: https://thmb.techidaily.com/d9580a0fe0d295d2fe4ac5bc754f7348af6d4884b
  And you know what’s the best thing about it? Almost all the words in Ukrainian can be pronounced the same way they are written. As soon as you will know how to pronounce each individual Ukrainian letter, you will also be able to read out loud in Ukrainian.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10 basic Ukrainian words and phrases you can learn right now
 
  Are you excited to learn Ukrainian? Let’s start small. Here are the top 10 basic Ukrainian words and phrases that everyone should know:
@@ -66,8 +76,9 @@ thumbnail: https://thmb.techidaily.com/d9580a0fe0d295d2fe4ac5bc754f7348af6d4884b
  Here’s a glimpse of how some of these Ukrainian words sound when spoken by a fluent speaker:
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to learn Ukrainian fast with Mondly
 
  Now let’s discuss the real reason why you’re here: how to learn Ukrainian fast.
@@ -97,8 +108,6 @@ thumbnail: https://thmb.techidaily.com/d9580a0fe0d295d2fe4ac5bc754f7348af6d4884b
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -106,8 +115,20 @@ thumbnail: https://thmb.techidaily.com/d9580a0fe0d295d2fe4ac5bc754f7348af6d4884b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-typhoon-h-unveiled-yuneecs-aerial-marvel/"><u>[New] Typhoon H Unveiled Yuneec's Aerial Marvel</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-how-to-enable-grid-view-on-google-meet-to-see-every-participant/"><u>[Updated] 2024 Approved How to Enable Grid View on Google Meet to See Every Participant?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-mastering-game-recordings-on-fortnite/"><u>[Updated] 2024 Approved Mastering Game Recordings on Fortnite</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-hp-officejet-pro-8620-drivers-installed-in-a-flash-windows-edition/"><u>Get the Latest HP OfficeJet Pro 8620 Drivers Installed in a Flash - Windows Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-impact-on-eng-linguistic-adoption-and-lexicon-expansion/"><u>Global Impact on Eng: Linguistic Adoption and Lexicon Expansion</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-vivo-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Vivo Device SIM</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Motorola Moto G24 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/minute-magic-numbers-in-the-land-of-the-rising-sun/"><u>Minute Magic: Numbers in the Land of the Rising Sun</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-syncs-up-with-pearson-education-circle/"><u>Mondly Syncs Up With Pearson Education Circle</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-impact-on-language-acquisition-unveiled-in-10-areas/"><u>Mondly's Impact on Language Acquisition Unveiled in 10 Areas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-learning-horizons-in-adulthood/"><u>New Learning Horizons in Adulthood</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/privacy-protection-in-video-editing-top-face-blurring-techniques/"><u>Privacy Protection in Video Editing Top Face Blurring Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/sh-growth-potential-simple-strategies-for-video-success/"><u>Unleash Growth Potential Simple Strategies for Video Success</u></a></li>
+</ul></div>
 

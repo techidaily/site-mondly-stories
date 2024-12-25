@@ -1,7 +1,7 @@
 ---
 title: Worldwide Words Shaping English Identity
-date: 2024-12-11T17:26:12.244Z
-updated: 2024-12-16T19:33:18.713Z
+date: 2024-12-24T16:46:16.291Z
+updated: 2024-12-25T16:28:39.327Z
 tags:
   - speak
   - english
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
@@ -85,16 +85,20 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -124,10 +128,6 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 | Gourmet      |
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Spanish loanwords: English words that are actually Spanish
 
@@ -180,7 +180,7 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## German loanwords: English words that are actually German
@@ -265,20 +265,17 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-elevating-entertainment-find-youtubes-best-narrators-of-23/"><u>[New] In 2024, Elevating Entertainment Find YouTube's Best Narrators of '23</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-srt-file-accessibility-across-computers-for-2024/"><u>[New] SRT File Accessibility Across Computers for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-your-go-to-list-for-effortless-downloads-of-fb-stories/"><u>[Updated] Your Go-To List for Effortless Downloads of FB Stories</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-unlock-the-power-of-your-iphone-photo-mosaic-mastery/"><u>2024 Approved Unlock the Power of Your iPhone Photo Mosaic Mastery</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/boost-productivity-with-a-simple-chrome-extension-for-easy-chatgpt-prompts/"><u>Boost Productivity with a Simple Chrome Extension for Easy ChatGPT Prompts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/endless-learning-opportunity-the-birthday-of-unlimited-fee-free-education/"><u>Endless Learning Opportunity: The Birthday of Unlimited, Fee-Free Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-strategies-for-novice-learners-in-speaking-french/"><u>Essential Strategies for Novice Learners in Speaking French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/everyday-wisdom-gathering-celebrating-1500-gratis-learning-sessions/"><u>Everyday Wisdom Gathering: Celebrating 1500 Gratis Learning Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expanded-communication-10-advantages-from-using-mondly/"><u>Expanded Communication: 10 Advantages From Using Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-the-art-of-ru-phonology/"><u>Exploring the Art of RU Phonology</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gaining-mastery-in-foreign-languages-realistic-timelines/"><u>Gaining Mastery In Foreign Languages: Realistic Timelines</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-unbrick-a-dead-motorola-moto-g73-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Motorola Moto G73 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-dive-into-windows-10-new-apps-and-games-galore/"><u>In 2024, Dive Into Windows 10 - New Apps & Games Galore</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-you-cannot-just-copy-and-paste-the-data-from-a-dvd-or-blu-ray-to-a-computer-since-you-need-a-file-conversion-software-in-order-to-change-the-for/"><u>New In 2024, You Cannot Just Copy and Paste the Data From a DVD or Blu-Ray to a Computer Since You Need a File Conversion Software in Order to Change the Format of a Video File. In This Article, We Are Going to Ta</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719147418245-taking-a-leap-in-privacy-protection-facebook-unveils-stronger-security-for-instagram-dms-and-messenger-calls/"><u>Taking a Leap in Privacy Protection: Facebook Unveils Stronger Security for Instagram DMs and Messenger Calls</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-diving-into-zoom-breakout-room-setups/"><u>[Updated] Diving Into Zoom Breakout Room Setups</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-the-art-of-video-filming-across-various-computing-platforms/"><u>[Updated] In 2024, The Art of Video Filming Across Various Computing Platforms</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unlock-fb-lite-content-discover-the-best-video-downloader-apps/"><u>[Updated] In 2024, Unlock FB Lite Content Discover the Best Video Downloader Apps</u></a></li>
+<li><a href="https://techidaily.com/dell-drivers-download-for-windows-7/"><u>Dell Drivers Download for Windows 7</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Samsung Galaxy A24? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/gamers-gateway-to-enhanced-experiences-nvidias-new-app/"><u>Gamer's Gateway to Enhanced Experiences – Nvidia's New App</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/intel-nvme-controller-software-how-to-download-and-install-with-ease/"><u>Intel NVMe Controller Software - How to Download and Install with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-to-converse-tagalog-today-with-focused-short-sessions/"><u>Learn to Converse Tagalog Today with Focused Short Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-boundless-learning-network-a-community-of-70plus-million/"><u>Mondly’s Boundless Learning Network: A Community of 70+ Million</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-without-words-cultivating-bilingual-intimacy/"><u>Speaking Without Words: Cultivating Bilingual Intimacy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-global-gift-giver-santa-claus-multilingual-magic/"><u>The Global Gift-Giver: Santa Claus’ Multilingual Magic</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtuachatter-engaging-with-new-languages-in-vr/"><u>VirtuaChatter: Engaging with New Languages in VR</u></a></li>
 </ul></div>
 

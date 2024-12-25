@@ -1,7 +1,7 @@
 ---
 title: "Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'"
-date: 2024-12-12T20:07:55.676Z
-updated: 2024-12-16T22:11:28.731Z
+date: 2024-12-22T16:13:02.471Z
+updated: 2024-12-25T16:46:05.561Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ _Hallo!_ It’s nice to be properly greeted, isn’t it? Everywhere in the world
 
  Meanwhile, don’t forget that ‘hello’ is probably the simplest way to sound fluent. Throw in a smile and you’ll also look like one!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Hallo – the universal ‘hello’ in German
 
 _Hallo_ is the simplest and most straightforward way to say ‘hello’ in German. It’s short, sweet, and common across the entire German-speaking world. Besides, it’s friendly and can be used successfully in any social situation – either formal or informal.
@@ -27,10 +31,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  If you don’t want to confuse your brain with too many German greetings, you can stop right here._Hallo_ is a perfect all-purpose greeting for beginners. However, if you want to level up your German ‘hello’s and [learn German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) like a pro, read on.
 
  First, some good news! As it turns out, Germans use_hi_ too. Careful though: as you already know,_hi_ is more informal than_hallo_ so you should keep this one between friends.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Hallöchen – ‘Hello’ (lit. ‘little hello’)
 
@@ -56,10 +56,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -74,6 +70,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Was ist los? – “What’s up?”
 
  Very similar to_alles klar?_ ,_was ist los?_ is appropriate for very casual conversations.
@@ -83,12 +83,16 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
 
@@ -108,7 +112,7 @@ _– Na._ (“Fine. Thanks!”)
 **Localization:** mostly northern Germany.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Moin moin – “Hi”
@@ -118,10 +122,6 @@ _– Na._ (“Fine. Thanks!”)
  Although its origins are tied to_Morgen_ (“morning”),_moin_ can be used to greet people all day long.
 
 **Localization:** northern Germany, especially in and around Hamburg.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Grüezi – “Hello”
 
@@ -185,21 +185,18 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-mastering-the-art-of-continuous-snapstreak-success/"><u>[New] Mastering the Art of Continuous Snapstreak Success</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-comparing-screen-recorders-the-leader-vs-contenders/"><u>2024 Approved Comparing Screen Recorders The Leader Vs. Contenders</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/dual-domain-delight-posting-videos-across-social-platforms-for-2024/"><u>Dual-Domain Delight Posting Videos Across Social Platforms for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enchanting-dialogues-romancing-with-deutsch/"><u>Enchanting Dialogues: Romancing with Deutsch</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engaging-students-in-international-linguistics/"><u>Engaging Students in International Linguistics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-guides-to-online-independent-and-zero-cost-japan-study/"><u>Essential Guides to Online, Independent & Zero-Cost Japan Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/examining-iberian-idiosyncrasies-language-comparison-of-spanish-and-portuguese/"><u>Examining Iberian Idiosyncrasies: Language Comparison of Spanish & Portuguese</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-german-culture-with-its-25-most-used-sayings/"><u>Explore German Culture with Its 25 Most Used Sayings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-language-essentials-for-global-communicators-the-basics-of-friendly-salutations/"><u>French Language Essentials for Global Communicators: The Basics of Friendly Salutations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-latin-to-local-a-guide-to-chocolates-global-voice/"><u>From Latin to Local: A Guide to Chocolate's Global Voice</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-xiaomi-redmi-k70e-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Xiaomi Redmi K70E For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-no-limit-video-recorders-the-best-12-picks/"><u>In 2024, No Limit Video Recorders - The Best 12 Picks</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/noiseless-speech-transcription-services-for-2024/"><u>Noiseless Speech Transcription Services for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-tecno-spark-10-pro-by-drfone-android/"><u>Three Ways to Sim Unlock Tecno Spark 10 Pro</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/top-rated-audio-equipment-comprehensive-reviews-by-professionals-zdnet/"><u>Top Rated Audio Equipment - Comprehensive Reviews by Professionals | ZDNet</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unlocking-frozen-wsreset-utility-for-windows-users/"><u>Unlocking Frozen WSReset Utility for Windows Users</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-elite-methodology-for-unrivaled-mobile-screen-recording-using-mobizen/"><u>[New] 2024 Approved Elite Methodology for Unrivaled Mobile Screen Recording Using Mobizen</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-exploring-jujutsu-kaisen-through-creative-tiktok-content/"><u>[Updated] In 2024, Exploring Jujutsu Kaisen Through Creative TikTok Content</u></a></li>
+<li><a href="https://article-posts.techidaily.com/combat-vr-motion-sickness-a-guide/"><u>Combat VR Motion Sickness A Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-eliminating-frame-drops-in-obs-broadcasts/"><u>In 2024, Eliminating Frame Drops in OBS Broadcasts</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-vivo-s18-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Vivo S18 to New Phone | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-lustrous-android-video-techniques-for-every-user/"><u>In 2024, Lustrous Android Video Techniques for Every User</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-journey-how-long-does-it-take-to-master-a-new-language/"><u>Language Learning Journey: How Long Does It Take To Master A New Language?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-innovative-way-to-master-foreign-languages-with-ar/"><u>Mondly's Innovative Way to Master Foreign Languages with AR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/redefine-your-linguistic-skills-with-mondly-top-2022-app/"><u>Redefine Your Linguistic Skills with Mondly, Top 2022 App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-urdu-learning-journey-with-keywords/"><u>Starting Urdu Learning Journey with Keywords</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tech-talk-the-21st-centurys-linguistic-playbook/"><u>Tech Talk: The 21St Century's Linguistic Playbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-for-beginners-short-daily-dumps-of-talk-94-chars/"><u>Ukranian for Beginners: Short Daily Dumps of Talk (94 Chars)</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-how-to-easily-use-korean-to-english-video-translators/"><u>Updated How To Easily Use Korean to English Video Translators</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Lexicon Origins: Shakespearean Words in Modern Chatter"
-date: 2024-12-10T16:07:59.253Z
-updated: 2024-12-16T19:10:19.801Z
+date: 2024-12-22T16:06:14.973Z
+updated: 2024-12-25T16:48:10.789Z
 tags:
   - speak
   - english
@@ -61,13 +61,25 @@ thumbnail: https://thmb.techidaily.com/95080ee1192e9ec99602ccecb30de670936b2e86c
 
 _To invent new words, or not to invent new words?_ Clearly, William Shakespeare did not ask himself that. He just went with it and invented new words so he could properly tell his stories. In the end, he was so good at both storytelling and coining words that today it is impossible to have an English curriculum without Shakespeare. But enough tittle-tattle.**Let’s see what other words Shakespeare invented:**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **1\. Addiction**
 
 _Henry V_ , Act I, Scene II
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **2\. Arch-villain**
 
 _Timon of Athens_ , Act V, Scene I
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **3\. Bandit**
 
@@ -81,13 +93,13 @@ _King John_ , Act III, Scene I
 
 _King Henry VI_ , Part III, Act III, Scene III
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **6\. Fashionable**
 
 _Troilus and Cressida_ , Act III, Scene III
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **7\. (to) Friend**
 
@@ -96,6 +108,10 @@ _Hamlet_ , Act I, Scene V
 ### **8\. (to) Gossip**
 
 _The Comedy of Errors_ , Act V, Scene I
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **9\. Hint**
 
@@ -106,16 +122,12 @@ _Othello_ , Act I, Scene III
 _The Merchant of Venice_ , Act I, Scene I
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **11\. Majestic**
 
 _Julius Caesar_ , Act I, Scene II
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **12.** Marketable
 
@@ -125,16 +137,12 @@ _As You Like It_ , Act I, Scene II
 
 _A Midsummer Night’s Dream_ , Act III, Scene II
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **14.** Monumental
 
 _Troilus and Cressida_ , Act III, Scene III
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **15.** Obscene
@@ -149,16 +157,12 @@ _Love’s Labour’s Lost_ , Act IV, Scene III
 
 _King Henry VI_ , Part III, Act II, Scene III
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **18.** Outbreak
 
 _Hamlet_ , Act II, Scene I
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **19\. Puking (disputed)**
@@ -177,10 +181,6 @@ _Hamlet_ , Act V, Scene I
 
 _A Midsummer Night’s Dream_ , Act III, Scene I
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **23.** Tranquil
 
 _Othello_ , Act III, Scene III
@@ -190,7 +190,7 @@ _Othello_ , Act III, Scene III
 _Macbeth_ , Act III, Scene IV
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **25\. Zany**
@@ -205,7 +205,7 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Improve thy English with speed
@@ -239,15 +239,15 @@ _Love’s Labour’s Lost_ , Act V, Scene II
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-music-infused-videos-perfecting-sound-with-inshot/"><u>[New] In 2024, Music-Infused Videos Perfecting Sound with InShot</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/5-effective-solutions-when-your-usb-mouse-wont-work-with-the-laptop/"><u>5 Effective Solutions When Your USB Mouse Won't Work with the Laptop</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-zte-blade-a73-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset ZTE Blade A73 5G without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-maximize-content-impact-with-youtubes-movie-maker-tools/"><u>In 2024, Maximize Content Impact with YouTube's Movie Maker Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-key-french-welcomes-perfect-salut-and-more/"><u>Learn Key French Welcomes: Perfect 'Salut' And More</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mandatory-syntax-or-flexible-communication/"><u>Mandatory Syntax or Flexible Communication?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/time-invested-in-language-acquisition-vs-outcomes/"><u>Time Invested in Language Acquisition vs Outcomes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-basic-french-phonetic-patterns-as-beginners/"><u>Understanding Basic French Phonetic Patterns as Beginners</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-the-best-of-the-best-top-8-video-metadata-editors-for-mac/"><u>Updated 2024 Approved The Best of the Best Top 8 Video Metadata Editors for Mac</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/why-you-should-consider-getting-an-apple-watch-expert-opinions-and-key-advantages/"><u>Why You Should Consider Getting an Apple Watch: Expert Opinions and Key Advantages</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-prime-products-best-free-and-paid-macpc-video-decoders-for-2024/"><u>[New] Prime Products Best Free & Paid Mac/PC Video Decoders for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-simple-steps-to-document-online-meetings-on-os-xwindows/"><u>[Updated] Simple Steps to Document Online Meetings on OS X/Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparing-englishes-across-seas/"><u>Comparing Englishes Across Seas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descifrar-la-hora-en-espanol-un-comienzo/"><u>Descifrar La Hora en Español: Un Comienzo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-watcher-to-writer-embrace-the-linguistic-journey-of-ks/"><u>From Watcher to Writer: Embrace the Linguistic Journey of KS</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-oppo-reno-10-5g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Oppo Reno 10 5G Phone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-windows-thumbnail-display-errors/"><u>Overcoming Windows Thumbnail Display Errors</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solution-steps-for-fixing-bluetooth-connectivity-problems-in-windows-11/"><u>Solution Steps for Fixing Bluetooth Connectivity Problems in Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-worlds-vocabulary-dollars-into-english/"><u>The World’s Vocabulary Dollars Into English</u></a></li>
 </ul></div>
 

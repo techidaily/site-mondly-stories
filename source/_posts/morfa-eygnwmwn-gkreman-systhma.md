@@ -1,7 +1,7 @@
 ---
 title: Μόρφα Ευγνώμων Γκρεμάν Συστήμα
-date: 2024-12-14T19:19:25.635Z
-updated: 2024-12-16T19:51:11.530Z
+date: 2024-12-24T16:35:10.454Z
+updated: 2024-12-25T16:47:01.776Z
 tags:
   - speak
   - english
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
  In this quick Greek lesson, we’ll show you only the practical ways to say thank you in Greek. The thanks you’ll actually need and use in real life. Additionally, we’ll also go over how to say ‘please’ or ‘you’re welcome’ in Greek. As a result, you’ll know exactly what to say and when to say it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What does efcharistó mean in Greek?
 
  **(Ευχαριστώ)_Efcharistó_ is the most popular way to say ‘thank you’ in Greek.** More similar to ‘thanks’ than ‘thank you’,[_efcharistó_](https://greekerthanthegreeks.com/2015/12/lost-in-translationword-of-day.html) is an informal way of expressing gratitude. Generally, it is most commonly used as a response to a small act of kindness or a basic courtesy from a friend, family member or colleague.
@@ -35,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
  A funny but very good mnemonic for remembering how to say_efcharistó_ is to think of it as ‘ef-harry’s-toe’.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The informal ‘thank you’ in Greek
@@ -45,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
  However, if you want to say more than just ‘thanks’, **you can say σ’ ευχαριστώ_(s’ efcharistó)_ which is ‘thank you’ in Greek.** Although informal_, s’ efcharistó_ is more similar to ‘thank you’ and can be used safely when giving thanks to friends or colleagues.
 
  If you are especially thankful to them, you can also say ευχαριστώ πολύ_(efcharistó poli)_ which means ‘thanks a lot’. Or even ευχαριστώ πάρα πολύ_(efcharistó para poli)_ meaning ‘thank you very much’.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The formal ‘thank you’ in Greek
 
@@ -56,11 +56,11 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
 ![taverna in Greece](https://edge.mondly.com/blog/wp-content/uploads/2021/10/thanks-in-greek-960x720.jpg "All The Best Ways To Say Thank You In Greek 3")
 
- “Mýkonos, Greece” by Johnny Chen©
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ “Mýkonos, Greece” by Johnny Chen©
 
 ## Examples of Greek thanks
 
@@ -73,10 +73,6 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 * Είμαι ευγνώμων. _(Eímai evgnómon.)_ – I am grateful/thankful.
 * Το εκτιμώ. _(To ektimó.)_ – I appreciate it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say ‘please’ and ‘you’re welcome’ in Greek
 
  Are you familiar with the German ‘_Bitte’_ or the Italian ‘_prego’_ that seem to mean everything from ‘please’ to ‘go ahead’ and ‘you’re welcome’?
@@ -84,6 +80,10 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
  Well, the Greek παρακαλώ_(parakaló)_ works the same. If you want to say ‘please’ in Greek, you say παρακαλώ_(parakaló)._ If you want to say ‘you’re welcome’, παρακαλώ_(parakaló)_ works just fine again. If only everything would be so easy when learning Greek!
 
  But let’s not get ahead of ourselves and forget about the formal variation. To address someone older or a group of people, you should use the formal σας παρακαλούμε_(sas parakaloúme)_ . Did you recognize the_σας (sas)_ particle? If yes, then congratulations! That means you’re on the right track.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## When should you say ‘thank you’ in Greek?
 
@@ -95,7 +95,7 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in Greek
@@ -128,21 +128,18 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-discovering-video-opportunities-with-google-trend-analysis-for-2024/"><u>[Updated] Discovering Video Opportunities with Google Trend Analysis for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-eradicating-unwanted-bg-elements-effortlessly-with-figma-for-2024/"><u>[Updated] Eradicating Unwanted BG Elements Effortlessly with Figma for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-attract-1000-viewers-quickly-on-youtube/"><u>[Updated] In 2024, Attract 1,000 Viewers Quickly on YouTube</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-most-reliable-slow-motion-camera-apps-apple-and-android/"><u>[Updated] Most Reliable Slow Motion Camera Apps, Apple & Android</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/apemovaviaac/"><u>APE格式節省成本：Movavi提供無限制的線上AAC類型轉換</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enchant-locals-speak-20plus-italian-idioms-right-away/"><u>Enchant Locals: Speak 20+ Italian Idioms Right Away</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enterprise-grade-data-sanitization-with-bitraser-video-guide/"><u>Enterprise-Grade Data Sanitization with BitRaser Video Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-russian-phrases-your-passport-to-conversation/"><u>Essential Russian Phrases: Your Passport to Conversation</u></a></li>
-<li><a href="https://win11.techidaily.com/excel-data-consolidation-essentials-uniting-various-tables-with-ease/"><u>Excel Data Consolidation Essentials: Uniting Various Tables with Ease</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/explore-the-boundaries-of-mobile-connectivity-with-metro-by-t-mobile-nationwide-coverage/"><u>Explore the Boundaries of Mobile Connectivity with Metro by T-Mobile Nationwide Coverage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-the-thrill-of-digital-arabic-study-with-mondlys-help/"><u>Explore the Thrill of Digital Arabic Study with Mondly's Help</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressing-affection-linguistic-love-strategies/"><u>Expressing Affection: Linguistic Love Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/farsi-chronicles-insights-from-yesteryears-to-today/"><u>Farsi Chronicles: Insights From Yesteryears to Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fast-norsk-fluency-daily-ten-minute-boosts/"><u>Fast Norsk Fluency - Daily Ten-Minute Boosts!</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-vivo-v30-lite-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Vivo V30 Lite 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-peak-performance-tools-best-4k-cameras-for-professionals/"><u>[New] 2024 Approved Peak Performance Tools Best 4K Cameras for Professionals</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-techniques-to-broadcast-youtube-media-on-facebook-platforms-for-2024/"><u>[Updated] Techniques to Broadcast YouTube Media on Facebook Platforms for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-nubia-red-magic-9-pro-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Nubia Red Magic 9 Pro Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-darkness-to-brilliance-mastering-iphones-hdr-techniques/"><u>In 2024, From Darkness to Brilliance Mastering iPhone's HDR Techniques</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inaugural-app-fusing-voice-and-augmented-reality/"><u>Inaugural App Fusing Voice & Augmented Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-into-hangul-easy-steps-to-language-mastery/"><u>Journey Into Hangul: Easy Steps to Language Mastery</u></a></li>
+<li><a href="https://blog-min.techidaily.com/leading-phone-tone-design-studios-ideal-solutions-for-iphones-androids-and-desktops/"><u>Leading Phone Tone Design Studios: Ideal Solutions for iPhones, Androids and Desktops</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/mac-tutorial-shrinking-jpeg-images-without-compromising-quality-simple-steps-inside/"><u>Mac Tutorial: Shrinking JPEG Images without Compromising Quality - Simple Steps Inside!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-study-fast-track-to-proficiency/"><u>Polish Study: Fast Track to Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-triad-of-language-education-break-barriers-speak-new-tongues/"><u>Top Triad of Language Education: Break Barriers, Speak New Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-swedish-phonetics-with-flair-and-speed/"><u>Unlock Swedish Phonetics with Flair & Speed</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/what-is-blue-video-icon-on-facebook-messenger/"><u>What Is Blue Video Icon on Facebook Messenger?</u></a></li>
 </ul></div>
 

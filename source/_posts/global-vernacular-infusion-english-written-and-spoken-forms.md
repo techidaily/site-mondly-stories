@@ -1,7 +1,7 @@
 ---
 title: "Global Vernacular Infusion: English' Written and Spoken Forms"
-date: 2024-12-13T18:51:08.019Z
-updated: 2024-12-16T16:39:14.598Z
+date: 2024-12-23T16:51:31.042Z
+updated: 2024-12-25T16:56:29.710Z
 tags:
   - speak
   - english
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where did English Come From?
@@ -41,10 +41,6 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
  Early Modern English began in the late 15th century with the Renaissance trend of borrowing Latin and Greek words and roots, which also coincided with the Great Vowel Shift. The era culminated in the King James Bible and the works of William Shakespeare.
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## English Words from Foreign Languages
 
@@ -89,16 +85,12 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -130,7 +122,7 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish loanwords: English words that are actually Spanish
@@ -154,6 +146,10 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 | Guacamole  |
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
 
@@ -182,6 +178,10 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 | Balcony   |
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## German loanwords: English words that are actually German
 
@@ -265,24 +265,21 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-youtube-tv-demystified-your-complete-reference/"><u>[New] 2024 Approved YouTube TV Demystified Your Complete Reference</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-step-by-step-producing-youtube-trailers-using-filmora/"><u>[New] Step-by-Step Producing YouTube Trailers Using Filmora</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/adepts-compendium-of-fullscreen-insights-in-premiere-pro-for-2024/"><u>Adept's Compendium of Fullscreen Insights in Premiere Pro for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-analysis-google-voice-a-user-review/"><u>Comprehensive Analysis: Google Voice - A User Review</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/die-top-4-wege-zum-laden-von-dell-dateien-auf-einen-anderen-computer/"><u>Die Top-4 Wege Zum Laden Von Dell-Dateien Auf Einen Anderen Computer</u></a></li>
-<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-nokia-150-2023-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Nokia 150 (2023) Location Settings | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expedited-pathway-to-turkeys-language-a-comprehensible-alphabet-and-pronunciation-guide/"><u>Expedited Pathway to Turkey's Language: A Comprehensible Alphabet & Pronunciation Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-home-methods-for-fluent-french-speakers/"><u>Exploring Home Methods for Fluent French Speakers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressing-gratitude-efficiently-the-best-16-ways-in-deutsch/"><u>Expressing Gratitude Efficiently: The Best 16 Ways In Deutsch</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fast-track-your-czech-through-online-resources/"><u>Fast Track Your Czech Through Online Resources</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-steps-in-spanish-numerals/"><u>First Steps in Spanish Numerals</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fluent-in-fringe-vernaculars-of-great-britain/"><u>Fluent in Fringe Vernaculars of Great Britain</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fond-expressions-love-languages-of-tuscany/"><u>Fond Expressions: Love Languages of Tuscany</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-dreams-to-mastery-the-mondlylanguages-journey/"><u>From Dreams to Mastery - The MondlyLanguages Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/future-fluency-cutting-edge-language-education-trends/"><u>Future Fluency: Cutting-Edge Language Education Trends</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Poco X5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-poco-c50-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Poco C50 to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/no-watermark-video-joiners-our-top-picks/"><u>No-Watermark Video Joiners Our Top Picks</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/prime-selections-the-best-free-screencasting-apps-for-2024/"><u>Prime Selections The Best Free Screencasting Apps for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-elite-video-call-and-chat-service-selections/"><u>[Updated] Elite Video Call & Chat Service Selections</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-quick-quality-grabs-for-your-vids/"><u>[Updated] In 2024, Quick, Quality Grabs for Your Vids</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unlocking-image-clarity-techniques-for-online-cropping/"><u>[Updated] Unlocking Image Clarity Techniques for Online Cropping</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-virtualblender-for-all-operating-systems-for-2024/"><u>[Updated] VirtualBlender for All Operating Systems for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-acid-pro-alternatives-a-comprehensive-guide/"><u>2024 Approved ACID Pro Alternatives A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-chatgpt-enterprise-features-benefits-and-unique-advantages/"><u>Exploring ChatGPT Enterprise: Features, Benefits & Unique Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-french-made-easy-with-essential-proverbs-and-sayings/"><u>Fluent French Made Easy with Essential Proverbs & Sayings</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-proven-strategies-for-picking-the-most-accurate-free-srt-tools/"><u>In 2024, Proven Strategies for Picking the Most Accurate Free SRT Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-barrier-breakthroughs-with-an-epic-95-savings-opportunity/"><u>Language Barrier Breakthroughs with an Epic 95% Savings Opportunity!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-language-lore-best-quotations-and-proverbs-of-ancient-rome/"><u>Latin Language Lore: Best Quotations & Proverbs of Ancient Rome</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719574684003-learn-slovak-online-in-just-10-minutes-a-day/"><u>Learn Slovak Online In Just 10 Minutes A Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-named-superlative-google-play-best-of-2017/"><u>Mondly Kids App Named Superlative Google Play Best of 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/politeness-profiles-the-art-of-saying-thanks-across-cultures-154/"><u>Politeness Profiles: The Art of Saying Thanks Across Cultures (154)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-straight-ahead-top-10-simple-language-selections/"><u>Speak Straight Ahead: Top 10 Simple Language Selections</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/toms-computer-review-comprehensive-guide-and-analysis/"><u>Tom's Computer Review: Comprehensive Guide and Analysis</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/upgrading-retro-a-guide-to-watching-vintage-dvd-movies-on-new-m-series-mac-computers-insights/"><u>Upgrading Retro: A Guide to Watching Vintage DVD Movies on New M-Series Mac Computers - Insights</u></a></li>
 </ul></div>
 

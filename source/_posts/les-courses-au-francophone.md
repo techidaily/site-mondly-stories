@@ -1,7 +1,7 @@
 ---
 title: Les Courses Au Francophone
-date: 2024-12-12T19:11:20.437Z
-updated: 2024-12-16T20:12:38.470Z
+date: 2024-12-18T16:57:05.346Z
+updated: 2024-12-25T16:01:50.585Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/dc5fff1a9acb5e2e1b1bb4c72b06c12c5151a76a3
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Days of the week in French
@@ -78,7 +78,7 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -125,14 +125,20 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/mpgmp3movavi-mp4mpeg/"><u>「自由下載移動畫格(MPG)到MP3格式：Movavi 的無限制 MP4/MPEG 媒體編譯器」</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-premium-choices-in-video-capture-tools-for-websites/"><u>2024 Approved Premium Choices in Video Capture Tools for Websites</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-new-worlds-mondly-language-app-for-oculus-quest-users/"><u>Exploring New Worlds: Mondly Language App for Oculus Quest Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/foreign-films-unveiling-the-world-of-words/"><u>Foreign Films Unveiling the World of Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/frisian-and-frankish-origins-of-nederlands/"><u>Frisian and Frankish Origins of Nederlands</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/futuretongues-at-dubai-2020-the-linguistic-showcase/"><u>FutureTongues at Dubai 2020: The Linguistic Showcase</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-restore-disappeared-mouse-icon-for-windows-10-users/"><u>How to Restore Disappeared Mouse Icon for Windows 10 Users</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/iphone-app-struggles-9-reliable-ways-to-get-your-chatgpt-up-and-running-again/"><u>IPhone App Struggles? 9 Reliable Ways to Get Your ChatGPT Up and Running Again</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-zte-axon-40-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-guiding-principles-for-modifying-photographic-identities-on-major-social-platforms-for-2024/"><u>[New] Guiding Principles for Modifying Photographic Identities on Major Social Platforms for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-the-ultimate-list-of-untapped-facebook-meme-havens/"><u>[New] In 2024, The Ultimate List of Untapped Facebook Meme Havens</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-the-most-effective-16-youtube-intros-for-2024/"><u>[New] Ultimate Guide to the Most Effective 16 YouTube Intros for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210286082-9781801346238-10-hours-of-guided-meditations-for-anxiety-relaxation-deep-sleep/"><u>10 Hours Of Guided Meditations For Anxiety, Relaxation & Deep Sleep | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-multilingual-at-your-fingertitsps-with-mondlyvr/"><u>Becoming Multilingual at Your Fingertitsps with MondlyVR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-new-ways-modern-linguistic-mastery-in-the-21st-century/"><u>Embracing New Ways: Modern Linguistic Mastery in the 21St Century</u></a></li>
+<li><a href="https://games-able.techidaily.com/keep-gaming-secure-dont-use-ps5-microphone/"><u>Keep Gaming Secure: Don't Use PS5 Microphone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/leverage-cookiebot-for-optimized-website-traffic-growth/"><u>Leverage Cookiebot for Optimized Website Traffic Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ninety-three-key-spanish-travel-terms-for-enhanced-exploration/"><u>Ninety-Three Key Spanish Travel Terms for Enhanced Exploration</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209593222-9781921596858-sayings-of-the-buddha-and-other-masters/"><u>Sayings of the Buddha and Other Masters | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-love-german-flirts/"><u>The Language of Love: German Flirts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/time-efficient-tutorial-for-japanese-numerals/"><u>Time-Efficient Tutorial for Japanese Numerals</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-helldivers-2-pc-crashes-reliable-methods-for-a-smooth-gaming-experience/"><u>Troubleshooting Helldivers 2 PC Crashes: Reliable Methods for a Smooth Gaming Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vintage-wisdom-the-most-influential-50-latin-aphorisms/"><u>Vintage Wisdom: The Most Influential 50 Latin Aphorisms</u></a></li>
+<li><a href="https://solve-info.techidaily.com/windows-11youtubesd/"><u>Windows 11でパソコンからYouTube音楽をSDカードへ転送するための完全ガイド</u></a></li>
 </ul></div>
 

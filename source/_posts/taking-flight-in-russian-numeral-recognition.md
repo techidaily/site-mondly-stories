@@ -1,7 +1,7 @@
 ---
 title: Taking Flight in Russian Numeral Recognition
-date: 2024-12-13T17:04:13.629Z
-updated: 2024-12-16T17:22:41.086Z
+date: 2024-12-24T16:50:22.646Z
+updated: 2024-12-25T16:38:06.244Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
  Whether you need to find out what’s the price for a matryoshka, ask a stranger when is the next bus arriving or give someone your phone number, knowing the Russian numbers is definitely essential. On top of that, they are not even that hard to learn. Once you learn how to count to ten, counting to 100 is a piece of cake.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Russian numbers 1-10
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 ![russian numbers 1-10](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-1-10-600x424.jpg "Russian Numbers - Learn How To Count In Russian 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian numbers 1-10
@@ -54,6 +54,10 @@ If you did manage, good job! You must be a natural.
 
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Russian numbers 11-20
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
@@ -65,7 +69,7 @@ If you did manage, good job! You must be a natural.
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian tens
@@ -85,7 +89,7 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian hundreds
@@ -93,10 +97,6 @@ And guess what! It works the same with the hundreds.
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
 
 Not as hard as you’d expect, is it?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Russian ordinal numbers
 
@@ -143,18 +143,19 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-drone-lineages-and-lines/"><u>[New] 2024 Approved Drone Lineages and Lines</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-clearing-up-false-facade-in-virtual-conversations-fb-for-2024/"><u>[Updated] Clearing Up False Facade in Virtual Conversations FB for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-abletons-art-of-softening-soundscapes/"><u>[Updated] In 2024, Ableton's Art of Softening Soundscapes</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/choosing-the-right-tablet-ipad-kindle-or-nook-a-comprehensive-guide/"><u>Choosing the Right Tablet: IPad, Kindle or Nook - A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-samsung-galaxy-watch-active-2-analysis-enhanced-connections-and-intelligent-features/"><u>Comprehensive Samsung Galaxy Watch Active 2 Analysis: Enhanced Connections & Intelligent Features</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/creating-memorable-beginnings-imovie-tips-for-youtube-videos/"><u>Creating Memorable Beginnings IMovie Tips for YouTube Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-multilingualism-in-europe-a-celebration-journey/"><u>Exploring Multilingualism in Europe - A Celebration Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/forties-fluency-the-joy-and-wisdom-found-in-multilingualism/"><u>Forties Fluency: The Joy and Wisdom Found in Multilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/forty-plus-fluency-unleashing-the-power-of-multilingualism-today/"><u>Forty-Plus Fluency: Unleashing the Power of Multilingualism Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fundamentos-de-la-hora-en-espanol-para-iniciados/"><u>Fundamentos De La Hora en Español Para Iniciados</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Samsung Galaxy A25 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-syncing-your-pre-recording-with-real-time-facebook-broadcasts/"><u>In 2024, Syncing Your Pre-Recording with Real-Time Facebook Broadcasts</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-video-setup-starter-kit-for-excursion-documentation/"><u>[Updated] 2024 Approved Video Setup Starter Kit for Excursion Documentation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-full-picture-a-comprehensive-review-of-android-lightroom-for-2024/"><u>[Updated] The Full Picture A Comprehensive Review of Android Lightroom for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-ideal-methods-for-streaming-and-archiving-sports-events/"><u>2024 Approved Ideal Methods for Streaming and Archiving Sports Events</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-from-iphone-14-plus-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock From iPhone 14 Plus Online</u></a></li>
+<li><a href="https://extra-information.techidaily.com/craft-your-own-podcast-success-with-writing-tips-and-sample-templates/"><u>Craft Your Own Podcast Success with Writing Tips and Sample Templates</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-itel-s23plus-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Itel S23+ Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kinder-to-grade-school-in-spanish-a-kids-journey/"><u>Kinder to Grade School in Spanish: A Kid's Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-liberation-mondlys-no-cost-offering-awaits-ukraines-learners/"><u>Language Learning Liberation: Mondly's No-Cost Offering Awaits Ukraine's Learners</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/master-the-fix-for-playback-hiccups-in-your-presentation-audios/"><u>Master the Fix for Playback Hiccups in Your Presentation Audios</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/smooth-sailing-in-transforming-ppt-slides-into-videos-for-2024/"><u>Smooth Sailing in Transforming PPT Slides Into Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-roadmap-to-korean-mastery-selecting-your-best-resources/"><u>The Roadmap to Korean Mastery: Selecting Your Best Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-in-british-conversation-a-reference-guide/"><u>Thriving in British Conversation: A Reference Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-linguistic-skills-through-dark-on-streaming/"><u>Transform Your Linguistic Skills Through Dark on Streaming</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-simplified-han-characters/"><u>Understanding Simplified Han Characters</u></a></li>
 </ul></div>
 

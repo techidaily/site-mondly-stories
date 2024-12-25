@@ -1,7 +1,7 @@
 ---
 title: "Israel Expedition Essentials: Practical Advice & Useful Dialogue"
-date: 2024-12-15T20:38:44.966Z
-updated: 2024-12-16T18:11:49.905Z
+date: 2024-12-23T17:03:00.805Z
+updated: 2024-12-25T16:50:15.464Z
 tags:
   - speak
   - english
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
  So here are some tips and all the basic Hebrew phrases you need to know before packing your bags for the long-awaited trip to Israel.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Here’s what you should know before traveling to Israel
 
 **The best time to go to Israel:** If you want to sunbathe on the beaches of Tel Aviv or snorkel in Eilat, the best time to go to Israel is between June and September. On the other hand, if you are a person that feels more comfortable with lower temperatures, the periods between April – May and October-November are the best for you to explore the country and spend time in Jerusalem. However, during these months you should pack clothes that you can wear in layers because the weather can change fast from really sunny to cold and vice-versa.
@@ -43,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 ![hebrew phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/09/hebrew-phrases-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Mahane Yehuda Market, Jerusalem, Israel” by Roxanne Desgagnés©
@@ -86,10 +82,6 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
  Before moving on to the Hebrew travel phrases that will make your vacation ten times better (yes, learning the language of the natives does that!), let’s discover the top five most beautiful places in Israel. Like we already mentioned, this country is a dream. From beaches to gardens and holy sanctuaries. So let’s discover the most beautiful of them.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Jerusalem and Nazareth
 
  Even if you are not a believer, Jerusalem and Nazareth are still a must. In addition to their great religious value, these cities are rich in art, culture and thousands of years of history. You’ll undoubtedly love every minute spend exploring their streets and never forget your experience there.
@@ -100,14 +92,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 ![hebrew words](https://edge.mondly.com/blog/wp-content/uploads/2019/09/hebrew-words-1024x767.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Tel Aviv-Yafo, Israel” by Shai Pal©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. The Dead Sea
@@ -115,6 +103,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
  With its surface and shores at 1,412 ft (430.5 meters) below sea level, The Dead Sea is Earth’s lowest elevation on land. With only that fact in mind, The Dead Sea immediately becomes a must-see place not only for Israel but for the entire world. On top of it all, it is also one of the world’s saltiest bodies of water.
 
 ![travel to israel](https://edge.mondly.com/blog/wp-content/uploads/2019/09/travel-to-israel-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “The Dead Sea” by Dave Herring©
 
@@ -130,6 +122,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 ![israel hebrew](https://edge.mondly.com/blog/wp-content/uploads/2019/09/israel-hebrew-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Bahá’í Gardens, Haifa” by Denis Vdovin©
 
 ## Get ready to enjoy Israel with these basic Hebrew travel phrases
@@ -139,6 +135,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
  Traveling can be both amazing and stressful. What if you lose your luggage? What if you need to go to the toilet but you don’t know where to find one? What if nobody speaks English? Avoid stressful situation like these. Language should never be a barrier. Learn these basic Hebrew phrases beforehand and enjoy your trip to the fullest.
 
  First, we will explore Hebrew greetings, continue with some common ways to ask for help in Hebrew, basic phrases for when you’ll go to an Israeli restaurant and some basic phrases for shopping sprees. Happy learning!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hebrew Greetings and other basics
 
@@ -174,7 +174,7 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 * Where is a supermarket? –_איפה יש סופרמרקט? – Eyfo yesh soopermarket?_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Learn Hebrew to experience the local cuisine
@@ -186,10 +186,6 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 * I’d like an orange juice. –_אני רוצה מיץ תפוזים. – Anee rotseh meets tapoozeem._
 * I would like a salad. –_אני רוצה סלט. – Anee rotseh salat._
 * I would like a soup. –_אני רוצה מרק. – Anee rotseh marak._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Basic Hebrew phrases for shopping sprees
 
@@ -203,6 +199,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Here’s how to speak Hebrew in just 10 minutes a day
 
@@ -229,22 +229,16 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-auditory-storytelling-in-cinematic-openings/"><u>[New] Auditory Storytelling in Cinematic Openings</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-from-silence-to-soundtrack-making-music-centric-tiktoks/"><u>[New] In 2024, From Silence to Soundtrack Making Music-Centric TikToks</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-grandest-directors-trailers-for-2024/"><u>[Updated] Grandest Director's Trailers for 2024</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/easy-instructional-video-on-converting-avi-videos-to-mp4-using-vlc-software/"><u>Easy Instructional Video on Converting AVI Videos to MP4 Using VLC Software</u></a></li>
-<li><a href="https://win-answers.techidaily.com/five-effective-techniques-to-repair-a-malfunctioning-touchscreen-on-windows-10/"><u>Five Effective Techniques to Repair a Malfunctioning Touchscreen on Windows 10</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/grateful-words-across-borders-say-thank-you-in-30-languages-156/"><u>Grateful Words Across Borders: Say Thank You in 30 Languages (156)</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-10-premier-alternative-activities-to-watching-sports/"><u>In 2024, 10 Premier Alternative Activities to Watching Sports</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-celebrating-the-best-top-stop-motion-films-of-all-times/"><u>In 2024, Celebrating the Best Top Stop-Motion Films of All Times</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/intercultural-expression-essentials/"><u>Intercultural Expression Essentials</u></a></li>
-<li><a href="https://extra-information.techidaily.com/m1-edge-revolutionary-editors-uninterrupted-creativity/"><u>M1 Edge Revolutionary Editors, Uninterrupted Creativity</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/mastering-hevch265-a-comprehensive-guide-for-mac-users/"><u>Mastering HEVC/H.265: A Comprehensive Guide for Mac Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-crowned-at-2021-witsas-ict-summit/"><u>Mondly Crowned at 2021 WITSA's ICT Summit</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-latvian-lessons-achieve-proficiency-fast/"><u>Quick Latvian Lessons - Achieve Proficiency Fast</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-innate-ability-of-children-to-learn-multiple-languages/"><u>The Innate Ability of Children to Learn Multiple Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-english-contractions/"><u>The Ultimate Guide To English Contractions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-asian-linguistic-varieties-easy-reordering/"><u>Top Asian Linguistic Varieties: Easy Reordering</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukranian-language-skills-upgrade-in-minutes-a-day-106-chars/"><u>Ukranian Language Skills Upgrade in Minutes a Day (106 Chars)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-step-by-step-guide-for-capturing-fb-streams/"><u>[New] 2024 Approved Step-by-Step Guide for Capturing FB Streams</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/beginners-pathway-to-premium-gopro-accessories/"><u>Beginner’s Pathway to Premium GoPro Accessories</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-the-polyglot-pantheon-of-pedagogues/"><u>Celebrating the Polyglot Pantheon of Pedagogues</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/compatible-drivers-and-installation-process-for-the-samsung-960-evo-ssd-on-windows/"><u>Compatible Drivers and Installation Process for the Samsung 960 EVO SSD on Windows</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-set-up-dual-monitors-on-windows-11/"><u>How to Set Up Dual Monitors on Windows 11</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-cyrillic-code-in-minutes/"><u>Mastering the Cyrillic Code, In Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/policy-change-alert-privacy-update/"><u>Policy Change Alert - Privacy Update</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-learning-journey-with-mondly-app/"><u>Revolutionize Your Learning Journey with Mondly App</u></a></li>
+<li><a href="https://win-guides.techidaily.com/seamlessly-move-your-icloud-contacts-to-an-iphone-simple-techniques-revealed/"><u>Seamlessly Move Your iCloud Contacts to an iPhone: Simple Techniques Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swede-speak-simplified-phonetics-unleashed/"><u>Swede Speak Simplified: Phonetics Unleashed</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Toasting to 1,500 Educational Milestones
-date: 2024-12-12T21:05:10.632Z
-updated: 2024-12-16T17:01:51.578Z
+date: 2024-12-22T16:52:32.962Z
+updated: 2024-12-25T17:00:29.248Z
 tags:
   - speak
   - english
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/b5d7a060863d8900073e79dab85dc7e851c9bee60
  Today, we are thrilled to announce a new milestone: 1500 free daily lessons in 33 languages! Thank you for being a part of our story! No matter if you have joined Mondly from the beginning or just now.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1500 daily lessons – thousands of hours of content
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/b5d7a060863d8900073e79dab85dc7e851c9bee60
  If you never had premium, now would be the perfect time to get it because our new milestone marks thousands of hours of self-study material on over 40 topics such as travel, romance, fun or business. As a premium Mondly user you’ll get full access to all the 1500 daily lessons, 215 weekly quizzes and 50 monthly challenges we created for you since 2015 until now.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is a daily lesson?
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/b5d7a060863d8900073e79dab85dc7e851c9bee60
  To make the learning process more enjoyable for you, each Mondly daily lesson is a gamified experience: you swipe up and down, select the right answer, arrange letters into words and words into sentences, use your voice to repeat the correct pronunciation of certain words and earn points for every completed lesson. If you are motivated by having competition, do all the lessons and let the points decide your place in the national and international leaderboards.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why are they called “free daily lessons”?
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/b5d7a060863d8900073e79dab85dc7e851c9bee60
  Each daily lesson is only free for one day: the day it becomes available inside the app. After that, it becomes accessible only with a Mondly premium account.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Mondly?
@@ -89,15 +89,19 @@ So what are you waiting for?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-behind-the-scenes-of-podcast-scripts-tips-and-examples/"><u>[New] Behind the Scenes of Podcast Scripts Tips and Examples</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-harmonious-hubs-your-guide-to-posting-audio-on-youtube-for-2024/"><u>[New] Harmonious Hubs Your Guide to Posting Audio on YouTube for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-streamline-your-windows-pc-to-record-live-tv-with-ease/"><u>[Updated] In 2024, Streamline Your Windows PC to Record Live TV with Ease</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/a-comprehensive-guide-to-eliminating-lag-on-logitech-computer-devices/"><u>A Comprehensive Guide to Eliminating Lag on Logitech Computer Devices</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/bite-sized-biographical-look-for-2024/"><u>Bite-Sized Biographical Look for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honteruss-quest-for-excellence-and-inspiration/"><u>Honterus's Quest for Excellence & Inspiration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-long-does-it-take-in-hours-to-learn-a-language/"><u>How Long Does It Take in Hours to Learn a Language?</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-seamlessly-navigating-ifunnys-meme-space/"><u>In 2024, Seamlessly Navigating iFunny's Meme Space</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spoken-confidence-with-these-17-instantaneous-expressions/"><u>Spoken Confidence with These 17 Instantaneous Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voicemirror-vr-speaking-the-worlds-languages/"><u>VoiceMirror VR: Speaking the World's Languages</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-transformative-tutorials-into-thriving-treasuries/"><u>[New] 2024 Approved Transformative Tutorials Into Thriving Treasuries</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nhance-listening-pleasure-constructing-a-youtube-playlist-for-2024/"><u>[New] Enhance Listening Pleasure Constructing a YouTube Playlist for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-decelerate-creativity-your-path-to-spectacular-ig-reels/"><u>[New] In 2024, Decelerate Creativity Your Path to Spectacular IG Reels</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-innovate-iconoclastic-images-using-giphy-for-2024/"><u>[New] Innovate Iconoclastic Images Using Giphy for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-the-art-of-kinemaster-made-memes/"><u>[Updated] 2024 Approved The Art of KineMaster-Made Memes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-french-independently-methods-and-gear/"><u>Conquering French Independently - Methods and Gear</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expanding-cultural-horizons-through-language-past-fifty/"><u>Expanding Cultural Horizons Through Language Past Fifty</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-show-hidden-files-on-a-mac-with-terminal/"><u>How to Show Hidden Files on a Mac With Terminal</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oppo-find-n3-flip-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Oppo Find N3 Flip to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quiz-what-language-should-you-learn-next/"><u>Quiz: What Language Should You Learn Next?</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolved-overcoming-login-issues-on-steam/"><u>Resolved: Overcoming Login Issues on Steam</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578566177-revolutionary-3-language-schools-speak-new-words-effortlessly/"><u>Revolutionary 3 Language Schools: Speak New Words, Effortlessly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speed-learning-triple-the-cognitive-exercises-for-language-gains/"><u>Speed Learning: Triple the Cognitive Exercises for Language Gains</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-neurological-ease-of-kids-learning-new-linguistics/"><u>The Neurological Ease of Kids Learning New Linguistics</u></a></li>
 </ul></div>
 

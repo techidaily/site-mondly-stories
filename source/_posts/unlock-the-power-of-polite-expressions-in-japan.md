@@ -1,7 +1,7 @@
 ---
 title: Unlock the Power of Polite Expressions in Japan
-date: 2024-12-09T16:11:54.034Z
-updated: 2024-12-16T16:31:42.744Z
+date: 2024-12-20T16:56:07.438Z
+updated: 2024-12-25T16:36:19.115Z
 tags:
   - speak
   - english
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/2ba6e093c71356d417ecac5da46572ca39801b84e
  Japanese culture is the culture of respect. You don’t have to visit Japan to know that. We all heard about the famously polite**Japanese bow** and about the big emphasis Japanese people place on the respect of hierarchy in the family and etiquette in general. It’s in their DNA. And the same as its culture, the**Japanese language** is one of the most polite languages in the world. It’s true that, as a tourist, you don’t have to [learn Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to perfection, but you know what they say: when in Rome, do as the Romans do and you will certainly increase the enjoyment of your adventure.
 
  Learning as much as a simple **_Konnichiwa_ (“hello” in Japanese)** or **_Arigato_ (“thank you” in Japanese)** can work wonders. So here’s a guide to all the**Japanese greetings** you’ll need in your Japanese adventure: from**“hello” in Japanese** to**_Moshi Moshi_** (used to say “hello” on the phone), goodbye and other**common Japanese greetings.**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 1\. “Hello” in Japanese
 
@@ -70,7 +66,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
@@ -92,7 +88,15 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “See you soon, human” by Alain Pham©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -119,7 +123,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Kyoto, Japan” by Andre Benz©
@@ -139,10 +143,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -166,7 +166,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
@@ -201,18 +201,18 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/dynamic-shade-corrector/"><u>Dynamic Shade Corrector</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/eliminate-the-dll-missing-error-restoring-ssleay32dll-functionality-in-windows/"><u>Eliminate the Dll-Missing-Error: Restoring ssleay32.dll Functionality in Windows</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/infinitesound-concert-headphones-insights/"><u>InfiniteSound Concert Headphones Insights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/israel-exploration-hacks-essential-insights-and-expressions/"><u>Israel Exploration Hacks: Essential Insights & Expressions</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/new-hard-drive-fresh-start-install-windows-11-with-ease/"><u>New Hard Drive, Fresh Start: Install Windows 11 with Ease!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/newly-released-drivers-for-your-amd-radeon-pro-w5700-on-windows-install-today/"><u>Newly Released Drivers for Your AMD Radeon Pro W5700 on Windows - Install Today</u></a></li>
-<li><a href="https://android-frp.techidaily.com/poco-x6-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Poco X6 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sentence-structures-showdown-south-american-vs-continental/"><u>Sentence Structures Showdown: South American Vs. Continental</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-new-augmented-reality-app-from-mondly-is-the-future-of-language-learning/"><u>The New Augmented Reality App From Mondly Is the Future of Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-100-frequently-miswritten-english-vocabulary-words/"><u>Top 100 Frequently Miswritten English Vocabulary Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-professional-eloquence-complete-business-language-mastery/"><u>Unlock Professional Eloquence: Complete Business Language Mastery</u></a></li>
-<li><a href="https://some-tips.techidaily.com/unlocking-quantum-hdr-your-comprehensive-guide-for-2024/"><u>Unlocking Quantum HDR Your Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723208356444-unlocking-screen-mirroring-on-your-device-upgraded-graphics-drivers-make-it-possible/"><u>Unlocking Screen Mirroring on Your Device: Upgraded Graphics Drivers Make It Possible!</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-ideal-steps-for-silent-screen-imaging-for-2024/"><u>[Updated] Ideal Steps for Silent Screen Imaging for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-must-visit-websites-for-obtaining-desired-youtube-ringtones/"><u>2024 Approved Must-Visit Websites for Obtaining Desired YouTube Ringtones</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/enhancing-your-display-with-amd-radeon-video-card-drivers-update-2410/"><u>Enhancing Your Display with AMD Radeon Video Card Drivers Update 24.10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-english-100-words-that-often-go-awry/"><u>Essential English: 100 Words That Often Go Awry</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-infinix-note-30-pro-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Infinix Note 30 Pro for Free? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/los-maximos-extractores-de-dvd-libres-y-de-fuente-abierta-para-computadoras-apple-actualizacion-de-2024/"><u>Los Máximos Extractores De DVD Libres Y De Fuente Abierta Para Computadoras Apple (Actualización De 2024)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-words-new-year-save-on-linguistic-adventures-with-our-deal/"><u>New Words, New Year: Save on Linguistic Adventures with Our Deal!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sharpen-the-tongue-top-3-mental-workouts-for-easier-learning/"><u>Sharpen the Tongue: Top 3 Mental Workouts for Easier Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-global-morning-routine-saying-hello-in-10-languages/"><u>The Global Morning Routine: Saying Hello in 10 Languages</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-ultimate-guide-to-amazon-lunas-seamless-cloud-gaming-performance/"><u>The Ultimate Guide to Amazon Luna's Seamless Cloud Gaming Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-universal-chorus-of-commendable-educationists/"><u>The Universal Chorus of Commendable Educationists</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ultimate-black-friday-laptop-savings-guide-premier-deals-awaiting-in-oct-24-on-zdnet/"><u>Ultimate Black Friday Laptop Savings Guide: Premier Deals Awaiting in Oct '24 on ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577092436-why-learn-croatian-unveil-the-top-7-compelling-benefits/"><u>Why Learn Croatian? Unveil the Top 7 Compelling Benefits</u></a></li>
 </ul></div>
 

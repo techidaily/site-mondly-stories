@@ -1,7 +1,7 @@
 ---
 title: "Spelling Slip-Ups Exposed: England's Leading Lexical Errors"
-date: 2024-12-13T18:40:52.667Z
-updated: 2024-12-16T16:20:42.874Z
+date: 2024-12-19T17:01:15.867Z
+updated: 2024-12-25T16:03:25.105Z
 tags:
   - speak
   - english
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/97bffd7aabaab6ce88cfb81baf09f210aa957590a
 ## Top 10 Most Commonly Misspelled Words in English
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Awkward not akward
@@ -40,15 +40,15 @@ thumbnail: https://thmb.techidaily.com/97bffd7aabaab6ce88cfb81baf09f210aa957590a
 
 Careful, though – there are some exceptions to it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Embarrassed not embarassed
 
 Also commonly misspelled as: embarrased
 
  This is another classic case of two sets of double letters. You’ll reduce the chances of finding yourself in an embarrassing bad spelling situation if you remember this one.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Entrepreneur not enterpreneur
 
@@ -56,15 +56,15 @@ Also commonly misspelled as: entrepeneur , entreprenur , entreperneur
 
  We honestly can’t blame whoever misspells this one. It’s not only hard to spell but also [hard to pronounce](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . The reason? It’s a French word coming from the root entreprendre (‘undertake’).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Liaison not liasion
 
  There’s a reason why you’re never sure how to spell “liaison”, “bureaucracy”, “manoeuvre”, “questionnaire”, and “connoisseur”. They do not follow the same patterns because they are all [French words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 Your best bet is to just remember the correct spelling.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. License not lisence
 
@@ -76,6 +76,10 @@ Your best bet is to just remember the correct spelling.
 
  Remember the “I before E, except after C” rule? This is the kind of word where the rule applies. It also applies to “niece” and “siege”, but it doesn’t apply to “weird” or “seize”. So trust the rule, but keep in mind it has some exceptions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8\. Successful not successfull
 
 Also commonly misspelled as: succesful, sucessful
@@ -83,7 +87,7 @@ Also commonly misspelled as: succesful, sucessful
  There are so many double consonants in English that it becomes tempting to double them all sometimes. But for the love of English, don’t do that to “successful”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9\. Thorough not thourough
@@ -95,6 +99,10 @@ Also commonly misspelled as: succesful, sucessful
  This one is somehow similar to the “successful” situation, but not entirely. As a matter of fact, “until” was spelled with two Ls in the Middle Ages. If it helps you remember, you can think it just lost some weight but getting rid of the last L (unlike “still”).
 
 !["Hard words to spell" by Julia M Cameron©](https://edge.mondly.com/blog/wp-content/uploads/2022/12/hard-words-to-spell-960x641.jpg "Top 100 Most Misspelled Words In English 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Spelling Matters
 
@@ -122,10 +130,6 @@ Coming Soon
 * **You’re a perfectionist:** Contrary to what some people may think, being a perfectionist is not always a bad thing. If you’re a perfectionist, you won’t permit bad spelling to make you seem sloppy.
 * **You respect your readers:** Regardless of how many people will read your work, good spelling shows that you value the time they take to do it.
 * **You have a strong educational background:** Proficiency in spelling often indicates a good grasp of the language. It suggests that you had the opportunity to learn and practice language skills extensively.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Commonly Misspelled Words Table (Top 100)
 
@@ -237,7 +241,7 @@ Coming Soon
  Showing 1 to 100 of 100 entries
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for Improving Your Spelling
@@ -253,10 +257,6 @@ Let’s recap. To improve your spelling, you can:
 * **Practice proofreading:** In other words, carefully check for errors in your text before sharing or publishing it.
 * **Use spell-checkers:** Grammarly is the best at keeping your written communication tidy, but we can also rely on Word’s built-in spell-checker or even ask ChatGPT or Google when you’re not sure whether your word is spelled right or not.
 * **Memorize challenging words:** We all have some words we keep getting wrong. So, our recommendation would be to take a pen and a piece of paper and write them by hand a few times until they stick. It’s traditional but it works.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why Some Words Are Tricky
 
@@ -322,16 +322,18 @@ English words can be tricky to spell for several reasons:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-from-ineffectiveness-to-influence-with-smm-mastery/"><u>[New] From Ineffectiveness to Influence with SMM Mastery</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-the-ultimate-blueprint-for-your-mobile-youtube-businesspersonal-platform/"><u>[New] In 2024, The Ultimate Blueprint for Your Mobile YouTube Business/Personal Platform</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-the-art-of-zooming-in-youtube-videos/"><u>[New] The Art of Zooming in YouTube Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-igtv-essentials-an-in-depth-look-at-content-strategies/"><u>[Updated] In 2024, IGTV Essentials An In-Depth Look at Content Strategies</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-shadowed-reader-of-facebook-flashes-for-2024/"><u>[Updated] Shadowed Reader of Facebook Flashes for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/app-based-mastery-of-romanian-vocabulary/"><u>App-Based Mastery of Romanian Vocabulary</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brussels-dialects-and-beyond-a-linguistic-journey/"><u>Brussels Dialects and Beyond: A Linguistic Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578479086-celebrate-new-beginnings-by-saving-big-with-mondly-pros-free-access/"><u>Celebrate New Beginnings by Saving Big with Mondly Pro's Free Access!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577089071-clicking-through-revised-policies-now/"><u>Clicking Through: Revised Policies Now</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-language-hurdles-oxford-and-mondlys-blend/"><u>Conquer Language Hurdles - Oxford & Mondly's Blend</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-honor-100-pro-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Honor 100 Pro Phone FRP Lock</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-duel-masters-switch-edition-the-best-of-ten/"><u>[Updated] In 2024, Duel Masters Switch Edition - The Best of Ten</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-open-library-legal-gaming-tracks-downloadable/"><u>[Updated] Open Library Legal Gaming Tracks Downloadable</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-yuva-2-by-fonelab-android-recover-music/"><u>How to restore wiped music on Yuva 2</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-camera-selection-for-young-shooters-top-picks-24/"><u>In 2024, Camera Selection For Young Shooters - Top Picks '24</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/indonesias-hospitality-in-everyday-language/"><u>Indonesia's Hospitality in Everyday Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-5-mobile-apps-boosting-linguistic-training/"><u>Key 5 Mobile Apps Boosting Linguistic Training</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/leveraging-youtubes-adsense-for-maximum-profits-for-2024/"><u>Leveraging YouTube's AdSense for Maximum Profits for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-a-google-play-best-2017/"><u>Mondly Kids: A Google Play Best - 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/must-know-russian-lingo-for-travel-efficiency/"><u>Must-Know Russian Lingo for Travel Efficiency</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/the-impact-of-multi-view-video-technology-on-home-surveillance-for-2024/"><u>The Impact of Multi-View Video Technology on Home Surveillance for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/un-viaje-descubrimiento-en-anatomia-de-la-boca-a-los-rinones-en-espanol/"><u>Un Viaje Descubrimiento en Anatomía: De La Boca A Los Riñones En Español</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/understanding-twitters-new-video-format-codes/"><u>Understanding Twitter's New Video Format Codes</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-supercharge-your-video-editing-top-adobe-premiere-plugins-free/"><u>Updated Supercharge Your Video Editing Top Adobe Premiere Plugins (Free)</u></a></li>
 </ul></div>
 

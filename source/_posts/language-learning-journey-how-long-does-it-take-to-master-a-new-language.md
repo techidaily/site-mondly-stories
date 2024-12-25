@@ -1,7 +1,7 @@
 ---
 title: "Language Learning Journey: How Long Does It Take To Master A New Language?"
-date: 2024-12-13T16:34:14.434Z
-updated: 2024-12-16T19:37:02.298Z
+date: 2024-12-22T16:06:30.562Z
+updated: 2024-12-25T17:01:43.352Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
  English is the most international language on the globe. If you are a native English speaker, chances are, you can get along quite comfortably in most Western countries without learning a word in another language. In Europe especially, with enough luck, someone out there may know enough English to initiate and sustain basic communication situations.
 
  But of course, for various other reasons either personal, cultural or work-related, you will find yourself in need of learning a foreign language. The next natural question after deciding to learn a new language is: how many hours does it take to learn a foreign language and achieve fluency?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Estimated times to learn a new language
 
@@ -43,10 +47,6 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 * **Knowing more than one language helps —** languages with shared features with English are generally easier to learn, while those with significant cultural and linguistic differences may take longer to learn;
 * **The time spent learning depends on you** **—** The time it takes to learn a new language varies greatly depending on your motivation and dedication to the task.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Interagency Language Roundtable scale or the IRL scale
 
  The Interagency Language Roundtable is a grading scale used by the US government to scale [employees](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and diplomats working for the FSI (Foreign Service Institute). You’ll find this scale to be the most accurate when it comes to native English speakers learning a foreign language. Basically, what this scale does is establish the language difficulty.
@@ -64,7 +64,7 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
  But first, we need to clarify a certain aspect of learning foreign languages as a native English speaker: some languages are more difficult to learn than others. Why? Because English and some other languages haven’t been in contact with one another for thousands of years and have evolved in a totally different way. But studying languages that are completely different from English is not impossible. It takes longer, but you’ll eventually get there.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Easiest language to learn for English speakers
@@ -72,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
  The data presented below reflects a study held by the FSI (Foreign Service Institute) of the US government. Again, this is probably the most accurate data regarding how much time it takes for a native English speaker to become fluent in a particular new language.
 
  The FSI has over 800 language learning courses in more than 70 languages with more than 70 years of experience in training US diplomats and foreign affairs employees.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Tier 1:** Languages that are most closely related to English
 
@@ -106,7 +110,7 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 * already share a number of vocabulary words.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Tier 2:** Similar to English
@@ -158,10 +162,6 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
  The languages above are just a part of the European languages classified as tier 4 by the FSI. The list goes on with other languages from all over the world, like Mongolian, Nepali, Thai, Xhosa, Zulu or Hebrew. All of them take about 1100 hours or 44 weeks to become fluent in. Thus, when it comes to the difficulty of languages, this list does indeed include hard languages to learn, but not the hardest.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Hardest language to learn for English speakers
 
  All of the tier 5 languages are highly sophisticated and complex compared to English having an average learning curve of up to 4 times the period it takes for the average English speaker to learn Dutch for example. So arm yourself with a lot of patience and plenty of determination.
@@ -169,7 +169,7 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
  Based on all the data and testimonies English speakers made over the years, the hardest language to learn award may go to Japanese due to the thousands of characters you need to memorize while having three different writing varieties.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Tier 5:** Extraordinary level of difficulty
@@ -224,18 +224,24 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-maximizing-efficiency-streamlined-methods-to-download-vimeo-videos-for-2024/"><u>[New] Maximizing Efficiency Streamlined Methods to Download Vimeo Videos for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-top-50plus-overlays-for-engaging-media-content/"><u>[New] Top 50+ Overlays for Engaging Media Content</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-unfailing-focus-top-tripods-for-iphone-and-android-cameras-for-2024/"><u>[New] Unfailing Focus Top Tripods for iPhone & Android Cameras for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-visual-storytelling-hack-crafting-youtube-thumbnails-on-mobiles/"><u>[Updated] Visual Storytelling Hack Crafting YouTube Thumbnails on Mobiles</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/a-marketer-writes-guide-to-utilizing-hashtags-effectively-on-facebook/"><u>A Marketer' Writes Guide to Utilizing Hashtags Effectively on Facebook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/happy-easter-in-different-languages-and-easter-traditions/"><u>Happy Easter in Different Languages & Easter Traditions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/incorporating-movies-in-linguistic-learning/"><u>Incorporating Movies in Linguistic Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-variety-in-the-pearl-river-delta/"><u>Linguistic Variety in the Pearl River Delta</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-messages-to-the-holy-weeks-birthday/"><u>Multilingual Messages to the Holy Week's Birthday</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Nokia C110 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-list-of-93-important-spanish-phrases-for-global-trips/"><u>The Ultimate List of 93 Important Spanish Phrases for Global Trips</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/universal-strategy-to-preserve-your-favorite-youtube-broadcasts-on-all-devices-for-2024/"><u>Universal Strategy to Preserve Your Favorite YouTube Broadcasts on All Devices for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/1726223806994-webm-mp4/"><u>オンラインで変換！高画質のみにフォーカス - WEBM MP4コンバーター無料版</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-flipping-scripts-generating-parody-content/"><u>[Updated] 2024 Approved Flipping Scripts Generating Parody Content</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-steps-to-become-fluent-in-french-at-home/"><u>5 Steps to Become Fluent in French at Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/babelburst-at-expo-dubai-2020-language-learnings-next-step/"><u>BabelBurst at Expo Dubai 2020: Language Learning's Next Step</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581148025-daily-slices-of-success-learn-slovak-online-10-minutes-each/"><u>Daily Slices of Success: Learn Slovak Online, 10 Minutes Each!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/elevate-your-storytelling-with-these-8-androidiphone-apps/"><u>Elevate Your Storytelling with These 8 Android/iPhone Apps</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/excellent-tech-for-premium-4k-editors/"><u>Excellent Tech for Premium 4K Editors</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016288639-fix-your-fortnite-voice-chat-issues-instantly-simple-solutions/"><u>Fix Your Fortnite Voice Chat Issues Instantly: Simple Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/genom-att-svida-visa-till-sverige/"><u>Genom Att Svida: Visa Till Sverige</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-classroom-alliance-connecting-educators/"><u>Global Classroom Alliance: Connecting Educators</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-i-fixed-my-disconnected-equipment-attached-to-the-computer-network/"><u>How I Fixed My Disconnected Equipment Attached to the Computer Network</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-uninstall-oneself-avoiding-admin-restrictions-in-windows/"><u>How To Uninstall Oneself: Avoiding Admin Restrictions in WINDOWS</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-vivo-s18-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Vivo S18? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-tools-for-smooth-trips-essential-93-spanish-expressions/"><u>Language Tools for Smooth Trips: Essential 93 Spanish Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-german-essential-expressions-list/"><u>Mastering German: Essential Expressions List</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-obstacles-in-tarkov-mastering-the-fix-for-error-103-grok003/"><u>Overcoming Obstacles in Tarkov: Mastering the Fix for Error 103 Grok003</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/paving-your-path-to-proficiency-crucial-grammar-tips-from-an-inspiring-esl-mentor/"><u>Paving Your Path to Proficiency: Crucial Grammar Tips From an Inspiring ESL Mentor</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/the-impact-of-visual-storytelling-maximizing-roi-through-fb-ad-animation-for-2024/"><u>The Impact of Visual Storytelling Maximizing ROI Through FB Ad Animation for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-tips-to-overcome-504-gateway-timeout-failures/"><u>Troubleshooting Tips to Overcome 504 Gateway Timeout Failures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncover-the-value-master-germans-ten-benefits/"><u>Uncover the Value: Master German's Ten Benefits</u></a></li>
 </ul></div>
 

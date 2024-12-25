@@ -1,7 +1,7 @@
 ---
 title: "Jeringas Lingüísticos en Inglés-Español: Conjunto De 50"
-date: 2024-12-09T16:56:26.423Z
-updated: 2024-12-10T17:09:56.672Z
+date: 2024-12-19T16:09:34.342Z
+updated: 2024-12-25T16:37:26.418Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  Luckily, we are coming to your aid with a comprehensive list of some of the most common English-Spanish cognates and false Spanish cognates. Read on to understand the differences and choose the correct words for your next conversation in Spanish.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What are cognates, false cognates and false friends?
 
  In linguistics,**cognates** are known as words from different languages that have the same root or origin and share the same meaning. For example, when it comes to English-Spanish cognates, the common root comes from Latin and/or Greek.
@@ -31,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 ![false friends words](https://edge.mondly.com/blog/wp-content/uploads/2020/04/false-friends-words-600x399.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “We are not false friends!” by Alvan Nee©
@@ -41,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  Do not worry though! In the following paragraphs, we will cover all the Spanish-English false friends you absolutely need to know in order to avoid… embarrassing situations.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Perfect English-Spanish cognates
@@ -55,10 +59,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  Did you know that about 90% of Spanish cognates have the same meaning in English? The rest of them are, obviously, false friends words. This means you have only a 10% chance of saying something embarrassing or awkward. That’s not too bad, isn’t it? Besides, after reading this article the percent will surely drop significantly. Even below 0 if you also start [learning Spanish with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4685&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es) right now (wink wink).
 
  But before going there, we have one more type of English-Spanish cognates: near-perfect cognates or words that have the same meaning in both languages, but slightly different spelling.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Spanish Cognates that change “-tion” to “-ción”
 
@@ -103,10 +103,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  “Mommy, what are cognates?” by Josh Applegate©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Spanish cognates that add an “-o”
 
 * academic and   _académic**o**_
@@ -119,10 +115,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * basic and   _básic**o**_
 * artistic and   _artístic**o**_
 * dynamic and   _dinámic**o**_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Spanish cognates that add an “-ar” or an “-ir”
 
@@ -151,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * especial**ly** and   _especial**mente**_
 * complete**ly** and   _completa**mente**_
 * exact**ly** and   _exacta**mente**_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish-English False Friend Words
 
@@ -181,6 +177,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  Even experienced Spanish second-language speakers get headaches with this one. Although it looks like the English “large”,_largo_ actually means “long” in Spanish. Mind-twisting, I know.
 
 ![false cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/false-cognates-600x400.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Haha! Gotcha!” by olio creative©
 
@@ -240,17 +240,15 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-danger-lurking-online-spotting-the-falsehood-of-fake-viewers-on-youtube/"><u>[New] 2024 Approved Danger Lurking Online Spotting the Falsehood of Fake Viewers on YouTube</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-craftsmanship-at-fingertips-discovering-apples-8-excellent-drawing-apps/"><u>[New] Craftsmanship at Fingertips Discovering Apple's 8 Excellent Drawing Apps</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-mellow-music-volume-control-for-mac-and-windows/"><u>[New] Mellow Music Volume Control for Mac & Windows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/8-life-altering-reasons-for-being-bilingual/"><u>8 Life-Altering Reasons for Being Bilingual</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/early-risers-late-sleepers-good-morning-in-10-different-languages/"><u>Early Risers, Late Sleepers: Good Morning In 10 Different Languages</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/effective-techniques-to-fully-eliminate-adchoices-pop-ups-permanently/"><u>Effective Techniques to Fully Eliminate AdChoices Pop-Ups Permanently</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/italian-travelers-100plus-helpful-italian-phrases-for-your-trip/"><u>Italian Travelers: 100+ Helpful Italian Phrases For Your Trip</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/leveraging-auto-gpt-a-guide-to-8-effective-uses-in-your-daily-life/"><u>Leveraging Auto-GPT: A Guide to 8 Effective Uses in Your Daily Life</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-youtube-video-edits-with-finalcut-pro/"><u>Mastering YouTube Video Edits with FinalCut Pro</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/by-step-into-youtube-creation-crafting-your-top-10-simple-projects-for-2024/"><u>Step-by-Step Into YouTube Creation Crafting Your Top 10 Simple Projects for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unfreezing-and-restoring-itunes-on-windows-devices/"><u>Unfreezing and Restoring iTunes on Windows Devices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-is-commonly-spoken-by-israelis/"><u>What Is Commonly Spoken by Israelis?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-top-10-must-have-accessories-for-sj4000/"><u>[New] 2024 Approved Top 10 Must Have Accessories for SJ4000</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-easy-guide-record-mov-files-on-win-11-pc/"><u>[Updated] 2024 Approved Easy Guide Record MOV Files on Win 11 PC</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-hero-session-vs-cube-a-face-off-in-video-editors/"><u>[Updated] Hero Session Vs. Cube A Face-Off in Video Editors</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-reverse-order-effortless-methods-for-list-rearrangement/"><u>[Updated] In 2024, Reverse Order Effortless Methods for List Rearrangement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581290254-brush-up-bulgarian-just-10-minutes/"><u>Brush Up Bulgarian - Just 10 Minutes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/demystifying-informal-language-slang-explained/"><u>Demystifying Informal Language: Slang Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-your-ai-partner-advanced-dialogue/"><u>Discover Your AI Partner: Advanced Dialogue</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-15-pro-to-other-iphone-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 15 Pro to other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-securely-download-youtubes-srt-subtitles/"><u>In 2024, How to Securely Download YouTube's SRT Subtitles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-six-compelling-reasons-for-online-arabic-with-mondly/"><u>Unveiling Six Compelling Reasons for Online Arabic with Mondly</u></a></li>
 </ul></div>
 

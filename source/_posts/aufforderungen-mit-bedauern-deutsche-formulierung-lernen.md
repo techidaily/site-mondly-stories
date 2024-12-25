@@ -1,7 +1,7 @@
 ---
 title: Aufforderungen Mit Bedauern – Deutsche Formulierung Lernen
-date: 2024-08-23T00:22:40.667Z
-updated: 2024-08-24T00:22:40.667Z
+date: 2024-12-22T16:02:16.317Z
+updated: 2024-12-25T16:48:18.036Z
 tags:
   - speak
   - english
@@ -20,11 +20,19 @@ thumbnail: https://thmb.techidaily.com/5070ff282ccb187d0c91a9e169ae0c941c19518a9
 
  Let’s look at the most important ways to say “sorry” in German and when to use each of them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## When should you say you’re sorry?
 
  What you need to remember is that learning how to say “sorry” in German also has a cultural component. It’s not enough to learn how to say you’re sorry; you also have to learn_when_ to say you’re sorry. Unlike Americans and even Brits who apologize quite a lot,**Germans tend to keep their sorrys to a minimum.** In fact, they say sorry so rarely that they can come off as rude to people of other nationalities.
 
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to apologize in German
 
@@ -39,8 +47,9 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to say sorry in German – the “Excuse me” sorry
 
  If you bump into someone on the street or cause a mishap, the most common way to say “sorry” in German is_**Entschuldigung**_ which literally means “apology!”. This is basically the “sorry” or the “excuse me” you say for a minor inconvenience. In other words, we’re talking about a slight bump or barely touching that person. If you knock them over, a cool_Entschuldigung_ won’t do, so you should probably apologize sincerely.
@@ -50,8 +59,9 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Other ways to say sorry in German
 
  As you very well know, there can also be other situations where you need to say “sorry” in German. For example, the “can you repeat that?” sorry is quite common. Of course, you can always say_“Entschuldigung?”_ together with the proper facial expression, but sometimes that might not be enough.
@@ -95,8 +105,9 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### From 0 to conversational in German
 
  Do you want to stop apologizing for your pronunciation? Get Mondly, the award-winning language app that will help you [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1.
@@ -119,8 +130,6 @@ Here are some practical examples of apologies in German:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -128,8 +137,26 @@ Here are some practical examples of apologies in German:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-expert-photoshop-tricks-conceal-faces-and-spaces/"><u>[New] Expert Photoshop Tricks Conceal Faces & Spaces</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-riding-the-wave-strategies-for-high-likes-tiktok-unpacking-videos/"><u>[New] Riding the Wave Strategies for High-Likes TikTok Unpacking Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-channel-triumphs-with-trending-hashtags/"><u>[Updated] 2024 Approved Channel Triumphs with Trending Hashtags</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-cut-to-the-chase-vimeos-best-practices-for-video-length-reduction/"><u>[Updated] 2024 Approved Cut to the Chase Vimeo's Best Practices for Video Length Reduction</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-google-pixel-8-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Google Pixel 8 FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-the-crash-in-star-wars-squadrons-solution-guide/"><u>How To Fix The Crash In Star Wars Squadrons - Solution Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/launching-mondlys-comprehensive-faq-hub/"><u>Launching Mondly's Comprehensive FAQ Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-named-best-online-language-learning-portal-in-germany/"><u>Mondly Named Best Online Language Learning Portal In Germany</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-legal-framework-on-our-site/"><u>New Legal Framework on Our Site</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/proven-tech-aids-for-successful-linguistic-instruction/"><u>Proven Tech Aids for Successful Linguistic Instruction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionary-3-language-schools-speak-new-words-effortlessly/"><u>Revolutionary 3 Language Schools: Speak New Words, Effortlessly!</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210233076-9780892546909-rites-of-the-mummy/"><u>Rites of the Mummy | Free Book</u></a></li>
+<li><a href="https://some-tips.techidaily.com/robiquity-secures-strategic-alliance-with-abbyy-enhancing-rpa-and-content-solutions/"><u>Robiquity Secures Strategic Alliance with ABBYY, Enhancing RPA and Content Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romancing-the-magyar-tongue-expression-of-love/"><u>Romancing the Magyar Tongue: Expression of Love</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semana-completa-todos-los-dias-de-espanol/"><u>Semana Completa: Todos Los Días De Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-verb-grammar-simplified/"><u>Spanish Verb Grammar Simplified</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tackling-tricky-tongues-expertise-in-difficult-word-articulation/"><u>Tackling Tricky Tongues: Expertise in Difficult Word Articulation</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-xiaomi-by-drfone-android/"><u>Three Ways to Sim Unlock Xiaomi</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-v29-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo V29 Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+</ul></div>
 

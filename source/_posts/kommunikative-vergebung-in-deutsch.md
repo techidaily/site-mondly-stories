@@ -1,7 +1,7 @@
 ---
 title: Kommunikative Vergebung in Deutsch
-date: 2024-12-04T17:32:20.445Z
-updated: 2024-12-10T18:58:21.376Z
+date: 2024-12-23T17:01:54.574Z
+updated: 2024-12-25T16:19:12.078Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/e317ee1375b71965ab23395d09818c610ccf5d2d8
  Let’s look at the most important ways to say “sorry” in German and when to use each of them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When should you say you’re sorry?
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/e317ee1375b71965ab23395d09818c610ccf5d2d8
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to apologize in German
@@ -47,7 +47,7 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say sorry in German – the “Excuse me” sorry
@@ -59,7 +59,7 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Other ways to say sorry in German
@@ -105,7 +105,7 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in German
@@ -139,22 +139,24 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-ultimate-screen-recorder-guide-apeak-vs-others-for-2024/"><u>[Updated] Ultimate Screen Recorder Guide – Apeak vs Others for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/25-key-german-expressions-for-fluent-speakers/"><u>25 Key German Expressions for Fluent Speakers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/50-timeless-latin-sayings-for-unforgettable-impressions/"><u>50 Timeless Latin Sayings for Unforgettable Impressions</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/convertir-snd-sin-costo-a-wav-mediante-la-herramienta-en-linea-de-movavi-una-guia-paso-a-paso/"><u>Convertir SND Sin Costo a WAV Mediante La Herramienta en Línea De Movavi: Una Guía Paso a Paso</u></a></li>
-<li><a href="https://network-issues.techidaily.com/harmonious-operation-hybrid-graphics-on-intel-and-nvidia-in-win11/"><u>Harmonious Operation: Hybrid Graphics on Intel & Nvidia in Win11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/haunting-customs-halloween-around-the-globe/"><u>Haunting Customs: Halloween Around the Globe</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-breathe-life-into-your-reels-adding-drama-with-slow-motion/"><u>In 2024, Breathe Life Into Your Reels Adding Drama with Slow Motion</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-infinix-zero-30-5g-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Infinix Zero 30 5G Location | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-urdu-easily-every-day/"><u>Learn Urdu Easily, Every Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/love-in-translation-inspirational-french-movies/"><u>Love in Translation: Inspirational French Movies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-reigns-supreme-leading-the-language-education-sphere/"><u>Mondly Reigns Supreme: Leading the Language Education Sphere</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-the-ultimate-guide-to-affordable-stock-photography-insights-from-pexelscom/"><u>New In 2024, The Ultimate Guide to Affordable Stock Photography Insights From Pexels.com</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/overcoming-polyglot-hurdles-winning-with-toughest-languages/"><u>Overcoming Polyglot Hurdles: Winning with Toughest Languages</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/stellar-file-eraser-windows-best-tool-to-permanently-wipe-out-files-and-folders-without-a-trace/"><u>Stellar File Eraser Window's Best Tool to Permanently Wipe Out Files and Folders Without a Trace</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577616582-the-easiest-way-to-study-czech-online/"><u>The Easiest Way to Study Czech Online</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/the-ultimate-playbook-to-youtube-hub-mastery-for-2024/"><u>The Ultimate Playbook to YouTube Hub Mastery for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-gif-tempo-tweakers-online-ios-and-android-options/"><u>Updated 2024 Approved GIF Tempo Tweakers Online, iOS, and Android Options</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-creativity-in-youtube-video-splitting-for-2024/"><u>[Updated] Unlocking Creativity in YouTube Video Splitting for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-hidden-face-technique-for-anonymous-content-sharing/"><u>2024 Approved The Hidden Face Technique for Anonymous Content Sharing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussie-sayings-and-slang-made-easy/"><u>Aussie Sayings & Slang Made Easy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-fluency-beyond-fifty-the-upside-of-learning-a-second-language/"><u>Cultural Fluency Beyond Fifty: The Upside of Learning a Second Language</u></a></li>
+<li><a href="https://windows11.techidaily.com/enhancing-windows-photos-with-an-effortless-carousel-seven-step-guide/"><u>Enhancing Windows Photos with an Effortless Carousel, Seven-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fundamental-russian-greetings-a-practical-guidebook/"><u>Fundamental Russian Greetings: A Practical Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hastening-language-acquisition-a-guide/"><u>Hastening Language Acquisition: A Guide</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-from-apple-iphone-11-pro-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even From Apple iPhone 11 Pro If Youve Tried Everything</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-iphone-x-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked iPhone X</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-how-to-edit-youtube-videos-in-adobe-premiere/"><u>In 2024, How to Edit YouTube Videos in Adobe Premiere</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-depth-evaluation-of-the-oneplus/"><u>In-Depth Evaluation of the OnePlus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-messenger-of-motivation/"><u>Johannes Honterus: Messenger of Motivation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-revolutionized-by-mondly-2022-winner/"><u>Language Learning Revolutionized by Mondly, 2022 Winner</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leverage-the-best-latin-sayings-to-impress-crowds/"><u>Language Leverage: The Best Latin Sayings to Impress Crowds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-german-an-unbeatable-combination-for-learning/"><u>Mondly & German - An Unbeatable Combination for Learning</u></a></li>
+<li><a href="https://games-able.techidaily.com/retro-pi-fans-decision-time-batocera-vs-retropie/"><u>Retro Pi Fans, Decision Time: Batocera Vs. RetroPie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-history-and-origins-of-the-dutch-language/"><u>The History And Origins Of The Dutch Language</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nfographic-index-youtubes-surprising-stat-treasury-2017/"><u>The Infographic Index YouTube's Surprising Stat Treasury (2017)</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unity-unveils-exclusive-alpha-testing-for-innovative-apple-vision-pro-embrace-augmented-and-virtual-reality-gaming-adventure-with-open-arms/"><u>Unity Unveils Exclusive Alpha Testing for Innovative Apple Vision Pro: Embrace Augmented & Virtual Reality Gaming Adventure with Open Arms!</u></a></li>
 </ul></div>
 

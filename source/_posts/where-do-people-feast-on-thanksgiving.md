@@ -1,7 +1,7 @@
 ---
 title: Where Do People Feast on Thanksgiving?
-date: 2024-12-09T17:02:22.800Z
-updated: 2024-12-10T18:11:27.925Z
+date: 2024-12-21T16:54:34.568Z
+updated: 2024-12-25T16:27:00.862Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  Let’s learn more about these celebrations and discover seven of the most surprising countries that celebrate Thanksgiving (besides the US).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Canada
 
  The Canadian version of Thanksgiving is very similar to its American relative. You’ve got the turkey (though some choose ham or chicken instead), the mashed potatoes, the legendary gravy, the corn, and the pumpkin pie. Then there’s the name which is also ‘Thanksgiving’ – except for Quebec; there you’d call it ‘Action de Grâce’. Moreover, both [Americans and Canadians](https://www.bustle.com/life/canadian-thanksgiving-vs-american-thanksgiving) like to watch football and spend time with family on Thanksgiving. Everything seems familiar. Except for the date, of course. Canadian Thanksgiving is celebrated on the second Monday in October, much earlier than the United States which celebrates it on the fourth Thursday in November.
@@ -38,10 +42,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  Other sources trace the Canadian Thanksgiving to the French settlers who came to North America in the 17th century and held feasts to celebrate their successful harvests.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Germany, Austria, and Switzerland
 
  In Europe, the idea of Thanksgiving generally involves the celebration of the autumn harvests. Largely religious in nature, the celebration occurs around the time of the main harvest – early October in this situation. In German-speaking countries, the event is called Erntedankfest.
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  Unlike the North American festivities, in rural Germany, Austria, and Switzerland, Erntedankfest is a more public celebration with musical performances, dancing, fireworks, and – you guessed it: food. In some places, churches are decored with autumn crops and during the day, people participate in religious processions or parades.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. The Netherlands
@@ -58,10 +58,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Grenada
 
  Although it rhymes with Canada, you should know that Grenada is actually a Caribbean country and its Thanksgiving celebration is one of the youngest in the world. Every year, on the 25th of October, Grenadians commemorate the events that took place in 1983, when Grenada’s deputy prime minister executed the prime minister and seized the power. Only nine days later, the United States military came to the rescue and restored order in a matter of weeks.
@@ -69,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  As a result, on Thanksgiving, Grenadians give thanks for the American-led invasion that helped them take back their country.
 
 ![thanksgiving turkey](https://edge.mondly.com/blog/wp-content/uploads/2021/11/canadian-thanksgiving-960x641.jpg "What Countries Celebrate Thanksgiving? 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Thanksgiving turkey” by Claudio Schwarz©
 
@@ -83,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  However, the freed slaves from the United States who returned to the country around 1820, brought something back from the US: the Thanksgiving celebration. By the 1880s, it was declared a national holiday and nowadays, Liberia is probably the only other country in the world that celebrates the American Thanksgiving.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. the United Kingdom
@@ -91,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  Yes, Thanksgiving is celebrated in the United Kingdom. Similar to the Erntedankfest celebration in German-speaking countries, Thanksgiving in the UK is actually a [Harvest Festival](https://en.wikipedia.org/wiki/Harvest%5Ffestival) held in late September or early October.
 
  During pre-Christian times in Britain, the Saxons would offer the first sheaf of cereals to fertility gods then come together and celebrate the harvest with a supper. Many traditions remained even though Christianity arrived in Britain so the present-day Harvest Festival is celebrated even by churches.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Brazil
 
@@ -102,10 +106,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Learn to give thanks in over 40 languages
 
@@ -137,22 +137,18 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-the-art-of-capturing-scenes-ezvides-screencast-solution/"><u>[New] 2024 Approved The Art of Capturing Scenes EZvide's Screencast Solution</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-gaming-history-told-by-top-video-makers/"><u>[New] In 2024, Gaming History Told by Top Video Makers</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-the-clearest-waves-premier-mic-selection/"><u>[Updated] 2024 Approved The Clearest Waves Premier Mic Selection</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-zoom-on-windows-10-a-step-by-step-guide/"><u>2024 Approved Mastering Zoom on Windows 10 A Step-by-Step Guide</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-stitch-ppt-tiles-into-video-mosaic/"><u>2024 Approved Stitch PPT Tiles Into Video Mosaic</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581154895-4-manieres-francaises-oui-bienvenue/"><u>4 Manières Françaises: Oui, Bienvenue!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581430573-9-english-grammar-tips-from-an-esl-speaker/"><u>9 English Grammar Tips From An ESL Speaker</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dissecting-worldwide-french-speaking-populations-by-country/"><u>Dissecting Worldwide French-Speaking Populations by Country</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fond-fantasies-in-francophone-features/"><u>Fond Fantasies in Francophone Features</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/high-fidelity-learning-pearsons-enhanced-gsl-via-mondly/"><u>High Fidelity Learning: Pearson's Enhanced GSL via Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/investigating-the-evolution-of-back-and-filter-buttons-in-pt/"><u>Investigating the Evolution of Back & Filter Buttons in PT</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/luscious-languages-captivating-french-plays/"><u>Luscious Languages: Captivating French Plays</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/navigating-and-repairing-sound-malfunctions-on-new-operating-systems/"><u>Navigating and Repairing Sound Malfunctions on New Operating Systems</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/premium-free-template-pack-top-titles-for-ae-dreamers-for-2024/"><u>Premium FREE Template Pack Top Titles for AE Dreamers for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/soft-spoken-seduction-the-roman-approach/"><u>Soft-Spoken Seduction: The Roman Approach</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-superior-audio-world-of-beyerdynamic-mmx-200/"><u>The Superior Audio World of Beyerdynamic MMX 200</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/zdnets-ultimate-tech-roundup-unveiling-the-most-revolutionary-devices-and-products-of/"><u>ZDNet's Ultimate Tech Roundup: Unveiling the Most Revolutionary Devices & Products Of</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-top-15-science-youtube-channels-to-expand-knowledge/"><u>[New] In 2024, Top 15 Science YouTube Channels to Expand Knowledge</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-top-6-ios-apps-turn-youtube-videos-into-mp3-files/"><u>[New] In 2024, Top 6 iOS Apps Turn YouTube Videos Into MP3 Files</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-step-by-step-guide-to-flawless-zoom-screen-sharing-for-2024/"><u>[New] Step-by-Step Guide to Flawless Zoom Screen Sharing for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-illuminate-creativity-engage-in-pcs-high-dynamic-range-vision/"><u>[Updated] Illuminate Creativity Engage in PC's High Dynamic Range Vision</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-navigating-networked-video-streaming-with-vlc/"><u>[Updated] Navigating Networked Video Streaming with VLC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580814216-100plus-basic-russian-phrases-every-traveler-needs-to-know/"><u>100+ Basic Russian Phrases Every Traveler Needs to Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/be-a-winner-save-up-to-96-on-mondly-pro-lifetime/"><u>Be a Winner : Save Up To 96% on Mondly Pro Lifetime</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/dpx/"><u>DPX 이미지를 영구제액스로 바꾸기: 온라인 가장치 자동화 - 무료 몇 단계</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-nokia-c02-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Nokia C02 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intellectual-stimulation-through-foreign-words/"><u>Intellectual Stimulation Through Foreign Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-mastery-your-complete-user-manual/"><u>Mondly Mastery: Your Complete User Manual</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-google-pixel-fold-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Google Pixel Fold Phone? Unlock It Now</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/simple-guide-to-transforming-avi-videos-into-high-quality-wmv-for-smooth-playback/"><u>Simple Guide to Transforming AVI Videos Into High-Quality WMV for Smooth Playback</u></a></li>
 </ul></div>
 

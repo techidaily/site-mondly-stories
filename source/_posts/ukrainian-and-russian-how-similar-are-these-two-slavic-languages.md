@@ -1,7 +1,7 @@
 ---
 title: "Ukrainian And Russian: How Similar Are These Two Slavic Languages?"
-date: 2024-12-13T21:45:37.560Z
-updated: 2024-12-16T16:06:11.512Z
+date: 2024-12-21T16:04:11.882Z
+updated: 2024-12-25T16:53:24.472Z
 tags:
   - speak
   - english
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
  Contrary to what some people believe, Ukrainian and Russian are not the same language. Despite sharing a common ancestor and the Cyrillic script, Ukrainian and Russian are two distinct languages. They are somehow similar, yes, but not one and the same. To help you understand the relationship between the two, we are going to look at their shared history and both their differences and similarities.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Was Ukrainian really called Little Russian?
 
  In short, yes. The Ukrainian language was formerly called Little Russian, but the term is now considered pejorative. Let’s see how all the events leading to this name unfolded.
@@ -37,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
  First, you should know that [Ukrainian](https://www.britannica.com/topic/Ukrainian-language) , the same as Russian, is an East Slavic language of the Indo-European language family. Its origins can be traced back to the Old East Slavic language used in Kievan Rus between the 10th and the 13th century. After the fall of the Kievan Rus, the language developed into what was called the Ruthenian language. Along with it, in the territory of modern Ukraine, the Kyiv version of Church Slavonic was also used in liturgical services.
 
  From here on, there are several theories regarding the development of the Ukrainian language and its divergence from Russian, but what’s most important is that their common ancestor, Old East Slavic, spanned a territory hundreds of kilometers wide. Considering how other languages came to be and how much migration influences the process, it’s obvious that the separation happened gradually.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The development of the Ukrainian language after the 13th century
 
@@ -51,11 +51,11 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
 !['Ukrainian language' by Gleb Albovsky©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/ukrainian-language-960x600.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 4")
 
- As a result of Ukraine’s centuries-long political subordination, Ukrainian had almost no literary expression until de 18th century when the modern literary Ukrainian language was born.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ As a result of Ukraine’s centuries-long political subordination, Ukrainian had almost no literary expression until de 18th century when the modern literary Ukrainian language was born.
 
 ## The Russian language – a short history
 
@@ -68,10 +68,6 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
  Nevertheless, it was the 19th-century poet Aleksandr Pushkin who determined the further development of the Russian language we know today. His writings, in which he combined the colloquial and Church Slavonic styles, were decisive in establishing the best style for literary use.
 
  Later, the Soviet period brought Russian worldwide prestige which declined after the 1991 collapse. Despite each USSR constituent republic having its own official language, Russian had a unified role and superior status. This is why there are so many people speaking Russian outside Russia.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How similar are Ukrainian and Russian?
 
@@ -87,9 +83,17 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
  However, all three languages – Ukrainian, Russian and Belarusian – are in part mutually intelligible, and already knowing one can help a lot if you want to learn one of the others.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How different are Ukrainian and Russian?
 
  Now that we’ve explained the history behind Ukrainian and Russian, it’s time to look at some more practical examples. A 62% lexical similarity may sound like a lot, but these two languages are not as similar as many might think. Here are some of the most important differences between Russian and Ukrainian.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Alphabet
 
@@ -127,7 +131,7 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 * Russian \[ы\] is deeper than Ukrainian \[и\] and Russian \[э\] is more open than Ukrainian \[е\].
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Grammar
@@ -150,10 +154,6 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Learn Ukrainian, Russian and more in just 10 minutes a day
 
@@ -184,24 +184,24 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-high-fidelity-webcams-for-professional-podcasting/"><u>[New] 2024 Approved High-Fidelity Webcams for Professional Podcasting</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/audio-removal-guide-for-mp4-files-for-2024/"><u>Audio Removal Guide for MP4 Files for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/expert-guide-defeating-the-phantom-menace-fixing-deadly-bugs-for-ghost-runner-on-windows-11/"><u>Expert Guide: Defeating the Phantom Menace – Fixing Deadly Bugs for Ghost Runner on Windows 11</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/get-the-lowdown-on-the-new-samsung-galaxy-z-fold-6-what-you-need-to-know-about-price-and-specs/"><u>Get the Lowdown on the New Samsung Galaxy Z Fold 6 – What You Need to Know About Price & Specs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/grasping-squid-game-themes-in-k-language/"><u>Grasping Squid Game Themes in K-Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-apologize-and-say-sorry-in-german/"><u>How To Apologize And Say Sorry In German</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Vivo Y17s | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-tecno-pova-6-pro-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Tecno Pova 6 Pro 5G to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-efficient-audio-extraction-from-youtube-top-picks-for-your-favorite-free-crackers/"><u>In 2024, Efficient Audio Extraction From YouTube Top Picks for Your Favorite Free Crackers</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-cant-i-install-the-ipogo-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, Why cant I install the ipogo On Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/iniciando-o-dialogo-pela-frase-lusitana-mais-usada/"><u>Iniciando O Diálogo Pela Frase Lusitana Mais Usada</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/passionate-phrases-top-french-film-selections/"><u>Passionate Phrases: Top French Film Selections</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polish-study-made-fast-and-easy/"><u>Polish Study Made Fast and Easy</u></a></li>
-<li><a href="https://games-able.techidaily.com/quick-resumes-role-essential-or-just-another-feature-on-xbox/"><u>Quick Resume's Role: Essential or Just Another Feature on Xbox?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-start-bengali-lessons/"><u>Quick-Start Bengali Lessons</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolved-initialization-error-in-rendering-engine-enhanced-version-2021/"><u>Resolved: Initialization Error in Rendering Engine (Enhanced Version, 2021)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-confectionery-codex-decoding-chocolate-across-cultures/"><u>The Confectionery Codex: Decoding Chocolate Across Cultures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tune-your-brain-scientifically-approved-language-songs-and-strategies/"><u>Tune Your Brain: Scientifically Approved Language Songs & Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-and-implementing-spanish-letter-accents/"><u>Understanding and Implementing Spanish Letter Accents</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-streamlined-methods-for-iphone-screen-capture-for-2024/"><u>[New] Streamlined Methods for iPhone Screen Capture for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-essential-tools-for-efficient-mp4-segmentation-on-mac/"><u>[Updated] In 2024, Essential Tools for Efficient MP4 Segmentation on Mac</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-step-by-step-live-tweeting-tactics/"><u>[Updated] Step-by-Step Live Tweeting Tactics</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discovering-what-you-can-achieve-with-claude-3-an-in-depth-look/"><u>Discovering What You Can Achieve with Claude 3: An In-Depth Look</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/expert-advice-resolving-and-preventing-xcom-2s-windows-instability-issues/"><u>Expert Advice: Resolving and Preventing XCOM 2'S Windows Instability Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-at-work-language-tools-for-corporate-success/"><u>Fluent at Work: Language Tools for Corporate Success</u></a></li>
+<li><a href="https://apple-account.techidaily.com/forgot-your-apple-id-password-and-email-from-iphone-8-plus-heres-the-best-fixes-by-drfone-ios/"><u>Forgot Your Apple ID Password and Email From iPhone 8 Plus? Heres the Best Fixes</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-does-predictive-ai-generate-accurate-forecasts/"><u>How Does Predictive AI Generate Accurate Forecasts?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-did-your-iphone-se-2022-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>In 2024, Did Your iPhone SE (2022) Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirror-your-apple-iphone-11-pro-max-display-drfone-by-drfone-ios/"><u>In 2024, How to Screen Mirror your Apple iPhone 11 Pro Max Display? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-japanese-anywhere-10-no-cost-online-platforms-revealed/"><u>Learn Japanese Anywhere: 10 No-Cost Online Platforms Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-leads-bridging-cultures-and-courses-with-70plus-million-users/"><u>Mondly Leads: Bridging Cultures & Courses with 70+ Million Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mundo-lunar-en-espanol-del-domingo-al-lunes-y-todos-los-dias-en-camino/"><u>Mundo Lunar en Español: Del Domingo Al Lunes, Y Todos Los Días En Camino</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-more-payments-mondly-unlocked-forever/"><u>No More Payments: Mondly Unlocked Forever</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oxford-3000-mondly-style-for-quick-learning/"><u>Oxford 3000, Mondly Style for Quick Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sculpting-success-in-global-language-assessments-and-certifications/"><u>Sculpting Success in Global Language Assessments & Certifications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-significance-of-ai-in-modern-educational-practices/"><u>The Significance of AI in Modern Educational Practices</u></a></li>
+<li><a href="https://app-tips.techidaily.com/top-10-biometric-lock-screen-applications-for-your-android-device/"><u>Top 10 Biometric Lock Screen Applications for Your Android Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/varfor-sweden-svensk-forsalar/"><u>Varför Sweden? - Svensk Försalar</u></a></li>
 </ul></div>
 

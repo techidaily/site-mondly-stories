@@ -1,7 +1,7 @@
 ---
 title: 100+ French Travel Phrases You'll Need In Your Next Trip To France
-date: 2024-08-27T22:44:40.506Z
-updated: 2024-08-28T22:44:40.506Z
+date: 2024-12-18T16:49:38.439Z
+updated: 2024-12-25T16:22:55.588Z
 tags:
   - speak
   - english
@@ -81,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/cd161aa122231bb69ca4c1e6bbe1e4e7f5305ae20
 
 ![french travel vocabulary](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-travel-vocabulary-scaled-960x540.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  ©Bambi Corro
 
 * Is the flight delayed? –_Le vol est-il retardé?_
@@ -90,9 +94,6 @@ thumbnail: https://thmb.techidaily.com/cd161aa122231bb69ca4c1e6bbe1e4e7f5305ae20
 * Is this seat taken? –_Est-ce que cette place est libre?_
 * I would like to change my seat. –_J’aimerais changer de place._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. Basic French for travelers who need help
 
  Getting lost in Paris, Nice, Marseille, or Cannes wouldn’t be so bad, wouldn’t it? It actually sounds like the perfect vacation, but the harsh reality of having a plane to catch and a boss to make happy will eventually ruin your dream.**Do you know how to say “where is the airport” in French** ? Or “where is a pharmacy”? Switch your survival mode on and learn to ask the best questions in French.
@@ -124,9 +125,9 @@ thumbnail: https://thmb.techidaily.com/cd161aa122231bb69ca4c1e6bbe1e4e7f5305ae20
 * I’ll be back immediately. –_Je reviens tout de suite._
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. French for tourists who need a place to spend the night
 
  Staying in an Airbnb apartment or at a hotel requires some human interaction as well. The hotel staff is required to know English, but if you rent an apartment via Airbnb, there’s a big chance to bump into locals that don’t speak English at all. It’s simply better to be safe than sorry.
@@ -140,8 +141,9 @@ thumbnail: https://thmb.techidaily.com/cd161aa122231bb69ca4c1e6bbe1e4e7f5305ae20
 ![basic french sentences](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-sentences-scaled-960x641.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 6")
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Paris by night by ©Jez Timms
 
 * Thank you for your help. –_Merci pour votre aide._
@@ -165,6 +167,10 @@ thumbnail: https://thmb.techidaily.com/cd161aa122231bb69ca4c1e6bbe1e4e7f5305ae20
 * Some salt and pepper also, please. –_Encore du sel et du poivre, s’il vous plaît._
 
 ![french expressions](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-expressions-1024x682.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 7")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Des crêpes” by ©Alisa Anton
 
@@ -194,9 +200,6 @@ thumbnail: https://thmb.techidaily.com/cd161aa122231bb69ca4c1e6bbe1e4e7f5305ae20
 
 ![french for tourists](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-for-tourists-1024x682.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 8")
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ©Diao Darius
 
 * Can you get me a ticket? –_Pouvez-vous me procurer un billet?_
@@ -206,9 +209,6 @@ thumbnail: https://thmb.techidaily.com/cd161aa122231bb69ca4c1e6bbe1e4e7f5305ae20
 * Let’s have some fun. –_Amusons-nous._
 * Are there seats available? –_Est-ce qu’il reste des places?_
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Basic French phrases for your shopping adventures
 
  Souvenirs are the cruelest drudgery our loved ones from home put us through while on holiday. The horror of shopping for souvenirs often haunts us until the very last day of our holiday. The best solution? Plan your shopping adventure on the first day of the trip and just get it over with.
@@ -227,8 +227,9 @@ thumbnail: https://thmb.techidaily.com/cd161aa122231bb69ca4c1e6bbe1e4e7f5305ae20
 ![basic french travel phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/09/basic-french-travel-phrases-scaled-640x960.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 9")
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  ©Gijs Coolen
 
  But if you manage to get caught up in a passionate love story – “by mistake”, of course – it will be so much better if you have your**French phrasebook** on point. It’s time to get real and admit it! Travel phrases are not just for travel, they are also for connecting with new friends or maybe even… lovers?! Who knows? Poor Prince Charming could be stuck in a tree somewhere waiting. Travel as much as possible and find him when you least expect it.
@@ -243,6 +244,10 @@ thumbnail: https://thmb.techidaily.com/cd161aa122231bb69ca4c1e6bbe1e4e7f5305ae20
 * You are very handsome. –_Tu es très beau._
 
 ![french love quotes](https://edge.mondly.com/blog/wp-content/uploads/2018/09/french-love-quotes-683x1024.jpg "100+ French Travel Phrases You'Ll Need To Fall In Love With Paris 10")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Love” by ©Cedric Klei
 
@@ -277,8 +282,6 @@ thumbnail: https://thmb.techidaily.com/cd161aa122231bb69ca4c1e6bbe1e4e7f5305ae20
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -286,8 +289,21 @@ thumbnail: https://thmb.techidaily.com/cd161aa122231bb69ca4c1e6bbe1e4e7f5305ae20
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-the-quintessential-list-of-top-tier-gaming-cams-for-live-viewers/"><u>[Updated] In 2024, The Quintessential List of Top-Tier Gaming Cams for Live Viewers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-laughter-is-free-access-to-top-meme-creations/"><u>[Updated] Laughter Is Free Access to Top Meme Creations</u></a></li>
+<li><a href="https://driver-error.techidaily.com/ax201-wi-fi-6ax201-initialization-errors-solved/"><u>AX201: Wi-Fi 6Ax201 Initialization Errors Solved</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/comprehensive-strategies-for-retrieving-your-absent-vcenter-management-updates/"><u>Comprehensive Strategies for Retrieving Your Absent vCenter Management Updates</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-cast-disneyplus-entertainment-on-your-tv-using-chromecast/"><u>How to Cast Disney+ Entertainment on Your TV Using Chromecast</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-vivo-x-flip-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Vivo X Flip to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/identify-non-detecting-gfx/"><u>Identify Non-Detecting GFX</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interstellar-idioms-understanding-colloquialisms-from-space-characters/"><u>Interstellar Idioms: Understanding Colloquialisms From Space Characters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-borrowing-a-global-perspective-on-english/"><u>Language Borrowing: A Global Perspective on English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leveraging-mondly-to-master-multiple-languages-top-10-strategies-unveiled/"><u>Leveraging Mondly to Master Multiple Languages: Top 10 Strategies Unveiled</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/mastering-youtube-audio-recordings-for-2024/"><u>Mastering YouTube Audio Recordings for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oratory-oasis-overcoming-difficult-word-sounds-and-structures/"><u>Oratory Oasis: Overcoming Difficult Word Sounds and Structures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sundial-of-success-mondlylanguages-two-year-visionary-quest/"><u>Sundial of Success: MondlyLanguages' Two-Year Visionary Quest</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-ranking-of-2024s-best-smartwatches-professional-testing-and-in-depth-analysis/"><u>Ultimate Ranking of 2024'S Best Smartwatches: Professional Testing & In-Depth Analysis</u></a></li>
+</ul></div>
 

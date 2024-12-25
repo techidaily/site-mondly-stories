@@ -1,7 +1,7 @@
 ---
 title: Why Learning A New Language Is Good For Your Brain
-date: 2024-08-27T22:43:51.297Z
-updated: 2024-08-28T22:43:51.297Z
+date: 2024-12-20T17:02:31.035Z
+updated: 2024-12-25T16:41:55.173Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/39537ef670f74abdd3937163bf686c62a000d8146
 
  “Morning meditation” by Simon Rae©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **The human brain and languages**
 
  Another cool thing that our brain does is [language processing](https://en.wikipedia.org/wiki/Language%5Fprocessing%5Fin%5Fthe%5Fbrain) . In most cases, the left hemisphere is responsible for language and speech while the right hemisphere plays a big part in interpreting visual stimuli and spatial processing. But that’s not necessarily true for everyone. Left-handed people may need special testing to determine on which side of the brain is their speech center located prior to any surgery in the temporal (where understanding a language is made possible) or frontal lobe (where speaking and writing are made possible).
@@ -38,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/39537ef670f74abdd3937163bf686c62a000d8146
 
 **Every language we speak is a different cognitive universe** because it uses different sounds, different vocabulary, and different symbols to represent words. Thus,**learning a new language** is discovering a new cognitive universe. That is why switching between different languages can sometimes alter a person’s way of thinking, personality or the way they perceive the world. And this is not a mere observation.[“Two Languages, Two Minds: Flexible Cognitive Processing Driven by Language of Operation”](https://www.researchgate.net/publication/273286375%5FTwo%5FLanguages%5FTwo%5FMinds) , a study that appeared in the journal Psychological Science, shows that people that speak both English and German tend to comprehend and define a certain context differently based on the language they speak at the moment. Mind-blowing, isn’t it? Exaggerating the situation a little bit, we could say that speaking, for instance, four languages, is like having four personalities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Science says learning a new language helps the brain**
 
  Linguists and psychologists have been arguing for decades on this matter:**does** [language learning actually help the brain?](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Studies in recent years say**“yes, it does.**
@@ -47,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/39537ef670f74abdd3937163bf686c62a000d8146
  Fortunately, in 1962, Elizabeth Peal and Wallace Lambert at McGill University in Montreal conducted a key study entitled [“The relation of bilingualism to intelligence”](https://psycnet.apa.org/record/2011-17952-001) . The study showed that bilingual children actually outperformed monolinguals in 15 verbal and nonverbal tests.
 
 ![children learning languages](https://edge.mondly.com/blog/wp-content/uploads/2019/07/children-learning-languages-1024x683.jpg "Why Learning A New Language Is Good For Your Brain 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Time together” by Alexander Dummer©
 
@@ -62,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/39537ef670f74abdd3937163bf686c62a000d8146
 
 ![elders brain training](https://edge.mondly.com/blog/wp-content/uploads/2019/07/elders-brain-training-1024x682.jpg "Why Learning A New Language Is Good For Your Brain 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Focus” by Val Vesa©
 
 In fact, there are multiple [studies](https://www.alzheimersresearchuk.org/speaking-second-language-shows-benefits-alzheimers/)  that show that bilingual people show symptoms of Alzheimer’s and other dementias 4.5 years later than people who speak just one language.
@@ -72,8 +88,9 @@ In fact, there are multiple [studies](https://www.alzheimersresearchuk.org/speak
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Keep your brain young with continuous training**
 
  If it wasn’t before, is now crystal clear why it is said that the brain is like a muscle. If you are going to properly train your brain every day, there’s a higher chance for you to show symptoms of dementia much later in life or not at all.
@@ -90,8 +107,6 @@ In fact, there are multiple [studies](https://www.alzheimersresearchuk.org/speak
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -99,8 +114,19 @@ In fact, there are multiple [studies](https://www.alzheimersresearchuk.org/speak
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-from-concept-to-completion-using-magix-video-pro-x/"><u>[New] From Concept to Completion Using Magix Video Pro X</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-melodymaster-recording-software-guide/"><u>[New] In 2024, MelodyMaster Recording Software Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-math-behind-making-money-youtubes-viewer-insights-for-2024/"><u>[New] The Math Behind Making Money YouTube’s Viewer Insights for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-from-ordinary-to-outstanding-unveiling-the-secrets-of-engaging-biographies/"><u>[Updated] In 2024, From Ordinary to Outstanding Unveiling the Secrets of Engaging Biographies</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-the-ultimate-shutter-showdown-best-for-slow-motion-videos/"><u>[Updated] The Ultimate Shutter Showdown Best for Slow Motion Videos</u></a></li>
+<li><a href="https://games-able.techidaily.com/supercharge-your-switch-essential-3-live-stream-platforms/"><u>Supercharge Your Switch: Essential 3 Live-Stream Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swedens-alphabet-in-a-nutshell/"><u>Sweden's Alphabet in a Nutshell</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-comprehensive-guide-to-crafting-an-authentic-online-persona-on-facebook/"><u>The Comprehensive Guide to Crafting an Authentic Online Persona on Facebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-fluent-socializing-across-latam-languages/"><u>The Ultimate Guide to Fluent Socializing Across LatAm Languages</u></a></li>
+<li><a href="https://games-able.techidaily.com/unleashing-creativity-using-tablets-in-games/"><u>Unleashing Creativity: Using Tablets in Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viking-vernacular-unveiling-the-lost-nordic-dialect/"><u>Viking Vernacular: Unveiling the Lost Nordic Dialect</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-step-by-step-guide-to-korean-day-names/"><u>Your Step-by-Step Guide to Korean Day Names</u></a></li>
+</ul></div>
 

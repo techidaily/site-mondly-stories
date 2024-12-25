@@ -1,7 +1,7 @@
 ---
 title: "Macau: A Study in Linguistic Convergence"
-date: 2024-12-13T21:55:45.146Z
-updated: 2024-12-16T19:09:30.147Z
+date: 2024-12-19T17:00:11.432Z
+updated: 2024-12-25T16:54:00.604Z
 tags:
   - speak
   - english
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
  Ready to find our more about the rich linguistic mosaic of Macau? Read on to discover the intriguing history behind this captivating blend of languages.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The History of Macau
@@ -54,10 +54,6 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
 ![Cantonese in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/cantonese.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Macanese: A Distinctive Creole Language of Macau
 
 **Macanese Patois or the Macanese creole language, known as Patuá** to its speakers, is a mixture of Cantonese, Malay, Sinhalese, and – most importantly – Portuguese. Developed as a lingua franca for communication among the multicultural community of traders, sailors, and settlers, Macanse emerged as a unique language reflecting the melting pot of cultures that Macau represented.
@@ -69,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
  Even during the time when Macau was Portuguese territory, the usage of Macanese was already declining, and this trend is unlikely to change now that the territory is under Chinese administration. However, speakers of Macanese still hold a deep sense of pride in the fact that Macau has its unique local language.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Portuguese in Macau: A Journey of 11,000 km
@@ -79,10 +75,6 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
  Additionally, Macau boasts a vibrant Portuguese media presence, which encompasses three daily newspapers, one radio station, and a television channel.
 
  The linguistic connection between Macau and Portugal also results in significant movement between the two regions. According to the [2021 Macau Census](https://www.dsec.gov.mo/Censos2021/en-US/) , individuals born in Portugal make up around 0.3% of Macau’s total population, indicating a notable presence of Portuguese-born residents in Macau.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Official Portuguese Usage in Macau
 
@@ -98,6 +90,10 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
 ![multilingualism in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/multilingualism-in-macau.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Cantonese serves as the primary medium of instruction in the majority of schools in Macau. Additionally, there are mandatory classes that focus on Mandarin, ensuring students have exposure to and proficiency in the official language of China.
 
 ## The Future of Macau’s Languages
@@ -108,12 +104,16 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
  As China’s influence continues to grow, there has also been a rise in the use of Mandarin. Still, Cantonese remains dominant. On the other hand, Macanese (Patuá), with its small number of speakers, is in danger of extinction. In order to safeguard this distinctive aspect of Macau’s cultural heritage, concerted efforts are said to be made to preserve and promote Macanese through various cultural events and initiatives.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Is English widely spoken in Macau?
 
  English is not as widely spoken in Macau compared to Cantonese. However, due to Macau’s status as popular gambling destination, English is commonly understood and spoken. Many signs, menus, and information for tourists are also available in English. Additionally, English is taught as a compulsory subject in schools, contributing to a level of English proficiency among the younger generation.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Are there any efforts to revitalize endangered languages in Macau?
@@ -156,20 +156,18 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-discovering-cinematic-splendor-in-4k-lgs-digital-cinema-31mu97-b/"><u>[Updated] Discovering Cinematic Splendor in 4K LG's Digital Cinema 31MU97-B</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-seamlessly-turning-tiktok-videos-into-gifs-with-best-tools/"><u>[Updated] In 2024, Seamlessly Turning TikTok Videos Into GIFs with Best Tools</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-loop-engineers-assembly/"><u>[Updated] Loop Engineer's Assembly</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-navigate-effortlessly-enablingdisabling-picture-in-picture-in-youtube-for-2024/"><u>[Updated] Navigate Effortlessly Enabling/Disabling Picture In Picture in Youtube for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580359221-2022-goals-achieved-speak-like-a-native-at-half-the-cost/"><u>2022 Goals Achieved - Speak Like a Native at Half the Cost</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/8-dynamic-reasons-for-embracing-new-dialects/"><u>8 Dynamic Reasons for Embracing New Dialects</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ace-japanese-greeting-etiquette/"><u>Ace Japanese Greeting Etiquette</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apprendimento-dei-numeri-italiani-la-via-da-1-a-mille/"><u>Apprendimento Dei Numeri Italiani: La Via Da 1 a Mille</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/continental-symphony-of-african-linguistics/"><u>Continental Symphony of African Linguistics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevating-your-business-talk-one-phrase-at-a-time/"><u>Elevating Your Business Talk, One Phrase at a Time</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-lava-storm-5g-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Lava Storm 5G?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-the-art-of-cross-platform-content-sharing/"><u>In 2024, The Art of Cross-Platform Content Sharing</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-realme-11-5g-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Realme 11 5G</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/no-trace-snapcaptures-discreet-photo-taking-techniques-for-2024/"><u>No Trace SnapCaptures Discreet Photo-Taking Techniques for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/step-by-step-guide-correcting-inconsistent-speaker-output-on-windows-11/"><u>Step-by-Step Guide: Correcting Inconsistent Speaker Output on Windows 11</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-hit-parade-the-top-10-songs-on-spotify-for-2024/"><u>[New] Hit Parade The Top 10 Songs on Spotify for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-filmmakers-lounge-app/"><u>[Updated] 2024 Approved Filmmaker's Lounge App</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-unleash-potential-access-premium-sound-effects/"><u>[Updated] Unleash Potential Access Premium Sound Effects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-harmony-a-salute-to-independence/"><u>Global Harmony: A Salute to Independence</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-motorola-edge-40-neo-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/integrating-websites-into-your-instagram-presence-for-2024/"><u>Integrating Websites Into Your Instagram Presence for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/locals-speak-romanian-app-edition/"><u>Locals Speak Romanian: App Edition</u></a></li>
+<li><a href="https://win-webster.techidaily.com/microsoft-revises-consumer-strategy-approach-once-more-insights-from-zdnet/"><u>Microsoft Revises Consumer Strategy Approach Once More - Insights From ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-breakers-blueprint-escape-from-facebook/"><u>The Breaker's Blueprint: Escape From Facebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transnational-words-threading-into-eng-dictionary/"><u>Transnational Words Threading Into ENG Dictionary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-with-mondly-top-app-for-language-learning-2022/"><u>Unlock Your Potential with Mondly, Top App for Language Learning, 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whispered-desires-in-parisian-conversations/"><u>Whispered Desires in Parisian Conversations</u></a></li>
+<li><a href="https://video-capture.techidaily.com/wmv4/"><u>WMVファイルを簡単に開く無料ソフトウェアのベスト4 - ユーザー評価で注目</u></a></li>
 </ul></div>
 

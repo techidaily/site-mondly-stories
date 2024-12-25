@@ -1,7 +1,7 @@
 ---
 title: Quick Latvian Language Drills, 10 Minutes/Day!
-date: 2024-08-23T00:23:55.140Z
-updated: 2024-08-24T00:23:55.140Z
+date: 2024-12-18T16:16:23.433Z
+updated: 2024-12-25T16:05:10.046Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 
  Consisting of super fun, efficient and accessible language lessons, the new Latvian course is now available on [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4558&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv) ,[Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4558&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv) and [web](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4558&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Latvian language in a nutshell
 
  Also known as “Lettish”, the Latvian language is the official language of Latvia and one of the 24 official languages of the European Union.
@@ -32,7 +36,15 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 
 ![latvian language course](https://edge.mondly.com/blog/wp-content/uploads/2020/03/latvian-language-course-277x600.jpg "Learn Latvian Online In Just 10 Minutes A Day 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Learn Latvian with Mondly
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How similar are Latvian and Lithuanian?
 
@@ -41,8 +53,9 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
  Unsurprisingly, Latvian and Lithuanian do share a lot of features, but they are not mutually intelligible enough to make conversation possible.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How similar are Latvian and Russian?
 
  These days you can’t talk about the Latvian language if you don’t mention [Russian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as well.
@@ -61,8 +74,9 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Speak Latvian today
 
  It can be really tricky to master Latvian pronunciation if you don’t actively live in Latvia. But with Mondly, the award-winning language learning app, you’ll have access to a unique, fast and highly efficient learning method that allows you to learn Latvian naturally with practical topics, authentic conversations and bite-sized Daily Lessons.
@@ -77,8 +91,6 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -86,8 +98,20 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-pinterest-vid-lifting-the-top-free-online-tools-list/"><u>[New] 2024 Approved Pinterest Vid Lifting The Top Free, Online Tools List</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-streamlining-youtube-audio-pace-via-devices/"><u>[New] 2024 Approved Streamlining YouTube Audio Pace via Devices</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitter-vids-deep-dive-a-comprehensive-handbook/"><u>[New] In 2024, Twitter Vids Deep Dive A Comprehensive Handbook</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-step-by-step-guide-exploring-every-nook-and-cranny-of-stardew-valley-particularly-ginger-island-for-2024/"><u>[New] Step-by-Step Guide Exploring Every Nook and Cranny of Stardew Valley, Particularly Ginger Island for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-video-descriptions-the-key-to-threefold-success/"><u>[Updated] Instagram Video Descriptions - The Key to Threefold Success</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/digital-drawing-board-converting-videos-into-cartoons-with-ease/"><u>Digital Drawing Board Converting Videos Into Cartoons with Ease</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-video-inversion-step-by-step-strategy/"><u>In 2024, Instagram Video Inversion Step-by-Step Strategy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-kindergarten-to-fifth-grade-in-spanish/"><u>Language Leap: Kindergarten to Fifth Grade in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-tricky-pronunciations-tips-and-examples-of-hard-words-to-pronounce/"><u>Mastering Tricky Pronunciations: Tips And Examples Of Hard Words To Pronounce</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-video-editing-basics-on-windows-8-movie-maker-for-2024/"><u>Mastering Video Editing Basics on Windows 8 Movie Maker for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-journey-and-advantages-of-learning-english/"><u>The Journey and Advantages of Learning English</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/transformez-vos-videos-mpeg-en-3gp-pour-mobile-conversion-gratuite-en-ligne-movavi-solutions/"><u>Transformez Vos Vidéos MPEG en 3Gp Pour Mobile : Conversion Gratuite en Ligne - Movavi Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-its-never-too-late-to-learn-a-foreign-language-mondly/"><u>Why It’s Never Too Late To Learn A Foreign Language - Mondly</u></a></li>
+</ul></div>
 

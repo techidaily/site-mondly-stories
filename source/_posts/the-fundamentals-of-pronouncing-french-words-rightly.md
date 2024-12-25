@@ -1,7 +1,7 @@
 ---
 title: The Fundamentals of Pronouncing French Words Rightly
-date: 2024-12-05T17:41:25.615Z
-updated: 2024-12-10T17:57:19.216Z
+date: 2024-12-24T16:49:23.458Z
+updated: 2024-12-25T16:22:14.243Z
 tags:
   - speak
   - english
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/93fd3ecf6c0ec1cdbec9f4930fda0699ca8c61749
 
  There’s no need to worry, though. As you yourself find French difficult to pronounce, French people sometimes find English hard to pronounce. Luckily, with the right training, speaking French can be as simple as saying [_bonjour_](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or _de rien_ (that’s [_you’re welcome_ in French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## An introduction to French sounds & French pronunciation
 
 The same as English, [French](https://en.wikipedia.org/wiki/French%5Flanguage)  uses the 26-letter basic Latin script, with four diacritics appearing on vowels – circumflex accent, acute accent, grave accent, diaeresis – and the cedilla in “ç”.
@@ -44,10 +40,6 @@ To help you get started with the _magique_  French sounds, we put together this 
 
 ![french pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/french-pronunciation-600x600.jpg "Quick Guide To French Pronunciation - How To Speak French Like A Native 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  French pronunciation in a nutshell
 
  It’s not a 100% faithful transliteration of French sounds, but neither can it be. As you already saw, there are many French sounds that don’t exist in English, so we’ll have to improvise. Don’t worry, though. Read on and you’ll discover how to correctly pronounce some of the most difficult of them. Remember, we’re only focusing on pronunciation, not [F rench grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) here. We’ll tackle that in the next [French lessons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -55,10 +47,6 @@ To help you get started with the _magique_  French sounds, we put together this 
 ## The most common French pronunciation challenges and how to overcome them
 
  There’s no denying that French pronunciation can be challenging. Depending on your ability (or inability) to mimic sounds, speaking French with a French accent can be a piece of cake or a hornet’s nest. Here are some of the most infamous French pronunciation challenges and how to overcome them. For practice, you may start with the [days of the week in French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) pronunciation.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The French r
 
@@ -79,6 +67,10 @@ Repeat the phrase **_regardez mon frère_** and find out where right now.
  Aaaand you just said your first French “u” sound. Cool, isn’t it?
 
  To master the other variables, you just have to continue practicing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The nasal sounds
 
@@ -103,7 +95,7 @@ _**é**_ is pronounced the same way you pronounce it in the English word “may�
 Well, not very different from each other, are they?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The silent letters
@@ -126,7 +118,7 @@ Well, not very different from each other, are they?
  “French buildings” by Orlova Maria©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What are French liaisons and how to master them?
@@ -139,6 +131,10 @@ To put it simply, _French liaisons_  or French connecting sounds bind together t
 
 Now, some of these _liaisons_  are optional, others are required, and some are forbidden (or, if you liked the well-known novel [_Les liaisons dangereuses_](https://en.wikipedia.org/wiki/Les%5FLiaisons%5Fdangereuses)  , you can simply say they are dangerous to use). Let’s get into a little more detail.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Required French liaisons
 
  Generally,_liaisons_ between syntactically related words (like an article and a noun, a pronoun and a verb or a noun and its adjective) are required. Of course, there are always exceptions, but the rule applies most of the time and it can help you improve your [French pronunciation](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast. Here are a few examples:
@@ -146,6 +142,10 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
 * _les amis_  \[lay zah mee\] – the friends (article + noun)
 * _deux enfants_ \[deu za(n) fa(n)\] – two children (numeral + noun)
 * _vous avez_ \[voo zah vay\] – you have (pronoun + verb)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### “Dangereuses” French liaisons
 
@@ -161,7 +161,7 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
  \*_h aspiré_ is different from h muet (“mute h”). It’s true that in French “h” is always a silent letter. However, in Old and Middle French, on certain words, the “h” was pronounced. This is why, if you want to say_les hôpitaux_  (“hospitals”), there is a_liaison_  between the two words because the “h” is_muet_  and not_aspiré._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Optional French liaisons
@@ -220,20 +220,19 @@ _Bonne chance!_
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-ultimate-list-of-idevice-screen-recorders/"><u>[New] 2024 Approved Ultimate List of iDevice Screen Recorders</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-green-grounds-a-selection-of-free-downloadable-videography-sets-for-2024/"><u>[Updated] Green Grounds A Selection of Free, Downloadable Videography Sets for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-techniques-for-designing-youtube-video-thumbnails/"><u>[Updated] In 2024, Essential Techniques for Designing YouTube Video Thumbnails</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aussie-expressions-made-easy-100plus-phrases/"><u>Aussie Expressions Made Easy: 100+ Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-koreas-linguistic-treasure-trove-squid-game/"><u>Decoding Korea's Linguistic Treasure Trove - Squid Game</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/discover-the-benefits-of-vision-pros-latest-travel-functionality-insider-preview-and-tips-zdnet/"><u>Discover the Benefits of Vision Pro's Latest Travel Functionality – Insider Preview & Tips | ZDNET</u></a></li>
-<li><a href="https://windows11.techidaily.com/easy-pathway-to-activating-windows-media-player/"><u>Easy Pathway to Activating Windows Media Player</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/examining-por-que-vs-por-que-in-context/"><u>Examining Por Que vs Por Qué in Context</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressing-friendship-across-borders/"><u>Expressing Friendship Across Borders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/practica-diario-como-decir-colores/"><u>Práctica Diario: Cómo Decir Colores</u></a></li>
-<li><a href="https://win-web.techidaily.com/top-7-tools-and-extensions-for-screenshots-in-mozilla-firefox-how-to-guide/"><u>Top 7 Tools and Extensions for Screenshots in Mozilla Firefox - How To Guide</u></a></li>
-<li><a href="https://fox-access.techidaily.com/transform-your-drive-must-have-accessories-for-sj4000-owners-for-2024/"><u>Transform Your Drive Must-Have Accessories for SJ4000 Owners for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uncovering-the-basics-of-german-phonetics/"><u>Uncovering the Basics of German Phonetics</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-extends-grace-period-for-new-privacy-acceptance/"><u>WhatsApp Extends Grace Period for New Privacy Acceptance</u></a></li>
-<li><a href="https://network-issues.techidaily.com/windows-10-elevated-performance-discover-the-power-of-amd-radeon-hd-6950-update-v20/"><u>Windows 10 Elevated Performance: Discover the Power of AMD Radeon HD 6950 Update V2.0</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-crafting-transitional-soundscapes-in-cubase/"><u>[New] Crafting Transitional Soundscapes in Cubase</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-ensuring-audio-clarity-amidst-remote-recording-challenges-for-2024/"><u>[New] Ensuring Audio Clarity Amidst Remote Recording Challenges for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-harvesting-hours-of-hilarity-friends-farming-favorites-for-2024/"><u>[New] Harvesting Hours of Hilarity Friends' Farming Favorites for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-vivo-s17e-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Vivo S17e? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boundless-knowledge-journey-rejoicing-in-anniversary-of-1500-free-classes/"><u>Boundless Knowledge Journey: Rejoicing in Anniversary of 1500 Free Classes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-worldwide-loving-sentiments-today/"><u>Discovering Worldwide Loving Sentiments Today</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-install-brother-dcp-l2540dw-printer-driver-on-windows-pc/"><u>Download and Install Brother DCP-L2540DW Printer Driver on Windows PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expo-lingofutura-crafting-the-linguists-of-tomorrow/"><u>Expo LingoFutura: Crafting the Linguists of Tomorrow</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forever-free-mondlys-lifetime-access-plan/"><u>Forever Free - Mondly’s Lifetime Access Plan</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/gratuite-convertisseur-en-ligne-gratuit-pour-transformer-wmv-en-fichier-flash-swf-avec-moviemaker/"><u>Gratuité: Convertisseur en Ligne Gratuit Pour Transformer WMV en Fichier Flash (SWF) Avec MovieMaker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-deutsch-with-hit-series-netflix/"><u>Mastering Deutsch with Hit Series - Netflix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachweiterentwicklung-zahlreim-fur-die-ersten-100-deutsche/"><u>Sprachweiterentwicklung: Zählreim Für Die Ersten 100 Deutsche</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-essential-guide-to-youtube-thumbnail-crafting-mac-for-2024/"><u>The Essential Guide to YouTube Thumbnail Crafting (Mac) for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-power-of-language-ai-palm-2-and-gpt-4-faceoff/"><u>The Power of Language AI: PaLM 2 and GPT-4 Faceoff</u></a></li>
 </ul></div>
 

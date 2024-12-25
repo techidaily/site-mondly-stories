@@ -1,7 +1,7 @@
 ---
 title: "Global Tongues Touching English: Lexical Diversification"
-date: 2024-12-03T18:54:03.905Z
-updated: 2024-12-10T17:37:17.449Z
+date: 2024-12-24T17:04:34.233Z
+updated: 2024-12-25T16:48:55.900Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
 
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Where did English Come From?
 
  The earliest forms of English, collectively known as Old English or Anglo-Saxon, developed from the North Sea Germanic languages that came to Britain between the mid-5th and 7th centuries AD. This linguistic influence made its way to Britain through the migration of the Anglo-Saxons from what is now northwest Germany, southern Denmark, and the Netherlands.
@@ -37,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
  Early Modern English began in the late 15th century with the Renaissance trend of borrowing Latin and Greek words and roots, which also coincided with the Great Vowel Shift. The era culminated in the King James Bible and the works of William Shakespeare.
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## English Words from Foreign Languages
 
@@ -73,10 +81,6 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
 * **Transcription,** which means borrowing words while preserving their original pronunciation in the borrowed language;
@@ -85,16 +89,16 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -148,7 +152,7 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
@@ -178,10 +182,6 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
 | Balcony   |
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## German loanwords: English words that are actually German
 
@@ -265,21 +265,22 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-essential-8-backdrops-a-guide-to-personalize-macbook/"><u>[New] 2024 Approved Essential 8 Backdrops A Guide to Personalize MacBook</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-turning-videos-backward-iphone-methods/"><u>[New] 2024 Approved Turning Videos Backward IPhone Methods</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-guide-to-overcoming-mobile-video-sending-problems-in-fb-chat-for-2024/"><u>[New] Guide to Overcoming Mobile Video Sending Problems in FB Chat for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-social-spectacle-snatcher-hub/"><u>[New] Social Spectacle Snatcher Hub</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-essential-guide-to-earning-money-on-youtube-shorts-quickly/"><u>2024 Approved The Essential Guide to Earning Money on YouTube Shorts Quickly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/commemorating-1500-no-cost-everyday-learning-sessions/"><u>Commemorating 1,500 No-Cost Everyday Learning Sessions</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/cookiebot-driven-solutions-for-enhanced-user-experience/"><u>Cookiebot-Driven Solutions for Enhanced User Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhanced-travel-experiences-with-language-mastery/"><u>Enhanced Travel Experiences with Language Mastery</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/framing-speed-the-hyperlapse-video-methods/"><u>Framing Speed The Hyperlapse Video Methods</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-teach-english-as-a-second-language/"><u>How to Teach English as a Second Language</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-samsung-galaxy-m14-5g-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Samsung Galaxy M14 5G and Browser | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-vivo-g2-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Vivo G2 IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pronunciation-patchwork-unraveling-irish-aussie-and-us-accents/"><u>Pronunciation Patchwork: Unraveling Irish, Aussie, and U.S. Accents</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-blueprint-mastering-a-language-through-the-web/"><u>The Ultimate Blueprint: Mastering a Language Through the Web</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/together-we-learn-mondlys-language-course-drive/"><u>Together, We Learn: Mondly’s Language Course Drive</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/un-viaje-intrigante-al-cuerpo-humano-en-espanol-de-la-boca-al-subterraneo/"><u>Un Viaje Intrigante Al Cuerpo Humano en Español: De La Boca Al Subterráneo</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-essential-tips-acquiring-unparalleled-photos-for-free-for-2024/"><u>[New] Essential Tips Acquiring Unparalleled Photos for Free for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-expert-guide-amplifying-your-tiktok-post-reach-with-hashtags/"><u>[New] Expert Guide Amplifying Your TikTok Post Reach with Hashtags</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-best-youtube-video-ideas-to-spark-inspiration/"><u>[Updated] 2024 Approved Best YouTube Video Ideas to Spark Inspiration</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-pairing-video-cameras-with-desktop-captures-for-2024/"><u>[Updated] Pairing Video Cameras with Desktop Captures for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unmasked-influence-introducing-the-power-players-of-insta-for-2024/"><u>[Updated] Unmasked Influence Introducing the Power Players of Insta for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-how-to-view-facebook-videos-with-apple-remote/"><u>2024 Approved How to View Facebook Videos with Apple Remote</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-big-3-language-waves-filter-for-speed/"><u>Asia's Big 3 Language Waves: Filter for Speed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-most-sought-after-verbal-gems-top-triad/"><u>Asia’s Most Sought-After Verbal Gems: Top Triad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-linguistic-practicality-german-versus-french/"><u>Comparative Linguistic Practicality: German Versus French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-communion-through-indonesian-phrases/"><u>Cultural Communion Through Indonesian Phrases</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/emeditor-pro-8-beta-release-overview-next-generation-text-editor-tools-and-capabilities/"><u>EmEditor Pro 8 Beta Release Overview: Next-Generation Text Editor Tools and Capabilities</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-vivo-y17s-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Vivo Y17s Data? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifetime-language-pass-your-0-investment-today/"><u>Lifetime Language Pass - Your $0 Investment Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-family-friendly-app-shines-in-2017/"><u>Mondly's Family-Friendly App Shines in 2017!</u></a></li>
+<li><a href="https://driver-install.techidaily.com/radeon-hd-5450-fast-and-easy-win11-driver-update/"><u>Radeon HD 5450: Fast & Easy Win11 Driver Update</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-quickly-choose-8-best-advantages-of-hindi-study-online-with-mondly/"><u>Unlock Your Potential Quickly: Choose 8 Best Advantages of Hindi Study Online with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-young-minds-excel-at-multilingual-mastery/"><u>Why Young Minds Excel at Multilingual Mastery</u></a></li>
 </ul></div>
 

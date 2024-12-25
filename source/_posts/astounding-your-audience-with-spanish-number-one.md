@@ -1,7 +1,7 @@
 ---
 title: Astounding Your Audience with Spanish Number One
-date: 2024-08-27T22:44:06.871Z
-updated: 2024-08-28T22:44:06.871Z
+date: 2024-12-20T16:05:48.653Z
+updated: 2024-12-25T17:00:50.142Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/81859b9b9a2b43ef1619da21603d5597234e71b31
 
  Learning how to count is crucial if you decide to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Although we may not always acknowledge it, numbers or_números_ (as you’d call them in Spanish) are essential to our day-to-day lives. From shopping to setting up a meeting, telling time, or giving someone your phone number – they really are one of the most basic and important language lessons. So let’s crack the mystery and discover what comes after_uno_ ,_dos,_ and_tres_ . Because Pitbull only gets us so far.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish numbers 1 to 30
 
  One of my Danish friends discovered how important Spanish numbers actually are when he needed to tell someone [the time in Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and had no idea that “five” is_cinco_ in Spanish. So this is a great piece of advice: don’t move to Barcelona without knowing one of the most basic [Spanish lessons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) first. Especially when it takes just 10 minutes to master it.
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/81859b9b9a2b43ef1619da21603d5597234e71b31
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -71,8 +79,9 @@ thumbnail: https://thmb.techidaily.com/81859b9b9a2b43ef1619da21603d5597234e71b31
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -103,8 +112,9 @@ thumbnail: https://thmb.techidaily.com/81859b9b9a2b43ef1619da21603d5597234e71b31
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -143,8 +153,9 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Barcelona, Spain
 
  If you want to go even further, thousands and millions work exactly like in English: number +_mil_ (“thousand”) or_millón_ (“million”). Here are some examples:
@@ -185,8 +196,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,8 +203,26 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-the-essential-guide-to-muting-intruders-on-google-video-chats/"><u>[New] 2024 Approved The Essential Guide to Muting Intruders on Google Video Chats</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-total-gaze-field-vr-device-overview/"><u>[New] Total Gaze Field VR Device Overview</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-visual-ventures-a-guide-to-social-video-growth/"><u>[New] Visual Ventures A Guide to Social Video Growth</u></a></li>
+<li><a href="https://windows11.techidaily.com/bluetooth-recovery-guide-9-steps-to-patch-up-your-pcs-link/"><u>Bluetooth Recovery Guide: 9 Steps to Patch Up Your PC's Link</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hangul-simplified-a-beginners-journey-into-korean-scripts/"><u>Hangul Simplified: A Beginner's Journey Into Korean Scripts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartfelt-messages-across-cultures-on-valentines-day/"><u>Heartfelt Messages Across Cultures on Valentine's Day</u></a></li>
+<li><a href="https://win-dash.techidaily.com/high-tensile-strength-does-not-guarantee-high-toughness-materials-can-be-brittle-yet-strong/"><u>High Tensile Strength Does Not Guarantee High Toughness; Materials Can Be Brittle yet Strong.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-quickly-can-i-become-a-conversationalist/"><u>How Quickly Can I Become a Conversationalist?</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/hp-victus-15l-desktop-laptop-now-at-an-unbelievable-price-of-520-over-38-discounted-dont-miss-out/"><u>HP Victus 15L Desktop Laptop Now at an Unbelievable Price of $520: Over 38% Discounted! Don't Miss Out!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-v29e-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Vivo V29e Phone with Broken Screen</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-instantaneous-media-movement-android-to-iphone/"><u>In 2024, Instantaneous Media Movement Android to iPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-a-new-era-of-customer-service-mondlys-faqs/"><u>Introducing a New Era of Customer Service - Mondly's FAQs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-dynamics-in-macau/"><u>Linguistic Dynamics in Macau</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-pathway-to-fluent-afrikaans-explained-in-7-points/"><u>Mondly's Pathway to Fluent Afrikaans Explained in 7 Points</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-japenese-warm-welcomes/"><u>Navigating Japenese Warm Welcomes</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/reviving-your-system-expert-tips-on-mending-broken-motherboards-with-yl-computing-support/"><u>Reviving Your System: Expert Tips on Mending Broken Motherboards with YL Computing Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-hello-like-a-pro-mastering-italys-friendliest-greetings/"><u>Saying Hello Like a Pro: Mastering Italy's Friendliest Greetings</u></a></li>
+<li><a href="https://win11.techidaily.com/strategies-to-address-invalid-onedrive-blob-tag-issue/"><u>Strategies to Address Invalid OneDrive Blob Tag Issue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-necessity-of-flexible-language-learning-frameworks/"><u>The Necessity of Flexible Language Learning Frameworks</u></a></li>
+</ul></div>
 

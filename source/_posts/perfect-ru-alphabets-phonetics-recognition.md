@@ -1,7 +1,7 @@
 ---
 title: Perfect RU Alphabets' Phonetics Recognition
-date: 2024-12-14T18:34:29.803Z
-updated: 2024-12-16T21:06:44.961Z
+date: 2024-12-20T16:42:03.007Z
+updated: 2024-12-25T16:36:25.367Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
  To put it simply, once you master the Russian alphabet, you’ll know how to pronounce the majority of the [Russian words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . So let’s uncover the mysteries of this alphabet together so you can move on to more important things like… **[learning Russian with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4656&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4656?mother%5Flang=en%5Fus?target%5Flang=ru&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4656?mother%5Flang=en%5Fus?target%5Flang=ru) .**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## A short history of the Russian language and the Russian alphabet
 
  As you already know, Russian is an East Slavic language and one of the world’s major languages: it is one of the six official United Nations languages and the 8th [most spoken language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in the world with a total of [260 million speakers](https://www.ethnologue.com/language/rus) . Moreover, Russian the official language of Russia, Belarus, Kazakhstan and Kyrgyzstan and the unofficial lingua franca in Ukraine and many other former Soviet countries.
@@ -31,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 **[Russian](https://www.britannica.com/topic/Russian-language) and the other East Slavic languages (Ukrainian, Belarusian) were not very different from each other until the Middle Russian period (late 13th century to the 16th century).** As a matter of fact, the term “Old Russian” is generally used to describe the East Slavic languages in use before the Middle Russian period.
 
  Russian has been greatly influenced by Old Church Slavonic and – since the westernizing policies of Tsar Peter I the Great in the 18 century – by the [languages of western Europe](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Then, the 19th-century poet Aleksandr Pushkin determined the further development of the [Russian language we know](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today. His writings, in which he combined the colloquial and Church Slavonic styles, were decisive in establishing the best style for literary use.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The Cyrillic script
 
@@ -46,11 +38,11 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
 ![russian letters](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-letters-600x480.jpg "Master The Russian Alphabet Pronunciation 2")
 
- “Red Square, Moscow, Russia” by Aurelien Romain©
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ “Red Square, Moscow, Russia” by Aurelien Romain©
 
 ## Understand how to pronounce the Russian alphabet
 
@@ -60,6 +52,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
  If we were to compare the Russian alphabet to the English alphabet, we would have four groups of letters: letters that look and sound (almost) the same as in English, letters that sound the same but look different, letters that look the same but sound different and letters that have no English equivalent whatsoever.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Russian letters that are (almost) the same as in English
 
 * **А а** sounds like “a” in “father” or “after”,
@@ -68,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **М м** sounds like “m” in “mother” or “mobile”,
 * **О о** sounds like “o” in “bore” or “more” (without the ‘r’ sound),
 * **Т т** sounds like “t” in “top” or “task”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Russian letters that sound the same as in English (but look different)
 
@@ -89,7 +89,7 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **Я я** sounds like “yu” in yummy or “ya” in “yard”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Russian letters that look the same as in English (but sound different)
@@ -117,6 +117,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
  Russian alphabet pronunciation
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Russian lesson no. 1: rules
 
  Russian is definitely not the [hardest language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you can study. As you already saw, once you get to know it, the Russian alphabet seems quite friendly. Languages like Chinese, Japanese, Korean or [Arabic](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , on the other hand, are way harder to master. Besides, once you learn the alphabet, you will already be able to read in Russian – a great boost for your motivation!
@@ -136,10 +140,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Study Russian in just 10 minutes a day
 
@@ -166,21 +166,17 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-sony-snapshot-standstill-no-video-viewing/"><u>[New] 2024 Approved Sony Snapshot Standstill No Video Viewing</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-command-attention-with-these-powerful-20-tiktok-caption-ideas/"><u>[New] In 2024, Command Attention with These Powerful 20 TikTok Caption Ideas</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-decoding-monetization-how-much-creators-earn-per-ad-on-youtube/"><u>2024 Approved Decoding Monetization How Much Creators Earn Per Ad on YouTube?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-effectively-convert-iphone-photos-jpeg-png-into-pdfs/"><u>2024 Approved How to Effectively Convert iPhone Photos (JPEG, PNG) Into PDFs</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/boosting-social-reach-top-facebook-video-engagement-techniques-for-2024/"><u>Boosting Social Reach Top Facebook Video Engagement Techniques for 2024</u></a></li>
-<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-oppo-a38-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Oppo A38 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-infinix-note-30-vip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Infinix Note 30 VIP | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-the-precision-of-the-gsl-by-pearson-to-mondly/"><u>Introducing The Precision Of The GSL By Pearson To Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/italian-dialogues-for-the-discerning-tourist/"><u>Italian Dialogues for the Discerning Tourist</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/languages-made-easy-mondly-app-for-oculus-quest-available/"><u>Languages Made Easy: Mondly App for Oculus Quest Available</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latest-notice-data-handling-guidelines/"><u>Latest Notice: Data Handling Guidelines</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-a-study-on-its-instructional-method/"><u>Mondly: A Study on Its Instructional Method</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-role-in-accelerating-my-linguistic-competence-the-best-10-ways/"><u>Mondly's Role in Accelerating My Linguistic Competence - The Best 10 Ways</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polite-expressions-a-guide-to-saying-thank-you-in-30-languages-152-trimmed-to-fit/"><u>Polite Expressions: A Guide to Saying Thank You in 30 Languages (152) [Trimmed to Fit]</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/premier-virtual-microphones-for-2024/"><u>Premier Virtual Microphones for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-essential-guide-to-identifying-scam-bingchat-coins/"><u>The Essential Guide to Identifying Scam BingChat Coins</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-enhance-team-engagement-through-zoom-recording-for-2024/"><u>[New] How to Enhance Team Engagement Through Zoom Recording for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-eye-opening-motivations-to-learn-a-foreign-language/"><u>5 Eye-Opening Motivations to Learn a Foreign Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/blueprint-for-reaching-set-annual-targets/"><u>Blueprint For Reaching Set Annual Targets</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/breaking-down-average-podcaster-salary-for-2024/"><u>Breaking Down Average Podcaster Salary for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-a-foundation-french-language-sound-basics/"><u>Building a Foundation: French Language Sound Basics</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/fixing-common-problems-following-printer-setting-adjustments-with-yl-software-solutions/"><u>Fixing Common Problems Following Printer Setting Adjustments with YL Software Solutions</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-iphone-sms-issues-a-guide-to-restoring-text-message-reception/"><u>Fixing iPhone SMS Issues: A Guide to Restoring Text Message Reception</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fruhstuck-mit-nummern-1-100-auf-deutsch-lernen-fur-anfanger/"><u>Frühstück Mit Nummern: 1-100 Auf Deutsch Lernen Für Anfänger</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-13-pro-online-here-are-6-easy-ways-by-drfone-ios/"><u>How to Unlock Apple iPhone 13 Pro Online? Here are 6 Easy Ways</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-can-i-remove-the-apple-watch-activation-lock-by-apple-iphone-13-pro-max-without-the-previous-owner-by-drfone-ios/"><u>In 2024, Can I Remove the Apple Watch Activation Lock By Apple iPhone 13 Pro Max without the Previous Owner?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580203961-learn-multiple-languages-at-once/"><u>Learn Multiple Languages at Once</u></a></li>
+<li><a href="https://blog-min.techidaily.com/ultimate-guide-to-upgrading-your-videos-converting-mtsm2ts-files-to-high-quality-hevch265-format/"><u>Ultimate Guide to Upgrading Your Videos: Converting MTS/M2TS Files to High-Quality HEVC/H.265 Format</u></a></li>
 </ul></div>
 

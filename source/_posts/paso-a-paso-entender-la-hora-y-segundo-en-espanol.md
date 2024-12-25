@@ -1,7 +1,7 @@
 ---
 title: "Paso a Paso: Entender La Hora Y Segundo en Español"
-date: 2024-12-13T19:27:08.530Z
-updated: 2024-12-16T17:28:24.879Z
+date: 2024-12-24T17:06:04.592Z
+updated: 2024-12-25T16:03:58.207Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ But first things first.
 
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ¿Que hora es? – how to ask for the time in Spanish
 
  In order to tell the time in Spanish, you’ll first have to learn how to properly ask for the time in Spanish. You can never be too cautious. I’m just making sure you’re not missing that_fiesta española_ you spent weeks thinking about!
@@ -33,7 +37,7 @@ But first things first.
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The basics of Spanish time
@@ -61,10 +65,6 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -81,10 +81,14 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Telling time in Spanish – a visual guide
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hour + minutes in Spanish time
@@ -99,7 +103,7 @@ Here are some examples:
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Different ways of telling time in Spanish
@@ -125,10 +129,6 @@ Here are some examples:
 * _tarde_ – in the afternoon
 
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Other useful time phrases in Spanish
 
@@ -190,24 +190,16 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-enhance-your-media-experience-by-learning-vlcs-rotation-feature/"><u>[New] In 2024, Enhance Your Media Experience by Learning VLC's Rotation Feature</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-skyward-saga-with-gopro-karma-a-comprehensive-review-for-2024/"><u>[New] Skyward Saga with GoPro Karma A Comprehensive Review for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-golden-geographies-revealed-the-best-map-locations-for-2024/"><u>[Updated] Golden Geographies Revealed The Best Map Locations for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-social-media-savvy-how-to-successfully-post-videos-on-fb-for-2024/"><u>[Updated] Social Media Savvy How to Successfully Post Videos on FB for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/celebrated-scripts-spanning-eight-movie-segments/"><u>Celebrated Scripts Spanning Eight Movie Segments</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/guida-speciale-al-contare-in-italiano-1-1000/"><u>Guida Speciale Al Contare in Italiano (1-1000)</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-contacts-from-zte-blade-a73-5g-by-fonelab-android-recover-contacts/"><u>How to Rescue Lost Contacts from ZTE Blade A73 5G?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/instrucciones-para-entender-la-hora-en-espanol/"><u>Instrucciones Para Entender La Hora en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latin-playfully-unlocked-through-education/"><u>Latin Playfully Unlocked Through Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-grammars-maze-for-learners/"><u>Navigating Grammar's Maze for Learners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/prime-foreign-tongues-pursued-by-americans/"><u>Prime Foreign Tongues Pursued by Americans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/reloj-digital-conocimiento-esencial-en-espanol/"><u>Reloj Digital: Conocimiento Esencial en Español</u></a></li>
-<li><a href="https://some-skills.techidaily.com/stream-control-tactics-10-ways-to-unwind-live-play-for-2024/"><u>Stream Control Tactics 10 Ways to Unwind Live Play for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/top-rated-no-cost-xvid-to-mp4-converter-software-simple-steps-for-windows-users/"><u>Top Rated No-Cost Xvid to Mp4 Converter Software - Simple Steps for Windows Users</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-how-to-fix-a-malfunctioning-headset-microphone/"><u>Troubleshooting Guide: How to Fix a Malfunctioning Headset Microphone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uk-dialect-decoded-fluent-in-locals-tongue/"><u>UK Dialect Decoded: Fluent in Locals Tongue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-smooth-conversation-top-9-verbal-mastery-hints/"><u>Unlocking Smooth Conversation: Top 9 Verbal Mastery Hints</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/us-vs-uk-a-linguistic-comparison/"><u>US vs UK: A Linguistic Comparison</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-oneplus-nord-n30-se-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on OnePlus Nord N30 SE | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/decoding-the-disappearance-of-yahoo-messenger-reasons-for-its-sudden-demise/"><u>Decoding the Disappearance of Yahoo! Messenger: Reasons for Its Sudden Demise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-indonesian-chit-chat-starts-here/"><u>Discovering Indonesian Chit-Chat Starts Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/getting-acquainted-with-zhuyin/"><u>Getting Acquainted with Zhuyin</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-language-skills-as-a-vital-fifties-endeavor/"><u>Second Language Skills as a Vital Fifties Endeavor</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-poco-f5-pro-5g-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from Poco F5 Pro 5G</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/solving-sound-card-issues-effectively-guidance-by-yl-computing-and-yl-software-professionals/"><u>Solving Sound Card Issues Effectively: Guidance by YL Computing and YL Software Professionals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachstarter-zahlen-bis-100-in-deutscher-sprache/"><u>Sprachstarter: Zählen Bis 100 in Deutscher Sprache</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-xiaomi-redmi-k70e-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Xiaomi Redmi K70E Phone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/upcoming-gpt-4-revolutionizing-diy-with-advanced-artificial-intelligence/"><u>Upcoming GPT-4: Revolutionizing DIY with Advanced Artificial Intelligence</u></a></li>
 </ul></div>
 

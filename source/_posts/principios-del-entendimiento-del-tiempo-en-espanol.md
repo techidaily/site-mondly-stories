@@ -1,7 +1,7 @@
 ---
 title: Principios Del Entendimiento Del Tiempo en Español
-date: 2024-12-12T20:52:26.387Z
-updated: 2024-12-16T21:49:21.411Z
+date: 2024-12-24T16:44:34.905Z
+updated: 2024-12-25T16:19:13.027Z
 tags:
   - speak
   - english
@@ -26,11 +26,19 @@ But first things first.
 
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ¿Que hora es? – how to ask for the time in Spanish
 
  In order to tell the time in Spanish, you’ll first have to learn how to properly ask for the time in Spanish. You can never be too cautious. I’m just making sure you’re not missing that_fiesta española_ you spent weeks thinking about!
 
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The basics of Spanish time
 
@@ -73,14 +81,10 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Telling time in Spanish – a visual guide
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hour + minutes in Spanish time
@@ -95,7 +99,7 @@ Here are some examples:
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Different ways of telling time in Spanish
@@ -107,10 +111,6 @@ Here are some examples:
 * _es/son_ +_las_ \+ hour + con + number of minutes –**_Son las tres con diez_**
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
 
@@ -125,10 +125,6 @@ Here are some examples:
 * _tarde_ – in the afternoon
 
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Other useful time phrases in Spanish
 
@@ -165,6 +161,10 @@ Here are some examples:
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -190,18 +190,24 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ngineering-captivating-video-teasers-for-online-presence-for-2024/"><u>[New] Engineering Captivating Video Teasers for Online Presence for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-discover-review-and-compare-with-az-screenshotter-for-2024/"><u>[Updated] Discover, Review & Compare with AZ Screenshotter for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-fix-incorrectly-pressed-keys-on-your-keyboard/"><u>How to Fix Incorrectly Pressed Keys on Your Keyboard</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-tecno-pova-5-pro-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Tecno Pova 5 Pro</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-your-ultimate-guide-to-protecting-images/"><u>In 2024, Your Ultimate Guide to Protecting Images</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/innovating-intelligence-tomorrows-tools-for-today-writers/"><u>Innovating Intelligence: Tomorrow's Tools for Today' Writers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/intoxicating-introductions-from-francophone-lovers/"><u>Intoxicating Introductions From Francophone Lovers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-social-interactions-in-a-new-world-essentials-of-latam-languages/"><u>Mastering Social Interactions in a New World: Essentials of LatAm Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/open-doors-with-linguistic-skills/"><u>Open Doors with Linguistic Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pasos-simples-para-aprender-a-leer-el-tiempo-en-espanol/"><u>Pasos Simples Para Aprender a Leer El Tiempo en Español</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/quick-guide-resolving-sound-distortion-on-logitech-g93n-wireless-for-pcmac/"><u>Quick Guide: Resolving Sound Distortion on Logitech G93n Wireless for PC/Mac</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-simplicity-of-babels-next-generation-learners/"><u>The Simplicity of Babel's Next Generation Learners</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ling-profit-potential-the-systematic-triad-technique-for-youtube-earning-analysis-for-2024/"><u>Unveiling Profit Potential The Systematic Triad Technique for YouTube Earning Analysis for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-comprehensive-guide-to-youtube-video-captioning/"><u>[Updated] Comprehensive Guide to YouTube Video Captioning</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevating-your-vlogs-a-list-of-the-top-12-professional-cameras/"><u>[Updated] In 2024, Elevating Your Vlogs A List of the Top 12 Professional Cameras</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/1-ultimate-guide-to-ifolder-sync-mastering-your-filters/"><u>1. Ultimate Guide to iFolder Sync: Mastering Your Filters</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-transform-storytelling-crafting-ig-questions-for-impact/"><u>2024 Approved Transform Storytelling Crafting IG Questions for Impact</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/awaken-desires-with-french-eloquence/"><u>Awaken Desires with French Eloquence</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/discover-the-ultimate-replacement-for-beemp3-compatible-with-both-mac-and-pc-crafted-by-allavsoft/"><u>Discover the Ultimate Replacement for BeeMp3 Compatible with Both Mac and PC, Crafted by Allavsoft</u></a></li>
+<li><a href="https://program-issues.techidaily.com/enhancing-gaming-experience-by-fixing-freezing-glitches-in-code-veam/"><u>Enhancing Gaming Experience by Fixing Freezing Glitches in Code Veam</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/error-protection-unavailable-for-files-over-2088958-mb-learn-solutions-now/"><u>Error: Protection Unavailable for Files Over 2088958 MB – Learn Solutions Now!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honteruss-journey-towards-motivation/"><u>Honterus’s Journey Towards Motivation</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-vivo-y02t-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Vivo Y02T Safely | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-photo-perfection-how-to-automatically-save-snaps-from-snapchat/"><u>In 2024, Photo Perfection How to Automatically Save Snaps From Snapchat</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-dialogue-deciphering-turkey-and-korea/"><u>Intercultural Dialogue: Deciphering Turkey and Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguasphere-revolutionizing-educational-vr/"><u>LinguaSphere: Revolutionizing Educational VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-bengali-skills-upgrade/"><u>Quick Bengali Skills Upgrade</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-relations-deconstructing-the-similarities-and-differences-in-spanish-and-portuguese/"><u>Romance Relations: Deconstructing the Similarities and Differences in Spanish and Portuguese</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/seamless-mp4-media-viewing-on-macos-big-sur-compatibility-with-all-codecs-explained/"><u>Seamless MP4 Media Viewing on macOS Big Sur: Compatibility with All Codecs Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/socializing-made-simple-top-phrases-and-words-from-south-america/"><u>Socializing Made Simple: Top Phrases and Words From South America</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-worldwide-gratitude-163-trimmed-to-fit/"><u>The Ultimate Guide to Worldwide Gratitude (163) [Trimmed to Fit]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-voyage-unraveling-the-bards-lingual-roots/"><u>Vocabulary Voyage: Unraveling the Bard's Lingual Roots</u></a></li>
 </ul></div>
 

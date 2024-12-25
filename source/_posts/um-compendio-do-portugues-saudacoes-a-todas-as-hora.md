@@ -1,7 +1,7 @@
 ---
 title: "Um Compêndio Do Português: Saudações a Todas as Hora"
-date: 2024-12-05T16:08:17.351Z
-updated: 2024-12-10T18:52:50.711Z
+date: 2024-12-20T16:38:09.520Z
+updated: 2024-12-25T16:02:44.225Z
 tags:
   - speak
   - english
@@ -30,10 +30,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### “Hi” in Portuguese – Oi
 
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
@@ -57,12 +53,16 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
@@ -76,7 +76,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  All three of these are safe to use in any kind of interaction (formal or informal).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
@@ -96,7 +96,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
@@ -123,16 +123,16 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
 
@@ -165,24 +165,22 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-step-by-step-adding-subsections-and-chapters-to-your-youtube-tutorials/"><u>[New] 2024 Approved Step-by-Step Adding Subsections and Chapters to Your YouTube Tutorials</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-youtube-studio-for-beginners-basic-to-pro-editing-guide/"><u>[New] 2024 Approved YouTube Studio for Beginners Basic to Pro Editing Guide</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-top-8-access-free-eco-friendly-vfx-backdrops-online-for-2024/"><u>[Updated] Top 8 Access Free Eco-Friendly VFX Backdrops Online for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-unveiling-best-underwater-cameras-for-deep-blue-explorations/"><u>[Updated] Unveiling Best Underwater Cameras for Deep Blue Explorations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/acquiring-a-new-language-speed-vs-patience/"><u>Acquiring a New Language: Speed Vs. Patience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/advance-your-teaching-with-these-top-5-language-apps/"><u>Advance Your Teaching with These Top 5 Language Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/age-no-barrier-to-multilingual-mastery/"><u>Age-No Barrier to Multilingual Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/clear-speech-path-hone-your-pronunciation-with-twisters/"><u>Clear Speech Path: Hone Your Pronunciation with Twisters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoes-in-english-the-ever-present-bards-speech/"><u>Echoes in English: The Ever-Present Bard's Speech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressing-affection-in-diverse-languages/"><u>Expressing Affection in Diverse Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-vs-french-assessing-linguistic-practicality/"><u>German vs French: Assessing Linguistic Practicality</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-realme-gt-5-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Realme GT 5 Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/improving-creep-resistance-can-involve-altering-alloy-compositions-heat-treatments-and-controlling-microstructural-features-like-grain-size/"><u>Improving Creep Resistance Can Involve Altering Alloy Compositions, Heat Treatments, and Controlling Microstructural Features Like Grain Size.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-cupids-arrow-say-i-love-you-more-ways/"><u>Multilingual Cupid’s Arrow: Say 'I Love You' More Ways!</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/substandard-material-found-caseking-stops-selling-barrow-dabel-radiators-following-latest-aio-quality-checks/"><u>Substandard Material Found: CaseKing Stops Selling Barrow Dabel Radiators Following Latest AIO Quality Checks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-a-cost-effective-smartwatch-a-look-at-beantechs-bitwatch-s1plus/"><u>The Ultimate Guide to Choosing a Cost-Effective Smartwatch - A Look at Beantech's Bitwatch S1+</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/turkish-korean-conversation-mysteries-unraveled/"><u>Turkish-Korean Conversation Mysteries Unraveled</u></a></li>
-<li><a href="https://win11.techidaily.com/upgrade-your-terminal-visual-element/"><u>Upgrade Your Terminal Visual Element</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211329477-9798869333964-vibrations-heilung/"><u>VIBRATIONS HEILUNG | Free Book</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-navigating-the-apex-of-general-knowledge-trivia-channels-in-24/"><u>[Updated] 2024 Approved Navigating the Apex of General Knowledge Trivia Channels in '24</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-the-8-most-reliable-and-free-open-source-video-chat-options/"><u>[Updated] The 8 Most Reliable and Free Open Source Video Chat Options</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-transform-avis-into-gifs-a-step-by-step-filmora-guide-for-pc-and-mac-for-2024/"><u>[Updated] Transform AVIs Into GIFs A Step-by-Step Filmora Guide for PC and Mac for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-streamlining-the-acquisition-of-background-visual-content/"><u>2024 Approved Streamlining the Acquisition of Background Visual Content</u></a></li>
+<li><a href="https://win-able.techidaily.com/comprehensive-guide-on-resolving-granblue-fantasy-relink-issue-during-game-startup/"><u>Comprehensive Guide on Resolving Granblue Fantasy ReLink Issue During Game Startup</u></a></li>
+<li><a href="https://win-lab.techidaily.com/effortlessly-manage-and-delete-temporary-bak-files-from-your-pc-using-yl-computing-tools/"><u>Effortlessly Manage & Delete Temporary .BAK Files From Your PC Using YL Computing Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forsok-till-svensk-grev-att-gora/"><u>Försök Till Svensk: Grev Att Göra</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-essential-guide-to-understanding-and-using-instagrams-music-features/"><u>In 2024, The Essential Guide to Understanding and Using Instagram's Music Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/macau-a-linguistic-kaleidoscope/"><u>Macau: A Linguistic Kaleidoscope</u></a></li>
+<li><a href="https://win-able.techidaily.com/nox-player-troubleshooting-guide-how-to-resolve-frequent-disruptions-and-crashing-problems-on-your-computer/"><u>Nox Player Troubleshooting Guide: How to Resolve Frequent Disruptions and Crashing Problems on Your Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pasos-faciles-para-entender-la-hora-digital/"><u>Pasos Fáciles Para Entender La Hora Digital</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/revive-your-typing-experience-with-our-comprehensive-reset-techniques-for-keyboards/"><u>Revive Your Typing Experience with Our Comprehensive Reset Techniques for Keyboards</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sharpen-articulation-skills-100-engaging-tongue-twisters/"><u>Sharpen Articulation Skills: 100 Engaging Tongue Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplifying-spanish-verb-forms-and-tenses/"><u>Simplifying Spanish Verb Forms & Tenses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-power-of-two-tongues-essential-bilingual-gains/"><u>The Power of Two Tongues: Essential Bilingual Gains</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tracing-dutch-linguistics-origin-and-evolution/"><u>Tracing Dutch Linguistics: Origin and Evolution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vielschichtigkeit-der-sprache-deutsche-begrussungen-die-nicht-hallo-lauten/"><u>Vielschichtigkeit Der Sprache: Deutsche Begrüßungen, Die Nicht Hallo Lauten</u></a></li>
 </ul></div>
 

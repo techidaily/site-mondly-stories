@@ -1,7 +1,7 @@
 ---
 title: "Saudações Em Português: Todas as Avispasidades Da Bênção"
-date: 2024-12-09T20:05:10.805Z
-updated: 2024-12-16T16:56:43.645Z
+date: 2024-12-20T17:05:08.339Z
+updated: 2024-12-25T16:52:42.227Z
 tags:
   - speak
   - english
@@ -20,9 +20,17 @@ thumbnail: https://thmb.techidaily.com/85ea88a283ba15f13d63e8eaf5823127ecc1dabd5
 
  So next time you go on an adventure to one of the 7 countries where Portuguese is the only official language (Portugal, Brazil, Mozambique, Angola, Cape Verde, Guinea-Bissau, São Tomé and Príncipe), try the following**Portuguese greetings** and see how easy it is to connect with someone even if you don’t speak the same language.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. How to say “hello” in Portuguese
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### “Hello” in Portuguese – Olá
 
@@ -39,7 +47,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  “Lisbon, Portugal” by Diego García©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
@@ -57,10 +65,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
@@ -74,10 +78,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  **Good night in Portuguese –_Boa noite!_**  – The Portuguese language does not make any difference between evening and night. Thus, “goodnight” and “good evening” have the same translation in Portuguese. While in Brazil you will say “boa NOEE-tsh”, in Portugal you will say “boa NOEE-t”.
 
  All three of these are safe to use in any kind of interaction (formal or informal).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
 
@@ -124,7 +124,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
@@ -165,18 +165,17 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2023s-top-no-cost-fb-photo-and-video-crafting-for-2024/"><u>[New] 2023'S Top No-Cost FB Photo & Video Crafting for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-from-zero-to-hero-profit-on-reddit-with-no-experience-top-13/"><u>[New] In 2024, From Zero to Hero Profit on Reddit with No Experience (Top 13)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/encuentro-la-palabra-articulacion-de-colores/"><u>Encuentro La Palabra: Articulación De Colores</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expand-your-mind-benefits-of-multilingualism-in-todays-world/"><u>Expand Your Mind: Benefits of Multilingualism in Today's World</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expand-your-verbal-horizons/"><u>Expand Your Verbal Horizons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expert-recommended-5-tech-for-linguists-and-instructors/"><u>Expert Recommended 5 Tech for Linguists & Instructors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-dreamer-to-doer-johannes-honteruss-story/"><u>From Dreamer to Doer: Johannes Honterus's Story</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/futureling-mastering-languages-at-dubai-expo-2020/"><u>FutureLing: Mastering Languages at Dubai Expo 2020</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-honor-80-pro-straight-screen-edition-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Honor 80 Pro Straight Screen Edition to Another | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-honor-90-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Honor 90 Phones</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/view-count-visionaries-strategies-for-huge-traffic-for-2024/"><u>View Count Visionaries Strategies for Huge Traffic for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Samsung Galaxy A34 5G? | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/workaround-for-installing-unverified-windows-programs/"><u>Workaround for Installing Unverified Windows Programs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-seamless-integration-utilizing-instagrams-music-stickers-expertise/"><u>[Updated] Seamless Integration Utilizing Instagram's Music Stickers Expertise</u></a></li>
+<li><a href="https://some-tips.techidaily.com/convertir-imagenes-de-formato-raf-a-jpeg-sin-coste-con-movavi/"><u>Convertir Imágenes De Formato RAF a JPEG Sin Coste Con Movavi</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-seamlessly-install-lenovo-t420-drivers-on-your-windows-pc/"><u>How to Seamlessly Install Lenovo T420 Drivers on Your Windows PC</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-vivo-s17e-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Vivo S17e? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unites-with-pearson-knowledge-alliance/"><u>Mondly Unites With Pearson Knowledge Alliance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/neurolingual-vr-enhancing-cognitive-skills-through-language/"><u>NeuroLingual VR: Enhancing Cognitive Skills Through Language</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/perfect-viewing-sequence-the-ultimate-guide-to-enjoying-x-men-films/"><u>Perfect Viewing Sequence: The Ultimate Guide to Enjoying X-Men Films</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/seamless-system-sharing-quick-and-effective-techniques-for-transferring-files-for-2024/"><u>Seamless System Sharing Quick and Effective Techniques for Transferring Files for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-wise-choice-embracing-multilingualism-in-your-golden-years/"><u>The Wise Choice: Embracing Multilingualism in Your Golden Years</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/verkleinern-sie-grosse-videoinhalte-fur-facebook-schritt-fur-schritt-anleitung/"><u>Verkleinern Sie Große Videoinhalte Für Facebook - Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-keys-locked-here-are-quick-fixes-to-regain-accessibility-of-your-shortcut-commands/"><u>Windows Keys Locked? Here Are Quick Fixes to Regain Accessibility of Your Shortcut Commands</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/poiothta-eygnwmwn-gkreman-ths-dyshs/"><u>Ποιότητα Ευγνωμών Γκρεμάν Της Δύσης</u></a></li>
 </ul></div>
 

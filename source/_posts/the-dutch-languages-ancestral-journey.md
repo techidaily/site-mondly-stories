@@ -1,7 +1,7 @@
 ---
 title: The Dutch Language's Ancestral Journey
-date: 2024-12-06T17:36:24.811Z
-updated: 2024-12-10T17:29:11.497Z
+date: 2024-12-21T17:06:42.854Z
+updated: 2024-12-25T17:12:38.147Z
 tags:
   - speak
   - english
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/db39cf974b891a971b269fa1b5c545ac5598c4412
 
 **The Dutch people are from the Netherlands.** As unrelated as that may seem, there is a whole history to it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Why are Dutch people called Dutch?
 
  It seems that the confusion stems from the English-speaking people and the reason can be found by studying **the [etymology](https://www.etymonline.com/word/dutch) of the word ‘dutch’** . I won’t bore you with all the details, but the bottom line is that in the late 14th century the word referred to ‘a German language’ or to ‘German, non-Scandinavian continental Germanic’. Additionally, the word corresponds to the Old English adjective_þeodisc_ (‘belonging to the people’) which was used to refer to the common language of Germanic people (as opposed to Latin).
@@ -41,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/db39cf974b891a971b269fa1b5c545ac5598c4412
  And this is not everything. Within the Holy Roman Empire, the word ‘Netherlands’ was widely used to indicate people from the low-lying (‘nether’) region (‘land’). That’s how ‘the Kingdom of the Netherlands’ got its name when it became a formal, separate country in 1815.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Where is the Netherlands?
@@ -58,6 +54,10 @@ Okay, bare with me. There’s more.
 
 ![netherlands vs holland](https://edge.mondly.com/blog/wp-content/uploads/2022/02/netherlands-vs-holland.png "Where Are Dutch People From? Discover The Dutch Language 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The Netherlands vs Holland
 
  It all goes back (again) to Old English. Originally referring to the people from the northern region of the Netherlands, ‘Holland’ literally meant ‘wood-land’. But over time, English speakers began to mistakenly associate it with the entire country.
@@ -65,7 +65,7 @@ Okay, bare with me. There’s more.
  Formerly the County of Holland (the most important county in the Low Countries region), Holland now consists of North and South Holland. These are two of the nation’s twelve provinces.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What language do they speak in the Netherlands?
@@ -83,10 +83,14 @@ Okay, bare with me. There’s more.
 ![language in the netherlands](https://edge.mondly.com/blog/wp-content/uploads/2022/02/language-in-the-netherlands-960x573.jpg "Where Are Dutch People From? Discover The Dutch Language 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  ‘Tulip fields in the Netherlands’ by redcharlie©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What other countries speak Dutch?
 
@@ -95,10 +99,6 @@ Okay, bare with me. There’s more.
  The Dutch language is also spoken in a small part of France and on the islands of Curaçao, Sint Maarten, Aruba (all three part of the Kingdom of the Netherlands), Bonaire, Saba, and Sint Eustatius.
 
  If you travel to South Africa, you may think people speak Dutch, but they actually speak [Afrikaans](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , a language that evolved from Dutch.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is German Dutch?
 
@@ -142,22 +142,20 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-essential-guide-to-8-premium-free-software-apps-windowsmac/"><u>[New] 2024 Approved Essential Guide to 8 Premium Free Software Apps (Windows/Mac)</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-achieving-financial-gains-via-snapchat/"><u>[Updated] In 2024, Achieving Financial Gains via Snapchat</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-mastering-tiktok-audio-crafting-it-as-your-perfect-ringtone/"><u>[Updated] Mastering TikTok Audio Crafting It as Your Perfect Ringtone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581475811-10-minute-tagalog-grind-start-today/"><u>10-Minute Tagalog Grind - Start Today!</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-cutting-edge-gear-for-aspiring-youtube-stars/"><u>2024 Approved Cutting-Edge Gear for Aspiring YouTube Stars</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bengalian-easy-fast-language-learning-each-day/"><u>Bengalian Easy: Fast Language Learning Each Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boost-your-words-power-list-of-the-best-50-latin-proverbs/"><u>Boost Your Words' Power - List of the Best 50 Latin Proverbs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decadent-delights-multilingual-names/"><u>Decadent Delights, Multilingual Names</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Oppo Reno 9A? | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-reactivate-disabled-local-authentication-layers-securely/"><u>How To Reactivate Disabled Local Authentication Layers Securely</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-asus-rog-phone-8-pros-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Asus ROG Phone 8 Pros Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-popularity-in-asia-tri-tiered-leaders/"><u>Linguistic Popularity in Asia: Tri-Tiered Leaders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-paves-the-way-affordable-education-in-ukrainian-and-beyond/"><u>Mondly Paves the Way: Affordable Education in Ukrainian & Beyond</u></a></li>
-<li><a href="https://fox-access.techidaily.com/optimal-zoom-settings-for-microsoft-teams-communication-for-2024/"><u>Optimal Zoom Settings for Microsoft Teams Communication for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/pairing-podcast-with-picture/"><u>Pairing Podcast with Picture</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speedy-polish-comprehensibility-strategy/"><u>Speedy Polish Comprehensibility Strategy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-journey-into-hanguls-heart-adopting-korean-for-squid-game/"><u>The Journey Into Hangul's Heart - Adopting Korean for Squid Game</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solved-chrome-high-cpu-usage/"><u>[SOLVED] Chrome High CPU Usage</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-reducing-background-melodies-windowsmac-guide/"><u>[Updated] Reducing Background Melodies Windows/Mac Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/beyond-glitter-the-pure-reality-of-recordcast-experience-for-2024/"><u>Beyond Glitter The Pure Reality of RecordCast Experience for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilians-vs-europeans-a-comparative-study-on-pt-shortcuts/"><u>Brazilians vs Europeans: A Comparative Study on PT Shortcuts</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/comment-transferer-avec-succes-les-donnees-dun-ssd-m2-vers-un-ssd-m2-de-capacite-superieure-sans-pertes/"><u>Comment Transférer Avec Succès Les Données D'un SSD M.2 Vers Un SSD M.2 De Capacité Supérieure Sans Pertes</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-installer-get-started-with-canon-pro-100-driver-setup-for-windows-systems/"><u>Easy Installer: Get Started with Canon PRO 100 Driver Setup for Windows Systems</u></a></li>
+<li><a href="https://change-location.techidaily.com/honor-play-7t-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor Play 7T Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-realme-12-pro-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Realme 12 Pro 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/insider-tips-on-french-salutations-from-salut-to-sincere-smiles/"><u>Insider Tips on French Salutations: From 'Salut' To Sincere Smiles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-gears-up-for-language-diversity-with-mondly/"><u>Oculus Quest Gears Up for Language Diversity with 'Mondly'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pathways-from-canadian-twang-to-british-cockney/"><u>Pronunciation Pathways: From Canadian Twang to British Cockney</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-patterns-for-the-new-swede/"><u>Pronunciation Patterns for the New Swede</u></a></li>
+<li><a href="https://games-able.techidaily.com/storing-old-school-games-in-photos-of-win-11/"><u>Storing Old-School Games in Photos of Win 11</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/the-perfect-blueprint-recording-google-voice-calls-for-2024/"><u>The Perfect Blueprint Recording Google Voice Calls for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verbal-enchantments-crafting-compelling-pickup-jokes/"><u>Verbal Enchantments: Crafting Compelling Pickup Jokes</u></a></li>
 </ul></div>
 

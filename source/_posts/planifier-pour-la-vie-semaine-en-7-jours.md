@@ -1,7 +1,7 @@
 ---
 title: "Planifier Pour La Vie: Semaine en 7 Jours"
-date: 2024-12-09T18:07:44.704Z
-updated: 2024-12-10T18:38:12.858Z
+date: 2024-12-19T16:12:51.070Z
+updated: 2024-12-25T17:04:52.106Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/f7eb32e30dabd1ecde240ae4f390a8ba724185aa1
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Days of the week in French
@@ -78,7 +78,7 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -125,20 +125,21 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-expert-endorsed-facebook-videos-now-easily-converted-to-mp4-hd/"><u>[New] In 2024, Expert-Endorsed Facebook Videos Now Easily Converted to MP4 HD</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-making-friends-across-networks-instagram-plus-facebook-for-2024/"><u>[New] Making Friends Across Networks Instagram + Facebook for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-eyecatcher-firefox-tools/"><u>[Updated] 2024 Approved EyeCatcher Firefox Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-the-french-conversation-vocabulary-for-travelers/"><u>Conquer the French Conversation: Vocabulary for Travelers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/crafting-goals-that-lead-to-real-change/"><u>Crafting Goals That Lead To Real Change</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expand-your-reach-mondly-support-on-oculus-quest-now/"><u>Expand Your Reach: Mondly Support on Oculus Quest Now</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-language-acquisition-how-hardcore-is-it/"><u>German Language Acquisition: How Hardcore Is It?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-thumbnail-scaling-techniques-for-youtube/"><u>In 2024, Thumbnail Scaling Techniques for YouTube</u></a></li>
-<li><a href="https://games-able.techidaily.com/principles-for-creating-effective-directional-symbols-that-are-universally-understood/"><u>Principles for Creating Effective Directional Symbols that Are Universally Understood;</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/protecting-your-inbox-how-to-enable-two-step-verification-in-google-mail/"><u>Protecting Your Inbox: How to Enable Two-Step Verification in Google Mail</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-motorola-edge-40-pro-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Motorola Edge 40 Pro to Gmail | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uniting-languages-cultures-through-multiplayer-vr-sessions/"><u>Uniting Languages, Cultures Through Multiplayer VR Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vernacular-voices-ukraine-vs-russia/"><u>Vernacular Voices: Ukraine Vs Russia</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723007766009-war-thunder-performance-optimization-ultimate-guide-to-fixing-low-fps-issues-with-latest-tips/"><u>War Thunder Performance Optimization: Ultimate Guide to Fixing Low FPS Issues with Latest Tips!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-etiquette-for-welcoming-others/"><u>Worldwide Etiquette for Welcoming Others</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-fastest-8-capture-tools-unveiled/"><u>[New] 2024 Approved Fastest 8 Capture Tools Unveiled</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-ideal-selection-7-best-mac-video-apps/"><u>[New] Ideal Selection 7 Best Mac Video Apps</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-clear-screen-choices-the-ultrawide-and-uhd-4k-showdown/"><u>[New] In 2024, Clear Screen Choices The Ultrawide & UHD 4K Showdown</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-archivists-arsenal-pivotal-80s-vhs-tricks-for-editors-for-2024/"><u>[New] The Archivist’s Arsenal Pivotal 80S VHS Tricks for Editors for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-ultimate-checklist-to-add-audio-to-your-facebook-vids/"><u>2024 Approved The Ultimate Checklist to Add Audio to Your Facebook Vids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/commonest-focus-on-foreign-language-learning-us/"><u>Commonest Focus on Foreign Language Learning U.S.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-pinnacle-mondly-kids-recognized-by-google-play-2-cookie-monsters-favorite-treats/"><u>Educational Pinnacle: Mondly Kids Recognized by Google Play 2 Cookie Monster's Favorite Treats</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-slovak-learning-in-just-ten-minutes-online/"><u>Effortless Slovak Learning in Just Ten Minutes Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-norte-to-sueste-brazilians-vs-eurospeakers/"><u>From Norte to Sueste: Brazilians Vs. Eurospeakers</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-hardware-knowledge-dive-into-toms-expert-analysis/"><u>Mastering Hardware Knowledge - Dive Into Tom’s Expert Analysis</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/navigating-facebook-analytics-simplified/"><u>Navigating Facebook Analytics Simplified</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/rapid-rhythmic-revision-software-roundup-mobiledesktop/"><u>Rapid Rhythmic Revision Software Roundup (Mobile/Desktop)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sharpen-your-mind-enhance-language-skills-quickly/"><u>Sharpen Your Mind, Enhance Language Skills Quickly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/take-charge-of-your-journey-to-japanese-mastery-at-no-cost/"><u>Take Charge of Your Journey to Japanese Mastery, At No Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rhythmic-beat-of-africas-languages/"><u>The Rhythmic Beat of Africa's Languages</u></a></li>
+<li><a href="https://win-hot.techidaily.com/transform-your-audio-files-easy-sd2sdii-to-wav-conversion-tips-and-techniques/"><u>Transform Your Audio Files: Easy SD2/SDII to WAV Conversion Tips and Techniques</u></a></li>
 </ul></div>
 

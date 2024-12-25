@@ -1,7 +1,7 @@
 ---
 title: Ποιότητα Ευγνωμών Γκρεμάν Της Δύσης
-date: 2024-12-14T19:32:24.174Z
-updated: 2024-12-16T19:54:17.626Z
+date: 2024-12-21T17:03:30.841Z
+updated: 2024-12-25T16:27:18.198Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 
  A funny but very good mnemonic for remembering how to say_efcharistó_ is to think of it as ‘ef-harry’s-toe’.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The informal ‘thank you’ in Greek
 
  It’s true that ευχαριστώ (_efcharistó_ – ‘thanks’) is more than enough to ‘survive’ in [Greece](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . It’s not a Greek tragedy if your Greek vocabulary is not on point. Most Greek people speak English and won’t expect you to be fluent in Greek.
@@ -37,10 +41,6 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
  However, if you want to say more than just ‘thanks’, **you can say σ’ ευχαριστώ_(s’ efcharistó)_ which is ‘thank you’ in Greek.** Although informal_, s’ efcharistó_ is more similar to ‘thank you’ and can be used safely when giving thanks to friends or colleagues.
 
  If you are especially thankful to them, you can also say ευχαριστώ πολύ_(efcharistó poli)_ which means ‘thanks a lot’. Or even ευχαριστώ πάρα πολύ_(efcharistó para poli)_ meaning ‘thank you very much’.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The formal ‘thank you’ in Greek
 
@@ -53,10 +53,14 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 ![taverna in Greece](https://edge.mondly.com/blog/wp-content/uploads/2021/10/thanks-in-greek-960x720.jpg "All The Best Ways To Say Thank You In Greek 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Mýkonos, Greece” by Johnny Chen©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Examples of Greek thanks
 
@@ -70,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 * Το εκτιμώ. _(To ektimó.)_ – I appreciate it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say ‘please’ and ‘you’re welcome’ in Greek
@@ -80,10 +84,6 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
  Well, the Greek παρακαλώ_(parakaló)_ works the same. If you want to say ‘please’ in Greek, you say παρακαλώ_(parakaló)._ If you want to say ‘you’re welcome’, παρακαλώ_(parakaló)_ works just fine again. If only everything would be so easy when learning Greek!
 
  But let’s not get ahead of ourselves and forget about the formal variation. To address someone older or a group of people, you should use the formal σας παρακαλούμε_(sas parakaloúme)_ . Did you recognize the_σας (sas)_ particle? If yes, then congratulations! That means you’re on the right track.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## When should you say ‘thank you’ in Greek?
 
@@ -95,7 +95,7 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in Greek
@@ -128,19 +128,20 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-bypass-latency-with-av1-in-youtube-settings/"><u>[Updated] In 2024, Bypass Latency with AV1 in YouTube Settings</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-riding-secure-the-creme-de-la-cam-selection-for-motorcyclists/"><u>[Updated] Riding Secure - The Crème De La Cam Selection for Motorcyclists</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-exploring-the-lg-bp350-monitors-unique-features/"><u>2024 Approved Exploring the LG BP350 Monitor's Unique Features</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/6-top-ranked-danish-movies-for-mastering-dialect/"><u>6 Top-Ranked Danish Movies for Mastering Dialect</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-your-journey-top-tactics-for-learning-languages-online/"><u>Accelerate Your Journey: Top Tactics for Learning Languages Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bangla-beat-quick-10-minute-daily-study-routine/"><u>Bangla Beat: Quick 10-Minute Daily Study Routine</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/basic-chinese-manners-for-everyday-life/"><u>Basic Chinese Manners for Everyday Life</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-the-gap-mondlys-tech-for-student-success/"><u>Bridging the Gap: Mondly's Tech for Student Success</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-vivo-g2-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Vivo G2 | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-poco-x5-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Poco X5?</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/iphone-15-pro-vs-iphone-13-pro-making-the-right-choice-for-your-next-smartphone-upgrade-zdnet/"><u>IPhone 15 Pro Vs. IPhone 13 Pro: Making the Right Choice for Your Next Smartphone Upgrade | ZDNet</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/step-by-step-guide-solve-helldivers-2-msvcr110dll-not-detected-error/"><u>Step-by-Step Guide: Solve HellDivers 2 'MSVCR110.dll Not Detected' Error</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/transform-your-video-cover-image-with-easy-steps/"><u>Transform Your Video Cover Image with Easy Steps</u></a></li>
-<li><a href="https://article-tips.techidaily.com/unlocking-efficiency-in-video-editing-with-these-top-10-apps-for-2024/"><u>Unlocking Efficiency in Video Editing with These Top 10 Apps for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-windows-screencast-champions-revealed/"><u>[New] In 2024, Windows Screencast Champions Revealed</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-peeking-at-perfection-a-compreayer-look-at-lgs-27ud68-display/"><u>[New] Peeking at Perfection A Compreayer Look at LG’s 27UD68 Display</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-analyzing-the-full-range-of-obs-studios-capabilities-for-2024/"><u>[Updated] Analyzing the Full Range of OBS Studio's Capabilities for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unseen-ways-to-leverage-instagrams-query-symbol/"><u>[Updated] In 2024, Unseen Ways to Leverage Instagram's Query Symbol</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-streamlined-steps-setting-up-snapchat-on-macos-for-2024/"><u>[Updated] Streamlined Steps Setting up Snapchat on macOS for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/dvdmov-windows-10/"><u>DVDへMOV形式動画を保存: Windows 10での書き込み方法と作業ガイド</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-comprehensive-strategies-for-overwatch-gaming-saves/"><u>In 2024, Comprehensive Strategies for Overwatch Gaming Saves</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-optimal-exercise-vibes-selecting-peak-motivational-music/"><u>In 2024, Optimal Exercise Vibes Selecting Peak Motivational Music</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-language-apps-the-definitive-educators-guide/"><u>Innovative Language Apps: The Definitive Educator's Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-phrases-to-make-a-good-first-impression/"><u>Japanese Phrases to Make a Good First Impression</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lessons-in-long-term-relationships/"><u>Language Lessons in Long-Term Relationships</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-turkish-script-your-fast-track-guide-to-reading-and-speaking/"><u>Mastering the Turkish Script: Your Fast-Track Guide to Reading and Speaking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-digital-eslefl-experience/"><u>Pearson's Digital ESL/EFL Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simultaneous-syntax-study/"><u>Simultaneous Syntax Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tv-and-films-as-language-tools-effective-techniques/"><u>TV and Films as Language Tools: Effective Techniques</u></a></li>
 </ul></div>
 

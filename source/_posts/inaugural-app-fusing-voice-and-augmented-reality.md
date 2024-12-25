@@ -1,7 +1,7 @@
 ---
 title: Inaugural App Fusing Voice & Augmented Reality
-date: 2024-12-14T16:15:54.244Z
-updated: 2024-12-16T18:42:17.535Z
+date: 2024-12-20T16:21:44.870Z
+updated: 2024-12-25T16:58:47.881Z
 tags:
   - speak
   - english
@@ -26,10 +26,6 @@ Here’s a video showcasing Mondly AR:
 
 ##
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## We take learning out of the books and bring it to life into your living room using augmented reality
 
  The new experience we created helps you develop a strong sense of the language you want to learn through highly realistic visual lessons and purposeful conversations. This approach is aiming to stimulate you to learn languages not because you have to, but because [it’s genuinely fun.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
@@ -37,7 +33,7 @@ Here’s a video showcasing Mondly AR:
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
@@ -47,7 +43,7 @@ Here’s a video showcasing Mondly AR:
 ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Alex Iliescu, our CEO, spoke about the launch:
@@ -55,7 +51,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -73,6 +69,10 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facts and figures about Mondly
 
 * 30 million downloads, in over 190 countries
@@ -87,7 +87,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -119,20 +119,18 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-best-collection-for-enlivening-text/"><u>[New] Best Collection for Enlivening Text</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ecoding-youtube-stats-efficiency-with-social-blades-advanced-analysis-for-2024/"><u>[New] Decoding YouTube Stats Efficiency with Social Blade's Advanced Analysis for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-zooms-playbook-for-precision-and-polished-youtube-conferences/"><u>[New] In 2024, Zoom's Playbook for Precision and Polished YouTube Conferences</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/disabled-iphone-7-how-to-unlock-a-disabled-iphone-7-by-drfone-ios/"><u>Disabled iPhone 7 How to Unlock a Disabled iPhone 7?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/epic-deals-on-global-communication-today-only/"><u>Epic Deals on Global Communication Today Only</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-guide-to-german-sounds-for-newcomers/"><u>Essential Guide to German Sounds for Newcomers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-with-ease-a-handbook-of-the-best-93-travel-spanish-terms/"><u>Explore with Ease: A Handbook of the Best 93 Travel Spanish Terms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/finding-the-language-that-suits-you-best/"><u>Finding The Language That Suits You Best</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fluent-english-a-gateway-to-success/"><u>Fluent English: A Gateway to Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-flair-must-know-phrases-to-boost-your-trip-experience/"><u>French Flair: Must-Know Phrases to Boost Your Trip Experience</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-videos-not-playing-on-infinix-note-30i-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix Videos Not Playing on Infinix Note 30i?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-11-pro-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone 11 Pro</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/is-handbrake-the-ultimate-choice-for-encrypted-dvd-extraction-discover-other-options/"><u>Is Handbrake the Ultimate Choice for Encrypted DVD Extraction? Discover Other Options!</u></a></li>
-<li><a href="https://win11.techidaily.com/maintaining-desktop-consistency-with-win11/"><u>Maintaining Desktop Consistency with Win11</u></a></li>
-<li><a href="https://blog-min.techidaily.com/movavi-online-converter-de-video-free-alterar-wmv-para-mkv/"><u>Movavi Online: Converter De Vídeo Free - Alterar WMV Para MKV</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/a-step-by-step-approach-to-chatgpt-with-iphones-siri/"><u>A Step-by-Step Approach to ChatGPT with iPhone's Siri</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/die-welt-der-ki-gestutzten-dokumentenverarbeitung-erklart-entdecken-sie-was-abbyy-mit-intelligenter-erfassung-macht/"><u>Die Welt Der KI-Gestützten Dokumentenverarbeitung Erklärt: Entdecken Sie, Was ABBYY Mit Intelligenter Erfassung Macht</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-from-apple-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock From Apple iPhone 11 Pro Max?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-streamlines-language-acquisition-new-edition/"><u>Mondly Streamlines Language Acquisition - New Edition!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-acquisition-of-polska-skills/"><u>Rapid Acquisition of Polska Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythmical-learning-how-music-enhances-scientifically-supported-language-skills/"><u>Rhythmical Learning: How Music Enhances Scientifically-Supported Language Skills</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-recent-calls-back-from-y78plus-t1-edition-by-fonelab-android-recover-call-logs/"><u>Simple ways to get recent calls back from Y78+ (T1) Edition</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-dell-usb-issues-effective-methods-to-restore-connectivity/"><u>Solving Dell USB Issues: Effective Methods to Restore Connectivity</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-essential-iphone-handbook-for-gif-enthusiasts-for-2024/"><u>The Essential iPhone Handbook for GIF Enthusiasts for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-labyrinths-exploring-the-dialects-in-star-wars-world/"><u>The Language Labyrinths: Exploring the Dialects in Star Wars World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/treasure-hunt-unearthing-piracy-lingo/"><u>Treasure Hunt: Unearthing Piracy Lingo</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-vivo-y27s-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Vivo Y27s Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-conversion-wizardry-from-youtube-to-igtv-for-2024/"><u>Video Conversion Wizardry From Youtube to IGTV for 2024</u></a></li>
 </ul></div>
 

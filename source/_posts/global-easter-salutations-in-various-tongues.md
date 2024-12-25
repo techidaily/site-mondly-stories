@@ -1,7 +1,7 @@
 ---
 title: Global Easter Salutations in Various Tongues
-date: 2024-12-09T20:17:08.165Z
-updated: 2024-12-16T20:36:22.778Z
+date: 2024-12-23T16:23:17.018Z
+updated: 2024-12-25T16:14:07.261Z
 tags:
   - speak
   - english
@@ -50,7 +50,7 @@ thumbnail: https://thmb.techidaily.com/288c4a8a533b0f1094aca3a28c5db0188ea8b5a3c
 * Turkish –_Paskalyanız kutlu olsun!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origins of Easter
@@ -60,22 +60,22 @@ thumbnail: https://thmb.techidaily.com/288c4a8a533b0f1094aca3a28c5db0188ea8b5a3c
  As the Christian faith spread, early believers who did not follow Jewish customs blended their observances with the pagan spring festival, eventually recognizing Easter as “resurrection day.” The Easter traditions that we enjoy today are a mixture of Christian and ancient pagan customs. Although the Christian traditions are still very much a part of the holiday, the pagan symbols of eggs, bunnies, and sweets have become more prominent and “marketable”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Why do we celebrate Easter?
 
  Christians celebrate Easter as a happy holiday because it fulfills the Old Testament prophecies and shows God’s plan to save everyone. Easter celebrates the Resurrection of Jesus Christ, which defeated death on the third day and gives hope for salvation. Christians believe that Jesus’ death paid for humanity’s sins and his Resurrection gives believers hope for their own resurrection.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### What day is Easter?
 
  Easter is a “movable feast”, which means that it does not occur on a fixed date every year. Instead, it is celebrated on the first Sunday following the first full moon after the spring equinox (which falls on March 21), according to the Gregorian calendar. This means Easter can be observed on a Sunday between March 22 and April 25\. However, the Eastern Orthodox Church follows a slightly different method of calculation, which is based on the Julian calendar. As a result, Easter in the Eastern Orthodox tradition can fall on any Sunday between April 4 and May 8.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Happy Easter In Different Languages &Amp; Easter Traditions 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Language learning made easy
 
@@ -91,10 +91,6 @@ thumbnail: https://thmb.techidaily.com/288c4a8a533b0f1094aca3a28c5db0188ea8b5a3c
 
  However, that doesn’t mean you shouldn’t believe in it. In a way, the Easter bunny is real as long as you believe in it because it continues to exist in your heart.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The origins of the Easter bunny
 
  The Easter bunny is a fictional hare who delivers chocolate eggs, candy, and other treats to children on Easter Sunday. Despite the Bible not mentioning it, the bunny has become a much beloved and prominent figure of the Easter celebrations.
@@ -103,13 +99,13 @@ thumbnail: https://thmb.techidaily.com/288c4a8a533b0f1094aca3a28c5db0188ea8b5a3c
 
 !['Easter bunny' by Gary Bendig©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/easter-bunny-960x640.jpg "Happy Easter In Different Languages &Amp; Easter Traditions 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  One theory suggests that the rabbit symbol comes from the pagan festival of_Eostre_ , which celebrated the goddess of fertility and spring. The rabbit was her animal symbol, representing fertility due to their high reproduction rates.
 
  In the 1700s, German immigrants reportedly brought over their tradition of an egg-laying hare called “Osterhase” or “Oschter Haws” from the Old Country to America. According to legend, children would create nests for the bunny to leave his colorful eggs. The custom spread across America, and over time, the Easter Bunny’s delivery of treats expanded to include chocolate and toys.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What is the Easter egg hunt tradition?
 
@@ -120,7 +116,7 @@ thumbnail: https://thmb.techidaily.com/288c4a8a533b0f1094aca3a28c5db0188ea8b5a3c
  Nowadays, the Easter egg hunt has become a fun activity enjoyed by children and parents alike.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Easter traditions around the world
@@ -152,6 +148,10 @@ thumbnail: https://thmb.techidaily.com/288c4a8a533b0f1094aca3a28c5db0188ea8b5a3c
 
 !['Happy Easter' by Priscilla Du Preez©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/happy-easter-960x640.jpg "Happy Easter In Different Languages &Amp; Easter Traditions 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Spanish – _¡Felices Pascuas!_
 
  ‘Easter’ in Spanish is_Pascuas_ . As previously mentioned, the Paschal greeting in Spanish is_“Cristo ha resucitado! – En verdad ha resucitado!”;_ however, Spanish people don’t really use it. Instead, they say_Felices Pascuas_ (‘Happy Easter’) or simply_Felices Fiestas_ which means ‘Happy Holidays’.
@@ -171,6 +171,10 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
  On Easter Sunday, Germans have a traditional Easter brunch where they eat buns, spreads, and painted boiled eggs. Children often help paint and decorate the eggs.
 
  The Easter menu also included yeast pastries like_Hefezopf_ or_Osterkranz_ , which can be stuffed with nuts and dried fruits and eaten with butter or jam.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Italian –_Buona Pasqua!_
 
@@ -209,10 +213,6 @@ In both countries, people eat salt cod on Good Friday.
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Learn languages as fast as the Easter Bunny
 
  What language does the Easter bunny speak? Considering he’s a fictional character, he can speak whatever language you’d like him to speak. Or even all of them at once. However, one thing we know for sure: the Easter bunny is currently improving his language skills with Mondly.
@@ -246,14 +246,22 @@ In both countries, people eat salt cod on Good Friday.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-screen-capture-expertise-3-cost-free-methods/"><u>[New] Screen Capture Expertise 3 Cost-Free Methods</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-streamline-your-cricket-experience-a-guide-to-top-live-sports-services-for-2024/"><u>[New] Streamline Your Cricket Experience A Guide to Top Live Sports Services for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-experts-at-work-swift-professional-thumbnails-for-valorant-highlights/"><u>[Updated] Experts at Work Swift, Professional Thumbnails for Valorant Highlights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578820390-become-a-bilingual-in-minutes-enjoy-unbelievable-discounts/"><u>Become a Bilingual in Minutes: Enjoy Unbelievable Discounts</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/beseitigung-des-problems-handbrake-ist-nun-64-bit-verfugbar-ersetzung-von-vlc-durch-eine-passende-version-fur-64-bit-systeme/"><u>Beseitigung Des Problems: HandBrake Ist Nun 64 Bit Verfügbar - Ersetzung Von VLC Durch Eine Passende Version Für 64 Bit Systeme</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprension-y-uso-oral-de-los-colores/"><u>Comprensión Y Uso Oral De Los Colores</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-16-heartfelt-german-gratefulness-statements/"><u>Discover 16 Heartfelt German Gratefulness Statements</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/earths-dominant-dialects-ranked-15/"><u>Earth's Dominant Dialects – Ranked #15</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-the-art-of-password-required-avoidance-on-windows-11/"><u>Mastering the Art of 'Password Required' Avoidance on Windows 11</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-crafting-sound-saturated-instagram-visuals/"><u>[New] Crafting Sound-Saturated Instagram Visuals</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-expert-tips-for-adding-stunning-motion-blur-effects-to-photos/"><u>[New] In 2024, Expert Tips for Adding Stunning Motion Blur Effects to Photos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-15-innovative-cost-free-photo-manipulation-software/"><u>2024 Approved 15 Innovative, Cost-Free Photo Manipulation Software</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-rated-complimentary-premiere-pro-blueprints/"><u>2024 Approved Top-Rated, Complimentary Premiere Pro Blueprints</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-communication-gets-a-boost-with-oculus-quest-and-mondly/"><u>Global Communication Gets a Boost with Oculus Quest & Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartbeats-in-haute-couture-dialogues/"><u>Heartbeats in Haute Couture Dialogues</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-honor-play-8t-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-f34-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy F34 5G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-husqvarna-h501s-drone-unboxed-review-essentials/"><u>In 2024, Husqvarna H501S Drone Unboxed - Review Essentials</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/make-friends-with-ai-at-bing-start-using-now-guide/"><u>Make Friends With AI at Bing: Start Using Now Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-french-sounds-a-beginners-resource/"><u>Navigating French Sounds: A Beginner's Resource</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-confidently-in-korean-choosing-the-top-6-learning-websites/"><u>Speak Confidently in Korean: Choosing the Top 6 Learning Websites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spinning-yarns-in-a-buccaneer-written-form/"><u>Spinning Yarns in a Buccaneer’ Written Form</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-finnish-top-tips-for-e-learning-success/"><u>Unlock Finnish: Top Tips for E-Learning Success</u></a></li>
+<li><a href="https://techtrends.techidaily.com/visionary-thinking/"><u>Visionary Thinking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sygkentrwsh-eyxhs-kalwn-piatoys-gkreman/"><u>Συγκέντρωση Ευχής Καλών Πιατούς Γκρεμάν</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/syna3ia-eyxhs-gkreman/"><u>Συναξία Ευχής Γκρεμάν</u></a></li>
 </ul></div>
 
