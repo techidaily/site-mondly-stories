@@ -1,7 +1,7 @@
 ---
 title: Worldwide Easter Greetings Across Languages
-date: 2024-12-20T16:41:13.508Z
-updated: 2024-12-25T16:19:04.858Z
+date: 2024-12-29T00:38:47.560Z
+updated: 2025-01-03T23:59:32.748Z
 tags:
   - speak
   - english
@@ -49,11 +49,19 @@ thumbnail: https://thmb.techidaily.com/abed13984f00a4dafd781b81f7c6f09556b0fa71b
 * Swedish –_Glad påsk!_
 * Turkish –_Paskalyanız kutlu olsun!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The origins of Easter
 
  Easter, much like [Christmas](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , has its origins in both Christianity and ancient pagan culture. Originally, it was a celebration of the spring equinox in pagan culture, but later it became a Christian holiday that commemorates the resurrection of Jesus Christ. Today, Easter is typically celebrated around the time of the Jewish Passover.
 
  As the Christian faith spread, early believers who did not follow Jewish customs blended their observances with the pagan spring festival, eventually recognizing Easter as “resurrection day.” The Easter traditions that we enjoy today are a mixture of Christian and ancient pagan customs. Although the Christian traditions are still very much a part of the holiday, the pagan symbols of eggs, bunnies, and sweets have become more prominent and “marketable”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Why do we celebrate Easter?
 
@@ -66,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/abed13984f00a4dafd781b81f7c6f09556b0fa71b
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Happy Easter In Different Languages &Amp; Easter Traditions 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Language learning made easy
@@ -74,10 +82,6 @@ thumbnail: https://thmb.techidaily.com/abed13984f00a4dafd781b81f7c6f09556b0fa71b
  Build practical language skills for real life with Mondly.
 
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-7544&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-7544&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-7544%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is the Easter bunny real? Easter bunny origins
 
@@ -99,6 +103,10 @@ thumbnail: https://thmb.techidaily.com/abed13984f00a4dafd781b81f7c6f09556b0fa71b
 
  In the 1700s, German immigrants reportedly brought over their tradition of an egg-laying hare called “Osterhase” or “Oschter Haws” from the Old Country to America. According to legend, children would create nests for the bunny to leave his colorful eggs. The custom spread across America, and over time, the Easter Bunny’s delivery of treats expanded to include chocolate and toys.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is the Easter egg hunt tradition?
 
  It might seem like a mistake to say that the Easter Bunny lays eggs since rabbits are mammals and give birth to live young. However, both rabbits and eggs are ancient symbols of fertility and renewal and have long been associated with the celebration of Easter. For Christians, Easter eggs have a special meaning as the egg symbol was likened to the tomb from which Christ arose. Decorating eggs for Easter has been a tradition since the 13th century when eggs were forbidden during Lent. By decorating eggs, people would make eating them on Easter Sunday even more special after the fasting period was over.
@@ -118,10 +126,6 @@ thumbnail: https://thmb.techidaily.com/abed13984f00a4dafd781b81f7c6f09556b0fa71b
 * In**Haux, France** , locals serve a giant omelet in the town’s main square. The omelet is made of more than 15,000 eggs and feeds up to 1,000 people.
 * In**Vatican City** , on Good Friday, the Pope marks the Way of the Cross by beginning a procession at the Colosseum. Participants in the procession carry candles and stop 14 times along the way to represent the Stations of the Cross as they make their way around the amphitheater and up to Palatine Hill.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Easter greetings in different countries
 
  What do you say on Easter? Eastern Orthodox, Oriental Orthodox, Catholic, and Anglican Christians use the [Paschal greeting](https://www.oca.org/orthodoxy/paschal-greetings) , also known as the Easter Acclamation. The greeting and reply are:
@@ -140,19 +144,11 @@ thumbnail: https://thmb.techidaily.com/abed13984f00a4dafd781b81f7c6f09556b0fa71b
 
 !['Happy Easter' by Priscilla Du Preez©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/happy-easter-960x640.jpg "Happy Easter In Different Languages &Amp; Easter Traditions 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Spanish – _¡Felices Pascuas!_
 
  ‘Easter’ in Spanish is_Pascuas_ . As previously mentioned, the Paschal greeting in Spanish is_“Cristo ha resucitado! – En verdad ha resucitado!”;_ however, Spanish people don’t really use it. Instead, they say_Felices Pascuas_ (‘Happy Easter’) or simply_Felices Fiestas_ which means ‘Happy Holidays’.
 
  The Easter menu during La Semana Santa (‘The Holy Week’) includes_torrijas_ which is a kind of French toast and_potaje de vigilia_ which is a chickpea soup.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. French –_Joyeuses Pâques !_
 
@@ -167,6 +163,10 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
  On Easter Sunday, Germans have a traditional Easter brunch where they eat buns, spreads, and painted boiled eggs. Children often help paint and decorate the eggs.
 
  The Easter menu also included yeast pastries like_Hefezopf_ or_Osterkranz_ , which can be stuffed with nuts and dried fruits and eaten with butter or jam.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Italian –_Buona Pasqua!_
 
@@ -183,7 +183,7 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
 In both countries, people eat salt cod on Good Friday.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Turkish –_Paskalyanız kutlu olsun!_
@@ -199,7 +199,7 @@ In both countries, people eat salt cod on Good Friday.
  Following the period of Lent (in varying degrees of strictness), the traditional Easter menu in Romania includes_cozonac_ (which is a type of sweet bread with nuts and Turkish delight),_drob_ (made from minced up offal and entrails) and oven-cooked lamb.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Polish –_Wesołego Alleluja!_
@@ -246,22 +246,17 @@ In both countries, people eat salt cod on Good Friday.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ransfer-for-2024/"><u>[New] Transfer for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-navigating-facebook-to-play-youtube-videos-without-interruption/"><u>[Updated] In 2024, Navigating Facebook to Play YouTube Videos Without Interruption</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apples-high-praise-for-mondly-top-10-educational-innovator-award/"><u>Apple’s High Praise for Mondly: Top 10 Educational Innovator Award</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/descubre-musculos-esenciales-un-viaje-completo-del-cuerpo-en-espanol/"><u>Descubre Músculos Esenciales: Un Viaje Completo Del Cuerpo En Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-1500-days-of-easy-learning-access/"><u>Embrace 1,500 Days of Easy Learning Access</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/entice-eccentrics-in-umbria-learn-more-than-20-expressions/"><u>Entice Eccentrics in Umbria: Learn More Than 20 Expressions</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-streamline-your-video-workflow-youtube-to-mpeg-essentials/"><u>In 2024, Streamline Your Video Workflow YouTube-to-MPEG Essentials</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-top-12-camcorders-integrating-advanced-gps-technology/"><u>In 2024, Top 12 Camcorders Integrating Advanced GPS Technology</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/insider-tips-to-speak-like-a-native-with-top-25-german-phrases/"><u>Insider Tips to Speak Like a Native with Top 25 German Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/la-semaine-francaise-unique/"><u>La Semaine Française Unique</u></a></li>
-<li><a href="https://games-able.techidaily.com/live-on-the-move-mastering-twitch-broadcasts-mobile/"><u>Live on the Move: Mastering Twitch Broadcasts (Mobile)</u></a></li>
-<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-oppo-a59-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Oppo A59 5G? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/mastering-graphics-initialization-errors-in-grand-theft-auto-v-with-advanced-troubleshooting-techniques/"><u>Mastering Graphics Initialization Errors in Grand Theft Auto V with Advanced Troubleshooting Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-moderne/"><u>Semaine Française Moderne</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-installing-third-party-software-directly-on-oculus-quest/"><u>Step-by-Step Guide: Installing Third-Party Software Directly on Oculus Quest</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-trials-in-acquiring-fluency-in-german/"><u>The Trials in Acquiring Fluency in German</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-effectiveness-of-instagrams-selfie-authenticity-feature/"><u>[Updated] In 2024, The Effectiveness of Instagram's Selfie Authenticity Feature</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-reverse-action-flipping-your-iphone-video-footage-for-2024/"><u>[Updated] Reverse Action Flipping Your iPhone Video Footage for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/achieve-straightened-laptop-displays/"><u>Achieve Straightened Laptop Displays</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-techniques-for-fixing-unreachable-remote-servers/"><u>Effective Techniques for Fixing Unreachable Remote Servers</u></a></li>
+<li><a href="https://win-dash.techidaily.com/exploring-microsofts-latest-offering-integration-of-word-and-excel-with-innovative-apple-vision-pro-display/"><u>Exploring Microsoft's Latest Offering: Integration of Word & Excel with Innovative Apple Vision Pro Display</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/guida-alla-sostituzione-del-disco-rigido-di-un-alienware-dell-senza-perdere-dati-istruzioni-facili/"><u>Guida Alla Sostituzione Del Disco Rigido Di Un Alienware Dell Senza Perdere Dati: Istruzioni Facili</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introductory-spanish-numerical-conjugation/"><u>Introductory Spanish Numerical Conjugation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-spanish-verb-usage/"><u>Mastering the Art of Spanish Verb Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-your-french-reading-journey-with-these-top-20-novels/"><u>Start Your French Reading Journey with These Top 20 Novels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-italian-explorers-dictionary-key-travel-terms/"><u>The Italian Explorer’s Dictionary: Key Travel Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-richness-of-language-in-macau/"><u>The Richness of Language in Macau</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015359201-why-isnt-my-logitech-webcam-mic-functioning-solutions-inside/"><u>Why Isn't My Logitech Webcam Mic Functioning? Solutions Inside</u></a></li>
 </ul></div>
 

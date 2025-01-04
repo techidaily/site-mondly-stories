@@ -1,7 +1,7 @@
 ---
 title: "Aid to the Poorest: Foundation Danny Colombia Way"
-date: 2024-08-27T22:49:56.936Z
-updated: 2024-08-28T22:49:56.936Z
+date: 2024-12-31T20:31:39.885Z
+updated: 2025-01-03T21:22:45.155Z
 tags:
   - speak
   - english
@@ -30,11 +30,19 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
 
  **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Unlocking the power of social good
 
  When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
 
 ![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Graduation at the Danny Foundation.
 
@@ -50,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Learn a new language in just 10 minutes a day
 
@@ -69,8 +81,6 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -78,12 +88,24 @@ thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-optimizing-kinemaster-usage-expert-advice-and-superior-digital-alternatives/"><u>[New] Optimizing KineMaster Usage Expert Advice and Superior Digital Alternatives</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-samsungs-image-crafting-app-benefits-and-insights/"><u>[New] Samsung's Image Crafting App Benefits & Insights</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-macs-preview-app-an-in-depth-tutorial-for-users/"><u>[Updated] Mastering Mac's Preview App An In-Depth Tutorial for Users</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-30-pro-tiktok-edits-techniques/"><u>[Updated] Top 30 Pro TikTok Edits Techniques</u></a></li>
+<li><a href="https://discover-community.techidaily.com/1-best-pc-performance-boosters-top-software-tools-to-enhance-your-computers-efficiency-insights-by-yl-computing/"><u>1. Best PC Performance Boosters: Top Software Tools to Enhance Your Computer's Efficiency - Insights by YL Computing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-chronicle-of-linguistic-development-over-time/"><u>A Chronicle of Linguistic Development Over Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ausdauer-der-sprache-deutsche-grusse-abseits-von-hallo/"><u>Ausdauer Der Sprache: Deutsche Grüße Abseits Von Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beat-the-wait-with-daily-slovak-learning-sessions-just-10-minutes-each/"><u>Beat the Wait with Daily Slovak Learning Sessions, Just 10 Minutes Each!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charisma-unleashed-essential-flirtatious-quips-and-one-liners/"><u>Charisma Unleashed: Essential Flirtatious Quips and One-Liners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/contrasting-vernaculars-ukraine-vs-russian/"><u>Contrasting Vernaculars: Ukraine Vs Russian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-russian-alphabets-for-pristine-speech/"><u>Decoding Russian Alphabets for Pristine Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-turkish-korean-communication-riddles/"><u>Decoding Turkish-Korean Communication Riddles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-a-new-dimension-of-learning-languages-with-mondly/"><u>Dive Into a New Dimension of Learning Languages with Mondly</u></a></li>
+<li><a href="https://win-forum.techidaily.com/essential-platforms-in-digital-marketing-fb-tw-ig-yt-analysis/"><u>Essential Platforms in Digital Marketing: FB, TW, IG, YT Analysis</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/tech-for-everyone-experts-analysis/"><u>Tech for Everyone Experts' Analysis</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/topo-5-mais-eficientes-softwares-para-combinar-imagens-em-um-unico-local/"><u>Topo 5 Mais Eficientes Softwares Para Combinar Imagens Em Um Único Local</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/transform-your-footage-effective-strategies-for-cropping-and-export-on-instagram/"><u>Transform Your Footage Effective Strategies for Cropping & Export on Instagram</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->

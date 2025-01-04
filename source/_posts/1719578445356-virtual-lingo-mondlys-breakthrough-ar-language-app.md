@@ -1,7 +1,7 @@
 ---
 title: "Virtual Lingo: Mondly's Breakthrough AR Language App"
-date: 2024-08-27T22:49:17.361Z
-updated: 2024-08-28T22:49:17.361Z
+date: 2024-12-29T00:35:15.502Z
+updated: 2025-01-03T18:03:56.251Z
 tags:
   - speak
   - english
@@ -30,9 +30,17 @@ Alex continues   _“From our experience, the biggest things that keep people fr
 
 ![MondlyVR for Daydream Learn languages in Virtual Reality 1 2](https://edge.mondly.com/blog/wp-content/uploads/2017/10/MondlyVR-for-Daydream-Learn-languages-in-Virtual-Reality-1_2.gif "Mondly Launches The First Vr Language App With Speech Recognition On Daydream 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Experts agree that IMMERSION is the best way to learn a new language
 
 In one [study](http://www.nytimes.com/2012/04/03/science/how-immersion-helps-to-learn-a-new-language.html?mcubz=1)  , featured in the New York Times by Michael Ullman, a neuroscientist at Georgetown University Medical Center, language learning subjects were split into two groups. One group studied language in a formal classroom setting, while the other was taught through immersion. After five months, both groups retained the language. However, the group that learned a new language through immersion displayed the full brain patterns of a native speaker.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Reasons to Pay Attention to Mondly VR
 
@@ -82,8 +90,6 @@ In one [study](http://www.nytimes.com/2012/04/03/science/how-immersion-helps-to-
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -91,12 +97,24 @@ In one [study](http://www.nytimes.com/2012/04/03/science/how-immersion-helps-to-
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-a-comprehensive-guide-to-discovering-dazzling-and-downloadable-images-on-pexels/"><u>[New] A Comprehensive Guide to Discovering Dazzling and Downloadable Images on Pexels</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-assemble-a-personalized-youtube-music-list-for-2024/"><u>[Updated] How to Assemble a Personalized YouTube Music List for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-professional-portrait-maker-for-passports-desktop-and-online-access-only/"><u>[Updated] In 2024, Professional Portrait Maker for Passports – Desktop & Online Access Only</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-vita-video-editor-app-review/"><u>2024 Approved Vita Video Editor App Review</u></a></li>
+<li><a href="https://win-superb.techidaily.com/effective-techniques-for-speeding-up-your-pc-by-uninstalling-sluggish-apps-tips-from-yl-computing/"><u>Effective Techniques for Speeding Up Your PC by Uninstalling Sluggish Apps - Tips From YL Computing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-english-grammar-nuances-top-9-strategies-from-a-lifelong-esl-learner/"><u>Grasping English Grammar Nuances: Top 9 Strategies From a Lifelong ESL Learner</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-infinix-zero-30-5g-get-deleted-phone-number-back-with-ease-and-safety-by-fonelab-android-recover-contacts/"><u>How to Infinix Zero 30 5G Get Deleted Phone Number Back with Ease and Safety</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lundi-au-vendredi-francais/"><u>Lundi Au Vendredi Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-chat-essential-17-spontaneous-spanish-phrases/"><u>Master Chat: Essential 17 Spontaneous Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mundo-semanal-en-espanol-no-olvides-desde-martes-hasta-domingo/"><u>Mundo Semanal en Español: No Olvides Desde Martes Hasta Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-more-walls-mondly-bridges-linguistic-gaps-in-ukraine/"><u>No More Walls: Mondly Bridges Linguistic Gaps in Ukraine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/palabras-comunes-en-ingles-y-espanol-cognados-realizadores/"><u>Palabras Comunes en Inglés Y Español: Cognados Realizadores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-language-skills-7-reasons-for-afrikaans-on-mondly/"><u>Revolutionize Language Skills: 7 Reasons for Afrikaans on Mondly</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-setup-obtaining-logitech-m525-keyboards-software-and-drivers/"><u>Step-by-Step Setup: Obtaining Logitech M525 Keyboard's Software & Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-brain-benefits-of-learning-a-foreign-language/"><u>The Brain Benefits Of Learning A Foreign Language</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/three-methods-to-capture-youtube-images-for-macwindows-users-for-2024/"><u>Three Methods to Capture YouTube Images for Mac/Windows Users for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-get-filmora-without-spending-a-dime-100-legal-methods/"><u>Updated 2024 Approved Get Filmora Without Spending a Dime 100 Legal Methods</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->

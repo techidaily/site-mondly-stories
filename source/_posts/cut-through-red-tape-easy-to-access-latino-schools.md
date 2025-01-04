@@ -1,7 +1,7 @@
 ---
 title: "Cut Through Red Tape: Easy-to-Access Latino Schools"
-date: 2024-09-01T00:15:48.962Z
-updated: 2024-09-02T00:15:48.962Z
+date: 2024-12-29T00:55:37.700Z
+updated: 2025-01-03T21:16:09.080Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ _Ergo_ (“therefore”), the easiest way to learn Latin online is now literally
 
  If you are wondering why Latin, a dead language, was added to Mondly’s language portfolio and – most importantly – what are the reasons to learn Latin, continue reading the following paragraphs and your questions shall be answered._Mihi crede‌_ (“trust me”).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Latin language, the core of Romance languages
 
  Originally spoken in Rome, the Latin language has then spread together with the increase of the Roman empire and later developed into the Romance languages we all know today: Italian, French, Portuguese, Romanian, Catalan and Spanish.
@@ -36,9 +40,17 @@ _Ergo_ (“therefore”), the easiest way to learn Latin online is now literally
 
 ![latin language](https://edge.mondly.com/blog/wp-content/uploads/2020/02/latin-language-600x450.jpg "This Is The Easiest Way To Learn Latin Online 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Hercules furens” by Seneca.
 
 _Ergo_ , history makes Latin the backbone of many present-day languages and studying it could help you gain valuable insight into the infrastructure of many other languages.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Latin grammar and the Latin alphabet
 
@@ -48,9 +60,6 @@ A fascinating origin story, isn’t it?
 
  With three distinct genders, up to seven noun cases, five declensions, four verb conjugations, six tenses, three persons, three moods, two voices, two or three aspects and two numbers, Latin grammar may seem complicated. But once you start your Latin classes with Mondly and learn to read Latin, you’ll be surprised how fast you can actually master this language due to the knowledge you already possess.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## Common Latin phrases and expressions we still use today
 
  **Far from being a dead language, Latin is very much alive in our day-to-day conversations.** _Carpe diem_ ,_et cetera_ ,_et alii_ ,_habemus papam_ ,_in vitro_ ,_magna cum laude_ ,_curriculum vitae_ and_mea culpa_ are just a few of the [Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) we still use today.
@@ -78,8 +87,9 @@ A fascinating origin story, isn’t it?
 * _amor vincit omnia_ – love conquers all (is also the name of a painting by the Italian Baroque artist Caravaggio)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Reasons to learn Latin
 
  Forget about the Latin dictionary and the countless hours of studying Latin grammar. **The best way to learn Latin is online,[for free with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4492&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4492?mother%5Flang=en%5Fus?target%5Flang=la&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4492?mother%5Flang=en%5Fus?target%5Flang=la) .**
@@ -98,9 +108,9 @@ A fascinating origin story, isn’t it?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Start learning Latin today
 
  The Latin language is no longer is secret code meant only for scholars or the Catholic Church. Starting right now, you can learn Latin with Mondly using bite-sized lessons and practical topics to help you discover how Romans conversed in their day-to-day life.
@@ -115,8 +125,6 @@ A fascinating origin story, isn’t it?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -124,8 +132,20 @@ A fascinating origin story, isn’t it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-audience-allure-powerful-hashtags-that-transform-youtube-shorts/"><u>[New] 2024 Approved Audience Allure Powerful Hashtags That Transform YouTube Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-comprehensive-look-at-decelerating-youtube-video-speed-50-chars/"><u>[New] A Comprehensive Look at Decelerating YouTube Video Speed (50 Chars)</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-efficiently-isolate-key-moments-in-youtube-footage-for-2024/"><u>[Updated] Efficiently Isolate Key Moments in YouTube Footage for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/2-years-of-mondly-languages/"><u>2 Years of Mondly Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-local-rap-figure-learn-27-authentic-french-expressions/"><u>Become a Local Rap Figure: Learn 27 Authentic French Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilian-and-eu-portuguese-a-comparative-linguistic-examination/"><u>Brazilian and EU Portuguese: A Comparative Linguistic Examination</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-power-of-arabic-6-compelling-online-advantages-with-mondly/"><u>Discover the Power of Arabic: 6 Compelling Online Advantages with Mondly</u></a></li>
+<li><a href="https://android-location.techidaily.com/futureproof-powerhouses-leading-gaming-pcs-for-the-new-year/"><u>Futureproof Powerhouses: Leading Gaming PCs for the New Year</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-comprehensive-techniques-for-gauging-yt-popularity-and-monetization/"><u>In 2024, Comprehensive Techniques for Gauging YT Popularity & Monetization</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-facebooks-brief-broadcasts-unpacked/"><u>In 2024, Facebook's Brief Broadcasts Unpacked</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/master-the-art-of-resetting-a-dell-computer-from-laptops-to-workstations/"><u>Master the Art of Resetting a Dell Computer: From Laptops to Workstations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578757679-ukranian-in-a-flash-one-minute-a-day-65-chars-note-adjusted-for-brevity/"><u>Ukranian in a Flash, One Minute a Day (65 Chars) - Note: Adjusted for Brevity.</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Linguistic Kinship to Spain’s Dialect
-date: 2024-12-20T16:17:42.876Z
-updated: 2024-12-25T16:49:10.737Z
+date: 2025-01-02T23:14:38.187Z
+updated: 2025-01-03T19:42:12.442Z
 tags:
   - speak
   - english
@@ -27,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
  The beautiful Spanish language has the**second largest number of native speakers** worldwide. While now you have to travel far and wide to discover**all the Spanish-speaking countries in the world,** things were different a few centuries back. From just a dialect in the 9th century, Spanish is now one of the most widespread languages on Earth. So where exactly is Spanish an official language?
 
  Without further ado, let’s dive in and uncover the full list of Spanish-speaking countries. While we’re at it, we’ll also look into the history behind the expansion of the Spanish language and how many people [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How many people speak Spanish?
 
@@ -60,10 +56,6 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
  Now let’s go into a little more detail and split the countries into continents.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Spanish-speaking countries in South America
 
  Since the Americas boast the highest number of Spanish-speaking countries in the world, we figured it’s best to start our exploration in South America. Out of the thirteen countries in the South American continent, nine are Spanish speaking. This means there are more Spanish-speaking countries here than anywhere else in the world.
@@ -80,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 * Uruguay — 98%
 * Venezuela — 97%
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Spanish-speaking countries in Central America
 
  Out of the seven countries in Central America, only Belize doesn’t have Spanish as its official language. However, the majority of the Belizeans can speak Spanish. Thus, if you’re planning a trip to Central America, speaking Spanish will definitely come in handy.
@@ -93,15 +89,15 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
  \* the number represents the percentage of the population who speak Spanish.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Spanish-speaking countries in North America
 
  Considering that the Spanish language came here from Europe a few centuries back, it’s fascinating that Mexico is the world’s most populous Hispanophone country. In addition to Spanish, the Mexican government recognizes 68 national languages, 63 of which are indigenous. Examples include Nahuatl, Yucatec Maya, Zapotec, Mixtec, Mayo, Yaqui, Tzeltal, Tzotzil, Chol, Totonac, Purépecha and more.
 
 * Mexico — 97% (percentage of the entire population speaking Spanish)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in the Caribbean
 
@@ -118,7 +114,7 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 * Spain — 92% (percentage of the entire population speaking Spanish)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Spanish-speaking countries in Africa
@@ -129,6 +125,10 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
 !['Spanish speakers' by Florian Wehde©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/spanish-speakers-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Countries where Spanish is spoken although it’s not an official language
 
  Spanish is spoken in many countries around the world, although it is not an official language in all of them. Naturally, there can be a number of reasons why this happens.
@@ -136,6 +136,10 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
  One reason is that Spain was once a very powerful empire and its influence can still be seen in many parts of the world. Another reason is that many people from Spanish-speaking countries have migrated and brought their language with them. Probably the best example is **the United States where more than 41 million people speak Spanish as a native language.**
 
  Other countries with large minorities of Spanish speakers are Belize, the Philippines (Spanish was an official language here from 1565 to 1973), Gibraltar and Andorra.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## A brief history of the Spanish language
 
@@ -155,10 +159,6 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Speak Spanish like a local fast
 
@@ -191,18 +191,20 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-integrating-youtube-autoplay-smoothly-into-your-facebook-experience/"><u>[New] 2024 Approved Integrating Youtube Autoplay Smoothly Into Your Facebook Experience</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-from-buffer-to-broadcast-learn-how-to-convert-your-youtube-viewing-into-a-screenshot-for-free/"><u>[New] From Buffer to Broadcast Learn How to Convert Your YouTube Viewing Into a Screenshot for Free.</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-essential-guide-to-screen-recording-facetime-meetings-for-2024/"><u>[Updated] Essential Guide to Screen-Recording FaceTime Meetings for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aussies-easy-guide-to-slang-and-sayings/"><u>Aussie's Easy Guide to Slang and Sayings</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/dizzy-with-design-mastering-upside-down-imagery/"><u>Dizzy with Design Mastering Upside Down Imagery</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/forgot-locked-apple-iphone-8-plus-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>Forgot Locked Apple iPhone 8 Plus Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/fpv-mastery-with-top-5-hmds-for-drones/"><u>FPV Mastery with Top 5 HMDs for Drones</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-realme-c51-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Realme C51 | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/overcoming-critical-error-0x0000004e-in-windows-os/"><u>Overcoming Critical Error 0X0000004E in Windows OS</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/stellar-boosts-mac-speed-with-new-utility-release/"><u>Stellar Boosts Mac Speed with New Utility Release</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-best-of-denmark-in-film-language-learnings-ally/"><u>The Best of Denmark in Film: Language Learning's Ally</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579686935-the-ultimate-hindi-adventure-awaits-dive-into-8-engaging-mondly-reasons/"><u>The Ultimate Hindi Adventure Awaits: Dive Into 8 Engaging Mondly Reasons!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-easter-embrace-linguistic-connections/"><u>Worldwide Easter Embrace: Linguistic Connections</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-10-filmora-editing-traits-for-fan-loyalty/"><u>[New] Top 10 Filmora Editing Traits for Fan Loyalty</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-bridging-photo-realms-on-your-system/"><u>[Updated] Bridging Photo Realms on Your System</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-your-daily-diary-staying-fresh-and-avoiding-common-mistakes/"><u>2024 Approved Your Daily Diary Staying Fresh & Avoiding Common Mistakes</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/effortless-audio-conversion-download-and-convert-your-f4v-videos-to-high-quality-mp3s-at-no-cost/"><u>Effortless Audio Conversion: Download and Convert Your F4V Videos to High-Quality MP3s at No Cost!</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-motorola-moto-g73-5g-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Motorola Moto G73 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-celebrated-as-10-in-apples-educational-app-list/"><u>Mondly Celebrated as #10 in Apple’s Educational App List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parsing-rules-or-linguistic-fluency/"><u>Parsing Rules or Linguistic Fluency?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-skills-boost-quick-start-guide/"><u>Polish Skills Boost: Quick Start Guide</u></a></li>
+<li><a href="https://win-dash.techidaily.com/quick-and-simple-download-the-perfect-keyboard-driver-for-windows-7-today/"><u>Quick and Simple: Download the Perfect Keyboard Driver for Windows 7 Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/regional-dialects-asias-top-3-prowess/"><u>Regional Dialects: Asia's Top 3 Prowess</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-journey-essentials-the-most-useful-93-phrases-listed-here/"><u>Spanish Journey Essentials: The Most Useful 93 Phrases Listed Here</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/step-by-step-tutorial-reinstall-windows-10-via-factory-settings-quickly-and-efficiently/"><u>Step-by-Step Tutorial: Reinstall Windows 10 via Factory Settings Quickly and Efficiently</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-truth-about-multilingualism-5-misconited-beliefs-explored/"><u>The Truth About Multilingualism: 5 Misconited Beliefs Explored</u></a></li>
+<li><a href="https://win11.techidaily.com/the-ultimate-guide-to-nearby-sharing-across-oses/"><u>The Ultimate Guide to Nearby Sharing Across OSes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-words-within-the-web-of-english-language/"><u>World Words Within the Web of English Language</u></a></li>
 </ul></div>
 

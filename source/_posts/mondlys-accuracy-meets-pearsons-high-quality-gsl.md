@@ -1,7 +1,7 @@
 ---
 title: Mondly's Accuracy Meets Pearson’s High-Quality GSL
-date: 2024-12-22T16:56:48.610Z
-updated: 2024-12-25T17:08:43.917Z
+date: 2024-12-27T23:02:09.308Z
+updated: 2025-01-03T16:21:22.250Z
 tags:
   - speak
   - english
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/93cb6ac8ec609718de42842a42295e1ee84908cc0
 
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Introducing the Global Scale of Languages (GSL)**
 
 Building on this solid foundation, **Pearson has now introduced the Global Scale of Languages (GSL).**
@@ -43,12 +39,16 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **How Pearson created the GSL**
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Why the GSL stands out**
 
@@ -57,7 +57,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Why start with French, Spanish, and Italian?**
@@ -69,7 +69,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Language learning backed by unparalleled global research**
@@ -84,7 +84,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Fast-track your progress with Mondly by Pearson**
@@ -108,24 +108,19 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-macs-visionary-picks-the-10-elite-monitors-with-4k/"><u>[New] Mac's Visionary Picks The #10 Elite Monitors with 4K</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-eliminating-vibrational-distortion-in-drone-footage/"><u>[Updated] Eliminating Vibrational Distortion in Drone Footage</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-expert-strategies-for-effective-instagram-video-interactions-for-2024/"><u>[Updated] Expert Strategies for Effective Instagram Video Interactions for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-streamline-your-podcasts-for-apple-podcasts/"><u>[Updated] Streamline Your Podcasts for Apple Podcasts</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-streamlining-visual-storytelling-best-plugin-choices-in-ae/"><u>[Updated] Streamlining Visual Storytelling Best Plugin Choices in AE</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1-100-in-deutsch-einfache-methode-fur-anfanger/"><u>1 - 100 in Deutsch: Einfache Methode Für Anfänger</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/50-popular-latin-phrases-to-impress-your-friends/"><u>50 Popular Latin Phrases to Impress Your Friends</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/chat-like-the-locals-the-best-17-immediate-spanish-phrases/"><u>Chat Like the Locals: The Best 17 Immediate Spanish Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-latin-like-never-before-conveniently-online/"><u>Embrace Latin Like Never Before, Conveniently Online</u></a></li>
-<li><a href="https://games-able.techidaily.com/execute-android-software-seamlessly-on-linux/"><u>Execute Android Software Seamlessly on Linux</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/express-appreciation-like-a-native-speaker-in-chinese/"><u>Express Appreciation Like a Native Speaker in Chinese</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-spectrums-impact-applying-color-dynamics/"><u>In 2024, The Spectrum's Impact Applying Color Dynamics</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-xmlssattml-to-srt-actionable-insights-for-media-professionals/"><u>In 2024, XML/SSA/TTML-to-SRT Actionable Insights for Media Professionals</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/next-steps-for-success-maximizing-the-potential-of-your-recent-flipbuilder-license-purchase/"><u>Next Steps for Success: Maximizing the Potential of Your Recent FlipBuilder License Purchase</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rediscovered-passion-for-communication-through-multilingualism-in-fifties/"><u>Rediscovered Passion for Communication Through Multilingualism in Fifties</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seductive-syntax-pickup-lines-in-deutsch/"><u>Seductive Syntax: Pickup Lines in Deutsch</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-bottom-line-how-much-do-podcasters-take-home-for-2024/"><u>The Bottom Line How Much Do Podcasters Take Home for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-hardest-speakers-challenge-deciphering-tough-languages/"><u>The Hardest Speakers' Challenge: Deciphering Tough Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-polyglot-playbook-a-compreenas-guide-to-deep-immersion/"><u>The Polyglot Playbook: A Compreenas Guide to Deep Immersion</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unveiling-the-elite-best-15-supports-for-gopro-cameras/"><u>[Updated] Unveiling The Elite Best 15 Supports for GoPro Cameras</u></a></li>
+<li><a href="https://video-capture.techidaily.com/conquering-cinematic-recording-a-guide-to-windowsmacosios-for-2024/"><u>Conquering Cinematic Recording A Guide to Windows/macOS/iOS for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/jazzy-deadites-designer/"><u>Jazzy Deadites Designer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-evolution-in-action-popular-slang-and-meanings/"><u>Language Evolution in Action: Popular Slang and Meanings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-supremacy-earths-favored-five-five/"><u>Linguistic Supremacy: Earth's Favored Five-Five</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-the-art-of-minuscule-web-pixels-for-2024/"><u>Mastering the Art of Minuscule Web Pixels for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mitternachtspreisgabe-im-deutschen/"><u>Mitternachtspreisgabe Im Deutschen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/never-too-old-always-ready-for-language-learning/"><u>Never Too Old, Always Ready for Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapidly-speak-in-rich-french-hues/"><u>Rapidly Speak in Rich French Hues</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/syncing-your-soundtrack-import-music-into-inshot/"><u>Syncing Your Soundtrack Import Music Into InShot</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-sunrise-salutations-good-mornings-in-10-languages/"><u>The Art of Sunrise Salutations: Good Mornings in 10 Languages</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-convenient-sx620-a-powerful-photography-ally/"><u>The Convenient SX620: A Powerful Photography Ally</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-rated-touchscreen-ultrabooks-comprehensive-reviews-by-tech-experts-pcmag/"><u>Top-Rated Touchscreen Ultrabooks: Comprehensive Reviews by Tech Experts - PCMag</u></a></li>
 </ul></div>
 

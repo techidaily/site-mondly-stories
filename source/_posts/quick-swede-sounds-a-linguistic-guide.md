@@ -1,7 +1,7 @@
 ---
 title: "Quick Swede Sounds: A Linguistic Guide"
-date: 2024-12-24T16:10:00.987Z
-updated: 2024-12-25T17:02:42.708Z
+date: 2024-12-27T17:07:50.591Z
+updated: 2025-01-04T00:34:41.073Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
  Now, this doesn’t mean there isn’t a thing or two you need to know about the [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) alphabet. Although complex when it comes to pronunciation, Swedish is an absolutely fascinating language. So don’t let Viking stories or famous horror Midsommar scare you. I’m sure you’ll love learning everything about the Swedish language and its alphabet so let’s get to it!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The modern Swedish alphabet
 
  The modern Swedish alphabet? Yes, indeed. The Swedish alphabet didn’t always look the way it does today. But first things first.
@@ -27,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
  **The Swedish alphabet is based on the Latin script or the Latin alphabet.** With a total of 29 letters, Swedish uses all the letters of the English alphabet plus three extra ones: Å, Ä, and Ö. These three letters are regarded as separate or independent letters and not letters with diacritics. If we were to look at the Swedish alphabetical order, Å, Ä, and Ö come after the letter Z.
 
  The current alphabet is considered modern because it arrived in Sweden together with the Christianization of Scandinavia that took place between the 8th and the 12th centuries. As a matter of fact, the translation of the New Testament into Swedish in 1526 actually marks the beginning of modern Swedish.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How was Swedish written before the Latin script?
 
@@ -41,17 +41,21 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 ![swedish runes on stones](https://edge.mondly.com/blog/wp-content/uploads/2021/11/swedish-runic-alphabet-960x686.jpg "Quick Introduction To The Swedish Alphabet And Its Fascinating History 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Swedish runes” by petr sidorov©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Swedish language in a nutshell
 
  Known in Swedish as**Svenska,** the [Swedish language](https://www.britannica.com/topic/Swedish-language) belongs to the East Scandinavian group of North Germanic languages and is the official language of Sweden and Finland. According to Ethnologue, the total number of Swedish speakers worldwide is over 13 million (both native and non-native speakers).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Mutual intelligibility with the other Scandinavian languages
@@ -62,10 +66,6 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
  Similar to the transformation the [Romance languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) went through over time, Old East Norse dialects were influenced by numerous factors. For example, between 800 and 1100 AD, Runic Swedish was only slightly different from Runic Danish, but they began to diverge during the 12th century. However, some aspects stayed the same. That’s why is easier to learn Swedish when you already know Danish and vice versa.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Pronunciation rules and usage
 
  Being a Germanic language makes Swedish one of the easiest languages to learn by native English speakers. In fact, according to the FSI (Foreign Service Institute) of the US government, an English speaker would need about [575 hours](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or 23 weeks of practice to become fluent in Swedish. That makes Swedish even easier to learn than any Romance language such as Spanish, French or Italian.
@@ -73,6 +73,10 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
  In other words, the Swedish pronunciation should be a piece of cake for you. Here’s a short sample with the pronunciation of some useful prepositions:
 
  Would you like to have access to more content like this? Get Mondly and master the Swedish pronunciation in no time with real-life conversations recorded by fluent voice actors.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Uncommon letters
 
@@ -101,10 +105,6 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### From 0 to conversational in Swedish
 
@@ -136,24 +136,14 @@ thumbnail: https://thmb.techidaily.com/acda250c18e670747053131396d60b9bcac159175
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-navigating-tiktok-lives-as-a-virtual-attendee/"><u>[New] Navigating TikTok Lives as a Virtual Attendee</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-optimizing-your-snapchat-ads-for-maximum-monetization/"><u>[New] Optimizing Your Snapchat Ads for Maximum Monetization</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-thanks-for-watching-outro-templates-free-and-paid/"><u>[New] Thanks For Watching Outro Templates (Free & Paid)</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-the-landscape-of-color-correction-innovative-uses-of-luts-in-video-editing/"><u>2024 Approved Navigating the Landscape of Color Correction Innovative Uses of LUTs in Video Editing</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-on-iphone-13-pro-max-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud on iPhone 13 Pro Max Safe and Legal</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/explaining-and-resolving-windows-defenders-error-code-0x80004004/"><u>Explaining & Resolving Windows Defender's Error Code: 0X80004004</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-communication-powerhouses-which-is-it-german-or-french/"><u>Global Communication Powerhouses: Which Is It, German or French?</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/how-do-i-explore-every-shared-piece-by-friends-on-messages-in-2024/"><u>How Do I Explore Every Shared Piece by Friends on Messages, In 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-mastering-the-basics-a-thorough-guide-to-using-mobizen-recorders/"><u>In 2024, Mastering the Basics A Thorough Guide to Using Mobizen Recorders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linitiation-a-la-francais-les-dix-jours/"><u>L'Initiation À La Français: Les Dix Jours</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-german-language-obstacles/"><u>Navigating German Language Obstacles</u></a></li>
-<li><a href="https://driver-install.techidaily.com/optimized-gpu-setup-with-updated-ddu-methods/"><u>Optimized GPU Setup with Updated DDU Methods</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/say-hi-in-another-language-today-at-nearly-no-cost-to-you/"><u>Say Hi in Another Language Today – At Nearly No Cost to You!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saying-thanks-in-china-beyond-the-basics-of-xiexie/"><u>Saying Thanks in China: Beyond the Basics of Xièxiè</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essence-of-portuguese-keyboard-shortcuts-across-continents/"><u>The Essence of Portuguese Keyboard Shortcuts Across Continents</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-intricacies-of-porque-and-por-que-usage/"><u>The Intricacies of Porque and Por Que Usage</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/689162-9781409042969-the-psychic-handbook/"><u>The Psychic Handbook | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tongue-triumphs-perfect-your-accent-with-twisters/"><u>Tongue Triumphs: Perfect Your Accent With Twisters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-winner-apples-new-app/"><u>Worldwide Winner: Apple's New App</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/1-ultimate-guide-select-the-right-tools-for-retrieving-deleted-files-in-windows-expert-advice-from-yl-computing/"><u>1. Ultimate Guide: Select the Right Tools for Retrieving Deleted Files in Windows - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-compelling-motives-for-embracing-multilingualism/"><u>10 Compelling Motives for Embracing Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581666702-100plus-essential-croatian-phrases-youll-need-before-traveling-to-croatia/"><u>100+ Essential Croatian Phrases You’ll Need Before Traveling to Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/93-must-know-phrases-to-unlock-a-world-of-travel-in-spanish/"><u>93 Must-Know Phrases to Unlock a World of Travel in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breath-and-bravery-mastering-pronunciation-with-twisters/"><u>Breath and Bravery: Mastering Pronunciation with Twisters</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/canvas-magic-how-to-banish-the-unwanted-backdrop-for-2024/"><u>Canva's Magic How to Banish the Unwanted Backdrop for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-tecno-pop-8-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Tecno Pop 8 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-realme-c55-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Realme C55 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://win11.techidaily.com/strategies-for-windows-event-viewer-fixes/"><u>Strategies for Windows Event Viewer Fixes</u></a></li>
 </ul></div>
 

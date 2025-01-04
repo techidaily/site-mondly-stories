@@ -1,7 +1,7 @@
 ---
 title: Unlocking Essential Expressions for Daily Conversations in China
-date: 2024-12-22T16:21:18.162Z
-updated: 2024-12-25T16:21:06.111Z
+date: 2024-12-27T23:53:52.258Z
+updated: 2025-01-03T16:25:26.588Z
 tags:
   - speak
   - english
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
 ## Unlocking Essential Expressions for Daily Conversations in China
 
  How should we say “hello” in Chinese? 你好 nǐ hǎo is maybe the most well-known Chinese greeting. But surely, like in many other languages, 你好 nǐ hǎo is not_the only way_ to greet someone in Chinese. There must be different kinds of greetings you can use with friends and other people you are close to, formal greetings that are suitable for business meetings, slightly formal “hello”s you can say when entering a store and so on. Well, indeed, there are! The [Chinese language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is just as rich in greetings as any other language. So, let’s dive in and learn the best ways to say “hello” in Mandarin like a fluent speaker.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Let’s learn how to actually say “hello” in Mandarin Chinese
 
@@ -38,10 +42,6 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
 
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. 你好吗? (nǐ hǎo ma) – “How are you?” in Chinese
 
 Or 您好吗? (nín hǎo ma?) if you want to be polite.
@@ -53,7 +53,7 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  As you can probably already tell, this is an informal greeting you can use with your friends.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. 你吃了吗？(nǐ chī le ma) – “Have you eaten?”
@@ -61,6 +61,10 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  Are you confused? Amused? Or maybe a little bit of both? I was, too, when I first heard this greeting. When someone says 你吃了吗？(nǐ chī le ma) to you, they don’t actually want to know if you have eaten. In Chinese culture, this greeting is used as a way of showing someone you care about their well-being.
 
  To answer to this greeting, you can say “chī le, nǐ ne?” which means “I’ve eaten, how about you?”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. 久仰 (jiǔyǎng) – a very formal Chinese greeting
 
@@ -75,7 +79,7 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Hello there!” by Theodor Lundqvist©
@@ -83,10 +87,6 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
 
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 8\. 下午好 (xiàwǔ hǎo) – “Good afternoon” in Chinese
 
@@ -97,7 +97,7 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
@@ -136,18 +136,18 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-echo-music-into-your-whatsapp-narrative/"><u>[Updated] 2024 Approved Echo Music Into Your WhatsApp Narrative</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-exclusive-rescue-regaining-fb-passwords/"><u>[Updated] 2024 Approved Exclusive Rescue Regaining FB Passwords</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-understanding-the-zip-to-srt-file-transition/"><u>[Updated] 2024 Approved Understanding the Zip to Srt File Transition</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-from-basic-to-brilliant-top-100plus-biographies-that-captivate-audiences-for-2024/"><u>[Updated] From Basic to Brilliant Top 100+ Biographies that Captivate Audiences for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-craft-meme-magic-adobe-edition/"><u>2024 Approved Craft Meme Magic, Adobe Edition</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-fix-kernelbasedll-error-without-hitches-fast-solutions-inside/"><u>How To Fix KernelBase.dll Error Without Hitches - Fast Solutions Inside!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-triumphs-the-premier-online-german-learning-portal/"><u>Mondly Triumphs: The Premier Online German Learning Portal</u></a></li>
-<li><a href="https://program-issues.techidaily.com/pc-gaming-saved-solving-persistent-crash-problems-in-tower-of-fantasy-title/"><u>PC Gaming Saved: Solving Persistent Crash Problems in Tower of Fantasy Title</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/skip-windows-emulators-top-linux-gaming-stores-offering-officially-compatible-titles/"><u>Skip Windows Emulators: Top Linux Gaming Stores Offering Officially Compatible Titles</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-pronunciation-pathway-deciphering-hard-word-sounds/"><u>The Pronunciation Pathway: Deciphering Hard Word Sounds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-secret-to-fluent-french-chats-perfecting-bonjour-in-daily-life/"><u>The Secret to Fluent French Chats: Perfecting 'Bonjour' In Daily Life</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-the-basics-of-spanish-numbers/"><u>Understanding The Basics Of Spanish Numbers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-go-digital-with-arabic-top-6-insights-from-mondly/"><u>Why Go Digital with Arabic? Top 6 Insights From Mondly</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/uide-to-streamlined-subscription-links-for-video-channels-for-2024/"><u>[New] Guide to Streamlined Subscription Links for Video Channels for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-discover-easy-free-video-transformation-platforms-with-unmatched-features/"><u>[New] In 2024, Discover Easy, Free Video Transformation Platforms with Unmatched Features</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-how-to-create-endless-video-on-iphone-for-2024/"><u>[Updated] How-To Create Endless Video on iPhone for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-elites-free-guide-to-10-caption-download-tools/"><u>[Updated] In 2024, Elite's Free Guide to 10 Caption Download Tools</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-understanding-cultural-influences-on-consumer-behavior-in-global-markets/"><u>[Updated] Understanding Cultural Influences on Consumer Behavior in Global Markets</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Samsung Galaxy A15 4G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-language-faux-pas-essential-common-mispronunciations-ranked/"><u>English Language Faux Pas - Essential Common Mispronunciations Ranked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-tips-for-using-english-contractions-correctly/"><u>Essential Tips for Using English Contractions Correctly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/europes-90-years-in-words-language-mosaic-in-full-bloom/"><u>Europe's 90 Years In Words - Language Mosaic in Full Bloom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fostering-love-with-fluency-beyond-words/"><u>Fostering Love with Fluency Beyond Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-conquering-business-vernacular/"><u>From Novice to Expert: Conquering Business Vernacular</u></a></li>
+<li><a href="https://some-tips.techidaily.com/innovating-tech-talent-acquisition-tactics-for-a-competitive-edge-in-modern-workforce-dynamics/"><u>Innovating Tech Talent Acquisition Tactics for a Competitive Edge in Modern Workforce Dynamics</u></a></li>
+<li><a href="https://games-able.techidaily.com/reactive-vs-proactive-game-play-address-the-top-10-causes-of-crashes/"><u>Reactive vs Proactive Game Play: Address the Top 10 Causes of Crashes</u></a></li>
 </ul></div>
 

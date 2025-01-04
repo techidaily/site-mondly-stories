@@ -1,7 +1,7 @@
 ---
 title: The Science Behind Mondly's Learning
-date: 2024-12-18T17:07:28.181Z
-updated: 2024-12-25T16:05:04.438Z
+date: 2024-12-28T18:34:17.451Z
+updated: 2025-01-03T18:05:42.164Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -102,17 +102,24 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/updated-dji-phantom-3-an-overview-review/"><u>[Updated] DJI Phantom 3 - An Overview Review</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-filmeditingsuite-assessment-detailed-insights-for-2024/"><u>[Updated] FilmEditingSuite Assessment – Detailed Insights for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-gigglegrid-create-social-media-laughs-in-seconds/"><u>2024 Approved GiggleGrid Create Social Media Laughs in Seconds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ancient-text-contemporary-speech-words-of-william/"><u>Ancient Text, Contemporary Speech: Words of William</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722960721205-comprehensive-driver-set-for-logitech-k400-plus-free-download-options-here/"><u>Comprehensive Driver Set for Logitech K400 Plus - Free Download Options Here!</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/conquering-spreadsheets-a-guide-to-chatgpt-excel-synergy/"><u>Conquering Spreadsheets: A Guide to ChatGPT-Excel Synergy</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-to-install-kodi-on-windows-11/"><u>How to Install Kodi on Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/impress-native-italians-with-20plus-italian-expressions-and-slang-words/"><u>Impress Native Italians With 20+ Italian Expressions & Slang Words</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-on-iphone-14-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account On iPhone 14 without Password?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/inicia-tu-voz-en-espanol-con-colores/"><u>Inicia Tu Voz en Español Con Colores</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navegar-faciles-las-hora-y-segundo-en-espanol/"><u>Navegar Fáciles Las Hora Y Segundo en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/wordsmith-wisdom-daily-language-roots-in-shakespeare/"><u>Wordsmith Wisdom: Daily Language Roots in Shakespeare</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-apowersoft-picks-unveiling-the-best-for-pc-screen-recorders/"><u>[New] Apowersoft Picks Unveiling the Best for PC Screen Recorders</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-making-every-game-a-masterpiece-proven-methods-to-record-and-relish-your-sims-experiences-for-2024/"><u>[Updated] Making Every Game a Masterpiece Proven Methods to Record and Relish Your Sims’ Experiences for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-guide-to-securing-superior-quality-pics-without-charges/"><u>2024 Approved Guide to Securing Superior Quality Pics without Charges</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-vivo-t2-pro-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Vivo T2 Pro 5G to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-oneplus-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for OnePlus</u></a></li>
+<li><a href="https://some-tips.techidaily.com/get-the-cutting-edge-13-inch-macbook-air-m2-for-a-record-low-this-cyber-monday-tech-insights-revealed/"><u>Get the Cutting-Edge 13-Inch MacBook Air (M2) for a Record Low This Cyber Monday – Tech Insights Revealed!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Vivo T2x 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-effective-guide-to-cast-apple-iphone-15-pro-max-to-macbook-without-hindrance-drfone-by-drfone-ios/"><u>In 2024, Effective Guide to Cast Apple iPhone 15 Pro Max to MacBook without Hindrance | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovation-in-learning-mondly-and-apple-collaboration/"><u>Innovation in Learning: Mondly & Apple Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-of-affection-and-expression/"><u>Languages of Affection and Expression</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-romanian-with-an-app-made-by-romanians/"><u>Learn Romanian With An App Made By Romanians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mental-agility-boosted-by-polyglots-of-age/"><u>Mental Agility Boosted by Polyglots of Age</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-supports-education-by-investing-in-state-of-the-art-apple-technology-for-students/"><u>Mondly Supports Education by Investing in State-Of-The-Art Apple Technology for Students</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-russian-cheers-key-expressions-and-core-language/"><u>Navigating Russian Cheers: Key Expressions and Core Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prevalent-international-languages-in-american-schooling/"><u>Prevalent International Languages in American Schooling</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-language-acquisition-methods/"><u>Rapid Language Acquisition Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swedens-script-an-easy-pronunciation-pathway/"><u>Sweden's Script: An Easy Pronunciation Pathway</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-premiere-pro-system-essentials-what-you-need-to-know-before-you-start/"><u>Updated Premiere Pro System Essentials What You Need to Know Before You Start</u></a></li>
 </ul></div>
 

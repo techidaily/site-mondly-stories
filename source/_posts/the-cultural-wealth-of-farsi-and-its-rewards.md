@@ -1,7 +1,7 @@
 ---
 title: The Cultural Wealth of Farsi & Its Rewards
-date: 2024-12-18T16:48:39.780Z
-updated: 2024-12-25T16:52:09.266Z
+date: 2024-12-31T16:10:19.352Z
+updated: 2025-01-03T18:04:35.049Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  Here’s a quick guide to all the basics you need to know about Persian before deciding whether you want to learn Persian or not.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Is Persian a language?
 
  **Yes, Persian is very much a language. Known to its native speakers as Farsi, Persian is the official language of modern-day Iran.** Additionally, two varieties of Persian known as Dari and Tajik are the official languages of parts of Afghanistan and the central Asian republic of Tajikistan. Having over 70 million native speakers, Persian is one of the most important members of the Indo-Iranian branch of the [Indo-European family of languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -33,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  In other words, the confusion arises from the fact that there’s currently no country on Earth named Persia in the same way there’s no language we can call the ‘Iranian language’. Persian does belong to the Iranian languages, but the Iranian languages are a branch of the Indo-Iranian languages in the Indo-European language family. So they are not an individual language.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Persian language – history and facts
@@ -45,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The Arab rule
@@ -60,15 +56,15 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Persian influence on other languages
 
  During this Persian cultural resurgence, the Persian language and culture impacted a wide geographic area. For this reason, Persian has left its influence on many different languages, including a heavy influence on the [vocabulary of Urdu](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Turkish. To this day, words of Persian origin can be found as far as Malaysia.
 
  As a matter of fact, there are even some English words of Persian origin. Some of them came directly into English from Persian, but most of them came indirectly into English via a different language. Some examples include bronze, jackal, lemon, mogul, mummy, scarlet, serendipity, shawl, tulip, turban, typhoon, khaki, caravan, and paradise. Probably the most interesting borrowing is the word “checkmate,” which comes from the Persian_Shah Mat_ , meaning “the king is dead”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Persian vs Farsi: Is Farsi the same as Persian?
 
@@ -92,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The benefits of learning Farsi/Persian
 
  If you’re a language learner at heart, you already know that learning any language will broaden your horizons. There’s no such thing as a ‘waste of time’ when you [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Be it Persian, Arabic, Urdu or a more popular language such as Spanish or German – all languages are equally important.
@@ -113,7 +113,7 @@ Other benefits of learning Persian include:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Learn Persian online with Mondly
@@ -147,24 +147,18 @@ Other benefits of learning Persian include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/updated-the-metaverse-versus-multi-meva-comprehensive-differences-overviewed/"><u>[Updated] The Metaverse Versus Multi-Meva Comprehensive Differences Overviewed</u></a></li>
-<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-motorola-edge-40-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Motorola Edge 40 Isnt Compatible | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/best-mc-housing-plans-for-vibrant-villages/"><u>Best MC Housing Plans for Vibrant Villages</u></a></li>
-<li><a href="https://win-special.techidaily.com/decoding-cyber-threats-how-malware-differs-from-spyware-with-insights-from-malwarefox/"><u>Decoding Cyber Threats: How Malware Differs From Spyware with Insights From MalwareFox</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-business-potential-through-optimal-linguistic-tools/"><u>Elevate Business Potential Through Optimal Linguistic Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embracing-ai-in-pedagogy-and-language-acquisition/"><u>Embracing AI in Pedagogy and Language Acquisition</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/film-making-mastery-guidebook-for-2024/"><u>Film Making Mastery Guidebook for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-native-the-power-of-27-french-sayings/"><u>From Novice to Native: The Power of 27 French Sayings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gain-german-proficiency-from-binge-watched-show/"><u>Gain German Proficiency From Binge-Watched Show</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-and-ukraine-collaborating-for-comprehensive-communication-skills/"><u>Mondly & Ukraine: Collaborating for Comprehensive Communication Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-enriches-your-huawei-experience-today/"><u>Mondly Enriches Your Huawei Experience Today</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ps5-showdown-comparing-features-of-the-ps5-slim-to-full-ps5-model/"><u>PS5 Showdown: Comparing Features of the PS5 Slim to Full PS5 Model</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-step-korean-study-discover-the-best-6-online-sites/"><u>Quick-Step Korean Study: Discover the Best 6 Online Sites</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/restoring-lost-media-quick-tips/"><u>Restoring Lost Media: Quick Tips</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/solving-the-mystery-of-hulus-rununk13-issue-a-step-by-step-guide/"><u>Solving the Mystery of Hulu's RUNUNK13 Issue: A Step-by-Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sunlight-greetings-communicating-good-morning-across-cultures/"><u>Sunlight Greetings: Communicating 'Good Morning' Across Cultures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-english-proficiency-learn-from-a-skilled-esl-speakers-grammar-guide/"><u>Unlock English Proficiency: Learn From a Skilled ESL Speaker's Grammar Guide</u></a></li>
-<li><a href="https://windows11.techidaily.com/unraveling-the-mystery-of-error-code-9999-in-win-based-audacity/"><u>Unraveling the Mystery of Error Code 9999 in Win-Based Audacity</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-google-pixel-8-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Google Pixel 8 Phones</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-navigating-industry-titans-a-creators-guide-to-mnc-deals/"><u>[New] Navigating Industry Titans A Creator's Guide to MNC Deals</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-newest-corsair-k55-driver-version-for-optimal-performance/"><u>Get the Newest Corsair K55 Driver Version for Optimal Performance</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/getting-the-most-recent-epson-printer-drivers-up-and-running-in-windows-10-a-comprehensive-guide/"><u>Getting the Most Recent Epson Printer Drivers Up and Running in Windows 10 - A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-in-your-fifies-a-wise-multilingual-choice/"><u>Learning in Your Fifies: A Wise Multilingual Choice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-borrowing-a-world-view-in-eng/"><u>Linguistic Borrowing: A World View in Eng</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/open-the-door-to-german-communication-alphabets-and-sounds-unveiled/"><u>Open the Door to German Communication: Alphabets & Sounds Unveiled</u></a></li>
+<li><a href="https://win-webster.techidaily.com/optimizing-your-pcdj-setup-a-deep-dive-into-unified-naming-systems-for-singers-and-djs/"><u>Optimizing Your PCDJ Setup: A Deep Dive Into Unified Naming Systems for Singers & DJs</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/simplify-your-video-editing-convert-dat-files-into-avi-quickly/"><u>Simplify Your Video Editing: Convert DAT Files Into AVI Quickly</u></a></li>
+<li><a href="https://media-tips.techidaily.com/step-by-step-tutorial-on-swf-file-conversion-to-avi-video-type/"><u>Step-by-Step Tutorial on SWF File Conversion to AVI Video Type</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-colors-in-french-quick-pronunciation-guide/"><u>The Colors In French – Quick Pronunciation Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-simplicity-of-second-language-acquisition-for-kids/"><u>The Simplicity of Second Language Acquisition for Kids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-premier-vocal-augmented-application/"><u>Unveiling the Premier Vocal-Augmented Application</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/whats-captivating-twitter-users-the-most/"><u>What's Captivating Twitter Users the Most?</u></a></li>
 </ul></div>
 

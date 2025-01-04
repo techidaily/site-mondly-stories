@@ -1,7 +1,7 @@
 ---
 title: "Mondly Kid's Edition: Smart Filter Feature, 2017!"
-date: 2024-08-27T22:47:40.735Z
-updated: 2024-08-28T22:47:40.735Z
+date: 2025-01-02T20:11:10.640Z
+updated: 2025-01-03T18:34:20.417Z
 tags:
   - speak
   - english
@@ -18,11 +18,19 @@ thumbnail: https://thmb.techidaily.com/4408961c4a58da87c406138200e7c77deae5482c7
 
  Children are always the best critics. They are disarmingly honest and have an innocent way of being straightforward. If they don’t like you, they will tell you right away, so it’s not totally preposterous to think that they would make great judges in almost any kind of competition. This is why we were proud and honored when **Google Play notified us that MondlyKids was selected as one of the Best Apps of 2017** in a children’s category. And before we could properly celebrate the news,**Google Play** announced that**MondlyKids** is giving us yet another milestone to celebrate in 2017:[Editors’ Choice language app](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Our journey of learning and creating
 
  We, at [Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-942&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-942%26utm%5Fsource%3Dblog-post-id-942&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-942%26utm%5Fsource%3Dblog-post-id-942&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-942%26utm%5Fsource%3Dblog-post-id-942&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-942%26mt%3D8) , started our journey of learning and creating almost five years ago. It required a lot of work, but it was worth every step of the way. Our aim was to create immersive learning experiences. We wanted to never stop innovating. So here we are today:
 
 > _We think your app was one of the best on Google Play in 2017\. We know that you and your team have worked hard to create a unique and compelling experience, so consider this our way of saying thank you for bringing your innovation and expertise to the Play Store._  – Google Play
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## MondlyKids – a new learning experience for children
 
@@ -33,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/4408961c4a58da87c406138200e7c77deae5482c7
  The result? We created a child-friendly app with an eye-catching design and a cool story for 5 to 12 years old children that have a great thirst for knowledge and like gamified experiences. Cool sound effects and music are also here to keep the children engaged. Over the course of our 11 main lessons, children will become competitive and eager to learn, discover and interact more with their new virtual native speaker chipmunk friend.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### The road to success
 
  In order for the new Mondly app to match its exigent young target, we had to give children a new angle on progress and how important it is in the learning experience. This is the point where we decided to create our design around a map where the learning progress would be visualized in terms of traveling to new places – this is why a completed set of lessons will get you to a new place on the map; because knowledge broadens the mind and lets you travel.[Mondly for Kids - free languages for kids (small)](https://edge.mondly.com/blog/wp-content/uploads/2017/12/Mondly-for-Kids-free-languages-for-kids-small-1024x921.png "Google Play Selects Mondly’s Kids App As One Of The Best Apps Of 2017 2") ](https://play.google.com/store/apps/details?id=com.atistudios.mondly.kids.languages&hl=en)
@@ -54,8 +63,6 @@ thumbnail: https://thmb.techidaily.com/4408961c4a58da87c406138200e7c77deae5482c7
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -63,8 +70,20 @@ thumbnail: https://thmb.techidaily.com/4408961c4a58da87c406138200e7c77deae5482c7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-a-master-of-ru-phonetics/"><u>Becoming a Master of RU Phonetics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprender-el-espanol-con-ingles-cognados-verdaderos/"><u>Comprender El Español Con Inglés Cognados Verdaderos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enlightening-education-artificial-intelligences-role-unveiled/"><u>Enlightening Education: Artificial Intelligence's Role Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entender-todas-as-variedades-do-portuguese-em-gritos-de-ola/"><u>Entender Todas as Variedades Do Portuguese Em Gritos De Olá</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Motorola Razr 40 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/keep-the-best-of-facebook-in-super-hd-quality/"><u>Keep the Best of Facebook in Super HD Quality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-forward-oxford-mondly-essential-words-guide/"><u>Language Leap Forward: Oxford-Mondly Essential Words Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-languages-journey-two-years-spectacular-ambitions/"><u>Mondly Languages' Journey: Two Years, Spectacular Ambitions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sealoc-coastal-silver-a-55-inch-4k-tv-review-the-perfect-slim-choice-for-your-garden-entertainment-setup/"><u>Sealoc Coastal Silver: A 55-Inch 4K TV Review – The Perfect Slim Choice for Your Garden Entertainment Setup</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-guide-seamless-dvd-clip-extraction-techniques/"><u>Step-by-Step Guide: Seamless DVD Clip Extraction Techniques</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-picks-the-best-series-streaming-on-max-at-the-moment/"><u>Top Picks: The Best Series Streaming on Max at the Moment</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-waht-is-ai-pixel-art-generator-for-2024/"><u>Updated Waht Is AI Pixel Art Generator for 2024</u></a></li>
+</ul></div>
 

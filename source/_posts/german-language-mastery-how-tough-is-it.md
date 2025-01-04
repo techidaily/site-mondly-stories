@@ -1,7 +1,7 @@
 ---
 title: "German Language Mastery: How Tough Is It?"
-date: 2024-12-23T16:07:57.592Z
-updated: 2024-12-25T16:46:46.307Z
+date: 2024-12-31T18:18:26.451Z
+updated: 2025-01-03T21:23:31.276Z
 tags:
   - speak
   - english
@@ -20,16 +20,12 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 
  Like people, languages are very different but also sometimes similar. This doesn’t mean you can’t be friends. Read on to discover a fair evaluation of the complexity of the German language. If_Deutsch_ is as hard as they say, we will reveal a safe method to make it easy.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why is German considered hard to learn?
 
  We can all probably agree that German has a bad reputation for being one of the [hardest languages to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Society, entertainment, and memes in particular, always seem to maintain and even solidify our prejudices about the German language. The two most popular justifications are its neverending long words and their harsh pronunciation. Over the course of history, we had and still have a lot of preconceptions, but this one is particularly hard to break. So let’s shatter all the myths right here, right now.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. German is impossible to pronounce
@@ -39,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
  So rest assured, German pronunciation doesn’t really require twisting your tongue like a pretzel.
 
 **Verdict: false assumption.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. German words are neverending
 
@@ -64,11 +64,7 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 !['German hard to learn' by Sebastian Herrmann©](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-hard-to-learn-960x640.jpg "Is German Hard To Study? 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. German grammar is too hard to learn
@@ -91,11 +87,19 @@ Doesn’t this sound familiar?
 
  However, according to [the FSI](https://www.state.gov/foreign-language-training/) (Foreign Service Institute) of the US government, which ranks languages in terms of difficulty,**German is a tier II language.** Considering that there are five tiers in total, with tier V including Arabic, Chinese, Japanese and Korean, tier II doesn’t seem so daunting. This indicates that German is not hard to learn after all.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How long does it take to study German?
 
  According to the FSI (Foreign Service Institute) of the US government, an English speaker would need about **750 class hours or 30 weeks of practice to [become fluent in German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .** Of course, this is not 100% accurate for every individual. Some people have a knack for learning languages, and others don’t. It all depends on your determination and passion for the task at hand.
 
  Moreover, your progress can also be influenced by the learning method you’re using. While dry memorization techniques used to be the norm until a few years ago, nowadays learning German can be much more enjoyable.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Can German be easy to learn?
 
@@ -107,10 +111,6 @@ Doesn’t this sound familiar?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Study German in just 10 minutes a day
 
@@ -141,22 +141,20 @@ Doesn’t this sound familiar?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-iphoneipad-top-10-free-youtube-video-editing-apps/"><u>[New] In 2024, IPhone/iPad Top 10 Free YouTube Video Editing Apps</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-elevate-your-video-conferencing-mastering-zoom-filters/"><u>[Updated] 2024 Approved Elevate Your Video Conferencing Mastering Zoom Filters</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-a-step-into-anti-time-original-techniques-to-rewind-yt-videos-for-2024/"><u>[Updated] A Step Into Anti-Time Original Techniques to Rewind YT Videos for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/combatting-elevation-hurdles-win-11s-error-740-guide/"><u>Combatting Elevation Hurdles: Win 11'S Error #740 Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dias-del-mes-aprende-de-lunes-a-domingos-en-espanol/"><u>Días Del Mes: Aprende De Lunes a Domingos en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-unmatched-communication-with-huaweiplusmondly/"><u>Discover Unmatched Communication with Huawei+Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-dialect-diversity-get-a-staggering-95-off-languages-this-year/"><u>Dive Into Dialect Diversity - Get a Staggering 95% Off Languages This Year</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581448693-epic-deals-on-global-communication-today-only/"><u>Epic Deals on Global Communication Today Only!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/free-and-flexible-japanese-learning-aids-unveiled/"><u>Free & Flexible Japanese Learning Aids Unveiled</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/legal-footprints-in-the-digital-age-photowatermarking-for-instagram/"><u>Legal Footprints in the Digital Age Photowatermarking for Instagram</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-precision-meets-gsl-excellence-from-pearson/"><u>Mondly's Precision Meets GSL Excellence From Pearson</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pinnacle-online-hubs-learn-and-conquer-new-tongues-with-ease/"><u>Pinnacle Online Hubs: Learn and Conquer New Tongues with Ease!</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/pioneers-park-nature-center/"><u>Pioneers Park Nature Center</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/razer-book-13-analysis-compact-device-mighty-performance/"><u>Razer Book 13 Analysis: Compact Device, Mighty Performance</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/the-amd-ryzen-9-series-faceoff-uncovered-benchmarks-of-the-9900x-9700x-and-9600x-with-fresh-insights-from-cinebench-test-suite/"><u>The AMD Ryzen 9 Series Faceoff: Uncovered Benchmarks of the 9900X, 9700X & 9600X with Fresh Insights From Cinebench Test Suite</u></a></li>
-<li><a href="https://win11.techidaily.com/unraveling-the-mysteries-of-modern-standbys-issues/"><u>Unraveling the Mysteries of Modern Standby's Issues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/whats-the-best-way-to-learn-a-language-online/"><u>What's The Best Way To Learn A Language Online</u></a></li>
+<li><a href="https://blog-min.techidaily.com/cambia-mpeg-sin-costo-alguno-a-mjpeg-con-convertidor-online-de-movavi/"><u>Cambia MPEG Sin Costo Alguno a MJPEG Con Convertidor Online De Movavi</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-the-basics-from-german-sounds-to-spelling/"><u>Grasping the Basics: From German Sounds to Spelling</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-play-7t-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor Play 7T to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/how-to-watch-live-tv-online-without-cable-the-top-3-platforms-of-the-year/"><u>How to Watch Live TV Online Without Cable – The Top 3 Platforms of the Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-as-an-lifelong-adventure-top-reasons-why-at-age-40plus-is-the-best-time-to-start/"><u>Language Learning as an Lifelong Adventure: Top Reasons Why at Age 40+ Is the Best Time to Start</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/laughing-fingers-the-hottest-tiktok-game-sensations/"><u>Laughing Fingers The Hottest TikTok Game Sensations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-swedish-letters-and-pronunciation-fast/"><u>Learn Swedish Letters and Pronunciation Fast</u></a></li>
+<li><a href="https://win11.techidaily.com/merry-merriment-gifting-windows-store-items-on-xmas/"><u>Merry Merriment: Gifting Windows Store Items on Xmas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-milestone-moments-across-the-world/"><u>Mondly Milestone Moments Across the World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-new-cultures-with-mondlys-top-language-app/"><u>Navigate New Cultures with Mondly's Top Language App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persuasive-prose-excellent-english-training-options/"><u>Persuasive Prose: Excellent English Training Options</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/simple-troubleshooting-guide-resolving-playback-errors-on-your-device/"><u>Simple Troubleshooting Guide: Resolving 'Playback Errors on Your Device'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sultry-sentiments-spoken-in-french/"><u>Sultry Sentiments Spoken in French</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-experts-manual-to-crafting-impeccable-srt-files-for-2024/"><u>The Expert's Manual to Crafting Impeccable SRT Files for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-charming-imperfections-in-the-asus-bw-16d1x-u-blu-ray-drive-a-reviewers-perspective/"><u>Unveiling the Charming Imperfections in the Asus BW-16D1X-U Blu-Ray Drive: A Reviewer's Perspective</u></a></li>
 </ul></div>
 

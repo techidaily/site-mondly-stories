@@ -1,7 +1,7 @@
 ---
 title: "Award-Winning App for Families: Mondly's Innovative Design"
-date: 2024-09-01T00:13:40.868Z
-updated: 2024-09-02T00:13:40.868Z
+date: 2025-01-02T20:55:03.193Z
+updated: 2025-01-03T20:10:13.525Z
 tags:
   - speak
   - english
@@ -18,11 +18,19 @@ thumbnail: https://thmb.techidaily.com/a9e60c359d76678f8aad5193db4d1713b6255faff
 
  Children are always the best critics. They are disarmingly honest and have an innocent way of being straightforward. If they don’t like you, they will tell you right away, so it’s not totally preposterous to think that they would make great judges in almost any kind of competition. This is why we were proud and honored when **Google Play notified us that MondlyKids was selected as one of the Best Apps of 2017** in a children’s category. And before we could properly celebrate the news,**Google Play** announced that**MondlyKids** is giving us yet another milestone to celebrate in 2017:[Editors’ Choice language app](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Our journey of learning and creating
 
  We, at [Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-942&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-942%26utm%5Fsource%3Dblog-post-id-942&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-942%26utm%5Fsource%3Dblog-post-id-942&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-942%26utm%5Fsource%3Dblog-post-id-942&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-942%26mt%3D8) , started our journey of learning and creating almost five years ago. It required a lot of work, but it was worth every step of the way. Our aim was to create immersive learning experiences. We wanted to never stop innovating. So here we are today:
 
 > _We think your app was one of the best on Google Play in 2017\. We know that you and your team have worked hard to create a unique and compelling experience, so consider this our way of saying thank you for bringing your innovation and expertise to the Play Store._  – Google Play
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## MondlyKids – a new learning experience for children
 
@@ -33,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/a9e60c359d76678f8aad5193db4d1713b6255faff
  The result? We created a child-friendly app with an eye-catching design and a cool story for 5 to 12 years old children that have a great thirst for knowledge and like gamified experiences. Cool sound effects and music are also here to keep the children engaged. Over the course of our 11 main lessons, children will become competitive and eager to learn, discover and interact more with their new virtual native speaker chipmunk friend.
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### The road to success
 
  In order for the new Mondly app to match its exigent young target, we had to give children a new angle on progress and how important it is in the learning experience. This is the point where we decided to create our design around a map where the learning progress would be visualized in terms of traveling to new places – this is why a completed set of lessons will get you to a new place on the map; because knowledge broadens the mind and lets you travel.[Mondly for Kids - free languages for kids (small)](https://edge.mondly.com/blog/wp-content/uploads/2017/12/Mondly-for-Kids-free-languages-for-kids-small-1024x921.png "Google Play Selects Mondly’s Kids App As One Of The Best Apps Of 2017 2") ](https://play.google.com/store/apps/details?id=com.atistudios.mondly.kids.languages&hl=en)
@@ -54,8 +63,6 @@ thumbnail: https://thmb.techidaily.com/a9e60c359d76678f8aad5193db4d1713b6255faff
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -63,8 +70,21 @@ thumbnail: https://thmb.techidaily.com/a9e60c359d76678f8aad5193db4d1713b6255faff
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/updated-decoding-advanced-post-production-techniques-chroma-keying-kinemaster/"><u>[Updated] Decoding Advanced Post-Production Techniques Chroma Keying (KineMaster)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-sportscasting-your-pathway-to-highlight-videos/"><u>2024 Approved Sportscasting Your Pathway to Highlight Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579049502-beat-the-wait-with-daily-slovak-learning-sessions-just-10-minutes-each/"><u>Beat the Wait with Daily Slovak Learning Sessions, Just 10 Minutes Each</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-cultural-commencements-good-morning-variants-from-around-the-globe/"><u>Cross-Cultural Commencements: 'Good Morning' Variants From Around the Globe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-the-slavic-divide-uk-and-rus-languages/"><u>Crossing the Slavic Divide: Uk & Rus Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-immersion-mastering-indonesian-social-exchanges/"><u>Cultural Immersion: Mastering Indonesian Social Exchanges</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580565977-cut-prices-deep-lifetime-mondly-plan/"><u>Cut Prices Deep - Lifetime Mondly Plan!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/earths-linguistic-relatives-to-castilian/"><u>Earth’s Linguistic Relatives to Castilian</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-feast-of-images-building-beautiful-collages-in-minutes/"><u>Easy Feast of Images: Building Beautiful Collages in Minutes</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-4-things-you-must-know-about-apple-iphone-11-pro-max-activation-lock-by-drfone-ios/"><u>In 2024, 4 Things You Must Know About Apple iPhone 11 Pro Max Activation Lock</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ating-youtube-cards-and-tags/"><u>Navigating YouTube Cards and Tags</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolving-issues-with-logitech-usb-devices-and-their-desktop-configuration-apps-on-windows/"><u>Resolving Issues with Logitech USB Devices and Their Desktop Configuration Apps on Windows</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ustream-examination-other-options-compared-for-2024/"><u>Ustream Examination Other Options Compared for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/virtuocapture-pro-windows-10-edition/"><u>VirtuoCapture Pro (Windows 10 Edition)</u></a></li>
+</ul></div>
 
