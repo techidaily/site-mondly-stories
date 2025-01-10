@@ -1,7 +1,7 @@
 ---
 title: プレゼンターズの日 (Japanese)
-date: 2024-12-31T17:06:18.158Z
-updated: 2025-01-03T23:47:42.724Z
+date: 2025-01-06T18:21:44.525Z
+updated: 2025-01-10T17:15:02.397Z
 tags:
   - speak
   - english
@@ -48,10 +48,6 @@ thumbnail: https://thmb.techidaily.com/964056d5a42fd554adb9e457ea6c862e5065495ad
 
  Now let’s go into a little more detail to make sure we know all the particularities of properly saying “Merry Christmas” in all these languages.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Spanish –_¡Feliz Navidad!_
 
 _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous year and happiness!”).
@@ -61,13 +57,13 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 ![merry christmas in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/12/merry-christmas-in-spanish-1024x758.jpg "How To Say Merry Christmas In 21 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Santa and a fan” by Mike Arney©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## French –_Joyeux Noël!_
@@ -79,12 +75,16 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
  Nothing compares to the warmth and magic of a German Christmas market. If you have never been to one, you should try going this year._Weihnachten_ (Christmas) is incredibly tasty in Germany!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian –_Buon Natale!_
 
  Famous for its_bellezza_ and absolutely splendid seashores, Italy is also the home of highly religious Christmas traditions. One of the most important Italian Christmas celebrations is having_presepi_ (nativity scenes) everywhere.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Portuguese –_Feliz Natal!_
 
@@ -92,27 +92,31 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
 ![merry christmas in french](https://edge.mondly.com/blog/wp-content/uploads/2019/12/merry-christmas-in-french-1024x682.jpg "How To Say Merry Christmas In 21 Different Languages 3")
 
- “The Christmas present we all need” by Jakob Owens©
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ “The Christmas present we all need” by Jakob Owens©
 
 ## Romanian –_Crăciun Fericit!_
 
  Did you know that one of the most beautiful Christmas markets in Europe takes place in Sibiu? It’s almost like Santa had scattered magic dust all over the place. It’s breathtakingly beautiful!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Russian –_Счастливого Рождества! (Schastlivogo Rozhdestva!)_
 
  While most countries celebrate Christmas on the 25th of December, Russia celebrates it on the 7th of January because the Russian Orthodox church uses “The old calendar” or the Julian calendar. And the 25th of December on the Julian calendar corresponds to the 7th of January in the Gregorian calendar.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Swedish – _God Jul!_
 
  Nothing says**Swedish fika** like brunch with a friend on Christmas Day. Or at least that’s how we, as nonlocals, imagine it. In reality, on Christmas Eve, Swedish people have an entire feast called_julbord_ with many different kinds of cold fish,_julskinka_ (a type of Christmas ham), salads, cheeses, meatballs,_prinskorv_ (Swedish sausages), jellied pigs’ feet,_revbenspjäll_ (oven-roasted pork ribs) and many others. Mmm… Sounds delicious!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Norwegian –_God Jul!_
 
@@ -120,17 +124,9 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  But the most beautiful Norwegian Christmas tradition remains that of the Christmas Tree that Norway gives to the UK every year as a “thank you” for the help that British have to Norwegians during World War II.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Danish –_Glædelig Jul!_
 
  In Denmark, it is said that the_Julemanden_ (“Christmas Man” or “Yule Man”) brings presents to children that were good during the year. Julemanden is very similar to Santa Claus, lives in Greenland, also travels in a sleigh pulled by reindeers and likes rice pudding.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Finnish –_Hyvää Joulua!_
 
@@ -171,7 +167,7 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
  But Dutch Christmas celebrations are separate from the visit of Sinterklaas. On Christmas Eve,_Kerstman_ (“Christmas Man”) comes from Lapland to bring even more presents (Dutch kids are the luckiest!). Then, on Christmas Day, the celebration continues with a Church Service and family meal.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Croatian –_Sretan Božić!_
@@ -181,6 +177,10 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 ![merry christmas in italian](https://edge.mondly.com/blog/wp-content/uploads/2019/12/merry-christmas-in-italian-1024x684.jpg "How To Say Merry Christmas In 21 Different Languages 6")
 
  “Christmas lights” by T. Rampersad©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Czech –_Veselé Vánoce!_
 
@@ -196,13 +196,13 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  To say “Merry Christmas” in Latin, you can use the phrase “Felicem Natalem Christi”. This expression is derived from the Latin words “felicem”, which means ‘happy’ or ‘joyful’; “natalem”, which means ‘birthday’ or ‘nativity’; and “Christi”, which is the genitive form of “Christus”, meaning Christ. Therefore,_Felicem Natalem Christi_ can be translated as “happy birthday of Christ” or “joyful nativity of Christ” in reference to the birth of Jesus Christ.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Chinese –_圣诞节快乐! (Shèngdàn jié kuàilè!)_
 
  In China, Christmas is not typically celebrated in a religious sense, but people enjoy the holiday for its commercial aspects, such as store discounts. It is becoming increasingly popular, especially among young people, who may be exposed to Christmas through English education and Western media. To say “Merry Christmas” in Chinese, you can use the phrase_圣诞节快乐 (Shèngdàn jié kuàilè)._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Korean –_메리 크리스마스! (Meli Keuliseumaseu!)_
 
@@ -363,20 +363,20 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ssential-guide-top-10-free-youtube-to-mp3-tools-for-2024/"><u>[New] Essential Guide Top 10 Free YouTube-to-MP3 Tools for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-shadowy-snapshots-skills-for-stunning-night-images/"><u>2024 Approved Shadowy Snapshots Skills for Stunning Night Images</u></a></li>
-<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-nubia-red-magic-8s-pro-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Nubia Red Magic 8S Pro to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/fast-track-speeding-up-vimeo-videos-for-2024/"><u>Fast Track Speeding Up Vimeo Videos for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/innovative-metaverse-humor-generating-unique-memes-for-2024/"><u>Innovative Metaverse Humor Generating Unique Memes for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interactive-intelligence-acquire-new-language-skills-virtually/"><u>Interactive Intelligence: Acquire New Language Skills Virtually</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigate-conversation-easily-17-basic-spanish-sayings/"><u>Navigate Conversation Easily: 17 Basic Spanish Sayings</u></a></li>
-<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Honor Magic V2? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-hindi-adventure-awaits-dive-into-8-engaging-mondly-reasons/"><u>The Ultimate Hindi Adventure Awaits: Dive Into 8 Engaging Mondly Reasons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transformative-technology-mondly-and-pearsons-buttonfusion/"><u>Transformative Technology: Mondly and Pearson's ButtonFusion</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/ultimate-mkv-player-for-windows-and-mobile-for-2024/"><u>Ultimate MKV Player for Windows & Mobile for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-turkish-quick-pronunciation-and-letter-reference/"><u>Unlocking the Secrets of Turkish: Quick Pronunciation and Letter Reference</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-germanys-quirkiest-phrases-top-25/"><u>Unveiling Germany's Quirkiest Phrases (Top 25)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-best-language-for-my-learning-journey/"><u>Unveiling The Best Language for My Learning Journey</u></a></li>
-<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-honor-x9b-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Honor X9b? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-dialing-into-smooth-audio-edits-with-reaper/"><u>[New] Dialing Into Smooth Audio Edits with Reaper</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-masters-tutorial-total-deep-dive-into-xmedia-suite-workshop/"><u>[New] Master's Tutorial Total Deep Dive Into XMedia Suite Workshop</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-masterful-iphone-images-through-strategic-leading-lines-for-2024/"><u>[Updated] Masterful iPhone Images Through Strategic Leading Lines for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-simplified-steps-for-photo-motion-blur-in-photoshop/"><u>[Updated] Simplified Steps for Photo Motion Blur in Photoshop</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-captivating-audience-with-these-innovative-videos/"><u>2024 Approved Captivating Audience with These Innovative Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-expressions-francaises-de-bienvenue/"><u>4 Expressions Françaises De Bienvenue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/93-essential-spanish-travel-phrases-for-your-next-vacation/"><u>93 Essential Spanish Travel Phrases For Your Next Vacation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-novices-blueprint-for-pronunciation-and-alphabet-mastery/"><u>A Novice’s Blueprint for Pronunciation and Alphabet Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/borrowing-beyond-borders-enriched-english-lexicon/"><u>Borrowing Beyond Borders: Enriched English Lexicon</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/descubra-os-melhores-reprodutores-gratuitos-de-dvd-para-os-x-10-e-11-nossa-selecao-exclusiva/"><u>Descubra Os Melhores Reprodutores Gratuitos De DVD Para OS X, 10 E 11 - Nossa Seleção Exclusiva!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-germanys-linguistic-culture-top-25-phrases/"><u>Embracing Germany's Linguistic Culture: Top 25 Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719574941292-new-years-deal-save-96-on-mondly-pro-indefinitely/"><u>New Year's Deal! Save 96% on Mondly Pro Indefinitely</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576157624-no-more-language-barriers-your-95-off-lifetime-pass/"><u>No More Language Barriers - Your 95% Off Lifetime Pass!</u></a></li>
+<li><a href="https://techidaily.com/vivo-tutorial-bypass-lock-screensecurity-password-pinfingerprintpattern-by-drfone-android-unlock-android-unlock/"><u>Vivo Tutorial - Bypass Lock Screen,Security Password Pin,Fingerprint,Pattern</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-the-oneplus-nord-n10-5g-deserves-your-attention-a-comprehensive-review/"><u>Why the OnePlus Nord N10 5G Deserves Your Attention: A Comprehensive Review</u></a></li>
 </ul></div>
 

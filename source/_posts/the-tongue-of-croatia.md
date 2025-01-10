@@ -1,7 +1,7 @@
 ---
 title: The Tongue of Croatia
-date: 2024-09-05T04:34:48.311Z
-updated: 2024-09-06T04:34:48.311Z
+date: 2025-01-03T19:53:57.469Z
+updated: 2025-01-10T18:13:12.765Z
 tags:
   - speak
   - english
@@ -14,18 +14,6 @@ keywords: Croatian Language,Linguistics of Croatia,Croatian Dialects,Cultural Si
 thumbnail: https://thmb.techidaily.com/b1dd0483f32a09412f335f94508f9f7301d5aa196fe907bac96fdd29e9d8162d.png
 ---
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Tongue of Croatia
 
  It’s true, most Croatians do speak English very well, but only as a second language. So what language is spoken in Croatia? Well, the answer is easier than you think. **The name of the language Croatians speak is ‘Croatian’, the ‘Croatian language’ or_Hrvatski_ (as the natives call it).**
@@ -45,12 +33,14 @@ thumbnail: https://thmb.techidaily.com/b1dd0483f32a09412f335f94508f9f7301d5aa196
 ![aerial view of Plitvice, Croatia](https://edge.mondly.com/blog/wp-content/uploads/2021/10/language-in-croatia-960x734.jpg "What Language Is Spoken In Croatia? 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  “Plitvice, Croatia” by Mike Swigunski©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How similar are Croatian and Serbian?
 
@@ -65,11 +55,9 @@ thumbnail: https://thmb.techidaily.com/b1dd0483f32a09412f335f94508f9f7301d5aa196
  Add regional dialects and subdialects to that, and there you have it. What was previously called ‘the Serbo-Croatian language’ are today two different languages: Croatian and Serbian.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## It is hard to learn Croatian?
 
  If you’re a native English speaker, yes, Croatian may prove [hard to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . But not harder than languages such as Japanese, Chinese or Arabic.
@@ -81,19 +69,11 @@ thumbnail: https://thmb.techidaily.com/b1dd0483f32a09412f335f94508f9f7301d5aa196
 ![aerial view of Dubrovnik, Croatia](https://edge.mondly.com/blog/wp-content/uploads/2021/10/croatian-language-960x640.jpg "What Language Is Spoken In Croatia? 3")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  “Dubrovnik, Croatia” by Geio Tischler©
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Hello in Croatian and other basic Croatian words
 
  **The most popular way to say ‘hello’ in Croatian is_bok_ , but you can also use_zdravo,_ a more formal hello.** Similarly to other languages, it all depends on who you are talking to and how friendly you allow yourself to be. If you’re a tourist in Croatia,_bok_ or_bog_ (in some areas) should work fine in most situations.
@@ -119,11 +99,9 @@ thumbnail: https://thmb.techidaily.com/b1dd0483f32a09412f335f94508f9f7301d5aa196
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in Croatian
 
  Do you want to see the Croatian language in action? Get Mondly, the award-winning language learning app that will help you speak Croatian like a pro.
@@ -145,8 +123,6 @@ thumbnail: https://thmb.techidaily.com/b1dd0483f32a09412f335f94508f9f7301d5aa196
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -154,8 +130,19 @@ thumbnail: https://thmb.techidaily.com/b1dd0483f32a09412f335f94508f9f7301d5aa196
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-guide-to-free-image-editor-apps/"><u>[New] The Ultimate Guide to Free Image Editor Apps</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-insights-into-audio-memos/"><u>[New] The Ultimate Insights Into Audio Memos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-best-value-budget-friendly-pros-for-high-impact-sports/"><u>[Updated] Best Value Budget-Friendly Pros for High-Impact Sports</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-vivo-s18-pro-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Vivo S18 Pro? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-dialogues-a-global-guide-to-saying-good-morning/"><u>Dawn Dialogues: A Global Guide to Saying 'Good Morning'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dia-a-dia-en-espanol-entender-la-secuencia-semanal/"><u>Dia a Dia, En Español: Entender La Secuencia Semanal</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-access-to-the-latest-driver-updates-for-your-hp-deskjet-2540-printer/"><u>Easy Access to the Latest Driver Updates for Your HP Deskjet 2540 Printer</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-oneplus-nord-ce-3-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Oppo K11 5G? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-c55-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Realme C55 Bootloader Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shakespeares-lexical-legacies-36-words-that-live-on/"><u>Shakespeare’s Lexical Legacies: 36 Words That Live On</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/welcome-to-the-wonderful-world-of-african-languages/"><u>Welcome to the Wonderful World of African Languages</u></a></li>
+</ul></div>
 

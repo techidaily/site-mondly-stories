@@ -1,7 +1,7 @@
 ---
 title: Ranking Nations by Their Number of French Communicators
-date: 2024-09-05T04:33:32.785Z
-updated: 2024-09-06T04:33:32.785Z
+date: 2025-01-06T20:34:28.422Z
+updated: 2025-01-10T18:48:11.693Z
 tags:
   - speak
   - english
@@ -18,16 +18,8 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 
  French is one of the most spoken and widespread languages in the world. As a result of the French colonization from the 16th century onward, we have a**long list of French-speaking countries** today. In fact, along with English, French is the only language spoken on five continents: Europe, Africa, Asia, America and Oceania (or Australia). Naturally, we can’t help but ask ourselves: **how many people [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?** Let’s find out.
 
-
-
  Meanwhile, if you’re not sure whether you should [learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or not, our advice would be to go for it. **French has been adopted as the official language of the largest number of countries after English.** For this reason alone, speaking French will help you make friends and easily communicate all over the world.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How many people speak French?
 
  **According to recent data from [Ethnologue](https://www.ethnologue.com/language/fra) , 274 million people speak French worldwide.** However, the ‘unofficial’ number could be much closer to 300 million speakers.
@@ -53,11 +45,9 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ![how many people speak french](https://edge.mondly.com/blog/wp-content/uploads/2022/10/how-many-people-speak-french-960x600.jpg "Top French-Speaking Countries | How Many People Speak French? 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### French-speaking countries in Europe
 
  Since France is the parental home of the French language, we figured it’s best to start with Europe. Boasting a rough total of 80 million French speakers, Europe counts for around 40% of the total number of worldwide francophones. This makes French the 3rd most spoken native language in Europe.
@@ -72,11 +62,9 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 * Italy — 20% (French is the official language of the autonomous region of the Aosta Valley)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### French-speaking countries in Africa
 
  How many people in Africa speak French? Well, some of you will be surprised to find out that Africa has more French speakers than any other continent. Even though many speak it as a second language, there are regions where French even replaced the local languages. As a result, French is the fastest-growing language here.
@@ -110,11 +98,9 @@ The French-speaking countries of Africa are:
  \* the number represents the percentage of the population who speak French.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### French-speaking countries in North America
 
  If we know anything about Canada, it is the fact that the French language occupies a special place in its heart. At a national level, both English and French are recognized as official languages, but their status differs from one province to another. For example, in Quebec, French is the only official language.
@@ -123,12 +109,6 @@ Needless to say, the only French-speaking country in North America is:
 
 * Canada — 29% (percentage of the entire population speaking French).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### French-speaking countries in the Caribbean
 
 We told you that French speakers could be found everywhere in the world!
@@ -149,6 +129,10 @@ We told you that French speakers could be found everywhere in the world!
 
  Later, in the 1880s, France and the United Kingdom claimed parts of the archipelago and they agreed to manage it jointly. However, an independence movement arose in the 1970s, and the Republic of Vanuatu was founded in 1980\. And that’s the story of how the French language made it all the way to Australia.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Countries where French is spoken although it’s not an official language
 
  Despite not being their official language, French is spoken in other countries as well. Just like previously mentioned, the French language enjoys growing notoriety all over the world.
@@ -158,11 +142,9 @@ We told you that French speakers could be found everywhere in the world!
  Now we finally have the full picture and we can understand why French is spoken on five continents.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## A short history of the French language
 
  So how did the [French language](https://www.britannica.com/topic/French-language) become so widespread? Let’s see what history says.
@@ -202,8 +184,6 @@ We told you that French speakers could be found everywhere in the world!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -211,8 +191,21 @@ We told you that French speakers could be found everywhere in the world!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-guide-to-hashtagging-for-game-focused-yt-channels/"><u>[New] In 2024, Essential Guide to Hashtagging for Game-Focused YT Channels</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-navigating-screen-capture-across-pcs-and-mobile-devices/"><u>[New] Navigating Screen Capture Across PCs and Mobile Devices</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-streamlined-methods-for-saving-videos-on-desktops-tablets-and-phones/"><u>[New] Streamlined Methods for Saving Videos on Desktops, Tablets & Phones</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-dichotomy-of-digital-immersion-in-vr/"><u>[Updated] The Dichotomy of Digital Immersion in VR</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/breaking-into-the-brainshare-how-to-hype-up-your-fb-content/"><u>Breaking Into the Brainshare How to Hype Up Your FB Content</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/comprehensive-guide-to-safeguarding-your-hdd-using-windows-os/"><u>Comprehensive Guide to Safeguarding Your HDD Using Windows OS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cutting-edge-systems-for-effective-language-study/"><u>Cutting-Edge Systems for Effective Language Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-basic-sound-structures-in-german-language/"><u>Discover Basic Sound Structures in German Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heres-how-to-use-mondly-and-get-the-best-out-of-it/"><u>Here’s How To Use Mondly And Get The Best Out Of It</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/leading-5-video-conference-recorders-for-seamless-captures-for-2024/"><u>Leading 5 Video Conference Recorders for Seamless Captures for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/must-learn-croatian-dialogues-for-smooth-expat-experiences/"><u>Must-Learn Croatian Dialogues for Smooth Expat Experiences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pasos-para-saber-los-dias-de-la-semana-en-espanol/"><u>Pasos Para Saber Los Días De La Semana en Español</u></a></li>
+<li><a href="https://games-able.techidaily.com/ultimate-16-xbox-series-x-couch-gaming-pairing/"><u>Ultimate 16 Xbox Series X Couch Gaming Pairing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-words-in-english-language-mergers-over-time/"><u>Worldwide Words in English: Language Mergers Over Time</u></a></li>
+</ul></div>
 

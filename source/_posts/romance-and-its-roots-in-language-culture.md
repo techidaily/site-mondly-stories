@@ -1,7 +1,7 @@
 ---
 title: Romance and Its Roots in Language Culture
-date: 2024-09-01T00:16:27.957Z
-updated: 2024-09-02T00:16:27.957Z
+date: 2025-01-05T16:34:54.283Z
+updated: 2025-01-10T18:46:45.215Z
 tags:
   - speak
   - english
@@ -18,7 +18,9 @@ thumbnail: https://thmb.techidaily.com/482b831c6b34c789ab00f688124bfef762b7175ea
 
  The Romance languages have grown to become one of the most prominent language families in the world. Despite being just a subgroup of the Indo-European language family, the Romance languages are still the most famous language family there is. Although having (almost) nothing to do with love, we all love them. In fact, they are some of the most popular foreign languages that English speakers want to learn. Still, one question remains: what are the Romance languages exactly?
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What are the Romance languages?
 
@@ -49,18 +51,15 @@ thumbnail: https://thmb.techidaily.com/482b831c6b34c789ab00f688124bfef762b7175ea
  “Mont Saint-Michel, France” by Fab Lentz©
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Latin-based languages – where do they come from?
 
  The [origin story](https://www.britannica.com/topic/Romance-languages) of the Romance languages was (and in some cases still is) highly disputed between historians and linguists. Less commonly known as Latin-based languages or simply Latin languages, they share Latin as the common ancestor. That you already know. But how did this happen?
 
  As the Roman Empire spread throughout Europe, the local population in most of those areas adopted two forms of Latin. One of them was Classical Latin, which was the formal language used by the upper classes. The other one was Vulgar Latin.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### What does ‘Vulgar Latin’ mean?
 
  Like ‘romance’, the word ‘vulgar’ in ‘Vulgar Latin’ doesn’t mean what you think it means. People didn’t use a special kind of Latin to be rude to one another.
@@ -70,8 +69,9 @@ thumbnail: https://thmb.techidaily.com/482b831c6b34c789ab00f688124bfef762b7175ea
 ![italian](https://edge.mondly.com/blog/wp-content/uploads/2021/07/italian-960x768.jpg "What Are The Romance Languages? 6")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  “Manarola, Italy” by Robert Aniței©
 
  Back to our origin story, as you might have guessed, Vulgar Latin is the Latin that spread amongst the local populations of the Roman Empire. Then, over time, it evolved separately into different varieties of spoken Latin all over the empire.
@@ -87,15 +87,17 @@ thumbnail: https://thmb.techidaily.com/482b831c6b34c789ab00f688124bfef762b7175ea
 ![latin based languages](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-based-languages.png "What Are The Romance Languages? 7")
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Romanian is always the odd one out.
 
  Although all the modern Romance languages are definitely closer to each other than to Latin, if you really are passionate about languages, it might prove fun to learn Latin (which, by the way, you can do with [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6018&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018) ). Discovering the origin of these languages will surely help you make connections and learn faster.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is English a Romance language?
 
  This is probably one of the most common language-related misconceptions. Although English has borrowed a lot of words from Latin, it is not a Romance language. Having developed from the mix between the dialects and vocabulary of Germanic peoples (Angles, Saxons, and Jutes) who settled in Britain in the 5th century CE, **[English](https://www.britannica.com/topic/English-language) is considered a West Germanic language.**
@@ -105,9 +107,6 @@ thumbnail: https://thmb.techidaily.com/482b831c6b34c789ab00f688124bfef762b7175ea
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ### From 0 to conversational in any Romance language
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get Mondly, the award-winning language learning app that will help you speak any of the main Romance languages and even their ancestor, Latin, in just 10 minutes a day.
@@ -124,8 +123,6 @@ thumbnail: https://thmb.techidaily.com/482b831c6b34c789ab00f688124bfef762b7175ea
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -133,8 +130,20 @@ thumbnail: https://thmb.techidaily.com/482b831c6b34c789ab00f688124bfef762b7175ea
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-ultimate-guide-to-beauty-on-youtube-gear-makeup-tutorials-and-more/"><u>[New] 2024 Approved Ultimate Guide to Beauty on YouTube - Gear, Makeup Tutorials, and More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immersive-learning-conquer-new-languages-in-vr-worlds/"><u>Immersive Learning: Conquer New Languages in VR Worlds</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-av1-essentials-for-the-uninitiated/"><u>In 2024, AV1 Essentials For the Uninitiated</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maisto-remote-control-rock-crawler-evaluation-an-all-age-suitable-rc-vehicle/"><u>Maisto Remote Control Rock Crawler Evaluation: An All-Age Suitable RC Vehicle</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimized-with-the-help-of-cookiebot-enhanced-website-analytics/"><u>Optimized with the Help of Cookiebot: Enhanced Website Analytics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/passionate-prose-crafting-compelling-spanish-compliments/"><u>Passionate Prose: Crafting Compelling Spanish Compliments</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/perfect-your-gaming-capture-console-gameplay-on-a-computer/"><u>Perfect Your Gaming Capture Console Gameplay on a Computer</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/professionals-choice-in-streaming-illumination-featured-lights-rated-by-experts-digitaltrends/"><u>Professional's Choice in Streaming Illumination: Featured Lights Rated by Experts | DigitalTrends</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-latvian-learning-one-minute-a-day-a-year-gained/"><u>Rapid Latvian Learning: One Minute a Day, a Year Gained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionizing-schooling-mondlys-tech-for-education/"><u>Revolutionizing Schooling: Mondly’s Tech for Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-speaking-tagalog-short-lessons-every-day/"><u>Start Speaking Tagalog: Short Lessons Every Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-english-grammars-secrets-insights-from-a-seasoned-esl-artist/"><u>Unlocking English Grammar's Secrets: Insights From a Seasoned ESL Artist</u></a></li>
+<li><a href="https://windows11.techidaily.com/win-11-tackle-icons-not-aligned/"><u>Win 11: Tackle Icons Not Aligned</u></a></li>
+</ul></div>
 

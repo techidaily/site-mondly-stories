@@ -1,7 +1,7 @@
 ---
 title: Global Citizenship Through Non-Native English Learning
-date: 2024-09-05T04:33:21.483Z
-updated: 2024-09-06T04:33:21.483Z
+date: 2025-01-04T17:26:37.374Z
+updated: 2025-01-10T19:30:46.763Z
 tags:
   - speak
   - english
@@ -14,18 +14,6 @@ keywords: Global Citizenship Education (GCE),Non-Native English Learning Program
 thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e468a1fcf01b032cc2430ea00.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Global Citizenship Through Non-Native English Learning
 
  Teaching English as a second language is probably one of the best things you can do if you love the English language. You’ll not only get to share your love of the language, but you’ll also help those who could fulfill their life goals if they learn English. Here are 10 tips that will completely transform your teaching experience.
@@ -57,12 +45,6 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
 ![english-second-language](https://edge.mondly.com/blog/wp-content/uploads/2018/02/english-second-language-scaled-960x640.jpg "How To Teach English As A Second Language 2")
  Although this is a great teaching tactic, don’t let yourself be carried away. The first thing you want to do is research. The method won’t work if your students don’t like the [movie](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or the cartoons that you have chosen. The secret is to stay anchored in modernity.
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Pro tips:**
 
@@ -84,16 +66,14 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
 **Pro tip:** Adults are bigger children. That means that you can also watch movies and TEDx Talks and review them together.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## how-to-teach-english-abroad
 
 ![how-to-teach-english-abroad](https://edge.mondly.com/blog/wp-content/uploads/2018/02/how-to-teach-english-abroad-960x640.jpg "How To Teach English As A Second Language 3")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. How to teach English in a fun way: create
 
  Creation is catharsis. Give your students time and some keywords and you will be amazed.
@@ -101,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 * **Create stories.** In high school, I had quite a big list of words I could not ever remember and my English teacher advised me to create a story using these words. Her technique worked like magic. To this day, I still create stories with words that I tend to forget.
 * **Create poems.** Your students might be reluctant to this strategy, but the creation process will rock their world making them proud of themselves.
 * Or**rap battles.** This is a bonus. You don’t have to be Nostradamus to foresee that students will love it!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Use fun language learning apps to break the routine
 
@@ -110,25 +94,15 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
 ![language-learning-app](https://edge.mondly.com/blog/wp-content/uploads/2018/02/language-learning-app-960x640.jpg "How To Teach English As A Second Language 4")
  It sounds futuristic. I know. But that’s exactly the reason why your students will love**learning English as a second language** using this app. Give it a try and enjoy the experience together.
+
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. How to teach English abroad: organize intercultural nights
 
  Love goes through the stomach. You knew that already. What you didn’t know is that language learning works the same.
@@ -137,12 +111,6 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
  Food makes us happy. Good food makes us eager to learn more (food) words in a new language. Why shouldn’t we, as teachers, use this info in our own best interest? You can organize intercultural nights and discuss a lot of interesting things about the USA and UK’s cultures, but my guess is that traditional food will still be the star of the night.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. English as a second language for kids: celebrate English holidays
 
  Kids from all over the [world simply love Halloween](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . For them, it makes no difference that this is an American holiday. And trust me: your students are no different. As long as they have fun, it doesn’t matter what holiday you are celebrating.
@@ -151,15 +119,17 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
  On a more serious note, I can assure you this is really efficient. One kid in my class was so excited about this task that he handcrafted magic wands for all his colleagues and made a really convincing essay on “why Neville Longbottom is the real hero of Harry Potter”.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## teaching-english-to-foreign-students
 
 ![teaching-english-to-foreign-students](https://edge.mondly.com/blog/wp-content/uploads/2018/02/teaching-english-to-foreign-students-960x640.jpg "How To Teach English As A Second Language 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Read and analyze fiction stories together
 
@@ -169,12 +139,6 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
 **Bonus tip:** Good teachers may be different from a student’s point of view. Look for inspiration everywhere around you. Even in cinematography! Start with Damien Chazelle’s masterpiece –[Whiplash](http://www.imdb.com/title/tt2582802/?ref%5F=nv%5Fsr%5F2) – and observe how a teacher should not behave. Seriously. That guy was the king of all awful teachers.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. Attend educational shows to get inspired
 
  One of the most inspiring educational shows that you can ever go to is [The Bett Show](https://www.bettshow.com/#/) . Hundreds of companies from all over the world gather at Bett every year to discuss how education can change the future using the latest technologies.
@@ -183,29 +147,15 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
  My guess is that this kind of event can inspire you to be a better teacher to your young students. Every day, technology becomes a bigger part of their worlds and we, as teachers, should keep up with the pace. Until super smartphones or super-smart robots will eventually replace us, we are still a crucial part of the global learning process. Although I find it hard to believe that scientists will ever [be able to create a software](https://financesonline.com/topapps/) so developed that it replicates the energy, dedication, and enthusiasm of a good teacher.
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10\. TESOL, ESL, and TEFL Certifications
 
  As any good teacher would, you care about your students. Their great results and knowledge are the sum of your actions as a great teacher. Furthermore, depending on their age, your role as a teacher is similar to that of a parent. In other words, you will always be their teacher. Even when they will become adults, their life will still be influenced by your actions. No pressure!
 
 ![how-to-teach-english](https://edge.mondly.com/blog/wp-content/uploads/2018/02/how-to-teach-english-scaled-960x905.jpg "How To Teach English As A Second Language 7")
  That is why you should advise them to get their English certification before graduating high school. Not only this will be a good exercise, but it will also help them in their careers. English as a second language in your CV isn’t just a plus anymore. It has become a must. Cross this one off their lists before life does it for them. Good luck!
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhow-teach-english-second-language-10-valuable-tips-student%2F&t=How+to+Teach+English+as+a+Second+Language "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
@@ -222,8 +172,6 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -231,8 +179,22 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-first-step-into-furnishings-simplest-mc-houses-unveiled/"><u>[New] 2024 Approved First Step Into Furnishings Simplest MC Houses Unveiled</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-become-a-trendsetter-in-snapchat-innovate-with-dynamic-boomers/"><u>[Updated] Become a Trendsetter in SnapChat Innovate with Dynamic Boomers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-how-to-get-started-with-vrecorder/"><u>2024 Approved How to Get Started with VRecorder</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-french-guide-learning-the-basics-of-friendly-salutations/"><u>Beginner’s French Guide: Learning the Basics of Friendly Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dias-del-mes-aprende-de-lunes-a-domingos-en-espanol/"><u>Días Del Mes: Aprende De Lunes a Domingos en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-unmatched-communication-with-huaweiplusmondly/"><u>Discover Unmatched Communication with Huawei+Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-dialect-diversity-get-a-staggering-95-off-languages-this-year/"><u>Dive Into Dialect Diversity - Get a Staggering 95% Off Languages This Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/free-and-flexible-japanese-learning-aids-unveiled/"><u>Free & Flexible Japanese Learning Aids Unveiled</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/ideal-vlogging-studio-package-by-movavi-elite-equipment-for-aspiring-video-bloggers/"><u>Ideal Vlogging Studio Package by Movavi: Elite Equipment for Aspiring Video Bloggers</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-apple-iphone-13-mini-look-no-further-drfone-by-drfone-virtual-ios/"><u>In 2024, Looking For A Location Changer On Apple iPhone 13 mini? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-navigating-the-world-of-youtube-building-strong-partner-relationships/"><u>In 2024, Navigating the World of YouTube Building Strong Partner Relationships</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-harmonizing-technology-with-taste-your-guide-to-mastering-audio-format-selection/"><u>New 2024 Approved Harmonizing Technology with Taste Your Guide to Mastering Audio Format Selection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pinnacle-online-hubs-learn-and-conquer-new-tongues-with-ease/"><u>Pinnacle Online Hubs: Learn and Conquer New Tongues with Ease!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-itel-p55-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Itel P55 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whats-the-best-way-to-learn-a-language-online/"><u>What's The Best Way To Learn A Language Online</u></a></li>
+</ul></div>
 

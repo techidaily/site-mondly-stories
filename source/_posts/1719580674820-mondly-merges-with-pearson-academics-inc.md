@@ -1,7 +1,7 @@
 ---
 title: Mondly Merges with Pearson Academics Inc.
-date: 2024-09-05T04:35:03.531Z
-updated: 2024-09-06T04:35:03.531Z
+date: 2025-01-03T19:14:22.358Z
+updated: 2025-01-10T18:05:48.860Z
 tags:
   - speak
   - english
@@ -14,12 +14,6 @@ keywords: Mondly and Pearson Academics Integration,Mondly's Expansion Into Educa
 thumbnail: https://thmb.techidaily.com/c225407e5eb523ea35626965d7952f3e8eff461a435028604a3c634507f598f5.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mondly Merges with Pearson Academics Inc
 
 **London, 29th April 2022 –** [Pearson](https://www.pearson.com/) , the world’s leading learning company, today announced it has [acquired Mondly](https://plc.pearson.com/en-US/news/pearson-acquires-leading-online-language-learning-platform) , a global online language learning platform. The acquisition will allow Pearson to offer a full range of ways for people to learn and prove their English skills – adding online self-study to its existing diagnosis and learning tools and assessment portfolio.
@@ -42,21 +36,17 @@ thumbnail: https://thmb.techidaily.com/c225407e5eb523ea35626965d7952f3e8eff461a4
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **About Pearson**
 
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **About Mondly**
 
  Mondly is a leading language learning platform that has been named “Regional App of the Year” by Facebook, “App of the Day” by Apple, and “Editors’ Choice” by Google Play. Launched in 2014, it quickly became a leading app in the mobile space. According to Statista, Mondly is currently in the Top 5 language learning apps worldwide by number of downloads.
@@ -69,8 +59,6 @@ thumbnail: https://thmb.techidaily.com/c225407e5eb523ea35626965d7952f3e8eff461a4
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -78,8 +66,19 @@ thumbnail: https://thmb.techidaily.com/c225407e5eb523ea35626965d7952f3e8eff461a4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-sony-xperia-1-v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Sony Xperia 1 V? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conoce-los-nombres-del-mundo-animalista-en-espanol/"><u>Conoce Los Nombres Del Mundo Animalista en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-cultural-birthday-cheers-in-various-tongues/"><u>Cross-Cultural Birthday Cheers in Various Tongues</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/essential-techniques-to-soften-sound-in-fl-studio/"><u>Essential Techniques to Soften Sound in FL Studio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-expressions-unveiled-a-curated-list-of-the-top-25/"><u>German Expressions Unveiled: A Curated List of the Top 25</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guidelines-for-persistent-windowtop-calculator/"><u>Guidelines for Persistent Windowtop Calculator</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-overcome-the-steam-failed-load-steamuidll-error/"><u>How to Overcome the Steam 'Failed Load steamui.dll Error'</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-capture-every-detail-android-recording-at-zero-cost/"><u>In 2024, Capture Every Detail Android Recording at Zero Cost</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/nextgen-hd-optimizer-multiplatform-compatible/"><u>NextGen HD Optimizer Multiplatform Compatible</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/professional-strategies-for-screen-capturing-facetime-for-2024/"><u>Professional Strategies for Screen-Capturing FaceTime for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-seniors-guide-embracing-multilingualism-and-its-incredible-benefits-post-forty/"><u>The Senior's Guide: Embracing Multilingualism and Its Incredible Benefits Post-Forty</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/shing-storytelling-potential-making-youtube-trailers-in-filmora-for-2024/"><u>Unleashing Storytelling Potential Making YouTube Trailers in Filmora for 2024</u></a></li>
+</ul></div>
 

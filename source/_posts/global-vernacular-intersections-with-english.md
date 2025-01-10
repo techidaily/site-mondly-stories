@@ -1,7 +1,7 @@
 ---
 title: Global Vernacular Intersections with English
-date: 2024-12-30T20:04:09.039Z
-updated: 2025-01-03T19:58:21.272Z
+date: 2025-01-09T16:33:32.779Z
+updated: 2025-01-10T18:06:12.913Z
 tags:
   - speak
   - english
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where did English Come From?
@@ -86,7 +86,7 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Improve your English fast 🚀
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -148,7 +148,7 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
@@ -204,7 +204,7 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
@@ -265,24 +265,14 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-googles-take-on-ar-stickers-an-overview-and-beyond/"><u>[New] Google's Take on AR Stickers An Overview & Beyond</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-instant-techniques-mix-up-your-youtube-watchlist/"><u>[New] In 2024, Instant Techniques Mix Up Your YouTube Watchlist</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-optimal-gpu-choices-4k-editing-and-rendering/"><u>[New] Optimal GPU Choices 4K Editing & Rendering</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nleash-the-power-of-your-youtube-channel-with-expert-editing-techniques-for-2024/"><u>[New] Unleash the Power of Your YouTube Channel with Expert Editing Techniques for 2024</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/comment-resoudre-le-probleme-de-chkdsk-non-operationnel-solutions-correctionnelles-et-triche-a-tester/"><u>Comment Résoudre Le Problème De CHKDSK Non Opérationnel : Solutions Correctionnelles Et Triche À Tester</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-installation-of-intel-ethernet-drivers-on-your-windows-device/"><u>Easy Installation of Intel Ethernet Drivers on Your Windows Device</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/endless-learning-opportunity-the-birthday-of-unlimited-fee-free-education/"><u>Endless Learning Opportunity: The Birthday of Unlimited, Fee-Free Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhanced-creativity-and-expression-with-second-language-skills/"><u>Enhanced Creativity and Expression with Second Language Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enter-new-era-of-language-learning-with-mondlyar/"><u>Enter New Era of Language Learning with MondlyAR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-spelling-knowledge-the-most-frequently-misspelled-words/"><u>Essential Spelling Knowledge: The Most Frequently Misspelled Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-strategies-for-novice-learners-in-speaking-french/"><u>Essential Strategies for Novice Learners in Speaking French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/everyday-wisdom-gathering-celebrating-1500-gratis-learning-sessions/"><u>Everyday Wisdom Gathering: Celebrating 1500 Gratis Learning Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expanded-communication-10-advantages-from-using-mondly/"><u>Expanded Communication: 10 Advantages From Using Mondly</u></a></li>
-<li><a href="https://win11.techidaily.com/fix-low-light-windows-11-issues-with-these-tricks/"><u>Fix Low-Light Windows 11 Issues with These Tricks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-flavor-to-verse-chocolate-speeches-across-nations/"><u>From Flavor to Verse: Chocolate Speeches Across Nations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-fehlender-respekt-erkennen-und-bedingen-sagen/"><u>German: Fehlender Respekt Erkennen Und Bedingen Sagen</u></a></li>
-<li><a href="https://extra-information.techidaily.com/guide-switching-on-windows-11s-dynamic-hdr-mode/"><u>Guide Switching on Windows 11'S Dynamic HDR Mode</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-xiaomi-14-ultra-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Xiaomi 14 Ultra to iOS not Working Problems | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-asus-rog-phone-7-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Asus ROG Phone 7 Device</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-inside-hand-tracking-techniques-and-varieties/"><u>2024 Approved Inside Hand Tracking Techniques & Varieties</u></a></li>
+<li><a href="https://windows11.techidaily.com/batch-folder-generation-in-windows-11-for-efficiency-boost/"><u>Batch Folder Generation in Windows 11 for Efficiency Boost</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/best-gaming-setups-in-small-packages-a-comprehensive-guide/"><u>Best Gaming Setups in Small Packages: A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expert-guide-to-essential-93-spanish-terms-for-adventurers/"><u>Expert Guide to Essential 93 Spanish Terms for Adventurers</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/exploring-potential-clashes-between-your-antivirus-and-other-programs-guidance-by-yl-computing-specialists/"><u>Exploring Potential Clashes Between Your Antivirus and Other Programs – Guidance by YL Computing Specialists</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-low-saxon-to-modern-dutch-linguistics/"><u>From Low Saxon to Modern Dutch Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leverage-technology-for-business-excellence-via-apps/"><u>Leverage Technology for Business Excellence via Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580834568-start-conversing-like-a-pro-your-language-lesson-at-5-off/"><u>Start Conversing Like a Pro – Your Language Lesson at 5% Off</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/syncing-your-soundtrack-import-music-into-inshot-for-2024/"><u>Syncing Your Soundtrack Import Music Into InShot for 2024</u></a></li>
 </ul></div>
 

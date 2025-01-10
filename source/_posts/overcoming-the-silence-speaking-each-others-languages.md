@@ -1,7 +1,7 @@
 ---
 title: "Overcoming the Silence: Speaking Each Other's Languages"
-date: 2024-12-28T18:26:30.134Z
-updated: 2025-01-04T01:18:54.660Z
+date: 2025-01-09T20:08:49.258Z
+updated: 2025-01-10T16:16:53.724Z
 tags:
   - speak
   - english
@@ -30,14 +30,10 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
 ![dating a foreigner](https://media.giphy.com/media/CmqNynXoenYnm/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  And it’s all fun and games until someone asks, “what are you thinking about?”. If answering this mythical question was hard before, imagine how challenging it becomes now that you are dating someone with bad English or no English at all. So take it from me and don’t go there! Abort mission! Practice some more and only then you’ll be ready for this quest. But you knew that already, didn’t you?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. You never run out of things to say to each other
@@ -48,11 +44,11 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
 ![multilingual relantionship](https://media.giphy.com/media/AelF2ps5xLKo/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 4")
 
- You either go through the entire dictionary or use the brilliance of Mondly to learn the language before one can say Jack Robinson.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ You either go through the entire dictionary or use the brilliance of Mondly to learn the language before one can say Jack Robinson.
 
 ## 3\. You deal with a lot of unfortunate translations
 
@@ -61,10 +57,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
  The same goes with “embarazada”! “Embarazada” means “pregnant” in Spanish and not “embarrassed” – as one might think. So be careful with that one! Really tricky!
 
 ![dating language barrier](https://media.giphy.com/media/xUA7aYMO79CzQNMfJe/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 5")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. You eventually become bilingual
 
@@ -76,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
  Well… obviously! Do you know what a [hullabaloo](https://dictionary.cambridge.org/dictionary/english/hullabaloo) is? Because that’s how you’ll look like if you fight in public. What can I say?! An absolute delight for strangers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. The idea of meeting “the friends” suddenly becomes way more intimidating
 
  That’s especially true if you are in a long-distance relationship with the language barrier tangled in your romance to make it tougher. That daunting moment when you know you have to meet his or her foreign friends is only maybe surpassed by meeting the parents.
@@ -83,6 +79,14 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
  Good Lord! It sends shivers down my spine only when I think of it. Good luck with that!
 
 ![overcoming language barriers](https://media.giphy.com/media/12nfFCZA0vyrSw/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. You come up with a sign language of your own
 
@@ -97,7 +101,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![flirting language barrier](https://media.giphy.com/media/LoJjkPAVF8UH6/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. You absolutely love hearing him or her speak
@@ -115,10 +119,6 @@ Watch at your own risk! They might steal your heart!
  Being in a multilingual relationship is a hard business. You either go big or go home. There’s no in-between. If he or she is still there, there must be an enormous quantity of love involved. That’s your reassurance.
 
 ![multilingual relationship](https://edge.mondly.com/blog/wp-content/uploads/2019/04/multilingual-relationship-960x640.jpg "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 9")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Sunset lovers” by Stéphane Delval©
 
@@ -156,18 +156,17 @@ Watch at your own risk! They might steal your heart!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-adobe-photos-sway-decrease-a-crucial-feature/"><u>[New] 2024 Approved Adobe Photos' Sway Decrease - A Crucial Feature?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/iscover-8-trusted-online-content-marketing-tools-for-2024/"><u>[New] Discover 8 Trusted Online Content Marketing Tools for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-boosting-video-quality-hd-streaming-across-facebook/"><u>[Updated] In 2024, Boosting Video Quality HD Streaming Across Facebook</u></a></li>
-<li><a href="https://techtrends.techidaily.com/demystifying-the-concept-behind-patch-tuesday-explained/"><u>Demystifying the Concept Behind Patch Tuesday Explained</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-gratitude-celebrating-across-borders/"><u>Global Gratitude: Celebrating Across Borders</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-realme-narzo-60-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Realme Narzo 60 5G to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/intrigue-italian-locals-20plus-vocabulary-guide/"><u>Intrigue Italian Locals - 20+ Vocabulary Guide</u></a></li>
-<li><a href="https://win-forum.techidaily.com/mastering-the-art-of-online-engagement-on-facebook-twitter-instagram-and-youtube/"><u>Mastering the Art of Online Engagement on Facebook, Twitter, Instagram, and YouTube</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210799023-9781647495138-the-keys-to-prosperity-manifestation/"><u>The Keys To Prosperity Manifestation | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/time-saving-tricks-for-language-proficiency/"><u>Time-Saving Tricks for Language Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/whispers-of-love-the-art-of-italian-pick-up-lines/"><u>Whispers Of Love: The Art Of Italian Pick Up Lines</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-invest-in-your-future-with-german/"><u>Why Invest in Your Future with German</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-word-weaving-into-english-dialects/"><u>Worldwide Word Weaving Into English Dialects</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-streaming-stardom-unraveling-jake-pauls-youtube-rise/"><u>[New] 2024 Approved Streaming Stardom Unraveling Jake Paul's YouTube Rise</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-how-zooming-up-with-fb-live-transforms-broadcasts/"><u>[Updated] 2024 Approved How Zooming Up with FB Live Transforms Broadcasts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-effortless-background-cleanse-using-picsart/"><u>[Updated] Effortless Background Cleanse Using Picsart</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-from-phone-screen-to-home-screen-enabling-fb-video-viewing-on-appletv-for-2024/"><u>[Updated] From Phone-Screen to Home Screen Enabling FB Video Viewing on AppleTV for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-looking-to-access-the-whole-spectrum-of-shared-media-by-contacts-for-2024/"><u>[Updated] Looking to Access the Whole Spectrum of Shared Media by Contacts for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/easing-freezes-tips-for-smooth-photobooth-footage/"><u>Easing Freezes Tips for Smooth Photobooth Footage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-strategies-for-acquiring-french-at-home/"><u>Essential Strategies for Acquiring French at Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-mondlys-transformative-journey-for-you/"><u>From Novice to Expert - Mondly's Transformative Journey for You</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-or-disabled-on-apple-iphone-13-pro-7-mehtods-you-cant-miss-by-drfone-ios/"><u>In 2024, Apple ID Locked or Disabled On Apple iPhone 13 Pro? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-vernacular-infusions-in-english/"><u>International Vernacular Infusions in English</u></a></li>
+<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-vivo-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of Vivo on Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579254555-year-of-linguistics-cut-costs-by-95-today/"><u>Year of Linguistics? Cut Costs by 95% Today</u></a></li>
 </ul></div>
 

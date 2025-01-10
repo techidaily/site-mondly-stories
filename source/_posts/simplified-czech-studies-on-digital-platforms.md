@@ -1,7 +1,7 @@
 ---
 title: Simplified Czech Studies on Digital Platforms
-date: 2024-09-05T04:33:35.366Z
-updated: 2024-09-06T04:33:35.366Z
+date: 2025-01-07T20:15:20.595Z
+updated: 2025-01-10T17:04:14.950Z
 tags:
   - speak
   - english
@@ -19,17 +19,9 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
  Are you interested in learning Czech? I can’t help but applaud your choice! Not many people choose to venture on this path. Having a little over 10 million speakers worldwide makes Czech the underdog (or one of the underdogs). Consequently, Czech courses are generally scarce. So if you are wondering what’s the easiest way to study [Czech](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6512&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6512?mother%5Flang=en%5Fus?target%5Flang=cz&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6512?mother%5Flang=en%5Fus?target%5Flang=cz) online, you’ve come to the right place.
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Czech language in a nutshell
 
  Czech (known as_Čeština_ to Czechs) is a West Slavic language closely related to Slovak, Polish, and the Sorbian [languages of eastern Germany](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . It is spoken in the historical regions of Moravia, Bohemia, and in today’s Czech Republic, where it is also the official language.
@@ -41,11 +33,9 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
  The**oldest records of the Czech language** are glosses appearing in German and Latin texts in**the 12th century.** Thus it’s not a surprise to find out that the Czech vocabulary is extensively influenced by Latin and German.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024329/7443" target="_top" id="2024329">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024329" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024329/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Czech – the most common language spoken at home in the US?
 
  A little-known fact about the Czech language is that it is very well represented in the United States. Czech people immigrated from Europe to the United States primarily from 1848 to 1914, so Czech became a [Less Commonly Taught Language](https://en.wikipedia.org/wiki/Less%5FCommonly%5FTaught%5FLanguages) in U.S. schools and is nowadays taught at Czech heritage centers.
@@ -55,25 +45,11 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 ![czech republic prague](https://edge.mondly.com/blog/wp-content/uploads/2022/02/czech-republic-prague-960x640.jpg "The Easiest Way To Study Czech Online 2")
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  ‘Prague, Czech Republic’ by Ouael Ben Salah©
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Czech vs Slovak – how similar are they?
 
  If you didn’t already know, the sister language of Czech is [Slovak](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) (also available to [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6512&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6512?mother%5Flang=en%5Fus?target%5Flang=sk&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6512?mother%5Flang=en%5Fus?target%5Flang=sk) ) because of their very high degree of mutual intelligibility. This means that if you already know Slovak you will have an easier time learning Czech.
@@ -81,11 +57,9 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
  Czech and Slovak shared a common history long before the creation of Czechoslovakia in 1918 (a state which peacefully split in 1993), so it’s no surprise that literary Slovak is so similar to Czech. How similar though? Well, think of British English and American English then tone down the level a bit. We’re talking about slightly different vocabulary, false cognates, varied syntax, localized idioms, and different vocabulary and slang. But all in all,**Czech and Slovak are very much alike.**
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10 basic Czech words you can learn right now
 
  Excited to study Czech? Let’s start small. Here are the top 10 basic Czech words and phrases that will come in handy in virtually any interaction with a fluent Czech speaker:
@@ -104,17 +78,9 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 Here’s a glimpse of how some of these Czech words sound:
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The easiest way to study Czech online with Mondly
 
  Now let’s discuss the real reason why you’re here: the easiest way to study Czech online.
@@ -144,8 +110,6 @@ Here’s a glimpse of how some of these Czech words sound:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -153,8 +117,20 @@ Here’s a glimpse of how some of these Czech words sound:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-high-definition-vision-saving-tech/"><u>[New] 2024 Approved High Definition Vision Saving Tech</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-bare-walls-to-full-screens-10-fixes-for-no-video-views/"><u>[Updated] In 2024, From Bare Walls to Full Screens 10 Fixes for No Video Views</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-the-essential-guide-to-lut-applications-in-photoshop-cs6/"><u>[Updated] The Essential Guide to LUT Applications in Photoshop CS6</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/5-easy-ways-to-capture-and-save-your-youtube-content/"><u>5 Easy Ways to Capture and Save Your YouTube Content</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/8-key-ways-that-ai-chatbots-are-redefining-content-creation-strategies/"><u>8 Key Ways That AI Chatbots Are Redefining Content Creation Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubre-musculos-esenciales-un-viaje-completo-del-cuerpo-en-espanol/"><u>Descubre Músculos Esenciales: Un Viaje Completo Del Cuerpo En Español</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970030-9781088234341-el-hilo-del-destino/"><u>El Hilo del Destino | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entice-eccentrics-in-umbria-learn-more-than-20-expressions/"><u>Entice Eccentrics in Umbria: Learn More Than 20 Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-japanese-all-the-japanese-greetings-you-need-to-know/"><u>Hello in Japanese – All the Japanese Greetings You Need to Know</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-itel-a60-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-scalable-success-lawful-techniques-for-video-visibility/"><u>In 2024, Scalable Success Lawful Techniques for Video Visibility</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-moderne/"><u>Semaine Française Moderne</u></a></li>
+</ul></div>
 

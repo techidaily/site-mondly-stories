@@ -1,7 +1,7 @@
 ---
 title: Hello In Japanese - All The Japanese Greetings You Need To KnowBack ButtonFilter Button
-date: 2024-12-29T23:23:09.317Z
-updated: 2025-01-03T17:26:14.941Z
+date: 2025-01-07T19:16:20.134Z
+updated: 2025-01-10T20:03:17.852Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/aca28fbc907b3b2134a063785955f99d7ee87845f
 
  Learning as much as a simple **_Konnichiwa_ (“hello” in Japanese)** or **_Arigato_ (“thank you” in Japanese)** can work wonders. So here’s a guide to all the**Japanese greetings** you’ll need in your Japanese adventure: from**“hello” in Japanese** to**_Moshi Moshi_** (used to say “hello” on the phone), goodbye and other**common Japanese greetings.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. “Hello” in Japanese
 
  If you ever watched at least one anime series, you probably already know this: **“hello” in Japanese is_Konnichiwa_ .** Rings any bell? It most probably does since**_Konnichiwa_** is undeniably the most**common Japanese greeting.** Thanks to some of the most influential anime of all time such as Dragon Ball Z, Death Note, and Naruto, a lot of people living outside Japan know at least a few [**words in Japanese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and_Konnichiwa_ is definitely one of them.
@@ -36,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/aca28fbc907b3b2134a063785955f99d7ee87845f
 ![honnichiwa](https://edge.mondly.com/blog/wp-content/uploads/2019/08/honnichiwa-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Kyoto, Japan” by Sorasak©
@@ -70,7 +74,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
@@ -91,10 +95,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * See you soon! – _Mata ne!_  (またね！)
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “See you soon, human” by Alain Pham©
 
@@ -123,7 +123,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Kyoto, Japan” by Andre Benz©
@@ -143,10 +143,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -168,6 +164,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -201,24 +201,24 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-fists-fighting-for-fame-versus-follower-frenzy/"><u>[New] 2024 Approved Fists Fighting For Fame Versus Follower Frenzy</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-secret-story-gazers-manual-for-discreet-instagram-stories-on-desktopmobile/"><u>[Updated] 2024 Approved Secret Story Gazer's Manual for Discreet Instagram Stories on Desktop/Mobile</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-boost-your-images-advanced-online-photoshop-cropping-tips-for-2024/"><u>[Updated] Boost Your Images Advanced Online Photoshop Cropping Tips for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-smart-recording-solutions-for-schools-and-colleges/"><u>[Updated] In 2024, Smart Recording Solutions for Schools & Colleges</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-syncopating-success-key-points-to-music-short-videos-on-youtube/"><u>[Updated] In 2024, Syncopating Success Key Points to Music Short Videos on YouTube</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-storing-your-stories-and-snaps-safely-on-ios-devices/"><u>2024 Approved Storing Your Stories and Snaps Safely on iOS Devices</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/boosting-dungeons-and-dragons-with-chatgpt-a-step-by-step-guide/"><u>Boosting Dungeons & Dragons with ChatGPT: A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/evaluating-the-financial-returns-for-makers-on-youtube-shorts-for-2024/"><u>Evaluating the Financial Returns for Maker's on YouTube Shorts for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hello-in-swedish-all-the-swedish-greetings/"><u>Hello In Swedish: All The Swedish Greetings</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-youtubes-video-editing-power-plus-professional-equivalents/"><u>In 2024, YouTube's Video Editing Power + Professional Equivalents</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/inbordes-valkomma-sveriges-hjartefar/"><u>Inbördes Välkomma: Sverige's Hjärtefär</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-path-to-latvian-proficiency-10-minutes-daily/"><u>Quick Path to Latvian Proficiency, 10 Minutes Daily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/support-system-danny-from-colombia-for-the-needy/"><u>Support System: Danny From Colombia for the Needy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tailored-for-success-customizing-language-training-goals-to-fit-your-corporate-culture/"><u>Tailored for Success: Customizing Language Training Goals to Fit Your Corporate Culture</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/teachers-crossroads-bett-2022-connectivity/"><u>Teacher's Crossroads: BETT 2022 Connectivity</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-premium-three-your-key-to-speedier-happier-learning/"><u>The Premium Three: Your Key to Speedier, Happier Learning</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/top-group-video-chat-apps-you-should-know-for-video-conferences-and-meetings-for-2024/"><u>Top Group Video Chat Apps You Should Know [For Video Conferences and Meetings] for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/turbocharged-introduction-to-turkish-letters-and-sounds/"><u>Turbocharged Introduction to Turkish Letters and Sounds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-languages-does-santa-claus-speak-find-out-now/"><u>What Languages Does Santa Claus Speak? Find Out Now</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-superior-web-recording-gear/"><u>[New] 2024 Approved Superior Web Recording Gear</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-perfecting-your-podcast-top-5-mac-friendly-recorder-recommendations/"><u>[New] In 2024, Perfecting Your Podcast Top 5 Mac-Friendly Recorder Recommendations</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-interactive-dimensions-understanding-ar-mr-and-vr/"><u>[New] Interactive Dimensions Understanding AR, MR & VR</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-pro-photography-meets-canva-exclusive-editing-secrets/"><u>[New] Pro Photography Meets Canva Exclusive Editing Secrets</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ace-choices-the-best-mice-you-can-use-with-an-ipad/"><u>Ace Choices: The Best Mice You Can Use with an iPad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-polyglot-faster-leading-app-based-language-learning-experience/"><u>Become a Polyglot Faster: Leading App-Based Language Learning Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/building-bridges-through-basic-chinese-greetings/"><u>Building Bridges Through Basic Chinese Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-border-lexicon-enriching-english/"><u>Cross-Border Lexicon Enriching English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-lingo-top-english-slang-terms-explained/"><u>Decoding Lingo: Top English Slang Terms Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-humanitys-ancestral-verbal-arts/"><u>Discovering Humanity's Ancestral Verbal Arts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-german-from-novice-to-expert-via-dark-netflix-style/"><u>Dive Into German: From Novice to Expert via Dark, Netflix Style</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-indonesian-warmth-common-greetings-guide/"><u>Dive Into Indonesian Warmth: Common Greetings Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empower-your-business-with-effective-language-training/"><u>Empower Your Business With Effective Language Training</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exposing-falsehoods-the-non-existent-chatgpt-app-for-windows-is-not-safe-avoid-potential-threats/"><u>Exposing Falsehoods: The Non-Existent ChatGPT App for Windows Is Not Safe - Avoid Potential Threats</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-nokia-c22-screen-sharing-drfone-by-drfone-android/"><u>How To Do Nokia C22 Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Samsung Galaxy S24? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/konverter-avi-filer-till-quicktime-mov-i-live-gratis-ombord/"><u>Konverter AVI-Filer Till QuickTime MOV I Live - Gratis Ombord!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578596250-mondly-ukrainians-embrace-free-education/"><u>Mondly: Ukrainians, Embrace FREE Education!</u></a></li>
+<li><a href="https://fox-access.techidaily.com/the-ultimate-guide-to-musical-enhancements-for-powerpoint-for-2024/"><u>The Ultimate Guide to Musical Enhancements for PowerPoint for 2024</u></a></li>
 </ul></div>
 

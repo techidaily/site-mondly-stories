@@ -1,7 +1,7 @@
 ---
 title: "The Heart of Indonesia: Greetings and More"
-date: 2025-01-01T22:49:54.627Z
-updated: 2025-01-03T21:35:46.798Z
+date: 2025-01-07T17:45:07.576Z
+updated: 2025-01-10T16:44:43.581Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
  Besides, you’ll love [learning Indonesian words](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6912&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id) as some of them sound very cute to English speakers. Known as_Bahasa Indonesia_ to Indonesians, Indonesian calls the dolphin_lumba-lumba_ and the teeth_gigi_ . Cute. Told ‘ya!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When and how should you say hello in Indonesia
@@ -36,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -44,10 +48,6 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
 
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
@@ -71,7 +71,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -81,7 +81,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say goodbye
@@ -126,20 +126,18 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-insider-tips-thriving-in-ginger-islet-for-2024/"><u>[New] Insider Tips Thriving in Ginger Islet for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-enhance-creativity-in-video-editing-these-7-sources/"><u>[Updated] 2024 Approved Enhance Creativity in Video Editing - These 7 Sources</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-launching-into-creation-equipment-essentials-for-youtubers/"><u>[Updated] Launching Into Creation Equipment Essentials for YouTubers</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-ultimate-list-of-top-tier-facebook-profile-picture-designers-for-2024/"><u>[Updated] The Ultimate List of Top-Tier Facebook Profile Picture Designers for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-maximizing-video-impact-on-youtube-top-video-formats/"><u>2024 Approved Maximizing Video Impact on YouTube – Top Video Formats</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/happy-birthdays-a-global-linguistic-journey/"><u>Happy Birthdays: A Global Linguistic Journey</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-determining-the-price-of-a-music-video-setup/"><u>In 2024, Determining the Price of a Music Video Setup</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/overcoming-high-dpi-mode-limitations-on-win11/"><u>Overcoming High-DPI Mode Limitations on Win11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polite-pleasers-how-to-show-thankfulness-in-30-different-tongues-157-trimmed-to-fit/"><u>Polite Pleasers: How to Show Thankfulness in 30 Different Tongues (157) [Trimmed to Fit]</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/premier-5-language-pedagogy-applications/"><u>Premier 5 Language Pedagogy Applications</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-slovak-flawlessly-in-10-min-doses-online/"><u>Speak Slovak Flawlessly in 10-Min Doses Online!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-british-american-linguistic-divide/"><u>The British-American Linguistic Divide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/triple-threat-training-3-brain-drills-for-language-gurus/"><u>Triple Threat Training: 3 Brain Drills for Language Gurus</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-the-role-of-artificial-intelligence-in-education-and-language-learning/"><u>Understanding the Role of Artificial Intelligence in Education & Language Learning</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-do-you-wish-to-create-high-quality-videos-and-experience-effective-videos-with-editing-no-problem-at-all-because-the-keyboard-shortcut/"><u>Updated 2024 Approved Do You Wish to Create High-Quality Videos and Experience Effective Videos with Editing? No Problem at All because the Keyboard Shortcuts Listed Here Will Assist You</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-imagery-inspiration-skillful-grading-techniques/"><u>[New] Imagery Inspiration Skillful Grading Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-understanding-youtubes-legal-framework-vs-cc/"><u>[New] In 2024, Understanding YouTube's Legal Framework Vs. CC</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-efficient-use-of-vlc-for-media-creation/"><u>[Updated] 2024 Approved Efficient Use of VLC for Media Creation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-building-a-custom-link-for-youtubes-auto-subscribe/"><u>2024 Approved Building a Custom Link for YouTube's Auto-Subscribe</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-building-blocks-for-movie-making-youtubes-framework-and-more/"><u>2024 Approved Building Blocks for Movie Making YouTube's Framework & More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-voyage-through-german-language-soundscapes/"><u>A Beginner's Voyage Through German Language Soundscapes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/amazon-prime-and-tweet-fandom-most-appreciated-videos-2023/"><u>Amazon Prime and Tweet Fandom - Most Appreciated Videos, 2023</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-steps-towards-fluency-in-spanish/"><u>Interactive Steps Towards Fluency in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/screen-based-linguistic-strategies-unveiled/"><u>Screen-Based Linguistic Strategies Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-languages-focusing-on-english/"><u>Second Languages: Focusing on English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581354118-start-the-year-smart-savings-alert-on-mondly-premium-up-to-96-off/"><u>Start the Year Smart - Savings Alert on Mondly Premium, Up to 96% Off</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-guide-to-disinfecting-airpods-effectively-tips-and-importance/"><u>The Ultimate Guide to Disinfecting AirPods Effectively – Tips & Importance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voices-in-multitude-the-african-languages-guidebook/"><u>Voices in Multitude: The African Languages Guidebook</u></a></li>
 </ul></div>
 

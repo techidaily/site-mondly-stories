@@ -1,7 +1,7 @@
 ---
 title: The Essential Dictionary of Casual Speech
-date: 2024-12-27T18:19:22.998Z
-updated: 2025-01-03T19:10:07.691Z
+date: 2025-01-04T20:39:10.920Z
+updated: 2025-01-10T20:30:53.205Z
 tags:
   - speak
   - english
@@ -36,12 +36,16 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
 6. [How to use slang words in conversation](#useslang)
 7. [How to learn English slang words](#learnslang)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **What are English slang words?**
 
  According to Oxford,**“slang”** is **“a type of language consisting of words and phrases that are regarded as very informal, are more common in speech than writing, and are typically restricted to a particular context or group of people”.** For example, the slang words and phrases we are going to talk about today are defining for two generations known as “millennials” and “gen z” – but mostly “gen z” because – let’s face it – today’s teenagers have come up with tons of new slang terms that even I, as a millennial, have trouble understanding. Praised be the mighty internet for slang dictionaries!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why is it important to learn English slang words?
@@ -81,10 +85,6 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
 
 ![slang terms](https://media.giphy.com/media/1Qdp4trljSkY8/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  But enough history. Let’s travel to the present. Does Gen Z slang sometimes look like some secret unbreakable code to you? Well, you are not alone. But TBH (To Be Honest), once you get the hang of it and realize how relatable and fun it is, it becomes quite addictive to use in daily conversations.
 
  So get ready to hear new meanings for words you thought you knew and prepare for heavy eye-rolling every time you’ll use your newly acquired lingo around teens. **Here are some of the most common slang words used in the English language today:**
@@ -107,15 +107,15 @@ _She invited the entire school to her birthday. She’s so extra!_
 
 _Nick is so salty since his parents took away his car!_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## To ghost someone
 
  When you cut off communication with someone you’re no longer interested in.
 
 _OMG! Did you hear Cristina ghosted Matt?_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## To flex
 
@@ -130,7 +130,7 @@ _– Yeah. Like weird flex but OK._
 ![flex](https://media.giphy.com/media/mEDj3oXP1t55pE0fCh/giphy-downsized-large.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lowkey & highkey
@@ -148,6 +148,10 @@ When someone is shook it means they are shocked or incredibly surprised.
 _– Did you see?‌ The new season of Lucifer just landed on Netflix!_
 
 _– OMG‌ I’m shook! I need to watch it ASAP!_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Tea
 
@@ -181,10 +185,6 @@ _– Ugh! I wish I was in Bora Bora right now._
 
 _– Mood!_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Hangry
 
  When you are so hungry that you are angry! (probably the most relatable slang word Gen Z taught us).
@@ -205,10 +205,6 @@ _Pedro Pascal’s performance in The Last of Us slayed._
 
 ![pedro pascal](https://media.giphy.com/media/xa5PxUklxPjMqK81jc/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 6")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Receipts
 
 Proof or evidence of something that happened.
@@ -216,6 +212,10 @@ Proof or evidence of something that happened.
 _– How do you know Jamie is cheating on Sylvie?_
 
 _– Honey, I got all the receipts._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Sus
 
@@ -253,7 +253,7 @@ _– Whoa, don’t be such a stan._
 ![jon](https://media.giphy.com/media/3o7qE2fiT5seO2lIre/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 7")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  **Other_lit_ mentions:** _gucci_ (good, doing well, feeling fine),_TFW_ (that feeling when),_squad_ (a group of friends),_JOMO_ (Joy Of Missing Out),_fam_ (a group of friends that feels like family),_dank_ (really cool),_basic_ (interested in mainstream or very popular things),_woke_ (being aware of current events).
@@ -270,6 +270,10 @@ _– Whoa, don’t be such a stan._
 * **Spelling:** Spelling can also differ between countries. For instance, Americans spell “color” without a ‘u’, while in the UK, they use the spelling “colour”.
 * **Pronunciation:** Don’t get me started. The differences between [British English and American English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are plentiful in this sector.
 * **Culture:** For example, Australian slang is heavily influenced by surfing and beach culture, while American slang has been influenced by hip-hop and African American Vernacular English.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Examples of popular slang words in different regions**
 
@@ -325,7 +329,7 @@ _– Whoa, don’t be such a stan._
 !['English slang words' by RODNAE Productions©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/english-slang-words-960x640.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **How to use slang words in conversation**
@@ -341,7 +345,7 @@ _– Whoa, don’t be such a stan._
  Remember, slang words are meant to be fun and expressive, but using them appropriately and in the right context is very important.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Learning English slang words**
@@ -370,10 +374,6 @@ Okay, so what did we learn so far? Let’s recap:
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### This language learning app is lit
 
  Do you want to put some_dank_ context around those foreign slang words and_shook_ your_squad_ from abroad? Well, this is your lucky day! Because with Mondly, the fastest way to speak new languages, you’ll speak any language from day 1\. It’s fun, easy and effective!
@@ -401,24 +401,18 @@ Okay, so what did we learn so far? Let’s recap:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/0-powerful-freegame-hashtags-for-dominating-youtube/"><u>[New] 30 Powerful FreeGame Hashtags for Dominating YouTube</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-avoiding-pitfalls-in-angled-and-merged-video-manipulation-android/"><u>[New] Avoiding Pitfalls in Angled & Merged Video Manipulation (Android)</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-best-free-desktop-recorders/"><u>[New] In 2024, Best Free Desktop Recorders</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/sba-ppp-blue-prism85000/"><u>銀行でのSBA PPP ローン自動化：Blue Prismによって85,000以上の雇用が守られ、中小企業の経営安定</u></a></li>
-<li><a href="https://driver-download.techidaily.com/drivers-for-epson-scanner-download/"><u>Drivers for Epson Scanner Download</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/grasping-squid-game-themes-in-k-language/"><u>Grasping Squid Game Themes in K-Language</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-leading-pc-producers-transform-chromebooks-into-serious-gaming-contenders-the-game-changing-trend/"><u>How Leading PC Producers Transform Chromebooks Into Serious Gaming Contenders - The Game-Changing Trend!</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/identifying-and-repairing-corrupt-registry-settings-with-guidance-from-yl-software-experts/"><u>Identifying and Repairing Corrupt Registry Settings with Guidance From YL Software Experts</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-iphone-6s-device-from-icloud-by-drfone-ios/"><u>In 2024, How to Remove iPhone 6s Device from iCloud</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-exams-and-certifications-your-path-to-proficiency/"><u>Language Exams and Certifications: Your Path to Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/make-learning-a-new-language-your-easiest-resolution-of-2020-with-95-off/"><u>Make Learning a New Language Your Easiest Resolution of 2020 with 95% Off</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/passionate-phrases-top-french-film-selections/"><u>Passionate Phrases: Top French Film Selections</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-bard-redux-everyday-language-roots-unearthed/"><u>The Bard Redux: Everyday Language Roots Unearthed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-best-three-in-learning-conquer-new-tongues-quickly-and-quietly/"><u>The Best Three in Learning: Conquer New Tongues Quickly & Quietly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-value-of-english-mastery-insights/"><u>The Value of English Mastery: Insights</u></a></li>
-<li><a href="https://blog-min.techidaily.com/ultimate-french-music-playlist-essential-tracks-and-downloads-every-francophile-should-experience/"><u>Ultimate French Music Playlist: Essential Tracks & Downloads Every Francophile Should Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ultimate-software-selection-for-effective-study-habits/"><u>Ultimate Software Selection for Effective Study Habits</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-and-implementing-spanish-letter-accents/"><u>Understanding and Implementing Spanish Letter Accents</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-comprehensive-guide-to-live-streaming-with-obs-and-platforms/"><u>[New] 2024 Approved Comprehensive Guide to Live-Streaming with OBS and Platforms</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-next-morning-analysis-fresh-insights-for-2024/"><u>[Updated] Next Morning Analysis Fresh Insights for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1970-two-mules-for-sister-sara-with-eastwood-as-hogan-a-mercenary-who-is-hired-to-protect-a-mexican-nun-from-bandits-and-revolutionaries-in-mexico-during-th297/"><u>1970 - Two Mules for Sister Sara, with Eastwood as Hogan, a Mercenary Who Is Hired to Protect a Mexican Nun From Bandits and Revolutionaries in Mexico During the French Intervention. The Film Was Based on B. Traven's Novel ''A Wave Across Hell''</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/begin-your-italian-adventure-key-phrases-for-social-interaction/"><u>Begin Your Italian Adventure: Key Phrases for Social Interaction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-doses-of-urdu-ten-minutes-lifelong-gain/"><u>Daily Doses of Urdu: Ten Minutes, Lifelong Gain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-words-and-grammar-mondlys-pathway-to-2022-glory/"><u>Discovering Words & Grammar: Mondly’s Pathway to 2022 Glory</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/how-to-get-blessed-gospel-music-as-your-ringtone-for-2024/"><u>How to Get Blessed Gospel Music as Your Ringtone for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-covert-composition-of-private-recordings/"><u>In 2024, Covert Composition of Private Recordings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-multiple-languages-at-once/"><u>Learn Multiple Languages At Once</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/optimizing-video-creation-in-obs-studio/"><u>Optimizing Video Creation in OBS Studio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-joy-1500-days-free-from-learning-cost/"><u>The Joy: 1,500 Days Free From Learning Cost</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unbeatable-deals-save-on-the-asus-vivobook-pro-with-a-300-discount-now-available-on-amazon-insights-from-zdnet/"><u>Unbeatable Deals: Save on the Asus VivoBook Pro with a $300 Discount Now Available on Amazon - Insights From ZDNet</u></a></li>
+<li><a href="https://driver-install.techidaily.com/updating-sound-drivers-for-enhanced-audibility-on-w10/"><u>Updating Sound Drivers for Enhanced Audibility on W10</u></a></li>
 </ul></div>
 

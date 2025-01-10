@@ -1,7 +1,7 @@
 ---
 title: "Worldwide Breakfast Banter: How to Say 'Good Morning'"
-date: 2024-12-31T21:18:15.612Z
-updated: 2025-01-03T17:16:50.856Z
+date: 2025-01-04T18:42:49.401Z
+updated: 2025-01-10T18:32:10.716Z
 tags:
   - speak
   - english
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/5d7817aad095517ef8a3802d67c136a4ed2562ac9
 
 _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) – one of the most common travel words around the world. Nothing breaks the cultural ice like a respectful greeting in the local language. This is why the ability to say good morning in different languages is a life skill that is well worth learning. Let’s dive in!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Good morning in Spanish:_¡Buenos días!_
 
 **_Buenos días_ literally means “good days”, but it is used to say “good morning” in Spanish.** Suitable for all social contexts, this greeting can be used with both friends and strangers. If you want to mix things up, you can also add_hola_ and say “hola, buenos días” as it is a very standard and friendly salutation. If you want to say goodbye in the morning, you can say “adiós, buenos días” which is a nice way to wish someone a good day.
@@ -38,7 +42,7 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  It is also important to note that in some countries from South America it’s common to say “buen día” which is literally the singular form of “buenos días”. However, if you go to Spain, it’s best to stick with “buenos días”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Good morning in French:_Bon matin !_
@@ -56,7 +60,7 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  As you probably know, Germans like to be efficient, so sometimes greetings tend to be kept short. Therefore, in informal situations, you can simply say “Morgen!”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Good morning in Italian:_Buongiorno!_
@@ -66,7 +70,7 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Literally meaning “good day”, “buongiorno” can safely be used in all kinds of social contexts from morning until after lunch.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Good morning in Portuguese:_Bom dia!_
@@ -79,10 +83,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-7421&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7421&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7421)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Good morning in Russian:_Доброе утро!_
 
  To say [“good morning” in Russian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can use the phrase “доброе утро” which is pronounced “Dobroye utro”. This is the most popular way to greet people in the morning.
@@ -90,6 +90,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Like all morning greetings on this list, “доброе утро” can safely be used in all kinds of social contexts with both friends and strangers.
 
  Additionally, if you want to go the extra mile, it is considered polite to ask about the person’s well-being after greeting them. For example, “как дела?”_(kak dela?)_ which means “how are you?” is often used in conjunction with “доброе утро”_(dobraye utro)_ . This makes the greeting more friendly and personal.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Good morning in Chinese:_早上好！_
 
@@ -112,10 +116,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Other morning greetings in Arabic include يسعد صباحكم_(_ _Yaseed sabahkom)_ which translates to “may you have a nice morning”, صباح الياسمين_(_ _Sabah al Yasmine)_ meaning “a morning full of jasmine”, and صباح أل عشت_(_ _Sabah al ishta)_ which is “a morning full of cream”.
 
  Careful though! As beautiful as they sound, these last examples can only be used with friends or people who are very close to your heart.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 10\. Good morning in Hindi:_सुप्रभात!_
 
@@ -165,21 +165,19 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-fostering-resilience-in-the-face-of-cyber-haters/"><u>[New] 2024 Approved Fostering Resilience in the Face of Cyber Haters</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-hacking-htc-vive-for-a-nausea-free-session/"><u>[Updated] 2024 Approved Hacking HTC Vive for a Nausea-Free Session</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/eliminate-stellar-media-freeze-0xc00d36c4/"><u>Eliminate Stellar Media Freeze: 0XC00D36C4</u></a></li>
-<li><a href="https://win-popular.techidaily.com/exploring-exceptional-virtual-labs-beyond-virtuallab-perfect-picks-for-windows-enthusiasts/"><u>Exploring Exceptional Virtual Labs Beyond Virtuallab: Perfect Picks for Windows Enthusiasts</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-motorola-moto-g73-5g-drfone-by-drfone-android/"><u>How to Screen Mirroring Motorola Moto G73 5G? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-nokia-105-classic-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Nokia 105 Classic To Phone | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interstellar-idioms-understanding-the-slang-of-space-characters/"><u>Interstellar Idioms: Understanding the Slang of Space Characters</u></a></li>
-<li><a href="https://discover-help.techidaily.com/leaders-du-marche-meilleurs-lecteurs-multimedia-wmv-compatibles-avec-macos-windows-11-android-and-ios-decouvrez-les-options-preferees/"><u>Leaders Du Marché: Meilleurs Lecteurs Multimédia WMV Compatibles Avec macOS, Windows 11, Android & iOS - Découvrez Les Options Préférées</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-lithuanian-from-your-computer-screen/"><u>Master Lithuanian From Your Computer Screen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-milestone-achievement-educating-70-million-learners/"><u>Mondly's Milestone Achievement – Educating 70 Million Learners</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/perfecting-youtube-videos-editing-tips-using-imovie/"><u>Perfecting YouTube Videos Editing Tips Using iMovie</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revolutionize-language-skills-with-our-top-3-learning-platforms/"><u>Revolutionize Language Skills with Our Top 3 Learning Platforms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-age-defying-advantage-why-learning-languages-at-40plus-is-smart/"><u>The Age-Defying Advantage: Why Learning Languages at 40+ Is Smart</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/turning-annual-objectives-into-tangible-results/"><u>Turning Annual Objectives Into Tangible Results</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-the-intricacies-of-german/"><u>Understanding the Intricacies of German</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/1726225750994-wavflac-movavi/"><u>フリーウェブサイトで簡単WAVからFLACへのオンラインアップコンバージョン - Movavi</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-conquered-everlasting-deactivation-of-youtube-shorts/"><u>[Updated] Conquered Everlasting Deactivation of YouTube Shorts</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-vlogs-to-viral-jake-pauls-online-empire-expansion-for-2024/"><u>[Updated] From Vlogs to Viral Jake Paul’s Online Empire Expansion for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-vivo-y27-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-defying-linguistic-skills-post-fifty-milestone/"><u>Age-Defying Linguistic Skills Post-Fifty Milestone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/communicate-with-command-ultimate-training-techniques/"><u>Communicate with Command: Ultimate Training Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/euro-dialects-revealed-europes-language-festival-today/"><u>Euro-Dialects Revealed – Europe's Language Festival Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-pronunciation-basics-for-first-timers/"><u>French Pronunciation Basics for First-Timers</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-fetch-and-install-updated-nvidia-drivers-seamlessly/"><u>How to Fetch and Install Updated NVIDIA Drivers Seamlessly</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-oneplus-ace-3-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of OnePlus Ace 3 Phone</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/live-broadcast-tools-and-online-cam-effects-discover-the-best-manycam-substitutes-for-your-videos/"><u>Live Broadcast Tools & Online Cam Effects: Discover the Best ManyCam Substitutes for Your Videos</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-the-ios-18-update-a-step-by-step-guide-to-personalizing-your-iphones-control-center-insights-from-zdnet/"><u>Mastering the iOS 18 Update: A Step-by-Step Guide to Personalizing Your iPhone's Control Center - Insights From ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/profiling-highest-numbers-of-speakers-in-each-country-written-in-french/"><u>Profiling Highest Numbers of Speakers in Each Country' Written In French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-prime-strategies-to-pick-up-languages-digitally/"><u>Step-by-Step Guide: Prime Strategies to Pick up Languages Digitally</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/trim-excess-space-on-win-10-display/"><u>Trim Excess Space on WIN 10 Display</u></a></li>
 </ul></div>
 

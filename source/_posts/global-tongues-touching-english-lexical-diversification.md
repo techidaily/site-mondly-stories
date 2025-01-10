@@ -1,7 +1,7 @@
 ---
 title: "Global Tongues Touching English: Lexical Diversification"
-date: 2024-12-30T00:58:37.939Z
-updated: 2025-01-03T21:06:48.927Z
+date: 2025-01-05T20:28:57.775Z
+updated: 2025-01-10T17:55:58.355Z
 tags:
   - speak
   - english
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
  When the English language started to expand its vocabulary, the process seemed like a wedding ceremony. Do you know how they say brides need something old, something new, something borrowed and something blue? Well, English had all of that except the blue. Anglo-Saxon words were old,[Shakespeare’s words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) were new and all the loanwords from other languages were borrowed. If you can’t put your finger on the **English words borrowed from other languages, think_café, ballet, fiancé, spaghetti, espresso, pretzel._**  You got the point.
 
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Where did English Come From?
 
@@ -74,7 +78,7 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
@@ -85,12 +89,16 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -122,7 +130,7 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish loanwords: English words that are actually Spanish
@@ -146,10 +154,6 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
 | Guacamole  |
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
 
@@ -178,10 +182,6 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
 | Balcony   |
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## German loanwords: English words that are actually German
 
@@ -265,19 +265,16 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-accelerating-periscope-video-transmission/"><u>[New] In 2024, Accelerating Periscope Video Transmission</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-pro-vision-best-4k-dslr-mounting-systems-reviewed/"><u>[Updated] In 2024, Pro Vision Best 4K DSLR Mounting Systems Reviewed</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/experience-high-quality-audio-with-the-tribit-xsound-megablast-enhanced-bluetooth-speaker-delivering-30w-power-and-impressive-sound-reach/"><u>Experience High-Quality Audio with the Tribit XSound Megablast: Enhanced Bluetooth Speaker Delivering 30W Power & Impressive Sound Reach</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-embrace-mematic-your-personal-digital-diary/"><u>In 2024, Embrace Mematic Your Personal Digital Diary</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-where-custom-visuals-for-youtube-live-and-breathe/"><u>In 2024, Where Custom Visuals for YouTube Live and Breathe</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/instantly-convert-pdf-files-into-ebooks-using-the-powerful-flip-pdf-converter-tool-try-it-free-at-flipbuildercom/"><u>Instantly Convert PDF Files Into Ebooks Using the Powerful Flip PDF Converter Tool | Try It Free at FlipBuilder.com</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/is-gemini-by-google-a-worthy-contender-against-microsofts-popular-chatgpt-platform/"><u>Is Gemini by Google a Worthy Contender Against Microsoft's Popular ChatGPT Platform?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-tagalog-in-under-an-hour-join-today/"><u>Master Tagalog in Under an Hour - Join Today!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-more-minds-through-multilingualism/"><u>Mastering More Minds Through Multilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unrivaled-language-mastery/"><u>Mondly: Unrivaled Language Mastery</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723204623668-overcome-google-chromes-hang-problem-easy-solutions-inside/"><u>Overcome Google Chrome's Hang Problem: Easy Solutions Inside</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romance-languages-and-their-cultural-significance/"><u>Romance Languages and Their Cultural Significance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-intersection-of-language-and-technology-in-pt-button-usage/"><u>The Intersection of Language and Technology in PT Button Usage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-languages-does-santa-claus-speak-christmas-around-the-world/"><u>What Languages Does Santa Claus Speak? Christmas Around the World</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebooks-secrets-to-impressive-cover-video-setup/"><u>2024 Approved Facebook's Secrets to Impressive Cover Video Setup</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-friday-96-off-on-worldwide-language-learning/"><u>Black Friday: 96% Off on Worldwide Language Learning!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-skeletons-the-many-faces-of-halloween/"><u>Cultural Skeletons: The Many Faces of Halloween</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-nokia-g310-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Nokia G310 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empowerment-project-of-danny-from-colombian-grounds/"><u>Empowerment Project of Danny From Colombian Grounds</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/essential-mobile-dj-secrets-mastering-the-art-of-being-an-exceptional-mc/"><u>Essential Mobile DJ Secrets: Mastering the Art of Being an Exceptional MC</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/essential-screenshot-and-recorder-software-guide-for-macs/"><u>Essential Screenshot & Recorder Software Guide for Macs</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/protect-your-pc-the-ultimate-list-of-15-free-antivirus-tools/"><u>Protect Your PC: The Ultimate List of 15 FREE Antivirus Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580128798-two-years-of-mondly-languages-we-had-a-dream-a-great-dream/"><u>Two Years Of Mondly Languages - We Had A Dream. A Great Dream</u></a></li>
+<li><a href="https://driver-error.techidaily.com/understanding-and-resolving-blue-screen-error-0x0000007e-on-your-windows-7-machine/"><u>Understanding and Resolving Blue Screen Error 0X0000007E on Your Windows 7 Machine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578832277-why-choose-mondly-discover-the-unmatched-advantages/"><u>Why Choose Mondly? Discover the Unmatched Advantages!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Art of Scoring in Language Exams
-date: 2024-12-04T17:19:55.912Z
-updated: 2024-12-10T16:26:01.240Z
+date: 2025-01-09T17:31:37.519Z
+updated: 2025-01-10T19:31:22.268Z
 tags:
   - speak
   - english
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 * **ACTFL scale** (American Council on the Teaching of Foreign Languages scale)**:** Derived from the IRL scale, it provides a more detailed assessment of language proficiency. The ACTFL scale retains the five-level structure but uses different terms: novice, intermediate, advanced, superior, and distinguished. What sets it apart is the inclusion of low, medium, and high sub-levels within the first four proficiency levels, offering a more precise evaluation of language skills.
 * **CEFR scale** (Common European Framework of Reference for Languages scale)**:** The CEFR scale consists of six levels grouped into three categories: basic user (A), independent user (B), and proficient user (C). Each category is further divided into two sub-levels: A1 and A2, B1 and B2, and C1 and C2\. If your goal is to work in Europe or gain admission to a European institution that emphasizes language proficiency, the CEFR scale is the recommended framework to demonstrate your language skills.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Top 10 Language Exams/Tests
 
 ### 1\. English: PTE
@@ -61,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
  After completing the PTE Academic test, you will receive a comprehensive Score Report and Skills Profile, which provide valuable insights into your test performance, language proficiency level, and areas for improvement. Pearson typically sends out the score report within a maximum of five working days. In many cases, however, you can expect to receive it within just 48 hours, allowing you to access your test results and assess your performance fast.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Spanish: DELE
 
 **DELE** stands for_Diplomas de Español como Lengua Extranjera,_ meaning Diplomas of Spanish as a Foreign Language.
@@ -79,6 +87,10 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
  Widely recognized by educational institutions and employers, the**DELF and DALF are lifelong certifications that don’t expire,** providing long-term validity and recognition of your French language skills.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. German: Goethe-Zertifikat or TestDaF
 
 **Goethe-Zertifikat** is the official German language exam administered by the**Goethe-Institut.** Universities and employers in German-speaking countries widely recognize it as a measure of German language proficiency. The exam assesses reading, writing, listening, and speaking skills, providing a comprehensive evaluation of German language abilities. The Goethe-Institut offers multiple Goethe-Zertifikat exams that align with the CEFR levels, spanning from A1 for beginners to C2 for advanced learners.
@@ -96,10 +108,6 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
  The TOPIK test is conducted six times a year. Three sessions are held exclusively in Korea (January, May, and November), while the other three sessions are conducted both in Korea and overseas (April, July, and October). In most countries, the TOPIK-I test is administered in the morning, followed by the TOPIK-II test in the afternoon. This allows test takers to take both TOPIK-I and TOPIK-II on the same day if desired.
 
  The validity of TOPIK certificates is two years from the date of test results issued.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6\. Mandarin Chinese: HSK
 
@@ -123,14 +131,6 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
 ![top language exams](https://edge.mondly.com/blog/wp-content/uploads/2023/06/top-language-exams-960x640.jpg "Language Exams And Certifications: Your Path To Proficiency 8")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8\. Russian: TORFL
 
 **TORFL,** which stands for the Test of Russian as a Foreign Language_(Тест по русскому языку как иностранному or ТРКИ),_ is a comprehensive certification system designed to assess and certify the proficiency of non-native speakers in the Russian language.
@@ -141,10 +141,6 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
  The**TORFL certificates do not have an expiration date,** serving as a lasting testament to your Russian language proficiency.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9\. Japanese: JLPT
 
 **JLPT,** which stands for the Japanese-Language Proficiency Test, is a widely recognized language exam that evaluates and certifies the proficiency of non-native speakers in the [Japanese language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -154,10 +150,6 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
  Obtaining a JLPT certification brings several advantages, such as academic credit recognition, favorable consideration in job applications, and overall acknowledgment of language proficiency in society.
 
 **The JLPT certificate never expires.**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10\. Portuguese: CAPLE
 
@@ -171,13 +163,13 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Language Exams And Certifications: Your Path To Proficiency 9")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Get ready for your language exam
 
  Mondly is the perfect study buddy for 41 languages ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-8270&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-8270&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-8270&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-8270&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-8270%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Importance of Language Certification
 
@@ -217,13 +209,13 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
 ![language proficiency](https://edge.mondly.com/blog/wp-content/uploads/2023/06/language-proficiency-960x640.jpg "Language Exams And Certifications: Your Path To Proficiency 10")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips for Language Exam Preparation
 
  Are you ready to ace your language certification? Let’s look at some tips for language exam preparation. Even if your language level is very good, preparing for a language exam is crucial. For example, doing a couple of sample tests can greatly improve your chances of success.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Set your goal**
 
@@ -245,10 +237,6 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
  This is probably the most important step in your preparation. The internet is full of sample tests for all the popular language exams. Ensure you do as many as possible (under timed conditions) to get familiar with the language exam you’re about to take. Practice makes perfect!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Practice speaking and listening**
 
  If you’re one who gets nervous during an exam, allocate dedicated time to practice active listening and speaking to get confident. Mental blocks are more likely to happen when you’re put on the spot during listening and speaking exercises.
@@ -257,15 +245,15 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
  Repetition is the key to learning. That’s why you must regularly review your learning material to reinforce your knowledge. If it’s too time-consuming, make summaries and review those!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Focus on the gaps**
 
  Do you have any knowledge gaps? Is there anything you keep getting wrong in sample tests? Work on strengthening these gaps to ensure a well-rounded proficiency. Focusing on your weaknesses will enable you to address them effectively and enhance your overall language proficiency.
 
  Prepping for success in language exams is ultimately easy if you stay organized and practice as much as possible. But remember, a positive mindset can make all the difference!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Choose the Right Language Exam/Test for You
 
@@ -285,11 +273,23 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
  Does your desired language exam meet your conditions? Then it is a good choice. Now let’s move on to some frequently asked questions about language exams.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Frequently Asked Questions About Language Exams
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What is the purpose of language exams?
 
  The purpose of language exams is to evaluate and certify an individual’s proficiency in a particular language. By successfully completing a language exam, you receive a certification or diploma that officially recognizes your language proficiency level. Some of these certifications are widely accepted and recognized by educational institutions, employers, and organizations around the world.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Why are language exams important?
 
@@ -304,7 +304,7 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
  Language exams are typically scored using established criteria and scoring systems specific to each test. The scoring process varies depending on the test format and the skills being assessed. Many language exams have established score conversion tables or band scales. These tables or scales provide a standardized interpretation of test scores, allowing individuals and institutions to compare results across different administrations or applicants.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How long are language certificates valid?
@@ -351,18 +351,19 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-evolving-from-static-snapshots-to-moving-visuals/"><u>[New] In 2024, Evolving From Static Snapshots to Moving Visuals</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-exclusive-discoveries-prime-websites-and-methods-to-download-tamil-ringtone-files/"><u>[Updated] Exclusive Discoveries Prime Websites & Methods to Download Tamil Ringtone Files</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-fusion-functionality-combining-watch-mac-access/"><u>[Updated] Fusion Functionality Combining Watch, Mac Access</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-examining-the-efficacy-of-toolwiz-for-image-enhancement/"><u>[Updated] In 2024, Examining the Efficacy of Toolwiz for Image Enhancement</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-best-choice-avi-player-with-multiplatform-support/"><u>2024 Approved Best Choice Avi Player with Multiplatform Support</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/amplify-potential-by-embracing-new-tongues/"><u>Amplify Potential by Embracing New Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/black-friday-brings-you-close-to-a-new-world-of-words/"><u>Black Friday Brings You Close to a New World of Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breakdown-of-mandarin-greeting-nuances-for-beginners/"><u>Breakdown of Mandarin Greeting Nuances for Beginners</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/discover-the-freshly-scented-side-of-tech-asus-revolutionary-adol-book-laptop-with-integrated-aroma-emission/"><u>Discover the Freshly Scented Side of Tech: Asus' Revolutionary Adol Book Laptop with Integrated Aroma Emission</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-your-worldview-with-second-language-skills/"><u>Elevate Your Worldview With Second Language Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581875041-italian-numbers-made-easy-count-to-1000-and-beyond-in-italian/"><u>Italian Numbers Made Easy – Count to 1000 and Beyond in Italian</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simplified-culinary-education-essential-guides-for-aspiring-foodies/"><u>Simplified Culinary Education: Essential Guides for Aspiring Foodies</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/toms-tech-hub-the-ultimate-guide-to-computer-components-and-systems/"><u>Tom's Tech Hub: The Ultimate Guide to Computer Components and Systems</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-metaverse-meets-the-multiverse-a-detailed-comparison/"><u>[New] In 2024, Metaverse Meets the Multiverse A Detailed Comparison</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-sonicarchive-pro-downloads-and-analysis/"><u>[New] In 2024, SonicArchive Pro Downloads & Analysis</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-the-complete-guide-to-building-a-captivating-discord-pfp/"><u>[Updated] In 2024, The Complete Guide to Building a Captivating Discord PFP</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-ideal-online-audio-equipment-top-7-picks-2023/"><u>2024 Approved Ideal Online Audio Equipment Top 7 Picks 2023</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-itel-s23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/americas-favorite-language-study-choices/"><u>America's Favorite Language Study Choices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/carousel-of-charms-a-romantic-italian-dialogue/"><u>Carousel of Charms: A Romantic Italian Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/compreendemos-gritos-de-alegria-e-felicidade-no-portugues/"><u>Compreendemos Gritos De Alegria E Felicidade No Português</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/danny-from-colombia-leading-the-charitable-battle/"><u>Danny From Colombia Leading the Charitable Battle</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diversity-dialogues-strategic-approaches-in-multicultural-discourse/"><u>Diversity Dialogues: Strategic Approaches in Multicultural Discourse</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/elite-defense-for-iphone-12pro-models-discover-the-premier-phone-case-selections-of-2023/"><u>Elite Defense for iPhone 12/Pro Models: Discover the Premier Phone Case Selections of 2023</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-tecno-spark-10-pro-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Tecno Spark 10 Pro Phones? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-speedy-screen-grab-creation-techniques/"><u>In 2024, Speedy Screen Grab Creation Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575683005-virtual-verbal-journey-transform-flingish-to-fluent/"><u>Virtual Verbal Journey: Transform Flingish to Fluent</u></a></li>
 </ul></div>
 

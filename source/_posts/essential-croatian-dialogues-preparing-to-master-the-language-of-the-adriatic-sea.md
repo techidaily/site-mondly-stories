@@ -1,7 +1,7 @@
 ---
 title: "Essential Croatian Dialogues: Preparing to Master the Language of the Adriatic Sea"
-date: 2024-09-05T04:34:19.852Z
-updated: 2024-09-06T04:34:19.852Z
+date: 2025-01-08T17:06:35.317Z
+updated: 2025-01-10T16:33:30.020Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/e55121a8e00138bfd889740b0f7a193e7e03922e8
 6. [Croatian phrases about love](#croatian-love)
 7. [Learn Croatian for your shopping sprees](#croatian-shopping)
 8. [Days of the week and numbers in Croatian](#numbers-in-croatian)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Hello in Croatian and other useful greetings
 
@@ -62,19 +66,11 @@ thumbnail: https://thmb.techidaily.com/e55121a8e00138bfd889740b0f7a193e7e03922e8
 
 ![croatian phrasebook](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-phrasebook-1024x683.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 2")
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Plitvice Lakes National Park” by Jonatan Pie©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Basic Croatian phrases for travelers that need help
 
@@ -96,11 +92,9 @@ thumbnail: https://thmb.techidaily.com/e55121a8e00138bfd889740b0f7a193e7e03922e8
 * I’ll be back immediately. –_Odmah se vraćam._
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Croatian phrases for food lovers
 
  Food is all that some of us can think about. Yep. We all know that one friend who has to try every new food when visiting a new country. We sometimes are that friend. But who can blame the gourmand? Food is soooo good! And Croatia is nothing short of delightful food. You’ll absolutely need to try Peka (baking meat, seafood, and veggies), Brudet (fish stew), Stuffed peppers, Zagreb Schnitzel and the addictive Fritule dessert. So here’s**how to order drinks or food in Croatian restaurants:**
@@ -122,6 +116,10 @@ thumbnail: https://thmb.techidaily.com/e55121a8e00138bfd889740b0f7a193e7e03922e8
 * I would like a coffee. –_Rado bih kavu._
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Basic Croatian for travelers who need a place to spend the night
 
  Finding the perfect place to stay can get stressful sometimes. Now imagine you found the perfect place on Airbnb, but the host only**speaks Croatian.** It wouldn’t hurt knowing some**basic Croatian** in this situation, would it?
@@ -135,12 +133,6 @@ thumbnail: https://thmb.techidaily.com/e55121a8e00138bfd889740b0f7a193e7e03922e8
 * Very pleasant, thank you. –_Vrlo ugodan, hvala Vam._
 * Here is your bill, please look it over. –_Izvolite Vas Racun, molimo pregledajte ga._
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Croatian to English for tourists who want to have fun
 
  You’ll have to admit that parties connect people. Phones used to do that, but not anymore. Now going to a party is the best way to connect with people and get to know a new culture. Thus, if you have already planned your trip to Croatia, also squeeze in a night out to party and enjoy the Old Town from another perspective. It may reveal itself differently.
@@ -179,20 +171,12 @@ thumbnail: https://thmb.techidaily.com/e55121a8e00138bfd889740b0f7a193e7e03922e8
 
 ![croatian words](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-words-1024x682.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 5")
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Primošten, Croatia” by Hrvoje Klaric©
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. Learn Croatian for your shopping sprees
 
  Choosing souvenirs for the entire family is the most atrocious punishment the humanity has ever seen. The stress of shopping for souvenirs often gets to ruin our sleep until very last evening of our vacation. But there’s a solution! Plan your shopping spree for the first day of the trip and just get it over with.
@@ -204,12 +188,6 @@ thumbnail: https://thmb.techidaily.com/e55121a8e00138bfd889740b0f7a193e7e03922e8
 * What would you like? –_Što bi željela?_
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. Days of the week and numbers in Croatian
 
  The days of the week and the numbers are absolutely essential words in any language. Sooner or later you’ll need them when roaming the world. So here are the days of the week and the**numbers in Croatian.**
@@ -269,8 +247,6 @@ thumbnail: https://thmb.techidaily.com/e55121a8e00138bfd889740b0f7a193e7e03922e8
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -278,8 +254,22 @@ thumbnail: https://thmb.techidaily.com/e55121a8e00138bfd889740b0f7a193e7e03922e8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-streamline-screen-capturing-in-todays-remote-meetings/"><u>[New] 2024 Approved Streamline Screen Capturing in Today’s Remote Meetings</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-vivo-x100-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Vivo X100 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comenzar-a-conocer-el-tiempo-en-espanol/"><u>Comenzar a Conocer El Tiempo en Español</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/cursor-reappears-post-win11-blackout/"><u>Cursor Reappears Post-Win11 Blackout</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-chinese-script-basics/"><u>Deciphering Chinese Script Basics</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-updated-nvidia-rtx-3080-driver-best-performance-on-windows-1187/"><u>Download Updated NVIDIA RTX 3080 Driver - Best Performance on Windows 11/8/7</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-the-issue-re-established-link-to-world-of-warcraft-online-services/"><u>Fixing the Issue: Re-Established Link to World of Warcraft Online Services</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-itel-a60s-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Itel A60s?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/iphoneandroid7/"><u>IPhone/Androidで使えるトップ7ビデオ再生時のノイズ抑制アプリ - お勧め</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-at-your-fingertips-pearson/"><u>Language Mastery at Your Fingertips: Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prodigy-pathways-to-succeeding-in-international-language-assessments/"><u>Prodigy Pathways to Succeeding in International Language Assessments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/smooth-language-journey-top-10-simple-to-learn-tongues/"><u>Smooth Language Journey: Top 10 Simple to Learn Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tiny-tongues-grand-languages-kinder-to-fifth-grade-spanish/"><u>Tiny Tongues, Grand Languages: Kinder to Fifth Grade Spanish</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722146416366-transform-your-mobile-experience-with-bings-smart-search-technology/"><u>Transform Your Mobile Experience with Bing's Smart Search Technology.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-basics-of-chinese-social-interactions/"><u>Unveiling the Basics of Chinese Social Interactions</u></a></li>
+</ul></div>
 

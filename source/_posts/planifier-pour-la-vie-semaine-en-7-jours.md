@@ -1,7 +1,7 @@
 ---
 title: "Planifier Pour La Vie: Semaine en 7 Jours"
-date: 2025-01-01T21:01:02.062Z
-updated: 2025-01-03T19:53:03.041Z
+date: 2025-01-09T19:04:02.816Z
+updated: 2025-01-10T20:32:08.160Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/f7eb32e30dabd1ecde240ae4f390a8ba724185aa1
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Days of the week in French
@@ -78,7 +78,7 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -125,16 +125,17 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-brand-with-these-biz-channel-standouts/"><u>[New] In 2024, Elevate Your Brand with These Biz Channel Standouts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-step-into-the-full-screen-era-for-fb-video-viewing/"><u>[Updated] Step Into the Full-Screen Era for FB Video Viewing</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/y-ambiance-ideal-winter-bgs-for-videos/"><u>Chilly Ambiance Ideal Winter BGs for Videos</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/dxgkrnlsys-bluescreen-of-death-fixing-in-windows/"><u>dxgkrnl.sys BlueScreen of Death: Fixing in Windows</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-music-from-motorola-moto-g04-by-fonelab-android-recover-music/"><u>Easy steps to recover deleted music from Motorola Moto G04</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Poco F5 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/make-every-moment-count-save-96-on-infinite-mondly-premium-life/"><u>Make Every Moment Count - Save $96 on Infinite Mondly Premium Life</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-educates-the-young-ones-cited-by-google-play-2017/"><u>Mondly Educates the Young Ones, Cited by Google Play 2017</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-meets-precision-pearsons-gsl-upgrade/"><u>Mondly Meets Precision: Pearson's GSL Upgrade</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-ultimate-resource-for-tech-enthusiasts-toms-hardware-reviews/"><u>The Ultimate Resource for Tech Enthusiasts: Tom's Hardware Reviews</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/weekly-rhythmes-en-francais/"><u>Weekly Rhythmes En Français</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-discover-retro-your-path-to-facebook-archives/"><u>[New] 2024 Approved Discover Retro Your Path to Facebook Archives</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-altering-visuals-in-teams-calls-timely-setup-adjustments/"><u>[Updated] Altering Visuals in Teams Calls Timely Setup Adjustments</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-seamless-social-circulation-sharing-your-journey-through-video-on-facebook-for-2024/"><u>[Updated] Seamless Social Circulation Sharing Your Journey Through Video on Facebook for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-profit-driven-tactics-for-successful-snapchat-brands/"><u>2024 Approved Profit-Driven Tactics for Successful Snapchat Brands</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/astonish-abruzzese-with-essential-slang-terms/"><u>Astonish Abruzzese with Essential Slang Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/basic-russian-vocabulary-and-phrases-mastery-101/"><u>Basic Russian Vocabulary & Phrases Mastery 101</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/be-bilingual-today-learn-german-from-popular-show-dark/"><u>Be Bilingual Today! Learn German From Popular Show, Dark</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Asus ROG Phone 7 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-apple-iphone-15-plus-is-off-drfone-by-drfone-virtual-ios/"><u>Can Life360 Track You When Your Apple iPhone 15 Plus is off? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-speech-with-these-iconic-latin-quotations/"><u>Elevate Your Speech with These Iconic Latin Quotations</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-1st-place-video-saver-download-anywhere-anytime/"><u>In 2024, 1St Place Video Saver - Download Anywhere, Anytime</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579992783-new-year-new-verbal-horizon/"><u>New Year, New Verbal Horizon!</u></a></li>
 </ul></div>
 

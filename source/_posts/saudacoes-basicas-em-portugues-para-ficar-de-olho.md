@@ -1,7 +1,7 @@
 ---
 title: Saudações Básicas Em Português Para Ficar De Olho
-date: 2024-12-30T20:13:58.612Z
-updated: 2025-01-04T00:53:27.028Z
+date: 2025-01-07T16:18:32.521Z
+updated: 2025-01-10T17:13:20.257Z
 tags:
   - speak
   - english
@@ -20,23 +20,19 @@ thumbnail: https://thmb.techidaily.com/9e8b456962dede45b52947713c8978e1ca5454c2b
 
  So next time you go on an adventure to one of the 7 countries where Portuguese is the only official language (Portugal, Brazil, Mozambique, Angola, Cape Verde, Guinea-Bissau, São Tomé and Príncipe), try the following**Portuguese greetings** and see how easy it is to connect with someone even if you don’t speak the same language.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. How to say “hello” in Portuguese
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### “Hi” in Portuguese – Oi
 
@@ -62,7 +58,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
@@ -79,6 +75,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  All three of these are safe to use in any kind of interaction (formal or informal).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3.“Goodbye” in Portuguese – Adeus
 
  The most common way to say “Goodbye” in Portuguese is_Adeus_ , but you can also use_Tchau_ which simply translates to “bye”.
@@ -94,7 +94,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
@@ -131,7 +131,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
@@ -165,22 +165,24 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagrams-creative-toolkit-applying-effects-on-existing-content/"><u>[Updated] In 2024, Instagram's Creative Toolkit Applying Effects on Existing Content</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-your-yearly-list-prime-free-video-editing-software/"><u>[Updated] Your Yearly List Prime Free Video Editing Software</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/command-response-symbiosis-the-ai-dialogue-evolution/"><u>Command-Response Symbiosis: The AI Dialogue Evolution</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/explore-the-leading-microphones-in-podcasting/"><u>Explore the Leading Microphones in Podcasting</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/happiness-abroad-on-independence-day/"><u>Happiness Abroad on Independence Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honterus-the-heartbeat-of-motivation/"><u>Honterus: The Heartbeat of Motivation</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/how-to-ensure-no-loss-of-frames-during-recording/"><u>How To Ensure No Loss of Frames During Recording</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-vivo-x90s-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Vivo X90S | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-google-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Google Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-navigating-open-source-video-software-for-all-users/"><u>In 2024, Navigating Open Source Video Software for All Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/innovative-5-tools-revolutionizing-language-education/"><u>Innovative 5 Tools Revolutionizing Language Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-legacy-milestone-achievements-at-mondlylanguages/"><u>Linguistic Legacy: Milestone Achievements at MondlyLanguages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-complexity-the-most-tricky-global-languages/"><u>Navigating Complexity: The Most Tricky Global Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/peering-into-mondlys-educational-techniques/"><u>Peering Into Mondly’s Educational Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-for-novice-french-speakers-pronunciation/"><u>Step-by-Step Guide for Novice French Speakers' Pronunciation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-easy-online-latino-study/"><u>Step-By-Step Guide: Easy Online Latino Study</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-voice-maestros-toolkit-free-applications-to-enrich-your-auditory-palette-for-2024/"><u>The Voice Maestro's Toolkit Free Applications to Enrich Your Auditory Palette for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-implementing-gradual-audio-reduction-tricks-in-audacity/"><u>[New] 2024 Approved Implementing Gradual Audio Reduction Tricks in Audacity</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-a-techies-playbook-screen-record-and-share-on-snapchat-for-2024/"><u>[New] A Techie's Playbook Screen Record & Share on Snapchat for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-a-beginners-guide-to-vimeo-caption-addition/"><u>[Updated] A Beginner's Guide to Vimeo Caption Addition</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-step-by-step-instructions-for-finding-recent-facebook-views-for-2024/"><u>[Updated] Step-by-Step Instructions for Finding Recent Facebook Views for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/captivating-clips-incorporating-text-deformation-artistry/"><u>Captivating Clips Incorporating Text Deformation Artistry</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-least-complex-latin-course-online/"><u>Discover the Least Complex Latin Course Online</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-the-latest-hp-officejet-inkjet-printer-drivers-for-windows-systems/"><u>Download the Latest HP OfficeJet Inkjet Printer Drivers for Windows Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-authentic-german-idioms-the-best-25/"><u>Exploring Authentic German Idioms: The Best 25</u></a></li>
+<li><a href="https://win-able.techidaily.com/forza-horizon-4-wont-boot-uncover-proven-strategies-to-launch-your-game-effortlessly/"><u>Forza Horizon 4 Won't Boot? Uncover Proven Strategies to Launch Your Game Effortlessly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-conquerors-to-citizens-the-linguistic-journey-of-spanish-vs-portuguese/"><u>From Conquerors to Citizens: The Linguistic Journey of Spanish Vs. Portuguese</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-economics-a-detailed-blueprint-for-profit-for-2024/"><u>Instagram Economics A Detailed Blueprint for Profit for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-peak-of-language-assessments/"><u>Navigating the Peak of Language Assessments</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/simplifying-typing-the-complete-guide-to-using-bings-ai-in-android/"><u>Simplifying Typing: The Complete Guide to Using Bing's AI in Android</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-sprouts-early-education-series/"><u>Spanish Sprouts: Early Education Series</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-anywhere-easily-top-multilingual-applications-for-mastery/"><u>Speak Anywhere, Easily: Top Multilingual Applications for Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/televisual-methods-for-effective-language-acquisition/"><u>Televisual Methods for Effective Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-trio-of-asias-communication-hubs/"><u>The Trio of Asia's Communication Hubs</u></a></li>
+<li><a href="https://video-capture.techidaily.com/top-tech-choice-screen-recording-leaders-on-the-web-for-2024/"><u>Top Tech Choice Screen Recording Leaders on the Web for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-dialogue-game-top-9-language-skills-hacks/"><u>Transform Your Dialogue Game: Top 9 Language Skills Hacks</u></a></li>
 </ul></div>
 

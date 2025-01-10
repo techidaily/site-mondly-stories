@@ -1,7 +1,7 @@
 ---
 title: The Worldwide Hispanic Voice Network
-date: 2024-12-27T20:12:25.554Z
-updated: 2025-01-03T17:35:30.496Z
+date: 2025-01-08T17:34:57.379Z
+updated: 2025-01-10T16:53:19.015Z
 tags:
   - speak
   - english
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
  Now just imagine how many new friends you could make if you started [learning Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) now!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## List of Spanish-speaking countries
@@ -59,6 +59,10 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
  In addition to the 20 countries, Spanish is also the official language of several international organizations. These include the United Nations, the European Union, the Organization of American States, the Union of South American Nations, the Community of Latin American and Caribbean States, the [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Union and many other international organizations.
 
  Now let’s go into a little more detail and split the countries into continents.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in South America
 
@@ -76,6 +80,10 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 * Uruguay — 98%
 * Venezuela — 97%
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Spanish-speaking countries in Central America
 
  Out of the seven countries in Central America, only Belize doesn’t have Spanish as its official language. However, the majority of the Belizeans can speak Spanish. Thus, if you’re planning a trip to Central America, speaking Spanish will definitely come in handy.
@@ -89,19 +97,11 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
  \* the number represents the percentage of the population who speak Spanish.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Spanish-speaking countries in North America
 
  Considering that the Spanish language came here from Europe a few centuries back, it’s fascinating that Mexico is the world’s most populous Hispanophone country. In addition to Spanish, the Mexican government recognizes 68 national languages, 63 of which are indigenous. Examples include Nahuatl, Yucatec Maya, Zapotec, Mixtec, Mayo, Yaqui, Tzeltal, Tzotzil, Chol, Totonac, Purépecha and more.
 
 * Mexico — 97% (percentage of the entire population speaking Spanish)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in the Caribbean
 
@@ -117,10 +117,6 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
 * Spain — 92% (percentage of the entire population speaking Spanish)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Spanish-speaking countries in Africa
 
  The one and only Spanish-speaking country in Africa is Equatorial Guinea. While unexpected, a bit of history reading will reveal that Equatorial Guinea was a Spanish colony, hence the official status of the language all the way here.
@@ -130,7 +126,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 !['Spanish speakers' by Florian Wehde©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/spanish-speakers-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Countries where Spanish is spoken although it’s not an official language
@@ -140,6 +136,10 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
  One reason is that Spain was once a very powerful empire and its influence can still be seen in many parts of the world. Another reason is that many people from Spanish-speaking countries have migrated and brought their language with them. Probably the best example is **the United States where more than 41 million people speak Spanish as a native language.**
 
  Other countries with large minorities of Spanish speakers are Belize, the Philippines (Spanish was an official language here from 1565 to 1973), Gibraltar and Andorra.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## A brief history of the Spanish language
 
@@ -191,21 +191,17 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-samsung-secrets-crafting-compelling-time-lapses/"><u>[New] 2024 Approved Samsung Secrets Crafting Compelling Time Lapses</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-top-twenty-techniques-for-rewinding-livestreams-online/"><u>[New] Top Twenty Techniques for Rewinding Livestreams Online</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-balancing-ambient-sound-on-windowsos-x-machines/"><u>[Updated] Balancing Ambient Sound on Windows/OS X Machines</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-from-snap-to-stunning-photo-editing-secrets/"><u>[Updated] In 2024, From Snap to Stunning Photo Editing Secrets</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/comprehensive-review-of-sea-tech-external-usb-blu-ray-writer-a-tale-of-uneven-efficiency/"><u>Comprehensive Review of Sea Tech External USB Blu-Ray Writer: A Tale of Uneven Efficiency</u></a></li>
-<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-8-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone 8 Without Losing Anything? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Samsung Galaxy XCover 6 Pro Tactical Edition? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Vivo Y78 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/inclusive-leadership-through-multilingual-expertise/"><u>Inclusive Leadership Through Multilingual Expertise</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/majority-mother-tongues-the-15-summit/"><u>Majority Mother Tongues – The #15 Summit</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-romanian-naturally/"><u>Mastering Romanian, Naturally</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-elongated-term-epic-quest/"><u>The Elongated Term Epic Quest</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-how-to-fix-windows-update-error-code-0x802n02e/"><u>Troubleshooting Guide: How to Fix Windows Update Error Code 0X802n02E</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukranian-in-a-flash-one-minute-a-day-65-chars-note-adjusted-for-brevity/"><u>Ukranian in a Flash, One Minute a Day (65 Chars) - Note: Adjusted for Brevity</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/which-dialect-flourishes-in-israeli-territory/"><u>Which Dialect Flourishes in Israeli Territory?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/workplace-excellence-via-exceptional-language-application-selection/"><u>Workplace Excellence via Exceptional Language Application Selection</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-top-9-camera-extras-for-professional-level-vlogging-on-smartphones/"><u>[Updated] 2024 Approved Top 9 Camera Extras for Professional-Level Vlogging on Smartphones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-dominate-social-media-sales-5-strategic-moves-for-instagram-experts/"><u>[Updated] Dominate Social Media Sales 5 Strategic Moves for Instagram Experts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-essential-non-xsplit-video-splitters/"><u>2024 Approved Essential Non-Xsplit Video Splitters</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fix-red-eyes-quickly-in-photos-on-ios-without-cost/"><u>2024 Approved Fix Red Eyes Quickly in Photos on iOS Without Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-reasons-why-you-should-learn-a-language-in-your-forties/"><u>4 Reasons Why You Should Learn A Language In Your Forties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578456981-fluency-fast-track-daily-10-minute-dose-to-speaking-slovak-fluently/"><u>Fluency Fast Track: Daily 10-Minute Dose to Speaking Slovak Fluently!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-zte-blade-a73-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from ZTE Blade A73 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instagram-stardom-in-your-sights-6-must-try-techniques-for-verification-and-growth/"><u>Instagram Stardom in Your Sights 6 Must-Try Techniques for Verification and Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-10-various-ways-to-communicate-hello-in-spanish/"><u>Introducing 10 Various Ways to Communicate 'Hello' In Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/joyful-latin-teaching-approaches/"><u>Joyful Latin Teaching Approaches</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mastery-of-windows-access-issues-a-user-friendly-guide-to-rectifying-blockages-with-revo-uninstaller/"><u>Mastery of Windows Access Issues: A User-Friendly Guide to Rectifying Blockages with Revo Uninstaller</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-merges-with-pearson-academic-consortium/"><u>Mondly Merges With Pearson Academic Consortium</u></a></li>
 </ul></div>
 

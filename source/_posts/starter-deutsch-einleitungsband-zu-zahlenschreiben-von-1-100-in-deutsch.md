@@ -1,7 +1,7 @@
 ---
 title: "Starter Deutsch: Einleitungsband Zu Zahlenschreiben Von 1-100 in Deutsch"
-date: 2024-09-01T00:16:31.715Z
-updated: 2024-09-02T00:16:31.715Z
+date: 2025-01-07T19:39:10.041Z
+updated: 2025-01-10T18:42:30.511Z
 tags:
   - speak
   - english
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/4ab3e373157609579296fbbc1201ca6b702ee2035
 
  If you are not familiar with the [German pronunciation rules](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can watch this short video to hear how each number from 1 to 10 is pronounced:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## German Numbers 11-20
 
  As it happens with several other languages, the numbers from 11 to 20 don’t yet follow the pattern we talked about. The same as in English, ‘eleven’ and ‘twelve’ are two rebels refusing to follow the crowd. Otherwise, all the other numbers are formed by bringing together the first four letters of the basic 3 to 9 numbers and the word_zehn_ meaning ‘ten’.
@@ -58,8 +62,9 @@ thumbnail: https://thmb.techidaily.com/4ab3e373157609579296fbbc1201ca6b702ee2035
 * **twenty —_zwanzig_**
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## German multiples of 10
 
  The next step in learning how to count in German is mastering the tens or the multiples of 10\. Once you know these, you be able to apply the pattern and easily count to 100 on your own. It’s as easy as_eins, zwei, drei!_
@@ -82,11 +87,13 @@ Here are the multiples of 10 in German:
 ![count in german](https://edge.mondly.com/blog/wp-content/uploads/2022/08/count-in-german.png "German Numbers: Learn How To Count From 1 To 100 In German 2")
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to count from 1 to 100 in German
 
  Now that you have all the data (the numbers from 1 to 20 and multiples of 10), it’s time to explain how all the other numbers are formed. If you already know how to count in other languages, German numbers will be a piece of cake for you!
@@ -116,8 +123,9 @@ Now let’s look at some examples to make sure you got it:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### From 0 to 100 and beyond in German
 
  Do you want to go beyond numbers and [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fluently? Try Mondly, the award-winning language app that is serious about making learning German fun.
@@ -140,8 +148,6 @@ Now let’s look at some examples to make sure you got it:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -149,8 +155,26 @@ Now let’s look at some examples to make sure you got it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-top-screen-capture-tools-explored-apowersoft-and-others-compared/"><u>[New] 2024 Approved Top Screen Capture Tools Explored - Apowersoft and Others Compared</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-navigating-video-upload-procedures-on-chrome-devices/"><u>[New] In 2024, Navigating Video Upload Procedures on Chrome Devices</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-secure-and-unshakable-direct-url-addition-on-your-tiktok-profile/"><u>[New] In 2024, Secure & Unshakable Direct URL Addition on Your TikTok Profile</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-infuse-photos-with-realism-facial-motion-blur-via-picsart/"><u>[New] Infuse Photos with Realism Facial Motion Blur via Picsart</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-optimal-transformation-tool-for-hd-videos/"><u>[New] Optimal Transformation Tool for HD Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-showcase-spaces-perfect-live-stream-flair/"><u>2024 Approved Showcase Spaces Perfect Live Stream Flair</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-15-plus-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 15 Plus Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-nokia-c02-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Nokia C02 Phone Pattern Lock</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-understanding-the-essentials-of-burst-in-action-shots/"><u>In 2024, Understanding the Essentials of Burst in Action Shots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-journey-speak-mastering-local-dialects/"><u>Italian Journey Speak: Mastering Local Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leveraging-mondly-for-enhanced-linguistic-skills-top-10-ways/"><u>Leveraging Mondly for Enhanced Linguistic Skills - Top 10 Ways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-new-immersion-language-learning-experience-with-vr-technology/"><u>Mondly's New Immersion Language-Learning Experience with VR Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-minds-cognitive-upsides/"><u>Multilingual Minds: Cognitive Upsides</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-france-in-fluent-french-key-vocabulary-compilation/"><u>Navigating France in Fluent French: Key Vocabulary Compilation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-portuguese-voice-vowels-variation-study/"><u>The Portuguese Voice Vowels Variation Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-socially-and-cognitively-embracing-new-languages-post-fifty/"><u>Thriving Socially and Cognitively: Embracing New Languages Post-Fifty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/trennungsformeln-fur-die-deutsche-sprache/"><u>Trennungsformeln Für Die Deutsche Sprache</u></a></li>
+<li><a href="https://article-helps.techidaily.com/unleash-potential-secrets-for-career-growth-in-designing/"><u>Unleash Potential Secrets for Career Growth in Designing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secret-to-fluent-french-speech/"><u>Unlocking the Secret to Fluent French Speech</u></a></li>
+</ul></div>
 

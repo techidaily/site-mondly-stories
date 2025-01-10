@@ -1,7 +1,7 @@
 ---
 title: "Expressing Gratitude in Mandarin: A Beginner's Guide"
-date: 2024-09-01T00:19:22.128Z
-updated: 2024-09-02T00:19:22.128Z
+date: 2025-01-06T19:29:15.105Z
+updated: 2025-01-10T19:29:58.846Z
 tags:
   - speak
   - english
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/fe4b0191212c8e41c031bf23c61d1f9123e35ac3b
 
 ![thanks in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/thanks-in-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Xiangxi, China” by Theodor Lundqvist©
 
 ## 2\. Thank you very much in Chinese
@@ -58,8 +62,9 @@ Other variations include:
 * Thank you SO much! – 太谢谢你了! –_Tài xiè xiè nǐ le!_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Thank you for… in Chinese
 
  Just as important as the simple, plain “thank you” is the “thank you for something” thank you. Because sometimes you need to be more specific. What are you thanking them for? So here’s how to thank someone in Chinese for the gift they gave you and some more [Chinese phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that might come in handy next time you visit China.
@@ -76,13 +81,15 @@ Other variations include:
 ![xiexie chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/xiexie-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 3")
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  “Jiaxing, China” by Jay©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Other ways to express your gratitude in Chinese
 
  Depending on the social context, in some cases, you might want to vary your answers. For example, when someone compliments you, instead of saying 谢谢_xièxiè_ – which may sound a little arrogant, you could say 哪里哪里_nǎlǐ nǎlǐ_ . In English, that translates to “no, no” or “where, where” as in “you’re flattering me” or “you’re too kind”.
@@ -90,8 +97,9 @@ Other variations include:
  In fact, Chinese culture is known for its preference for modesty and humility. Deflecting a compliment rather than accepting it with a plain “thank you” is much more appreciated. Thus, another way to deflect a compliment (while secretly enjoying it) is to say 没有没有_méiyǒu méiyǒu_ – meaning “no, no, that’s nonsense”.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## BONUS: You’re welcome in Chinese
 
  If you want to respond to someone’s thanks with “you’re welcome” in Chinese, you can say 不客气_bù kèqì._
@@ -105,9 +113,6 @@ Other variations include:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ### Here’s how to speak Chinese in just 10 minutes a day
 
  It can be really tricky to master Chinese pronunciation if you don’t actively live in China. But with [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3462&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3462?mother%5Flang=en%5Fus?target%5Flang=zh&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3462?mother%5Flang=en%5Fus?target%5Flang=zh) , the award-winning language learning app, **you can learn Chinese naturally with practical topics and authentic Chinese conversations** recorded by fluent voice artists so you can tackle day-to-day situations.
@@ -126,8 +131,6 @@ Other variations include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -135,8 +138,26 @@ Other variations include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-beyond-playfulness-unveiling-the-subtext-in-snapchat-symbols/"><u>[New] 2024 Approved Beyond Playfulness Unveiling the Subtext in Snapchat Symbols</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-mastering-snips-on-mac-top-5-picks-unveiled/"><u>[New] In 2024, Mastering Snips on Mac Top 5 Picks Unveiled</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-streamlining-projects-using-azures-speech-service/"><u>[New] Streamlining Projects Using Azure's Speech Service</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-humorhub-easy-login-easy-signup/"><u>2024 Approved HumorHub Easy Login, Easy Signup</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/co-production-strategies-for-online-content-proliferation-for-2024/"><u>Co-Production Strategies for Online Content Proliferation for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/dicas-oficiais-conversao-de-discos-vhs-para-dvd-no-windows-11-e-macos/"><u>Dicas Oficiais: Conversão De Discos VHS Para DVD No Windows 11 E macOS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-vernacular-intersections-with-english/"><u>Global Vernacular Intersections with English</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-screen-mirroring-apple-iphone-15-to-tv-or-pc-drfone-by-drfone-ios/"><u>In 2024, How Screen Mirroring Apple iPhone 15 to TV or PC? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-after-age-50-motivation-and-meaning/"><u>Language Mastery After Age 50: Motivation and Meaning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/macau-a-study-in-linguistic-convergence/"><u>Macau: A Study in Linguistic Convergence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-english-pronunciation-and-expression-heres-how/"><u>Polish English Pronunciation and Expression, Here's How</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-asian-dialects-reverse-and-secure-listings/"><u>Premier Asian Dialects: Reverse & Secure Listings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/puedes-expresarte-como-decir-colores/"><u>Puedes Expresarte: Cómo Decir Colores</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/securing-the-future-of-iot-introducing-a-new-standard-in-smart-device-safety-zdnets-exclusive/"><u>Securing the Future of IoT: Introducing a New Standard in Smart Device Safety - ZDNet's Exclusive</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/svenska-hjartefar-ditt-avstand/"><u>Svenska Hjärtefär: Ditt Avstånd</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-international-birthday-kudos/"><u>The Art of International Birthday Kudos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-ergonomic-keyboard-supports/"><u>Top-Rated Ergonomic Keyboard Supports</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unleash-power-secure-your-msi-sword-laptop-at-a-mind-blowing-discount-of-400-less/"><u>Unleash Power: Secure Your MSI Sword Laptop at a Mind-Blowing Discount of $400 Less</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-language-is-spoken-in-croatia/"><u>What Language Is Spoken in Croatia?</u></a></li>
+</ul></div>
 

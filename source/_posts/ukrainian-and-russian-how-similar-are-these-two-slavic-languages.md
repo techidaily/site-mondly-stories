@@ -1,7 +1,7 @@
 ---
 title: "Ukrainian And Russian: How Similar Are These Two Slavic Languages?"
-date: 2024-12-29T21:47:35.873Z
-updated: 2025-01-04T00:25:31.450Z
+date: 2025-01-03T18:55:33.652Z
+updated: 2025-01-10T18:45:26.974Z
 tags:
   - speak
   - english
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
  Contrary to what some people believe, Ukrainian and Russian are not the same language. Despite sharing a common ancestor and the Cyrillic script, Ukrainian and Russian are two distinct languages. They are somehow similar, yes, but not one and the same. To help you understand the relationship between the two, we are going to look at their shared history and both their differences and similarities.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Was Ukrainian really called Little Russian?
 
  In short, yes. The Ukrainian language was formerly called Little Russian, but the term is now considered pejorative. Let’s see how all the events leading to this name unfolded.
@@ -52,10 +48,14 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 !['Ukrainian language' by Gleb Albovsky©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/ukrainian-language-960x600.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  As a result of Ukraine’s centuries-long political subordination, Ukrainian had almost no literary expression until de 18th century when the modern literary Ukrainian language was born.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Russian language – a short history
 
@@ -69,6 +69,10 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
  Later, the Soviet period brought Russian worldwide prestige which declined after the 1991 collapse. Despite each USSR constituent republic having its own official language, Russian had a unified role and superior status. This is why there are so many people speaking Russian outside Russia.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How similar are Ukrainian and Russian?
 
  The misconception that Russian and Ukrainian are the same sometimes stems from the fact that Russian is widely spoken in Ukraine. The numbers can differ slightly according to various sources, but it’s generally agreed that 60% of Ukrainians consider Ukrainian their native language, while 15% consider Russian to be their native language. Moreover, 22% consider both to be their native languages.
@@ -80,7 +84,7 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 !['Russian language' by Dimitry B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/russian-language-960x639.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Since most Ukrainian speakers also speak Russian or have extensive exposure to it, ‘asymmetric intelligibility’ is the best term to describe the relationship between the two languages. In other words, Ukrainian speakers can often understand Russian, while Russian speaker doesn’t understand Ukrainian, especially Russian speakers from outside Ukraine.
@@ -115,10 +119,6 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
  Showing 1 to 6 of 6 entries
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Sounds and pronunciation
 
  While to a non-trained ear Russian and Ukrainian might sound the same, they actually have several differences when it comes to pronunciation. For example, Ukrainian has a specific sound for “Г г” (similar to \[h\] in ‘aha!’) which Russian doesn’t have. For this letter, Russian uses the \[g\] sound which is similar to the ‘g’ in ‘go’ or ‘guard’. As a consequence, it’s very easy to differentiate a Ukrainian speaker from a Russian speaker as Ukrainians sometimes overlook the usage of \[g\] instead of \[h\].
@@ -129,6 +129,10 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 * Ukrainians always pronounce ‘o’ as it is heard whereas Russians pronounce it as \[a\] or an unclear schwa \[ə\] depending on the context;
 * Ukrainian uses more soft consonants compared to Russian;
 * Russian \[ы\] is deeper than Ukrainian \[и\] and Russian \[э\] is more open than Ukrainian \[е\].
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Grammar
 
@@ -150,10 +154,6 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Learn Ukrainian, Russian and more in just 10 minutes a day
 
@@ -184,24 +184,18 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-complete-guide-mastering-final-cut-pro-for-2024/"><u>[New] Complete Guide Mastering Final Cut Pro for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-content-with-these-top-keyword-discovery-tools/"><u>[New] In 2024, Elevate Your Content with These Top Keyword Discovery Tools</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-sdr-to-hdri-pioneers-expert-tips-and-techniques/"><u>[New] SDR to HDRI Pioneers Expert Tips and Techniques</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nleash-creative-potential-best-free-title-crafting-for-yt-for-2024/"><u>[New] Unleash Creative Potential Best Free Title Crafting for YT for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-efficient-onboarding-engaging-with-friends-via-instagram-live/"><u>[Updated] 2024 Approved Efficient Onboarding Engaging with Friends via Instagram Live</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-step-by-step-adding-snapchat-to-your-mac/"><u>[Updated] 2024 Approved Step-by-Step Adding Snapchat to Your Mac</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-elevate-your-earning-game-with-youtubes-member-status/"><u>[Updated] In 2024, Elevate Your Earning Game with YouTube's Member Status</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-ultimate-list-of-low-cost-desktop-encoder-software/"><u>[Updated] Ultimate List of Low-Cost Desktop Encoder Software</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-complete-youtube-editors-toolkit-for-post-publish-adjustments/"><u>2024 Approved The Complete YouTube Editor's Toolkit for Post-Publish Adjustments</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/heartstrings-and-heritage-love-filled-french-films/"><u>Heartstrings and Héritage: Love-Filled French Films</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/little-linguists-from-playing-with-puppies-to-elementary-spanish/"><u>Little Linguists: From Playing with Puppies To Elementary Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/local-lingo-lessons-australian-slang-unpacked/"><u>Local Lingo Lessons: Australian Slang Unpacked</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/savor-the-language-uncover-germanys-top-25-idioms/"><u>Savor the Language: Uncover Germany's Top 25 Idioms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-by-step-pronunciation-practice-for-beginners-in-germany/"><u>Step-by-Step Pronunciation Practice for Beginners in Germany</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-16-german-phrases-perfect-for-showing-appreciation/"><u>Top 16 German Phrases Perfect for Showing Appreciation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/united-learners-unstoppable-mondly/"><u>United Learners, Unstoppable Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unraveling-the-mysteries-of-russian-phonology/"><u>Unraveling the Mysteries of Russian Phonology</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/vive-cosmos-examination-premium-vr-quality-amidst-robust-industry-contenders/"><u>Vive Cosmos Examination: Premium VR Quality Amidst Robust Industry Contenders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-linguistic-curiosity-is-still-flourishing-at-sixty/"><u>Why Linguistic Curiosity Is Still Flourishing at Sixty?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-chuckle-chronicles-top-youtube-humorists-masterpieces-for-2024/"><u>[Updated] Chuckle Chronicles Top YouTube Humorists' Masterpieces for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-deciphering-the-must-haves-for-an-enhanced-youtube-experience-for-2024/"><u>[Updated] Deciphering the Must-Haves for an Enhanced YouTube Experience for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-making-the-leap-set-up-a-sports-vlog-on-macos/"><u>[Updated] Making the Leap Set Up a Sports Vlog on macOS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ace-the-language-game-find-success-with-these-6-effective-techniques/"><u>Ace the Language Game - Find Success with These 6 Effective Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-journey-easy-daily-practice-for-mastery/"><u>Bangla Journey: Easy Daily Practice for Mastery</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/crafting-calm-conclusions-fading-out-audio-effects-in-adobe-premiere-pro/"><u>Crafting Calm Conclusions Fading Out Audio Effects in Adobe Premiere Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-from-ancient-persia-future-benefits-in-language/"><u>Echoes From Ancient Persia, Future Benefits in Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-innovation-mondly-kids-a-2017-google-play-gem/"><u>Educational Innovation: Mondly Kids, A 2017 Google Play Gem</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576630083-exclusive-offer-alert-lifetime-free-up-to-96-off-mondly-pro/"><u>Exclusive Offer Alert: Lifetime Free, Up to 96% Off Mondly Pro!</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-c33-2023-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Realme C33 2023 Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-samsung-galaxy-a23-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Samsung Galaxy A23 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Nokia XR21? | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/reestablishing-high-quality-display-on-win11/"><u>Reestablishing High-Quality Display on Win11</u></a></li>
 </ul></div>
 

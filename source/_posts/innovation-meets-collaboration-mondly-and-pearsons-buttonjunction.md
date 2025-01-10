@@ -1,7 +1,7 @@
 ---
 title: "Innovation Meets Collaboration: Mondly & Pearson's ButtonJunction"
-date: 2024-09-01T00:18:25.838Z
-updated: 2024-09-02T00:18:25.838Z
+date: 2025-01-03T19:27:34.608Z
+updated: 2025-01-10T19:51:33.237Z
 tags:
   - speak
   - english
@@ -35,9 +35,17 @@ thumbnail: https://thmb.techidaily.com/2675fb371c905563da08e97bc8df2b8ac8d7bb0fb
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **About Pearson**
 
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **About Mondly**
 
@@ -51,8 +59,6 @@ thumbnail: https://thmb.techidaily.com/2675fb371c905563da08e97bc8df2b8ac8d7bb0fb
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -60,12 +66,24 @@ thumbnail: https://thmb.techidaily.com/2675fb371c905563da08e97bc8df2b8ac8d7bb0fb
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-fading-audio-tips-for-better-mixes-in-ableton/"><u>[New] Fading Audio Tips for Better Mixes in Ableton</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-innovative-approaches-to-supercharge-your-editing-workflow/"><u>[New] In 2024, Innovative Approaches to Supercharge Your Editing Workflow</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-powerdirector-pro-detailed-reviews-and-step-by-step-guides/"><u>[New] In 2024, PowerDirector Pro Detailed Reviews and Step-by-Step Guides</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-captivating-crafts-trending-instagram-filters/"><u>2024 Approved Captivating Crafts Trending Instagram Filters</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/effortless-visual-content-creation-for-instagram-users/"><u>Effortless Visual Content Creation for Instagram Users</u></a></li>
+<li><a href="https://win11.techidaily.com/empower-windows-discover-best-apps-of-2023-by-peers/"><u>Empower Windows: Discover Best Apps of 2023 by Peers</u></a></li>
+<li><a href="https://techtrends.techidaily.com/enhance-your-instagram-interactions-commenting-with-eye-catching-gifs/"><u>Enhance Your Instagram Interactions: Commenting With Eye-Catching GIFs</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introductory-urdu-fundamental-words-and-phrases/"><u>Introductory Urdu: Fundamental Words & Phrases</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-tethering-woes-expert-advice-on-getting-your-personal-hotspot-up-and-running/"><u>IPhone Tethering Woes? Expert Advice on Getting Your Personal Hotspot Up and Running</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-kinship-to-spains-dialect/"><u>Linguistic Kinship to Spain’s Dialect</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-collaborates-with-pearson-back-on-filter-feature/"><u>Mondly Collaborates with Pearson Back on Filter Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-learning-revolution-a-new-era-for-over-70-million-users/"><u>Mondly's Learning Revolution: A New Era for Over 70 Million Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/planifier-pour-la-vie-semaine-en-7-jours/"><u>Planifier Pour La Vie: Semaine en 7 Jours</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saghe-numeriche-in-italiano-comunicazione-e-lettura-intermedia/"><u>Saghe Numeriche in Italiano: Comunicazione E Lettura Intermedia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-hospitality-mastering-italys-most-common-greetings/"><u>The Language of Hospitality: Mastering Italy's Most Common Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese/"><u>プレゼンターズの日 (Japanese)</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->

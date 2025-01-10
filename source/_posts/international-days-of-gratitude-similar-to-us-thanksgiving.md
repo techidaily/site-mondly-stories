@@ -1,7 +1,7 @@
 ---
 title: International Days of Gratitude Similar to US Thanksgiving
-date: 2024-12-27T19:26:22.885Z
-updated: 2025-01-03T16:53:52.655Z
+date: 2025-01-03T20:04:40.254Z
+updated: 2025-01-10T17:56:29.474Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
  Let’s learn more about these celebrations and discover seven of the most surprising countries that celebrate Thanksgiving (besides the US).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Canada
 
  The Canadian version of Thanksgiving is very similar to its American relative. You’ve got the turkey (though some choose ham or chicken instead), the mashed potatoes, the legendary gravy, the corn, and the pumpkin pie. Then there’s the name which is also ‘Thanksgiving’ – except for Quebec; there you’d call it ‘Action de Grâce’. Moreover, both [Americans and Canadians](https://www.bustle.com/life/canadian-thanksgiving-vs-american-thanksgiving) like to watch football and spend time with family on Thanksgiving. Everything seems familiar. Except for the date, of course. Canadian Thanksgiving is celebrated on the second Monday in October, much earlier than the United States which celebrates it on the fourth Thursday in November.
@@ -38,21 +42,25 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
  Other sources trace the Canadian Thanksgiving to the French settlers who came to North America in the 17th century and held feasts to celebrate their successful harvests.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Germany, Austria, and Switzerland
 
  In Europe, the idea of Thanksgiving generally involves the celebration of the autumn harvests. Largely religious in nature, the celebration occurs around the time of the main harvest – early October in this situation. In German-speaking countries, the event is called Erntedankfest.
 
  Unlike the North American festivities, in rural Germany, Austria, and Switzerland, Erntedankfest is a more public celebration with musical performances, dancing, fireworks, and – you guessed it: food. In some places, churches are decored with autumn crops and during the day, people participate in religious processions or parades.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. The Netherlands
 
  Ok, this is not entirely true. Not all Dutch people celebrate Thanksgiving, just this city called Leiden.
 
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Grenada
 
@@ -62,29 +70,21 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
 ![thanksgiving turkey](https://edge.mondly.com/blog/wp-content/uploads/2021/11/canadian-thanksgiving-960x641.jpg "What Countries Celebrate Thanksgiving? 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Thanksgiving turkey” by Claudio Schwarz©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Japan
 
  勤労感謝の日 (’Kinrō Kansha no Hi’) has roots in 新嘗祭 (Niiname-sai), the ancient Shinto rice harvest ceremony and it’s celebrated annually on the 23rd of November. Known today as ‘Labor Thanksgiving Day’, the celebration has lost some of its original meaning and is regarded now as an occasion for commemorating labor and reflecting on issues that impact the community, such as the environment and human rights.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Liberia
 
  Formerly a colony of the American Colonization Society, Liberia declared [its independence](https://www.history.com/this-day-in-history/liberian-independence-proclaimed) in 1947 and became the first democratic republic in African history.
 
  However, the freed slaves from the United States who returned to the country around 1820, brought something back from the US: the Thanksgiving celebration. By the 1880s, it was declared a national holiday and nowadays, Liberia is probably the only other country in the world that celebrates the American Thanksgiving.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. the United Kingdom
 
@@ -93,7 +93,7 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
  During pre-Christian times in Britain, the Saxons would offer the first sheaf of cereals to fertility gods then come together and celebrate the harvest with a supper. Many traditions remained even though Christianity arrived in Britain so the present-day Harvest Festival is celebrated even by churches.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Brazil
@@ -137,24 +137,17 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-10-youtube-havens-for-entrepreneurs-and-business-gurus/"><u>[New] In 2024, 10 YouTube Havens for Entrepreneurs & Business Gurus</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-masters-choice-10-preeminent-online-tools-for-vimeo-files-for-2024/"><u>[Updated] Master's Choice 10 Preeminent Online Tools for Vimeo Files for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-mastering-photo-color-alteration-a-professionals-guide/"><u>[Updated] Mastering Photo Color Alteration A Professional's Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-setting-up-a-digital-stage-for-real-time-viewers-for-2024/"><u>[Updated] Setting Up a Digital Stage for Real-Time Viewers for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/heartbeats-in-verona-italian-charming-quips/"><u>Heartbeats in Verona: Italian Charming Quips</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-or-malfunctioning-your-hardware-drivers-with-windows-device-manager-on-windows-10-and-7-by-drivereasy-guide/"><u>How to identify missing or malfunctioning your hardware drivers with Windows Device Manager on Windows 10 & 7</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/infatuation-inkling-german-flirtations/"><u>Infatuation Inkling: German Flirtations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-mondly-to-your-huawei-device/"><u>Introducing Mondly to Your Huawei Device</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/luminalabs-exploring-affordable-video-editors/"><u>LuminaLabs Exploring Affordable Video Editors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-the-language-top-100-most-commonly-misspelled-english-words/"><u>Master the Language: Top 100 Most Commonly Misspelled English Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-languages-made-easy-googles-choice-mondly/"><u>Navigating Languages Made Easy: Google's Choice Mondly</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/nvidia-rtx-troubleshooting-guide/"><u>NVIDIA RTX Troubleshooting Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saber-a-melhora-na-qualquer-comuniccao-no-portugues/"><u>Saber a Melhora Na Qualquer Comunicção No Português</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sprint-your-way-through-urdu-ten-minutes-daily/"><u>Sprint Your Way Through Urdu: Ten Minutes Daily</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/subscription-made-simple-building-a-user-friendly-button-for-channels/"><u>Subscription Made Simple Building a User-Friendly Button for Channels</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tech-driven-learning-mondlys-commitment-to-apples-tools-for-students/"><u>Tech-Driven Learning: Mondly's Commitment to Apple's Tools for Students</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-complete-guide-to-android-time-lapse-creation-for-2024/"><u>The Complete Guide to Android Time-Lapse Creation for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1130171-9780982432341-the-witches-almanac-issue-32-spring-2013-to-spring-2014/"><u>The Witches' Almanac: Issue 32, Spring 2013 to Spring 2014 | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-hungarian-languages-lovestory-tactics/"><u>Unveiling Hungarian Language's Lovestory Tactics</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-ideal-slide-show-tools-for-iphone-series-10-13-upgrades/"><u>[New] Ideal Slide Show Tools For iPhone Series 10-13 Upgrades</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-master-class-in-laptop-screenrec-software-use/"><u>[Updated] Master Class in Laptop ScreenRec Software Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-techniques-for-acquiring-finnish-language-skills-virtually/"><u>Best Techniques for Acquiring Finnish Language Skills Virtually</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/capturefreeplay-cutting-edge-recording-for-gamers-for-2024/"><u>CaptureFreePlay Cutting-Edge Recording for Gamers for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-from-olympus-the-lingual-journey-of-greeks/"><u>Echoes From Olympus: The Lingual Journey of Greeks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embark-on-the-path-of-mondly-expertise-today/"><u>Embark on the Path of Mondly Expertise Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580908859-exclusive-free-access-to-mondly-premium/"><u>Exclusive Free Access to Mondly Premium!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-nubia-red-magic-8s-pro-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Nubia Red Magic 8S Pro for Parents | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/shopping-journey-to-visual-storytelling-hauling-edition-for-2024/"><u>Shopping Journey to Visual Storytelling Hauling Edition for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-vivo-x-fold-2-by-drfone-android/"><u>Three Ways to Sim Unlock Vivo X Fold 2</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575582823-unlock-slovak-speech-one-quick-session-at-a-time/"><u>Unlock Slovak Speech, One Quick Session at a Time</u></a></li>
 </ul></div>
 

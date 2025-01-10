@@ -1,7 +1,7 @@
 ---
 title: Discovering Russian Counting Patterns and Formulas
-date: 2024-09-01T00:20:28.009Z
-updated: 2024-09-02T00:20:28.009Z
+date: 2025-01-08T17:40:24.437Z
+updated: 2025-01-10T17:04:51.364Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/dd1b377f0a177d81939c2e9879a9449aa15d2816c
 
 ![russian numbers 1-10](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-1-10-600x424.jpg "Russian Numbers - Learn How To Count In Russian 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Russian numbers 1-10
 
 **Good to know:** when the numbers один (“one”) and два (“two”) are put before a noun, they can change their form according to the gender of the noun thus:
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/dd1b377f0a177d81939c2e9879a9449aa15d2816c
 * masculine: один _(odin)_ ; два _(dva)_
 * feminine: одна _(odna)_ ; две _(dve)_
 * neuter: одно _(odno)_ ; два _(dva)_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Learn how to count to 20 in Russian
 
@@ -51,17 +59,15 @@ If you did manage, good job! You must be a natural.
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Russian numbers: 21 and onwards
 
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
 
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
  Russian tens
 
 Here are some examples:
@@ -79,8 +85,9 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Russian hundreds
 
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
@@ -88,8 +95,9 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Russian ordinal numbers
 
  Now that you’ve learned the Russian cardinal numbers, let’s end this short lesson with some ordinal numbers. You never know when they may come in handy.
@@ -126,8 +134,6 @@ Not as hard as you’d expect, is it?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -135,8 +141,24 @@ Not as hard as you’d expect, is it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-trendsetting-tags-top-10-to-make-your-post-pop/"><u>[New] 2024 Approved Trendsetting Tags Top 10 To Make Your Post Pop</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-mastering-logo-design-10-keys-to-podcast-prominence/"><u>[New] In 2024, Mastering Logo Design 10 Keys to Podcast Prominence</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-pushing-boundaries-with-dells-revolutionary-p2715q-monitor-review/"><u>[Updated] Pushing Boundaries with Dell's Revolutionary P2715Q Monitor Review</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-understanding-video-storage-daylong-total-in-gbs/"><u>[Updated] Understanding Video Storage Daylong Total in GBs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-core-urdu-words-learn-the-most-common-words-in-urdu/"><u>100+ Core Urdu Words – Learn the Most Common Words in Urdu</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendizaje-de-control-de-tempo-introduccion-basica/"><u>Aprendizaje De Control De Tempo - Introducción Básica</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dazzling-duets-german-pickup-line-artistry/"><u>Dazzling Duets: German Pickup Line Artistry</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diving-into-the-multilingual-mind-of-belgium/"><u>Diving Into the Multilingual Mind of Belgium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dubai-2020-expo-transforming-language-education/"><u>Dubai 2020 Expo: Transforming Language Education</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/expert-strategies-to-rectify-your-windows-script-problems/"><u>Expert Strategies to Rectify Your Windows Script Problems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-native-the-language-learning-ladder/"><u>From Novice To Native: The Language Learning Ladder</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-thanksgiving-day-a-comparative-view/"><u>Global Thanksgiving Day: A Comparative View</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-innovative-vector-editors-as-acid-pro-successors/"><u>In 2024, Innovative Vector Editors as ACID Pro Successors</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-audiovisual-mastery-on-a-budget-the-ultimate-list-of-free-audio-mixers/"><u>New In 2024, Audiovisual Mastery on a Budget The Ultimate List of Free Audio Mixers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-realme-narzo-n53-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Realme Narzo N53 Phone Now with These Tips</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/webm-audio-extraction-from-twitta-vids/"><u>WebM Audio Extraction From Twitta Vids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wordplay-wins-the-seductive-language-of-spanish/"><u>Wordplay Wins: The Seductive Language of Spanish</u></a></li>
+</ul></div>
 

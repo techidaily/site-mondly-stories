@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Chinese Thank You Phrases
-date: 2024-12-28T23:59:05.585Z
-updated: 2025-01-03T18:33:22.661Z
+date: 2025-01-04T19:49:52.970Z
+updated: 2025-01-10T19:11:24.699Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/6b74a794374950c8c7d33f01e283b8595a0e02efb
 
  **So here are 12 of the most important ways to say thank you in Chinese.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Xièxiè – the most common Chinese thanks
 
  As already mentioned, **the most common way to say “thanks” or “thank you” in Chinese is_xièxiè_ (谢谢) or_xièxie._**  A rough [Chinese pronunciation](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) of that is_syeh-syeh,_ but while it sounds like the same words repeated twice, there is actually a very subtle difference between the two. Because the first syllable is a fourth tone and the second is a neutral, you should start the pronunciation high with the first syllable and then say the second one more lightly and without any emphasis.
@@ -39,13 +43,13 @@ thumbnail: https://thmb.techidaily.com/6b74a794374950c8c7d33f01e283b8595a0e02efb
 ![thanks in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/thanks-in-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Xiangxi, China” by Theodor Lundqvist©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Thank you very much in Chinese
@@ -66,7 +70,7 @@ Other variations include:
 * Thank you SO much! – 太谢谢你了! –_Tài xiè xiè nǐ le!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Thank you for… in Chinese
@@ -84,15 +88,7 @@ Other variations include:
 
 ![xiexie chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/xiexie-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Jiaxing, China” by Jay©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Other ways to express your gratitude in Chinese
 
@@ -112,6 +108,10 @@ Other variations include:
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Here’s how to speak Chinese in just 10 minutes a day
 
@@ -140,24 +140,19 @@ Other variations include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-master-discocast-your-discord-recorder-handbook-for-2024/"><u>[New] Master DiscoCast Your Discord Recorder Handbook for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-enhancing-iphoneandroid-video-clarity-on-facebook/"><u>[Updated] In 2024, Enhancing iPhone/Android Video Clarity on Facebook</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-navigating-the-decision-to-adopt-itop-recording/"><u>[Updated] Navigating the Decision to Adopt ITop Recording</u></a></li>
-<li><a href="https://win-dash.techidaily.com/expert-tips-addressing-and-correcting-the-260cis-usb-driver-malfunction/"><u>Expert Tips: Addressing and Correcting the 260Ci's USB Driver Malfunction</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/google-bypass-tools-to-bypass-lock-screengoogle-by-drfone-android-unlock-android-unlock/"><u>Google Bypass Tools to Bypass Lock Screen(Google)</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-properly-merging-webcam-feed-with-desktop-screen/"><u>In 2024, Properly Merging Webcam Feed with Desktop Screen</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-most-popular-stock-photo-meme-and-their-stories/"><u>In 2024, The Most Popular Stock Photo Meme and Their Stories</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/initial-foray-into-voice-guided-ar-realm/"><u>Initial Foray Into Voice-Guided AR Realm</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-m14-4gfrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy M14 4GFRP Lock</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-of-the-continent-africas-polyglot-essence/"><u>Language of the Continent: Africa’s Polyglot Essence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lifelong-learning-in-your-golden-years-the-advantages-of-embracing-multilingualism/"><u>Lifelong Learning in Your Golden Years: The Advantages of Embracing Multilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/milestone-celebration-mondlybuttonfilter-journey/"><u>Milestone Celebration: MondlyButtonFilter Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-excellence-celebrated-by-google-plays-annual-app-awards/"><u>Mondly Kids Excellence Celebrated by Google Play’s Annual App Awards</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/passionate-whispers-savoring-italian-pick-up-lines/"><u>Passionate Whispers: Savoring Italian Pick-Up Lines</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-language-of-love-in-france-100plus-key-expressions/"><u>The Language of Love in France: 100+ Key Expressions</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-7-nft-generating-marvels-for-modern-digital-artists-needs-for-2024/"><u>Top 7 NFT-Generating Marvels for Modern Digital Artists' Needs for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tracing-the-dialectal-roots-of-dutch/"><u>Tracing the Dialectal Roots of Dutch</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-communication-in-germany-phonetics-and-alphabet-basics/"><u>Unlocking Communication in Germany: Phonetics and Alphabet Basics</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722726194094-update-your-research-plan/"><u>Update Your Research Plan:</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-custom-whatsapp-ringtone-guide-on-ios-devices/"><u>[New] In 2024, Custom WhatsApp Ringtone Guide on iOS Devices</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-professional-level-communication-on-skype-for-2024/"><u>[Updated] Professional-Level Communication on Skype for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-undisclosed-secrets-to-growth-on-social-media/"><u>[Updated] The Undisclosed Secrets to Growth on Social Media</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-and-mondly-pioneering-the-future-of-education-with-top-10-recognition/"><u>Apple & Mondly: Pioneering the Future of Education with Top 10 Recognition</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-htc-u23-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boosting-bilingualism-3-mind-stimulating-language-drills/"><u>Boosting Bilingualism: 3 Mind-Stimulating Language Drills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conocer-la-pantalla-del-reloj-pasos-para-comenzar/"><u>Conocer La Pantalla Del Reloj - Pasos Para Comenzar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/danish-films-your-gateway-to-authentic-linguistic-fluency/"><u>Danish Films: Your Gateway to Authentic Linguistic Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-dialects-turkey-and-korea/"><u>Deciphering Dialects: Turkey and Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-secrets-of-speed-in-language-acquisition/"><u>Decoding the Secrets of Speed in Language Acquisition</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/die-2023-fuhrenden-kostenlosen-dvd-kopierprogramme-fur-windows-1011-expertenvergleich-und-ranking/"><u>Die 2023 Führenden Kostenlosen DVD-Kopierprogramme Für Windows 10/11 – Expertenvergleich Und Ranking</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722976799277-get-the-latest-lenovo-bluetooth-drivers-for-windows-710-fast-easy-installation-guaranteed/"><u>Get the Latest Lenovo Bluetooth Drivers for Windows 7/10: Fast, Easy Installation Guaranteed!</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-motorola-moto-g04-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Motorola Moto G04 is off? | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-ideal-video-capture-apps-for-educators/"><u>In 2024, Ideal Video Capture Apps for Educators</u></a></li>
 </ul></div>
 

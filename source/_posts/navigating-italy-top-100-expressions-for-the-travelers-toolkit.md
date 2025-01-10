@@ -1,7 +1,7 @@
 ---
 title: "Navigating Italy: Top 100 Expressions for the Traveler's Toolkit"
-date: 2024-09-01T00:20:55.198Z
-updated: 2024-09-02T00:20:55.198Z
+date: 2025-01-08T16:12:21.005Z
+updated: 2025-01-10T17:09:56.096Z
 tags:
   - speak
   - english
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/c57a1ad66fe1f344c99a6ee87388055bdc8550396
 5. [Italian for tourists that want to have fun](#italian-tourists)
 6. [Italian phrases about love](#italian-love)
 7. [Days of the week and numbers in Italian](#numbers-in-italian)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Italian greetings and courtesy phrases
 
@@ -88,9 +92,6 @@ thumbnail: https://thmb.techidaily.com/c57a1ad66fe1f344c99a6ee87388055bdc8550396
 
 ![italian phrases english](https://edge.mondly.com/blog/wp-content/uploads/2019/07/italian-phrases-english-1024x683.jpg "100+ Essential Italian Travel Phrases For Your Trip 3")
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
  “Gelato” by Anita Austvika©
 
 * I have a reservation. My name is \_\_\_\_\_. –_Ho una prenotazione. Mi chiamo \_\_\_\_\_._
@@ -108,8 +109,9 @@ thumbnail: https://thmb.techidaily.com/c57a1ad66fe1f344c99a6ee87388055bdc8550396
 * Can I have some ice cream? –_Posso prendere il gelato?_
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Basic Italian for tourists who need a place to spend the night
 
  Looking for the perfect accommodation can be a real headache sometimes. Well, imagine you did find it, but the hosts only speak Italian. How will you deal with that? Some**basic Italian** would surely be useful in this situation.
@@ -123,9 +125,6 @@ thumbnail: https://thmb.techidaily.com/c57a1ad66fe1f344c99a6ee87388055bdc8550396
 * Very pleasant, thank you. –_Molto piacevole, grazie._
 * Here is your bill, please look it over. –_Ecco il suo conto, per favore lo controlli._
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ## 5\. Italian for tourists who want to have fun
 
  Going out is probably one of the best ways to explore and get to know new cultures. The same places you visited during the day may reveal themselves differently during the night. Take_**Fontana di Trevi**_ for example. Nothing is as majestic as this world-famous Baroque fountain at night.
@@ -165,14 +164,15 @@ thumbnail: https://thmb.techidaily.com/c57a1ad66fe1f344c99a6ee87388055bdc8550396
 ![basic italian phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/basic-italian-phrases-1024x575.jpg "100+ Essential Italian Travel Phrases For Your Trip 5")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  “Vernazza, Italy” by Daniil Vnoutchkov
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. Days of the week and numbers in Italian
 
  Wherever you go in the world, the days of the week and the numbers always fall into the category of**absolutely essential expressions.** It’s only a matter of time until you’ll make use of them. So seize the opportunity and memorize them now.
@@ -219,8 +219,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Speak Italian fluently in just 10 minutes a day
 
  Do you want to see these Italian phrases in action in real-life conversations? Get Mondly, the award-winning language learning app that will [help you speak Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as if you were Tuscany-born.
@@ -237,8 +238,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -246,8 +245,21 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-youtube-livestreaming-screen-recorders/"><u>[Updated] In 2024, Best YouTube Livestreaming Screen Recorders</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-funimate-android-adventure-the-apk-breakdown/"><u>[Updated] In 2024, Funimate Android Adventure The APK Breakdown</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/budget-friendly-power-station-analysis-why-road-trips-just-got-easier-tech-insights/"><u>Budget-Friendly Power Station Analysis - Why Road Trips Just Got Easier | Tech Insights.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-the-most-lengthy-world-lexeme/"><u>Deciphering the Most Lengthy World Lexeme</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579577151-enter-new-era-of-language-learning-with-mondlyar/"><u>Enter New Era of Language Learning with MondlyAR!</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/listenradioandpc/"><u>ListenRadioへのアクセス&PC上での曲録りガイド</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-core-vocabulary-through-oxford-and-mondly-partnership/"><u>Master Core Vocabulary Through Oxford & Mondly Partnership</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/prosight-review-the-next-big-step-beyond-manycam/"><u>ProSight Review The Next Big Step Beyond ManyCam</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/quick-printer-connection-remedy/"><u>Quick Printer Connection Remedy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-bards-digital-footprint-timeless-terminology-today/"><u>The Bard's Digital Footprint: Timeless Terminology Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-and-korean-exploring-the-language-mystery/"><u>Turkish And Korean: Exploring The Language Mystery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-complexity-of-german-learning/"><u>Unveiling the Complexity of German Learning</u></a></li>
+</ul></div>
 

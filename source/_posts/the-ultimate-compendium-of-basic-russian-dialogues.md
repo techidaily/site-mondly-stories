@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Compendium of Basic Russian Dialogues
-date: 2025-01-01T16:17:09.827Z
-updated: 2025-01-04T00:03:15.515Z
+date: 2025-01-07T19:42:02.125Z
+updated: 2025-01-10T17:07:20.821Z
 tags:
   - speak
   - english
@@ -69,6 +69,10 @@ thumbnail: https://thmb.techidaily.com/a6af875fb6cb15aafd717b61af0a7acb112fadf86
 * Where are you from? –_Откуда ты? – Otkuda ty?_
 * Have a good day. –_Ну тогда до свидания. – Nu togda do svidaniya._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Useful Russian phrases for when you are at the airport
 
  Arriving at the airport – both at the beginning and at the end of your journey – will also require some basic Russian phrases. Whether we are talking about small talk with the person sitting next to you on the airplane, passport verification or asking for directions, these Russian phrases will definitely have your back in any situation.
@@ -106,6 +110,10 @@ thumbnail: https://thmb.techidaily.com/a6af875fb6cb15aafd717b61af0a7acb112fadf86
 * Where is the bus station, please? – _Скажите пожалуйста, где автобусная остановка? – Skazhyte pozhaluysta, gde avtobusnaya ostanovka?_
 
 ![learn russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/learn-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Photo by A.L.
 
@@ -163,10 +171,6 @@ thumbnail: https://thmb.techidaily.com/a6af875fb6cb15aafd717b61af0a7acb112fadf86
 
 ![useful-russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-words-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 7")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Photo by Henrique Félix
 
 * I would like a dessert. –_Я хотел бы десерт. Ya hotel by desert._
@@ -200,7 +204,7 @@ Just joking. Still is an amazing drink, though!
 * Are there seats available? –_Ещё остались свободные места? – Yeshcho ostalis svobodnyye mesta?_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Basic Russian phrases for shopping sprees
@@ -220,7 +224,7 @@ Just joking. Still is an amazing drink, though!
 * Can I have some ice cream? –_Можно мне мороженого? – Mozhno mne morozhenogo?_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Russia Travel Guide – how to say that you have fallen in love?
@@ -239,7 +243,7 @@ Just joking. Still is an amazing drink, though!
 ![common-russian-phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/07/common-russian-phrases-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 10")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Photo by Greg Rakozy
@@ -253,16 +257,12 @@ Just joking. Still is an amazing drink, though!
 * Would you like to have dinner with me? –_Поужинаем вместе? – Pouzhynayem vmeste?_
 * I love you. – Я люблю тебя. –_Ya lyublyu tebya._
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Bonus: Basic Russian phrases for football lovers
 
 ![russian-phrases-world-cup](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-phrases-world-cup-1024x576.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 11")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Photo by Fauzan Saari
@@ -303,24 +303,20 @@ Just joking. Still is an amazing drink, though!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-lightning-methods-ios-media-on-windows/"><u>[New] Lightning Methods IOS Media on Windows</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-accessing-your-curated-music-lists-on-youtube/"><u>[Updated] 2024 Approved Accessing Your Curated Music Lists on Youtube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-earning-blueprint-achieving-bank-balances/"><u>2024 Approved YouTube Earning Blueprint Achieving Bank Balances</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/build-your-dream-desktop-on-console-no-toolkit-needed/"><u>Build Your Dream Desktop on Console: No Toolkit Needed</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/exclusive-deal-top-rated-fractal-universe-north-pc-case-now-just-109/"><u>Exclusive Deal: Top-Rated Fractal Universe North Pc Case Now Just $109</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Oppo A78 | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-boosted-audio-visual-experience-choose-av1-on-youtube/"><u>In 2024, Boosted Audio-Visual Experience Choose AV1 on YouTube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-fbstream-reaper-download-features/"><u>In 2024, FbStream Reaper - Download Features</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/living-a-legacy-honteruss-impact/"><u>Living a Legacy: Honterus’s Impact</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-brings-forth-a-new-era-of-interactive-qanda/"><u>Mondly Brings Forth a New Era of Interactive Q&A</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-milestone-worldwide-education-network-expands-to-70-million/"><u>Mondly Milestone: Worldwide Education Network Expands to 70 Million</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-realme-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Realme has been deleted.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/say-cheerio-to-a-happy-birthday-italian/"><u>Say Cheerio to a Happy Birthday (Italian)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/say-hello-in-mandarin-a-practical-guide/"><u>Say Hello in Mandarin: A Practical Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/song-based-learning-for-language-proficiency-researched-techniques/"><u>Song-Based Learning for Language Proficiency - Researched Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spelling-slip-ups-in-everyday-english-essential-list-of-errors/"><u>Spelling Slip-Ups in Everyday English - Essential List of Errors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-linguists-travel-companion-top-croatian-phrases-for-expat-success/"><u>The Linguist's Travel Companion: Top Croatian Phrases for Expat Success</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/three-budget-friendly-solutions-incorporating-sound-into-your-iphone-videos/"><u>Three Budget-Friendly Solutions Incorporating Sound Into Your iPhone Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/universal-accessibility-in-learning-mondly-for-ukraine/"><u>Universal Accessibility in Learning - Mondly for Ukraine</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-launching-educator-channels-10-key-tips-for-youtube-success/"><u>[New] Launching Educator Channels 10 Key Tips for YouTube Success</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-discreet-audio-modulation-strategies-with-audacity/"><u>[Updated] Discreet Audio Modulation Strategies with Audacity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/babeldubai-2020-revolutionizing-global-communication/"><u>BabelDubai 2020: Revolutionizing Global Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-friday-deals-dive-into-language-learning-at-a-steal/"><u>Black Friday Deals: Dive Into Language Learning at a Steal!</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/charting-a-course-through-public-domain-landmarks/"><u>Charting a Course Through Public Domain Landmarks</u></a></li>
+<li><a href="https://windows11.techidaily.com/covertly-masking-taskbars-language-feature-in-win11/"><u>Covertly Masking Taskbar's Language Feature in Win11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-upsides-of-speaking-german-top-10/"><u>Discover the Upsides of Speaking German (Top 10)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-change-celebrating-ten-years-at-mondly/"><u>Embracing Change, Celebrating Ten Years at Mondly</u></a></li>
+<li><a href="https://some-tips.techidaily.com/enjoy-your-meta-quest-3r-access-and-enjoy-apples-immersive-3d-spatial-video-experience-a-step-by-step-guide/"><u>Enjoy Your Meta Quest 3R: Access and Enjoy Apple's Immersive 3D Spatial Video Experience - A Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/innovative-autodoc-strategies-for-microsoft-word-enthusiasts/"><u>Innovative AutoDoc Strategies for Microsoft Word Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581435720-invest-in-yourself-lifetime-access-for-just-pennies/"><u>Invest in Yourself: Lifetime Access for Just Pennies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580883532-learn-bengali-online-in-just-10-minutes-a-day/"><u>Learn Bengali Online In Just 10 Minutes A Day</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/pro-video-illumination-top-strategies-for-immaculate-cinematography/"><u>Pro Video Illumination Top Strategies for Immaculate Cinematography</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-xs-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone XS Data From iOS iTunes | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/why-im-choosing-the-new-iphone-16-pro-mini-over-the-iphone-16-pro-max-insights/"><u>Why I'm Choosing the New iPhone 16 Pro (Mini) Over the iPhone 16 Pro Max - Insights</u></a></li>
 </ul></div>
 

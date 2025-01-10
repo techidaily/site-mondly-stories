@@ -1,7 +1,7 @@
 ---
 title: Your First Steps With Spanish Numerals
-date: 2024-09-01T00:17:50.105Z
-updated: 2024-09-02T00:17:50.105Z
+date: 2025-01-09T20:01:36.444Z
+updated: 2025-01-10T18:27:44.822Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/a964a317c56bb2fa6b9be32620f4927922fc956f5
 
  Learning how to count is crucial if you decide to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Although we may not always acknowledge it, numbers or_números_ (as you’d call them in Spanish) are essential to our day-to-day lives. From shopping to setting up a meeting, telling time, or giving someone your phone number – they really are one of the most basic and important language lessons. So let’s crack the mystery and discover what comes after_uno_ ,_dos,_ and_tres_ . Because Pitbull only gets us so far.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish numbers 1 to 30
 
  One of my Danish friends discovered how important Spanish numbers actually are when he needed to tell someone [the time in Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and had no idea that “five” is_cinco_ in Spanish. So this is a great piece of advice: don’t move to Barcelona without knowing one of the most basic [Spanish lessons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) first. Especially when it takes just 10 minutes to master it.
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/a964a317c56bb2fa6b9be32620f4927922fc956f5
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -71,8 +79,9 @@ thumbnail: https://thmb.techidaily.com/a964a317c56bb2fa6b9be32620f4927922fc956f5
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -103,8 +112,9 @@ thumbnail: https://thmb.techidaily.com/a964a317c56bb2fa6b9be32620f4927922fc956f5
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Spanish numbers to 1000 and beyond
 
  Hundreds shouldn’t scare you either. They are just as simple. Once you know how the hundreds are, you’ll also know the numbers in between.
@@ -143,8 +153,9 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Barcelona, Spain
 
  If you want to go even further, thousands and millions work exactly like in English: number +_mil_ (“thousand”) or_millón_ (“million”). Here are some examples:
@@ -185,8 +196,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,8 +203,26 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-does-immediate-subscription-enhance-user-engagement-on-youtube/"><u>[Updated] 2024 Approved Does Immediate Subscription Enhance User Engagement on Youtube?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-elite-5-background-swap-apps-compatible-with-iphones-x-7-8/"><u>[Updated] Elite 5 Background Swap Apps Compatible with iPhones (X, 7, 8)</u></a></li>
+<li><a href="https://some-tips.techidaily.com/explore-the-ultimate-list-of-best-and-lasting-prime-day-tablet-deals-for-2n-year-aged-customers-insights-from-zdnet/"><u>Explore the Ultimate List of Best and Lasting Prime Day Tablet Deals for 2N-Year Aged Customers | Insights From ZDNET</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-language-popularity-top-15-ranking/"><u>Global Language Popularity: Top 15 Ranking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/greeting-the-weekdays-in-korean-with-ease/"><u>Greeting the Weekdays in Korean with Ease</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-network-locked-oppo-a1x-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Oppo A1x 5G Phone?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hungarian-dialectics-of-declaring-true-feelings/"><u>Hungarian Dialectics of Declaring True Feelings</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-disabling-youtube-ads-across-chrome-firefox-android-and-ios-browsers/"><u>In 2024, Disabling YouTube Ads Across Chrome, Firefox, Android & iOS Browsers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-oppo-reno-11-pro-5g-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Oppo Reno 11 Pro 5G?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-integrating-vsco-into-social-media-strategy/"><u>In 2024, Integrating VSCO Into Social Media Strategy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-revolutionary-faqs-for-mondlys-support/"><u>Introducing Revolutionary FAQs for Mondly's Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-a-language-with-music-scientifically-proven-methods-tips-and-songs/"><u>Learn A Language With Music: Scientifically Proven Methods, Tips & Songs</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/les-meilleurs-methodes-pour-proteger-votre-disque-dur-sans-redemarrage-de-windows/"><u>Les Meilleurs Méthodes Pour Protéger Votre Disque Dur Sans Redémarrage De Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pinnacle-of-proficiency-advanced-english-techniques-by-mondly/"><u>Pinnacle of Proficiency: Advanced English Techniques by Mondly</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/smart-strategies-by-yl-software-for-efficiently-managing-your-asset-portfolio/"><u>Smart Strategies by YL Software for Efficiently Managing Your Asset Portfolio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-french-etiquette-perfecting-a-warm-hello/"><u>The Essentials of French Etiquette: Perfecting a Warm Hello</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-20-francophone-reads-for-aspiring-bookworms/"><u>Top 20 Francophone Reads for Aspiring Bookworms</u></a></li>
+<li><a href="https://win11.techidaily.com/unlock-smooth-internet-access-in-your-windows-applications/"><u>Unlock Smooth Internet Access in Your Window's Applications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-french-sound-patterns-for-novice-learners/"><u>Unlocking French Sound Patterns: For Novice Learners</u></a></li>
+</ul></div>
 

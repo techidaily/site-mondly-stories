@@ -1,7 +1,7 @@
 ---
 title: Where Do People Feast on Thanksgiving?
-date: 2025-01-02T23:45:34.102Z
-updated: 2025-01-03T16:43:42.698Z
+date: 2025-01-04T20:10:42.554Z
+updated: 2025-01-10T20:10:04.800Z
 tags:
   - speak
   - english
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  Let’s learn more about these celebrations and discover seven of the most surprising countries that celebrate Thanksgiving (besides the US).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Canada
 
  The Canadian version of Thanksgiving is very similar to its American relative. You’ve got the turkey (though some choose ham or chicken instead), the mashed potatoes, the legendary gravy, the corn, and the pumpkin pie. Then there’s the name which is also ‘Thanksgiving’ – except for Quebec; there you’d call it ‘Action de Grâce’. Moreover, both [Americans and Canadians](https://www.bustle.com/life/canadian-thanksgiving-vs-american-thanksgiving) like to watch football and spend time with family on Thanksgiving. Everything seems familiar. Except for the date, of course. Canadian Thanksgiving is celebrated on the second Monday in October, much earlier than the United States which celebrates it on the fourth Thursday in November.
@@ -42,25 +38,21 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  Other sources trace the Canadian Thanksgiving to the French settlers who came to North America in the 17th century and held feasts to celebrate their successful harvests.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Germany, Austria, and Switzerland
 
  In Europe, the idea of Thanksgiving generally involves the celebration of the autumn harvests. Largely religious in nature, the celebration occurs around the time of the main harvest – early October in this situation. In German-speaking countries, the event is called Erntedankfest.
 
  Unlike the North American festivities, in rural Germany, Austria, and Switzerland, Erntedankfest is a more public celebration with musical performances, dancing, fireworks, and – you guessed it: food. In some places, churches are decored with autumn crops and during the day, people participate in religious processions or parades.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. The Netherlands
 
  Ok, this is not entirely true. Not all Dutch people celebrate Thanksgiving, just this city called Leiden.
 
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Grenada
 
@@ -70,11 +62,19 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
 ![thanksgiving turkey](https://edge.mondly.com/blog/wp-content/uploads/2021/11/canadian-thanksgiving-960x641.jpg "What Countries Celebrate Thanksgiving? 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Thanksgiving turkey” by Claudio Schwarz©
 
 ## 5\. Japan
 
  勤労感謝の日 (’Kinrō Kansha no Hi’) has roots in 新嘗祭 (Niiname-sai), the ancient Shinto rice harvest ceremony and it’s celebrated annually on the 23rd of November. Known today as ‘Labor Thanksgiving Day’, the celebration has lost some of its original meaning and is regarded now as an occasion for commemorating labor and reflecting on issues that impact the community, such as the environment and human rights.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Liberia
 
@@ -83,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  However, the freed slaves from the United States who returned to the country around 1820, brought something back from the US: the Thanksgiving celebration. By the 1880s, it was declared a national holiday and nowadays, Liberia is probably the only other country in the world that celebrates the American Thanksgiving.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. the United Kingdom
@@ -91,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  Yes, Thanksgiving is celebrated in the United Kingdom. Similar to the Erntedankfest celebration in German-speaking countries, Thanksgiving in the UK is actually a [Harvest Festival](https://en.wikipedia.org/wiki/Harvest%5Ffestival) held in late September or early October.
 
  During pre-Christian times in Britain, the Saxons would offer the first sheaf of cereals to fertility gods then come together and celebrate the harvest with a supper. Many traditions remained even though Christianity arrived in Britain so the present-day Harvest Festival is celebrated even by churches.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Brazil
 
@@ -102,10 +106,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Learn to give thanks in over 40 languages
 
@@ -137,18 +137,20 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-streamline-your-creative-process-with-instagrams-audio-features/"><u>[New] 2024 Approved Streamline Your Creative Process with Instagram's Audio Features</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-generate-brand-identity-accessible-logo-templates-and-editing/"><u>[New] In 2024, Generate Brand Identity Accessible Logo Templates & Editing</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-unmatched-camcorders-for-total-rotation-capture/"><u>[New] In 2024, Unmatched Camcorders for Total Rotation Capture</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-exploring-metaverse-frontiers-with-elite-vr-equipment/"><u>[Updated] Exploring Metaverse Frontiers with Elite VR Equipment</u></a></li>
-<li><a href="https://win-able.techidaily.com/eliminate-mozillas-freezing-problems-your-go-to-fixes-for-a-seamless-experience/"><u>Eliminate Mozilla's Freezing Problems: Your Go-To Fixes for a Seamless Experience</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixes-applied-for-pc-users-unable-to-play-resident-evil-5/"><u>Fixes Applied for PC Users Unable to Play Resident Evil 5</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-true-blue-speak-with-100plus-aussie-terms/"><u>Learn True Blue Speak with 100+ Aussie Terms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/porque-y-por-que-unveiling-the-variance/"><u>Porque Y Por Que: Unveiling the Variance</u></a></li>
-<li><a href="https://extra-support.techidaily.com/snapseed-simplified-the-photographers-first-toolkit-for-2024/"><u>Snapseed Simplified The Photographer's First Toolkit for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speech-refinement-through-targeted-twister-training/"><u>Speech Refinement Through Targeted Twister Training</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-globe-goes-digital-shakespearean-terms-today/"><u>The Globe Goes Digital: Shakespearean Terms Today</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-vivo-y78t-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Vivo Y78t FRP Bypass</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/undead-uprising-top-8-unleashed-in-video-game-realm/"><u>Undead Uprising - Top 8 Unleashed in Video Game Realm</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-realigning-captions-from-srt-to-subcap-for-2024/"><u>[Updated] Realigning Captions From SRT to SUBCAP for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-exemplary-audio-enhancing-programs-for-youtube-artists/"><u>2024 Approved Exemplary Audio-Enhancing Programs for YouTube Artists</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilian-vs-european-pt-back-and-filter-buttons-insight/"><u>Brazilian Vs. European PT: Back & Filter Buttons Insight</u></a></li>
+<li><a href="https://windows11.techidaily.com/digital-transformation-for-windows-old-to-new-drivers/"><u>Digital Transformation for Windows: Old to New Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effektiver-anfang-deutsche-zahlen-von-eins-bis-hundert-erklaren/"><u>Effektiver Anfang: Deutsche Zahlen Von Eins Bis Hundert Erklären</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortlessly-excel-with-mondlys-best-practices/"><u>Effortlessly Excel with Mondly's Best Practices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-aussie-vernacular-100plus-essential-terms/"><u>Embrace Aussie Vernacular: 100+ Essential Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-diversity-with-worldwide-birthday-words/"><u>Embracing Diversity with Worldwide Birthday Words</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/essential-tips-for-film-saving-and-trimming-in-adobe-connect-for-2024/"><u>Essential Tips for Film Saving and Trimming in Adobe Connect for 2024</u></a></li>
+<li><a href="https://win-info.techidaily.com/guide-facile-comment-mettre-en-place-la-sauvegarde-automatisee-dans-windows-7/"><u>Guide Facile: Comment Mettre en Place La Sauvegarde Automatisée Dans Windows 7</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-oppo-a78-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of Oppo A78 using Video Repair Utility on Windows? </u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-itel-a05s-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Itel A05s is off? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581829341-master-tagalog-in-under-an-hour-join-today/"><u>Master Tagalog in Under an Hour - Join Today</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209782127-9781614483830-we-dont-die/"><u>We Don't Die | Free Book</u></a></li>
+<li><a href="https://win-community.techidaily.com/1728508350718-windows-11ssdhdd/"><u>Windows 11を新しいSSD/HDDへ容易に移動する - 著作権問題なく簡単ガイド</u></a></li>
 </ul></div>
 

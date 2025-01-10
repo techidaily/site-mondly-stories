@@ -1,7 +1,7 @@
 ---
 title: Lerne Deutsche Wochenabschnitte Verinnerlichen
-date: 2024-09-01T00:18:32.746Z
-updated: 2024-09-02T00:18:32.746Z
+date: 2025-01-03T20:30:26.524Z
+updated: 2025-01-10T17:45:25.193Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/8f94bf7c2b99f85ff1fa63d2bea22e03cd2a105f9
  If someone asks_welchen Wochentag haben wir heute?_ (“which day of the week do we have today?”), what do you answer? The days of the week are probably one of the first things you learn not just in German but in any language. As a toddler, you probably started with “mom”, “dad”, “hello”, and “thank you”, then you probably advanced to counting, colors, and, naturally, the days of the week. So, if you are on your way to [learning German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , the days of the week in German are surely a good starting point.
 
  If you think about it, the_Tage_ (days) of the_Woche_ (week) is one of the most basic and important language lessons. Simply knowing these seven short words will help you set up meetings, and dates and create a weekly agenda that will decide your every social and professional move. After all, our entire life revolves around the concept of time and the many ways we keep track of it: seconds, minutes, hours, days, weeks, months, years, and so on. So let’s help you get started and see which are the weekdays in German.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The days of the week in German
 
@@ -42,6 +46,10 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
 
 ![days of the week in German](https://edge.mondly.com/blog/wp-content/uploads/2020/08/days-of-the-week-in-german-960x960.jpg "Learn The Days Of The Week In German 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The days of the week in German
 
 **“Thursday”** which is_**Donnerstag**_ in German literally means “thunder’s day”. The day was originally named after Thor, the super awesome Norse god Marvel made famous. In German-speaking cultures, Thor was known as Donar so this is where_Donnerstag_ comes from. Obviously, the English word “Thursday” comes from “Thor’s day”.
@@ -53,6 +61,10 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
 **_Sonntag_ (“Sunday”)** comes from the [German word](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) _Sonne_ (“sun”). So_Sonntag_ and “Sunday” are both literally “the day of the sun” or “sun-day”.
 
  As you can see, the German days of the week are very similar to English, so you shouldn’t have a hard time remembering them. But, if you do, you can always [get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5415&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de) , the award-winning language learning app that brings together crystal clear audios recorded by fluent voice actors, real conversations, and practical topics to make [German easy to learn](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5415&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to use the German days of the week correctly
 
@@ -85,8 +97,6 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -94,12 +104,24 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-essential-pathway-to-creating-attractive-video-covers-on-facebook/"><u>[New] 2024 Approved The Essential Pathway to Creating Attractive Video Covers on Facebook</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-audio-addition-for-snapchat-videos-for-2024/"><u>[New] Audio Addition for Snapchat Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-accelerate-video-processing-for-youtube-uploads/"><u>[Updated] 2024 Approved Accelerate Video Processing for YouTube Uploads</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-amplify-your-channel-effortless-tactics-for-more-views/"><u>[Updated] In 2024, Amplify Your Channel Effortless Tactics for More Views</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/boosting-mobile-photography-tips-for-enhancing-iphoneipad-camera-quality/"><u>Boosting Mobile Photography: Tips for Enhancing iPhone/iPad Camera Quality</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-top-secure-cost-free-androidios-apps-for-private-video-conferencing/"><u>In 2024, Top Secure, Cost-Free Android/iOS Apps for Private Video Conferencing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifelong-learners-never-too-late-to-expand-horizons/"><u>Lifelong Learners: Never Too Late to Expand Horizons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-redefines-language-acquisition-through-ar-technology/"><u>Mondly Redefines Language Acquisition Through AR Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-une-symphonie-en-langue/"><u>Semaine Française : Une Symphonie en Langue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-latvian-fluently-with-ten-minute-practice/"><u>Speak Latvian Fluently with Ten-Minute Practice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-conversing-like-a-pro-your-language-lesson-at-5-off/"><u>Start Conversing Like a Pro – Your Language Lesson at 5% Off!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-three-asian-communication-methods-filter-and-preserve/"><u>Top Three Asian Communication Methods: Filter & Preserve</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-and-russian-how-similar-are-these-two-slavic-languages/"><u>Ukrainian And Russian: How Similar Are These Two Slavic Languages?</u></a></li>
+<li><a href="https://win-able.techidaily.com/ultimate-solutions-for-preventing-terraria-crashes/"><u>Ultimate Solutions for Preventing Terraria Crashes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-power-of-polite-expressions-in-japan/"><u>Unlock the Power of Polite Expressions in Japan</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877437-9781685680459-vnutrennij-pokoj/"><u>Внутренний покой | Free Book</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->

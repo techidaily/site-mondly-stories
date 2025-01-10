@@ -1,7 +1,7 @@
 ---
 title: "Daily Doses of Urdu: Ten Minutes, Lifelong Gain"
-date: 2024-09-01T00:18:06.936Z
-updated: 2024-09-02T00:18:06.936Z
+date: 2025-01-06T18:28:25.508Z
+updated: 2025-01-10T17:03:51.948Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
  Consisting of super fun, effective and accessible Urdu lessons, the newly added course is now available on [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) ,[Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) and [web](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Learn Urdu online with Mondly
 
  Urdu is a member of the Indo-European family of languages, the official state language and_lingua franca_ of Pakistan and one of the 22 scheduled languages of India. According to [Ethnologue](https://www.ethnologue.com/language/urd) , Urdu is the 11th most widely spoken language in the world with 170 million total speakers. Hence, learning Urdu with Mondly could come in extremely handy if you ever visit South Asia.
@@ -28,11 +32,19 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
 ![urdu learning for beginners](https://edge.mondly.com/blog/wp-content/uploads/2020/03/urdu-learning-for-beginners-1-562x600.jpg "Learn Urdu Online In Just 10 Minutes A Day 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Learn Urdu with Mondly
 
  One of the most fascinating things about [Urdu](https://en.wikipedia.org/wiki/Urdu) is that its colloquial variant is largely mutually intelligible with colloquial Hindi (also available to learn with [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=hi&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=hi) ). In fact, these two are so similar in phonology and [grammar that they appear to be one language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . However, both languages have borrowed extensively from different sources and use different writing systems ([Hindi](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) uses Devanagari).
 
  Moreover, in the 19th century, the Hindi–Urdu [controversy](https://en.wikipedia.org/wiki/Hindi%E2%80%93Urdu%5Fcontroversy) arose in colonial India. The debate was whether Hindi or Urdu should be chosen as a national language. In 1900, the government issued a decree granting symbolic equal status to both Hindi and Urdu. But then, Gandhi proposed using either Devanagari or Urdu script, under the traditional generic term Hindustani. Therefore, in 1950, Hindi, in the Devanagari script, along with English, replaced Urdu as one of the official languages of India.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Learn Urdu from Hindi, Arabic, English, Korean and more
 
@@ -41,8 +53,9 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
  Starting right now, you can [learn Urdu](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) from Hindi, Arabic, English, Korean and 29 other languages only with Mondly.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10 basic Urdu words and phrases you can learn right now
 
  Are you excited to learn Urdu yet? Let’s not waste any more time and start with your first “Urdu for beginners” course right now. Here are the top 10 basic Urdu words and phrases everybody should know. Transliteration included so you’ll easily know how to pronounce them.
@@ -64,8 +77,9 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Speak Urdu today
 
  It can be really tricky to master Urdu pronunciation if you don’t actively live in Pakistan. But with Mondly, the award-winning language learning app, you can learn Urdu naturally with practical topics, authentic conversations and bite-sized Daily Lessons.
@@ -80,8 +94,6 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -89,8 +101,18 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-an-all-inclusive-examination-of-inshots-video-edits/"><u>[New] In 2024, An All-Inclusive Examination of InShot's Video Edits</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/elevating-drives-with-intelligent-conversations/"><u>Elevating Drives with Intelligent Conversations</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-making-the-most-of-your-instagram-footage/"><u>In 2024, Making the Most of Your Instagram Footage</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721466596276-is-your-cellphones-screen-acting-up-with-a-flicker-solve-the-issue-with-7-quick-fixes/"><u>Is Your Cellphone's Screen Acting Up with a Flicker? Solve the Issue With 7 Quick Fixes</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/stay-protected-why-updating-your-mac-with-macos-1441-is-now-safe-again-insights-from-zdnet/"><u>Stay Protected: Why Updating Your Mac with macOS 14.ˈ4.1 Is Now Safe Again - Insights From ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pearson-linguistic-journey-begins-here/"><u>The Pearson Linguistic Journey Begins Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-triumvirate-of-asian-dialects-rising-three/"><u>The Triumvirate of Asian Dialects: Rising Three</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/this-is-the-easiest-way-to-learn-latin-online/"><u>This Is The Easiest Way To Learn Latin Online</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-failed-package-registrations-in-windows-os/"><u>Troubleshooting Failed Package Registrations in Windows OS</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/visual-narrative-the-art-of-scriptwriting/"><u>Visual Narrative The Art of Scriptwriting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whats-changed-in-our-data-practices/"><u>What's Changed in Our Data Practices?</u></a></li>
+</ul></div>
 

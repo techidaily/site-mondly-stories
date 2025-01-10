@@ -1,7 +1,7 @@
 ---
 title: "Launchpad: Arabic for New Learners"
-date: 2024-12-31T21:01:25.188Z
-updated: 2025-01-03T23:04:15.445Z
+date: 2025-01-03T17:12:23.129Z
+updated: 2025-01-10T20:10:00.270Z
 tags:
   - speak
   - english
@@ -34,12 +34,16 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
 I’d really stick by these if I were you!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Decision time
 
  Ok, you can’t really learn all the Arabic, since there are many types of it (Palestinian, Iraqi, Egyptian, Levantine). To be more precise, there’s the mother tongue, which is the official language, but also different accents and a lot of pronunciations depending on the locale. So, choose the type of Arabic you want to learn in relation to the region/regions you are interested in. There’s also Modern Standard Arabic, one of the official languages of the UN.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Commence with just the basics
@@ -47,7 +51,7 @@ I’d really stick by these if I were you!
 ![arabic bead necklace](https://edge.mondly.com/blog/wp-content/uploads/2022/01/arabic-bead-necklace-960x640.jpg "Arabic For Beginners: A Step By Step Guide 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  ‘Arabic bead necklace’ by Carlos Eduardo de Meneses©
@@ -57,7 +61,7 @@ I’d really stick by these if I were you!
  So, when you encounter a written word there will be no way of knowing how to pronounce it unless you’ve heard it before. And this is where Mondly comes in handy! We provide you with real-life conversations, a speech recognition chatbot, and quality recordings. You’ll get used to Arabic words in no time. Ok, final note, you write from left to right, not the other way around.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Learn how to use an Arabic dictionary
@@ -65,10 +69,6 @@ I’d really stick by these if I were you!
  Ah, one of the most trusted friends of any language learner, the dictionary is here to save the day yet again. But, with Arabic things will be a little more complicated. So, in an Arabic dictionary, the words will be organized around roots made up of three letters. With me so far?
 
  In order to find a word, you need to already know its root and the letter that the root starts with, and this letter is not always the first letter in the word. So yeah, learning to use the dictionary will take some practice, but once you’ve mastered it will make things much simpler.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Start practicing and speaking
 
@@ -81,7 +81,7 @@ I’d really stick by these if I were you!
  When you do get a chance to speak Arabic live, don’t be nervous or shy. What if you don’t get the grammar right on the first try? Mistakes are there to help you learn.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Immerse yourself in the Arabic language
@@ -118,22 +118,18 @@ I’d really stick by these if I were you!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-2023s-fb-url-vault-securely-access-8-free-downloads-online/"><u>[Updated] 2024 Approved 2023'S FB URL Vault Securely Access 8 Free Downloads Online</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-defeating-darkness-in-youtube-videos-for-2024/"><u>[Updated] Defeating Darkness in Youtube Videos for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-which-is-superior-for-screen-recording-obs-studio-or-fraps/"><u>[Updated] Which Is Superior for Screen Recording – OBS Studio or Fraps?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-honor-x9b-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Honor X9b FRP</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/critical-review-of-lg-bp350-display-user-reviews-collate/"><u>Critical Review of LG BP350 Display - User Reviews Collate</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/master-iphone-timelapses-efficient-recording-tips-for-2024/"><u>Master iPhone Timelapses Efficient Recording Tips for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-seafarer-speak-pirate-vocabulary-guide/"><u>Mastering Seafarer Speak: Pirate Vocabulary Guide</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/melody-migration-transitioning-playlists-across-platforms/"><u>Melody Migration Transitioning Playlists Across Platforms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingualism-an-investment-for-the-fifties-and-beyond/"><u>Multilingualism: An Investment for the Fifties and Beyond</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/official-nvidia-quadro-rtx-8000-driver-update-free-download-for-windows-7810-machines/"><u>Official NVIDIA Quadro RTX #8000 Driver Update: Free Download for Windows 7/8/10 Machines</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pronouncing-spaniard-sounds-with-accents-correctly/"><u>Pronouncing Spaniard Sounds with Accents Correctly</u></a></li>
-<li><a href="https://fox-info.techidaily.com/save-the-day-linkinscapes-6-best-apps-for-video-downloading/"><u>Save the Day Linkinscape's 6 Best Apps for Video Downloading</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simplified-hangul-learning-your-guide-to-seamless-script-acquisition/"><u>Simplified Hangul Learning: Your Guide to Seamless Script Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-to-quick-czech-mastery-online/"><u>Step-by-Step Guide to Quick Czech Mastery Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-brit-slang-the-ultimate-guidebook/"><u>Unlocking Brit Slang: The Ultimate Guidebook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-santas-international-oratory-skills/"><u>Unveiling Santa's International Oratory Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-mondly-dominates-in-cutting-edge-learning-tech/"><u>Why Mondly Dominates in Cutting-Edge Learning Tech?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-ultimate-guide-to-professional-grade-mobile-screencasting-with-mobizen/"><u>[New] 2024 Approved Ultimate Guide to Professional-Grade Mobile Screencasting with Mobizen</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-360-camera-buying-guide-how-to-choose-a-suitable-360-camera/"><u>[Updated] 360 Camera Buying Guide How to Choose a Suitable 360 Camera</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-how-to-use-9gag-to-create-meme/"><u>[Updated] In 2024, How to Use 9GAG to Create Meme</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-key-strategies-in-livestreaming-major-sporting-contests/"><u>[Updated] Key Strategies in Livestreaming Major Sporting Contests</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580959940-17-spanish-sayings-that-will-make-you-sound-like-a-native/"><u>17 Spanish Sayings That Will Make You Sound Like A Native</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-a-symphony-for-screens-music-in-instagram-visuals/"><u>2024 Approved A Symphony for Screens Music in Instagram Visuals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/babelhub-dubai-the-new-frontier-for-language-enthusiasts/"><u>BabelHub Dubai: The New Frontier for Language Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/calendrier-francais-du-lunard/"><u>Calendrier Français Du Lunard</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-cultural-linguistics-mental-gains/"><u>Cross-Cultural Linguistics, Mental Gains</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On ZTE Blade A73 5G? | Dr.fone</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/mastering-gratitude-in-professional-communication-top-5-strategies-for-flawless-thank-you-email-creation-with-massmail/"><u>Mastering Gratitude in Professional Communication: Top 5 Strategies for Flawless Thank-You Email Creation with MassMail</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-nokia-g42-5g-by-fonelab-android-recover-music/"><u>The way to get back lost music from Nokia G42 5G</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/video-upload-made-easy-for-ios-devices-with-youtube-for-2024/"><u>Video Upload Made Easy for iOS Devices with YouTube for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Tech Talk: The 21St Century's Linguistic Playbook"
-date: 2024-12-31T23:29:25.378Z
-updated: 2025-01-03T17:08:43.546Z
+date: 2025-01-07T20:03:42.945Z
+updated: 2025-01-10T16:17:01.429Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
 ![pexels photo 46274](https://edge.mondly.com/blog/wp-content/uploads/2017/05/pexels-photo-46274.jpg "The Best Way To Learn A Foreign Language In The 21St Century 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learning a foreign language with the help of technology
@@ -60,13 +60,13 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
 
  Learning a new language seems easier than ever, so, regardless of your age and occupation, it’s worth it to take some time and devotion. Here are some ways to [learn a language on your own](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , at home, or with a group of friends:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Make time
 
  Easier said than done in modern times, but making time for your passions can bring a series of benefits that will change your overall mood and wellbeing. A few sessions of learning a week will help you improve your skills, especially if you choose speaking and pronunciation exercises. The best way to learn a language at home is to sit in front of your computer or phone for at least half an hour each day and practice.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Trust repetition
 
@@ -75,34 +75,42 @@ thumbnail: https://thmb.techidaily.com/70cafb81e97d380bf1f55403cf595cebfeb242757
 ![young people socializing](https://edge.mondly.com/blog/wp-content/uploads/2017/05/young-people-socializing-960x640.jpg "The Best Way To Learn A Foreign Language In The 21St Century 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Socializing is crucial.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Socialize
 
  One of the best ways to learn something new is to expose yourself through practice. When learning a new language, developing the speaking skills is crucial, so try to socialize with people who speak the language at a proficiency level.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Allow yourself to make mistakes
 
  When children learn, everybody encourages them to make mistakes and find the right path. As adults, we start feeling embarrassed, we become frustrated and give up. Allow yourself to make mistakes, ask to be corrected, and accept that learning takes time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Be consistent
 
  Rome wasn’t built in a day, and just like that, you won’t be able to become an expert in just a few days. When asking yourself what’s the best way to learn a language, remember that it takes time and consistency is key. Practice every day, memorize the most important rules and exceptions, and enjoy the ride.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Notice specific patterns
 
  When you learn on your own, you need to be aware of the way you do things, what you need to improve and how. Noticing patterns will help you remember grammar rules and also notice them when you do speaking and listening exercises.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. Have fun
 
@@ -122,19 +130,11 @@ You might be interested in [learning a new language](https://shop.mondly.com/aff
 
  Is reading the best way to learn a language? It sure is one of them! Practice is essential and one of the best ways to do this is to choose books you already read, but go for those translated in the language you’re trying to learn. Make sure you also have a dictionary handy, to be able to look for new words easily.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 10\. Watch movies without subtitles
 
  This must be the best way to learn for every cinephile out there. Watching movies without subtitles will help you get used to the conversations and pay attention to little details. Also, you can learn new vocabulary and help your brain recognize intonation and pronunciation patterns.
 
 [Start learning today](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-502&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-502%26utm%5Fsource%3Dblog-post-id-502&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-502%26utm%5Fsource%3Dblog-post-id-502&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-502%26utm%5Fsource%3Dblog-post-id-502&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-502%26mt%3D8)  and trust your efforts. Find the best program to learn a language and immerse yourself in this experience.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **So what’s next?**
 
@@ -166,20 +166,24 @@ You might be interested in [learning a new language](https://shop.mondly.com/aff
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-quick-reference-how-to-record-videos-on-vimeo/"><u>[New] Quick Reference How to Record Videos on Vimeo</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-becoming-an-expert-in-igtv-a-complete-overview/"><u>2024 Approved Becoming an Expert in IGTV A Complete Overview</u></a></li>
-<li><a href="https://fox-place.techidaily.com/disabling-screen-orientation-controls-for-desktops-in-windows-11-top-tips-and-tricks/"><u>Disabling Screen Orientation Controls for Desktops in Windows 11 - Top Tips & Tricks</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/enhancing-your-mac-workflow-easy-tutorial-for-setting-up-multiple-monitors/"><u>Enhancing Your Mac Workflow: Easy Tutorial for Setting Up Multiple Monitors</u></a></li>
-<li><a href="https://extra-information.techidaily.com/filmeditingsuite-assessment-detailed-insights/"><u>FilmEditingSuite Assessment – Detailed Insights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/google-plays-2017-educational-gems-mondly-kids-among-them/"><u>Google Play’s 2017 Educational Gems - Mondly Kids Among Them</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-nokia-c02-frp-by-drfone-android/"><u>How Can We Bypass Nokia C02 FRP?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6s-with-a-mask-on-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6s with a Mask On</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-keywords-the-pathway-to-understanding-russians/"><u>Mastering Keywords: The Pathway to Understanding Russians</u></a></li>
-<li><a href="https://games-able.techidaily.com/mastering-your-money-with-top-deals-on-1440p-gaming-screens/"><u>Mastering Your Money with Top Deals on 1440P Gaming Screens</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/open-new-doors-in-life-and-career-by-learning-hindi-reveal-top-8-reasons-to-choose-mondlys-platform/"><u>Open New Doors in Life and Career by Learning Hindi: Reveal Top 8 Reasons to Choose Mondly's Platform</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/revitalisez-vos-photographies-avec-winxvideo-ia-pour-une-qualite-superieure-4k8k10k/"><u>Revitalisez Vos Photographies Avec Winxvideo IA Pour Une Qualité Supérieure 4K/8K/10K !</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saying-hello-in-over-100-languages/"><u>Saying Hello in Over 100 Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-talk-advanced-speech-coaching-solutions/"><u>Transform Talk: Advanced Speech Coaching Solutions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/weekly-milestones-mondlys-global-triumph/"><u>Weekly Milestones: Mondly's Global Triumph</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-hexed-harmonics-can-you-really-change-your-tone-discover-other-ways-for-2024/"><u>[New] Hexed Harmonics Can You Really Change Your Tone? Discover Other Ways for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-quickly-adapt-to-changing-video-speeds-on-youtube/"><u>[New] Quickly Adapt to Changing Video Speeds on YouTube</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-current-lighting-infrastructure/"><u>[Updated] 2024 Approved Current Lighting Infrastructure</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-top-10-mobile-relaxation-renders-idle-games/"><u>[Updated] In 2024, Top 10 Mobile Relaxation Renders (Idle Games)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-converting-your-favourite-tracks-bridging-spotify-with-youtube-music/"><u>2024 Approved Converting Your Favourite Tracks Bridging Spotify with YouTube Music</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-your-swedish-speaking-skills-now/"><u>Accelerate Your Swedish Speaking Skills Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breakfast-banter-discovering-good-morning-in-10-linguistic-styles/"><u>Breakfast Banter: Discovering 'Good Morning' In 10 Linguistic Styles</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/capture-the-moment-no-cost-cross-platform-screen-recorders-for-pcmac-for-2024/"><u>Capture the Moment - No-Cost, Cross-Platform Screen Recorders for PC/Mac for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/converti-il-tuo-video-wmv-al-formato-swf-con-la-guida-e-le-risorse-online-di-movavi-gratuito/"><u>Converti Il Tuo Video WMV Al Formato SWF Con La Guida E Le Risorse Online Di Movavi - Gratuito</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722968323440-effortlessly-manage-your-windows-update-settings/"><u>Effortlessly Manage Your Windows Update Settings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/francais-du-lundi-au-dimanche/"><u>Français Du Lundi Au Dimanche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581520275-huawei-users-get-ready-for-mondly/"><u>Huawei Users, Get Ready for Mondly</u></a></li>
+<li><a href="https://program-issues.techidaily.com/improving-performance-and-increasing-fps-in-the-world-of-tainted-grail-conquest/"><u>Improving Performance & Increasing FPS in the World of Tainted Grail: Conquest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/las-nombres-de-animales-en-espanol-60-que-debes-aprender/"><u>Las Nombres De Animales en Español: 60 Que Debes Aprender</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/socialize-and-speak-in-espanol-via-mondlys-virtual-space/"><u>Socialize and Speak in Español via Mondly's Virtual Space</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-list-of-language-teachers-favorite-apps/"><u>The Ultimate List of Language Teachers' Favorite Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-potential-with-precision-in-business-communication-mastery/"><u>Unleash Potential with Precision in Business Communication Mastery</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/visuals-that-stand-out-top-10-ig-grid-making-innovations-for-2024/"><u>Visuals that Stand Out Top 10 IG Grid Making Innovations for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-polyglot-playground-master-languages-in-virtual-space/"><u>VR Polyglot Playground: Master Languages in Virtual Space</u></a></li>
 </ul></div>
 

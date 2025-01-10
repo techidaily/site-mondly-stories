@@ -1,7 +1,7 @@
 ---
 title: Norge's Lexicon Leapfrogging, 10 Minutes A Day
-date: 2024-09-01T00:19:37.290Z
-updated: 2024-09-02T00:19:37.290Z
+date: 2025-01-08T16:03:37.109Z
+updated: 2025-01-10T17:26:06.093Z
 tags:
   - speak
   - english
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
 
  Having a little over 5 million speakers worldwide makes Norwegian a language for which courses are generally scarce. Most solutions focus only on high-demand languages, leaving hidden gems such as the Scandinavian languages out. So, if you are wondering how to learn Norwegian, you’ve come to the right place.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Norwegian language in a nutshell
 
  Norwegian (known as_Norsk_ to Norwegians) is a North Germanic language and the official language of Norway (along with Sámi). More or less mutually intelligible with Swedish and Danish,**Norwegian is a descendant of Old Norse,** the common language of the people living in the Scandinavian Peninsula during the Viking Age.
@@ -27,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
  At that point in time, the Scandinavian languages were not really considered to be separate languages although today they are identified as Old Icelandic, Old Norwegian, Old Gutnish, Old Danish, and Old Swedish. They were **written using the Runic alphabets until the end of the Viking era in 1050** and started to diverge more as Christianity and the Latin alphabet arrived.
 
  Then,**written Old Norwegian gradually died out in the 15th century** after the union of Norway with Denmark that lasted from 1380 to 1814\. During this time, the**spoken dialects of Norwegian persisted** and after Norway gained its independence, the question of a new written language arose.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Norwegian vs Swedish – how similar are they?
 
@@ -41,8 +49,9 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
  All things considered, if you already speak Norwegian and want to learn Swedish (or vice-versa), you’ll certainly learn faster. Lucky for you,[Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6505&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6505?mother%5Flang=en%5Fus?target%5Flang=nb&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6505?mother%5Flang=en%5Fus?target%5Flang=nb) doesn’t limit you to English. Instead, it offers the possibility to learn from either Swedish or Norwegian.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bokmål vs Nynorsk – which one should you learn?
 
  It’s very important to know that today, written Norwegian has two official forms:**Bokmål** (literally ‘book tongue’) and**Nynorsk** (‘new Norwegian’), each with its own variants.
@@ -52,8 +61,9 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
  Today, all Norwegians are educated in both Bokmål and Nynorsk. However, only about 20 percent of them use Nynorsk or New Norwegian as their primary written language. Thus,**if you want to learn Norwegian, you should go with Bokmål.**
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Norwegian easy to learn?
 
  Due to being a Germanic language, **Norwegian is one of the [easiest languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to learn by native English speakers.**
@@ -65,13 +75,9 @@ Here’s a glimpse of how basic Norwegian sounds:
 Did you recognize the sound of any of the words?
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to learn Norwegian fast with Mondly
 
  Now, let’s discuss the real reason why you’re here:**how to learn Norwegian fast.**
@@ -101,8 +107,6 @@ Did you recognize the sound of any of the words?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -110,8 +114,21 @@ Did you recognize the sound of any of the words?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-finalcut-pro-tutorials-for-top-tier-youtube-video-editing/"><u>[New] In 2024, FinalCut Pro Tutorials for Top-Tier YouTube Video Editing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprender-relojes-en-espanol-guia-completa-para-principiantes/"><u>Comprender Relojes En Español: Guía Completa Para Principiantes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-squid-game-script-master-korean/"><u>Decoding Squid Game Script - Master Korean</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/futures-echo-top-30-metaverse-sentiments-arvr/"><u>Future's Echo Top 30 Metaverse Sentiments [AR/VR]</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-kitchens-to-cameras-7-essentials-for-flavorful-filmmaking/"><u>In 2024, From Kitchens to Cameras 7 Essentials for Flavorful Filmmaking</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/instant-upload-solutions-top-5-free-online-converter-services-for-2024/"><u>Instant Upload Solutions Top 5 Free Online Converter Services for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/o-discovery-perfecting-your-youtube-tags-game-for-2024/"><u>Key to Discovery Perfecting Your YouTube Tags Game for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Infinix Zero 5G 2023 Turbo? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/seamless-merge-apple-music-and-videos-together/"><u>Seamless Merge Apple Music & Videos Together</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-bokmal-study-sessions-10-min-dashes/"><u>Speedy Bokmål Study Sessions, 10-Min Dashes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-importance-of-learning-german-or-french-for-international-affairs/"><u>The Importance of Learning: German or French for International Affairs?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vintage-wisdom-the-most-influential-50-latin-aphorisms/"><u>Vintage Wisdom: The Most Influential 50 Latin Aphorisms</u></a></li>
+<li><a href="https://win-community.techidaily.com/windows-mastery-advanced-techniques-for-seamless-copy-pasting-and-retrieving-lost-files/"><u>Windows Mastery: Advanced Techniques for Seamless Copy-Pasting & Retrieving Lost Files</u></a></li>
+</ul></div>
 

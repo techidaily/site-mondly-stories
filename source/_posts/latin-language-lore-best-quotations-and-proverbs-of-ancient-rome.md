@@ -1,7 +1,7 @@
 ---
 title: "Latin Language Lore: Best Quotations & Proverbs of Ancient Rome"
-date: 2024-12-30T17:39:14.785Z
-updated: 2025-01-03T21:02:45.347Z
+date: 2025-01-06T17:18:53.165Z
+updated: 2025-01-10T18:21:29.658Z
 tags:
   - speak
   - english
@@ -18,17 +18,25 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 
  Far from being a dead language, Latin is very much alive in our day-to-day conversations._Carpe diem, et cetera, cum laude, curriculum vitae_ and_mea culpa_ are just a few of the Latin phrases still widely used today. It’s unclear whether Latin made a comeback or it has been this cool for hundreds of years. But one thing is sure: **Latin phrases are nowadays the cooler siblings of slang words.** And Julius Caesar approves this message. So, let’s see the most famous Latin phrases you can use to impress your friends.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Famous Latin Phrases you need to know
 
 These are nearly as famous as Julius Caesar himself.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Veni, vidi, vici. —** _I came, I saw, I conquered._
 
  Famously attributed to Julius Caesar in a message he supposedly sent to the Roman Senate to describe his swift, conclusive victory against King Pharnaces II of Pontus near Zela in 47 BC.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Alea iacta est. —** _The die has been cast._
 
@@ -48,10 +56,6 @@ These are nearly as famous as Julius Caesar himself.
 
  Be careful if you_carpe vinum_ on that Friday night out we talked about. This Latin saying suggests that you’ll probably spill all your secrets if you drink too much alcohol.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Et tu, Brute? —** _“And you, Brutus?”_
 
  Or “You too, Brutus?”. This Latin quote appears in William [Shakespeare](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ‘s play “Julius Caesar” at the very moment of Caesar’s assassination. Upon recognizing his friend, Marcus Junius Brutus, as one of the assassins, Julius Caesar utters these last words.
@@ -62,20 +66,20 @@ These are nearly as famous as Julius Caesar himself.
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Carthago delenda est. —** _Carthage must be destroyed._
 
  Prior to the Third Punic War between Rome and Carthage, Cato the Censor, a Roman politician, used to conclude all his speeches to the Senate with this phrase. While he did this in an attempt to push for the war, nowadays the expression can be used figuratively as a way to express your absolute support for an idea.
 
 ![latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-phrases.jpg "50 Popular Latin Phrases To Impress Your Friends 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Using some Latin phrases here and there will automatically make you look smarter.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Common Latin Words & Sayings
@@ -272,10 +276,6 @@ Different phrase, same story. You’re welcome.
 
  “Roman statue” by engin akyurt©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Latin Words and Phrases for Love
 
  To conclude our exploration of the Latin phrases in a positive tone, let’s see what the Romans had to say about love. It’s true they talked more about wars, but you don’t need that kind of negativity in your life, do you? Why [learn Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) about war, when love wins no matter what?
@@ -300,6 +300,10 @@ Different phrase, same story. You’re welcome.
 
 From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why should you learn these cool Latin phrases?
 
  In all seriousness, Latin phrases, words and sayings are a fun way to boost your vocabulary and learn more about the origin of the words we use every day. While Latin is the common ancestor of the Romance languages, it has also influenced the Germanic languages (of which English is a part). So it might prove most illuminating to take inspiration from the master orators and use Latin words and phrases in your day-to-day conversations.
@@ -308,13 +312,13 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
  Furthermore, the Latin language is rich in life lessons, mottos and words to live by. By learning these sayings, you’ll not only improve your vocabulary but also your life experience.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Why are Latin words used in law?
 
  Latin words are used in law because of the historical influence Roman law has on the legal system of many countries. As the lingua franca of the Roman Empire, Latin not only shaped the empire's legal constructs but also left a lasting imprint on the evolution of legal systems, especially within Europe. As Roman law became the foundation for many modern legal codes, Latin legal words were passed on throughout history until the present day. This incorporation of Latin words in law ensures a degree of precision and continuity, bridging legal concepts across different eras and jurisdictions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Why are Latin words powerful?
 
@@ -326,10 +330,6 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Speak Latin like Julius Caesar
 
@@ -356,24 +356,22 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-cutting-edge-stabilizing-gadgets-for-youtube-videography/"><u>[New] 2024 Approved Cutting Edge Stabilizing Gadgets for YouTube Videography</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-a-streamlined-approach-to-using-azures-transcription-technology/"><u>[Updated] 2024 Approved A Streamlined Approach to Using Azure's Transcription Technology</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-srt-from-basics-to-cutting-edge-techniques/"><u>[Updated] SRT From Basics to Cutting-Edge Techniques</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-chromium-device-live-screen-recorder/"><u>2024 Approved Chromium Device Live Screen Recorder</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-leading-5-digital-recording-devices/"><u>2024 Approved Leading 5 Digital Recording Devices</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-video-vibes-for-top-tier-unpacked-videos/"><u>2024 Approved Mastering Video Vibes for Top-Tier Unpacked Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-advocacy-with-precision-in-professional-vernacular/"><u>Accelerate Advocacy with Precision in Professional Vernacular</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/anchoring-your-tongue-in-piracy-vocabulary/"><u>Anchoring Your Tongue in Piracy Vocabulary</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-foreign-flicks-to-learn-a-new-tongue/"><u>Best Foreign Flicks To Learn A New Tongue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brussels-dialects-and-beyond-a-linguistic-journey/"><u>Brussels Dialects and Beyond: A Linguistic Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578479086-celebrate-new-beginnings-by-saving-big-with-mondly-pros-free-access/"><u>Celebrate New Beginnings by Saving Big with Mondly Pro's Free Access!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577089071-clicking-through-revised-policies-now/"><u>Clicking Through: Revised Policies Now</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-language-hurdles-oxford-and-mondlys-blend/"><u>Conquer Language Hurdles - Oxford & Mondly's Blend</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoes-of-avon-words-from-a-bygone-era-remain/"><u>Echoes of Avon: Words From a Bygone Era Remain</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effektive-deutsche-entschuldigungen/"><u>Effektive Deutsche Entschuldigungen</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-nokia-c22-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Nokia C22</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Oppo A78 | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-dual-channel-recordings-with-snipping-tool-windows-11-edition-max-156/"><u>Mastering Dual-Channel Recordings with Snipping Tool (Windows 11 Edition) (Max 156)</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-secrets-of-youtube-shorts-success-for-2024/"><u>Unveiling the Secrets of YouTube Shorts Success for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-adjust-default-snapshot-savings-in-mac/"><u>[New] 2024 Approved Adjust Default Snapshot Savings in Mac</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/1715860631878-new-best-linux-screen-capture-software-ranked/"><u>[New] Best Linux Screen Capture Software Ranked!</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-explore-unlimited-access-to-fcp/"><u>2024 Approved Explore Unlimited Access to FCP</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-the-basics-6-innovative-strategies-to-embrace-a-foreign-tongue/"><u>Beyond the Basics: 6 Innovative Strategies to Embrace a Foreign Tongue</u></a></li>
+<li><a href="https://fox-http.techidaily.com/enhancing-video-top-10-text-techniques/"><u>Enhancing Video Top 10 Text Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-halloween-celebrations-from-dia-de-muertos-to-romanias-st-andrews-day/"><u>Global Halloween Celebrations: From Día De Muertos to Romania’s St. Andrew’s Day</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/guide-on-how-to-free-up-iphone-14-pro-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Free Up iPhone 14 Pro Space | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-comprehensive-overview-the-top-12-free-user-friendly-video-players-and-apps-pcandroid/"><u>In 2024, Comprehensive Overview The Top 12 Free, User-Friendly Video Players & Apps (PC/Android)</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-starting-off-with-vlogging-necessary-equipmentsoftware/"><u>In 2024, Starting Off with Vlogging Necessary Equipment/Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-anywhere-anytime-with-mondlys-advanced-phrases-guide/"><u>Learn Anywhere, Anytime with Mondly's Advanced Phrases Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-latvian-super-fast-a-daily-dedication/"><u>Learn Latvian Super Fast: A Daily Dedication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-passion-across-continents/"><u>Linguistic Passion Across Continents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/manejo-diario-semana-en-espanol/"><u>Manejo Diario: Semana en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-spanish-while-chatting-in-virtual-reality-social-spaces/"><u>Master Spanish While Chatting in Virtual Reality Social Spaces</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/navigating-chatgpt-with-apple-devices/"><u>Navigating ChatGPT with Apple Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-chameleons-adapting-to-current-slang-trends/"><u>The Language Chameleons: Adapting to Current Slang Trends</u></a></li>
+<li><a href="https://win-tips.techidaily.com/1728504857719-2/"><u>フォルダ配列を守りながら、2つの方法で安全保護されたファイルの復元術</u></a></li>
 </ul></div>
 

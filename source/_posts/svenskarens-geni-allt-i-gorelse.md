@@ -1,7 +1,7 @@
 ---
 title: "Svenskarens Geni: Allt I Görelse"
-date: 2025-01-02T18:32:02.430Z
-updated: 2025-01-04T00:14:03.048Z
+date: 2025-01-07T20:26:22.183Z
+updated: 2025-01-10T19:08:22.036Z
 tags:
   - speak
   - english
@@ -26,16 +26,12 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
 
  If you’re visiting and want to get a coffee, the simplest way to sound and look like a local is to throw in a smile and a **“Hej!”** (pronounced just like _Hey!_). This one is the perfect greeting, regardless of the time of day or to whom you address it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say “Hello!” in Swedish
 
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to answer the phone in Swedish
@@ -43,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Good Morning!” in Swedish
@@ -54,12 +50,16 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say “Goodnight!” in Swedish
 
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “What’s up?” in Swedish
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
@@ -98,22 +98,24 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-a-thorough-guide-to-thriving-in-stardews-hidden-landmark-ginger-isle-for-2024/"><u>[New] A Thorough Guide to Thriving in Stardew's Hidden Landmark Ginger Isle for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-mac-snapshot-strategies-revealed-the-top-5-innovative-approaches/"><u>[New] Mac Snapshot Strategies Revealed The Top 5 Innovative Approaches</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-transform-dull-game-captures-into-bright-shows-with-obs-tricks/"><u>[New] Transform Dull Game Captures Into Bright Shows with OBS Tricks</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-impactful-youtube-channel-logo-tips-for-2024/"><u>[Updated] Crafting Impactful YouTube Channel Logo Tips for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-game-changing-ps4-screen-recordings-using-obs/"><u>[Updated] Game-Changing PS4 Screen Recordings Using OBS</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-reclaiming-one-headphone-harmony/"><u>2024 Approved Reclaiming One-Headphone Harmony</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/analyzing-the-strengths-and-weaknesses-of-pidgin-chat-software/"><u>Analyzing the Strengths & Weaknesses of Pidgin Chat Software</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-linguistics-a-starting-point-on-sound-structures/"><u>German Linguistics: A Starting Point on Sound Structures</u></a></li>
-<li><a href="https://android-frp.techidaily.com/latest-guide-how-to-bypass-oppo-a1-5g-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Oppo A1 5G FRP Without Computer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-spanish-numbers-for-beginners/"><u>Learning Spanish Numbers for Beginners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/living-linguistically-essential-steps-for-seamless-language-integration/"><u>Living Linguistically: Essential Steps for Seamless Language Integration</u></a></li>
-<li><a href="https://solve-help.techidaily.com/m4a-versus-m4b-comparing-audio-formats-for-seamless-conversion-strategies/"><u>M4A Versus M4B: Comparing Audio Formats for Seamless Conversion Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-language-tests-elite-certification-and-study-blueprint/"><u>Navigating Language Tests: Elite Certification & Study Blueprint</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revised-guidelines-on-user-consent/"><u>Revised Guidelines on User Consent</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-up-mondly-provides-free-learning-opportunities/"><u>Speak Up! Mondly Provides Free Learning Opportunities</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/surprise-tuscanians-master-20-slang-words-and-phrases/"><u>Surprise Tuscanians: Master 20 Slang Words & Phrases</u></a></li>
-<li><a href="https://win11.techidaily.com/windows-11-dvd-8/"><u>Windows 11対応 DVD コピープロテクトを解除するための無料ツール、ベスト8推薦</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-orchestrating-overtures-for-optimal-movie-teasers/"><u>[New] Orchestrating Overtures for Optimal Movie Teasers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-films-best-shot-techniques-top-5-essentials/"><u>[Updated] In 2024, Film's Best Shot Techniques Top 5 Essentials</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-celebrating-creators-top-notch-otu-designs/"><u>2024 Approved Celebrating Creators Top-Notch OTU Designs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exploring-the-elite-5-digital-title-specialists/"><u>2024 Approved Exploring the Elite 5 Digital Title Specialists</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussie-expressions-made-easy-100plus-phrases/"><u>Aussie Expressions Made Easy: 100+ Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-top-17-spanish-colloquialisms/"><u>Bridging Cultures: Top 17 Spanish Colloquialisms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-koreas-linguistic-treasure-trove-squid-game/"><u>Decoding Korea's Linguistic Treasure Trove - Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/examining-por-que-vs-por-que-in-context/"><u>Examining Por Que vs Por Qué in Context</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-friendship-across-borders/"><u>Expressing Friendship Across Borders</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-vivo-y78plus-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Vivo Y78+ to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-xiaomi-redmi-13c-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Xiaomi Redmi 13C without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-success-with-pearson-education/"><u>Multilingual Success with Pearson Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/practica-diario-como-decir-colores/"><u>Práctica Diario: Cómo Decir Colores</u></a></li>
+<li><a href="https://win-help.techidaily.com/resolving-the-unmountable-boot-volume-error-0xc0000185-in-windows-10-a-comprehensive-guide/"><u>Resolving the Unmountable Boot Volume (Error 0xC0000185) in Windows 10 - A Comprehensive Guide</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/stop-your-printer-from-jamming-in-windows-11/"><u>Stop Your Printer From Jamming in Windows 11</u></a></li>
+<li><a href="https://windows11.techidaily.com/tips-to-disable-game-proposals-on-w11-home-system/"><u>Tips to Disable Game Proposals on W11 Home System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncovering-the-basics-of-german-phonetics/"><u>Uncovering the Basics of German Phonetics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-mysteries-of-chinese-letters/"><u>Unveiling the Mysteries of Chinese Letters</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/upgrading-with-apples-latest-technology-iphone-16-pro-vs-iphone-14-pro-comparison/"><u>Upgrading with Apple's Latest Technology: IPhone 16 Pro vs iPhone 14 Pro Comparison</u></a></li>
 </ul></div>
 

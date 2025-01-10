@@ -1,7 +1,7 @@
 ---
 title: The Cultural Wealth of Farsi & Its Rewards
-date: 2024-12-31T16:10:19.352Z
-updated: 2025-01-03T18:04:35.049Z
+date: 2025-01-08T19:01:31.178Z
+updated: 2025-01-10T16:38:06.032Z
 tags:
   - speak
   - english
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  In other words, the confusion arises from the fact that there’s currently no country on Earth named Persia in the same way there’s no language we can call the ‘Iranian language’. Persian does belong to the Iranian languages, but the Iranian languages are a branch of the Indo-Iranian languages in the Indo-European language family. So they are not an individual language.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Persian language – history and facts
@@ -40,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The Arab rule
 
  It seems that during the Muslim conquest of Persia, the Persian language was in danger of being lost and replaced by Arabic. Luckily, Persia was one of the few places where the Arabic language did not replace the local language. However, Arabic was used by the elite and it definitely had a big impact on the vocabulary of the**Modern Persian** that was emerging.
@@ -52,12 +48,16 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
 !["Ferdowsi Shahnameh" by McGill Library©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/mcgill-library-AH42Li7NKUc-unsplash-960x629.jpg "Persian Language: History &Amp; Benefits Of Learning Farsi/Persian 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
 
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Persian influence on other languages
@@ -89,7 +89,7 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The benefits of learning Farsi/Persian
@@ -113,7 +113,7 @@ Other benefits of learning Persian include:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Learn Persian online with Mondly
@@ -147,18 +147,17 @@ Other benefits of learning Persian include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-navigating-industry-titans-a-creators-guide-to-mnc-deals/"><u>[New] Navigating Industry Titans A Creator's Guide to MNC Deals</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-newest-corsair-k55-driver-version-for-optimal-performance/"><u>Get the Newest Corsair K55 Driver Version for Optimal Performance</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/getting-the-most-recent-epson-printer-drivers-up-and-running-in-windows-10-a-comprehensive-guide/"><u>Getting the Most Recent Epson Printer Drivers Up and Running in Windows 10 - A Comprehensive Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-in-your-fifies-a-wise-multilingual-choice/"><u>Learning in Your Fifies: A Wise Multilingual Choice</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-borrowing-a-world-view-in-eng/"><u>Linguistic Borrowing: A World View in Eng</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/open-the-door-to-german-communication-alphabets-and-sounds-unveiled/"><u>Open the Door to German Communication: Alphabets & Sounds Unveiled</u></a></li>
-<li><a href="https://win-webster.techidaily.com/optimizing-your-pcdj-setup-a-deep-dive-into-unified-naming-systems-for-singers-and-djs/"><u>Optimizing Your PCDJ Setup: A Deep Dive Into Unified Naming Systems for Singers & DJs</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/simplify-your-video-editing-convert-dat-files-into-avi-quickly/"><u>Simplify Your Video Editing: Convert DAT Files Into AVI Quickly</u></a></li>
-<li><a href="https://media-tips.techidaily.com/step-by-step-tutorial-on-swf-file-conversion-to-avi-video-type/"><u>Step-by-Step Tutorial on SWF File Conversion to AVI Video Type</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-colors-in-french-quick-pronunciation-guide/"><u>The Colors In French – Quick Pronunciation Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-simplicity-of-second-language-acquisition-for-kids/"><u>The Simplicity of Second Language Acquisition for Kids</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-premier-vocal-augmented-application/"><u>Unveiling the Premier Vocal-Augmented Application</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/whats-captivating-twitter-users-the-most/"><u>What's Captivating Twitter Users the Most?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-essential-tips-direct-camera-roll-upload-to-snapchat-for-2024/"><u>[New] Essential Tips Direct Camera Roll Upload to Snapchat for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-easy-and-affordable-video-editing-software-mac-and-tiktok-for-2024/"><u>[Updated] Easy and Affordable Video Editing Software (Mac & TikTok) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-filmmaking-mastery-youtube-trailer-design-with-filmora/"><u>[Updated] Filmmaking Mastery YouTube Trailer Design with Filmora</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-high-revenue-video-visionaries/"><u>[Updated] High-Revenue Video Visionaries</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-the-latest-free-amd-gpu-drivers-compatible-with-windows-8/"><u>Download the Latest FREE AMD GPU Drivers Compatible with Windows 8</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mkv-movies-on-redmi-note-12-pro-4g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Failed to play MKV movies on Redmi Note 12 Pro 4G</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/guia-facil-para-rescatar-archivos-de-descarga-borrados-por-error-en-windows-10-y-11/"><u>Guía Fácil Para Rescatar Archivos De Descarga Borrados Por Error en Windows 10 Y 11</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-russian-alphabet-pronunciation/"><u>Master the Russian Alphabet Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-acclaimed-pioneering-online-linguistic-education/"><u>Mondly Acclaimed: Pioneering Online Linguistic Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-an-aussie-essential-slang-and-idioms-guide/"><u>Speak Like an Aussie: Essential Slang & Idioms Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncover-hidden-meanings-learn-korean-for-squid-games-intrica-written-by-user/"><u>Uncover Hidden Meanings: Learn Korean for Squid Game's Intrica Written by User:</u></a></li>
 </ul></div>
 

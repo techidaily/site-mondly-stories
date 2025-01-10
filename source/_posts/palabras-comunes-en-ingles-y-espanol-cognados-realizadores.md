@@ -1,7 +1,7 @@
 ---
 title: "Palabras Comunes en Inglés Y Español: Cognados Realizadores"
-date: 2024-09-01T00:16:24.147Z
-updated: 2024-09-02T00:16:24.147Z
+date: 2025-01-07T16:24:45.370Z
+updated: 2025-01-10T16:27:56.715Z
 tags:
   - speak
   - english
@@ -43,13 +43,18 @@ thumbnail: https://thmb.techidaily.com/2635526a9b4bc31b09f99f8ed1ec33a28f3bd1734
  Some of the most popular examples are: _hospital, horrible, actor, artificial, agenda, animal, original, idea, flexible, vulnerable, superficial, reunion_ (_reunión_ in Spanish)_, melon, interminable, inevitable, tropical, experimental, excursion_ (_excursión_ in Spanish)_, capital, chocolate, probable, conclusion_ (_conclusión_ in Spanish) _, doctor, director, festival, general, individual, nostalgia, panorama, television_ (_televisión_ in Spanish)_, perfume, total, similar, terror_ and_verbal._
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Near-perfect English-Spanish cognates
 
  Did you know that about 90% of Spanish cognates have the same meaning in English? The rest of them are, obviously, false friends words. This means you have only a 10% chance of saying something embarrassing or awkward. That’s not too bad, isn’t it? Besides, after reading this article the percent will surely drop significantly. Even below 0 if you also start [learning Spanish with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4685&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es) right now (wink wink).
 
  But before going there, we have one more type of English-Spanish cognates: near-perfect cognates or words that have the same meaning in both languages, but slightly different spelling.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish Cognates that change “-tion” to “-ción”
 
@@ -77,9 +82,6 @@ thumbnail: https://thmb.techidaily.com/2635526a9b4bc31b09f99f8ed1ec33a28f3bd1734
 * evide**nt** and   _evide**nte**_
 * preside**nt** and   _preside**nte**_
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ### Spanish cognates that change “-ate” to “ar”
 
 * abbrevi**ate** and   _abrevi**ar**_
@@ -95,10 +97,11 @@ thumbnail: https://thmb.techidaily.com/2635526a9b4bc31b09f99f8ed1ec33a28f3bd1734
 
 ![english spanish cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-spanigh-cognates-600x399.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 3")
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
  “Mommy, what are cognates?” by Josh Applegate©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish cognates that add an “-o”
 
@@ -114,8 +117,9 @@ thumbnail: https://thmb.techidaily.com/2635526a9b4bc31b09f99f8ed1ec33a28f3bd1734
 * dynamic and   _dinámic**o**_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Spanish cognates that add an “-ar” or an “-ir”
 
 [Spanish verbs](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) can end in_\-ar_ ,_\-er_ , or_\-ir_ and each type follows its own conjugation rules. What you are about to find out is that many of these are English cognates with an added “-ar” or “-ir” in the end.
@@ -131,9 +135,6 @@ thumbnail: https://thmb.techidaily.com/2635526a9b4bc31b09f99f8ed1ec33a28f3bd1734
 * calm and   _calm**ar**_
 * control and   _control**ar**_
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Spanish cognates that change “-ly” to “-mente”
 
 * absolute**ly** and   _absoluta**mente**_
@@ -177,6 +178,10 @@ thumbnail: https://thmb.techidaily.com/2635526a9b4bc31b09f99f8ed1ec33a28f3bd1734
 
 ![false cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/false-cognates-600x400.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Haha! Gotcha!” by olio creative©
 
 * **_enviar_ and to envy**
@@ -208,9 +213,6 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Speak Spanish in just 10 minutes a day
 
  All these funny little examples convinced you it’s high time you learned Spanish, didn’t they? Lucky for you, we have the perfect tool for learning Spanish: Mondly, the award-winning language learning app that makes language learning fun, fast and easy.
@@ -229,8 +231,6 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -238,8 +238,24 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-cutting-edge-srt-modifications-for-modern-computers/"><u>[New] 2024 Approved Cutting-Edge SRT Modifications for Modern Computers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-making-it-big-on-youtube-your-strategy-playbook/"><u>[Updated] Making It Big on YouTube Your Strategy Playbook</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-sites-for-downloading-desired-youtube-ringtones/"><u>[Updated] Top Sites for Downloading Desired YouTube Ringtones</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-upgrading-made-simple-a-compreomedmacsierra-guide/"><u>2024 Approved Upgrading Made Simple A CompreomedmacSierra Guide</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/clear-out-quick-settings-tiles-from-your-androids-notifications-panel-easily/"><u>Clear Out Quick Settings Tiles From Your Android's Notifications Panel Easily</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722952742976-get-the-newest-amd-ryzen-3-2200g-gpu-drivers-here/"><u>Get the Newest AMD Ryzen 3 2200G GPU Drivers Here!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-good-morning-in-10-different-languages/"><u>How To Say Good Morning In 10 Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/indonesian-greetings-decoded-for-travelers-and-locals-alike/"><u>Indonesian Greetings Decoded for Travelers and Locals Alike</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-liberation-pronouncing-tricky-terminology-with-ease/"><u>Language Liberation: Pronouncing Tricky Terminology with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-top-francophone-countries-and-their-linguistic-statistics/"><u>The Top Francophone Countries and Their Linguistic Statistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-weekday-wheel-of-life-in-korea/"><u>The Weekday Wheel of Life in Korea</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-3-macchine-di-estrazione-gratuite-dvd-per-windows-and-windows-11-scarica-mp4aviwmv/"><u>Top 3 Macchine Di Estrazione Gratuite DVD: Per Windows & Windows 11 - Scarica MP4/AVI/WMV</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-art-of-russian-greeting-essentials-and-beyond/"><u>Unlocking the Art of Russian Greeting: Essentials and Beyond</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-final-cut-pro-x-subtitle-editing-tips-and-tricks/"><u>Updated Final Cut Pro X Subtitle Editing Tips and Tricks</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-video-invitation-design-made-easy-top-apps-for-iphone-and-android-for-2024/"><u>Updated Video Invitation Design Made Easy Top Apps for iPhone and Android for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verbal-legacy-modern-speech-from-shakespeares-quill/"><u>Verbal Legacy: Modern Speech From Shakespeare’s Quill</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-reality-the-future-of-multilingual-education-with-mondlys-new-app/"><u>Virtual Reality: The Future of Multilingual Education with Mondly's New App</u></a></li>
+</ul></div>
 

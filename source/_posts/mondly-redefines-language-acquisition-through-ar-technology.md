@@ -1,7 +1,7 @@
 ---
 title: Mondly Redefines Language Acquisition Through AR Technology
-date: 2024-12-28T16:51:35.929Z
-updated: 2025-01-03T20:11:51.712Z
+date: 2025-01-07T17:01:44.071Z
+updated: 2025-01-10T20:10:42.429Z
 tags:
   - speak
   - english
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
 
  _If you tried one of the**Mondly language learning apps** (available for both [Android](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-1295&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1295%26utm%5Fsource%3Dblog-post-id-1295&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1295%26utm%5Fsource%3Dblog-post-id-1295&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1295%26utm%5Fsource%3Dblog-post-id-1295&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-1295%26mt%3D8) and [iOS](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-1295&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1295%26utm%5Fsource%3Dblog-post-id-1295&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1295%26utm%5Fsource%3Dblog-post-id-1295&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-1295%26utm%5Fsource%3Dblog-post-id-1295&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-1295%26mt%3D8) users), then you know that they already are a strong competitor for Duolingo and managed to literally catch our eyes with their [VR conversational chatbot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . But with the AR experience gaining so much ground, Mondly takes a further step and announces a new launch sooner than expected._
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## _Mondly AR uses AR to change the way we learn languages_
 
  _Many of my friends that speak [English as a second language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) told me the exact same story of learning English as a child: they all learned their basic vocabulary by watching English cartoons. That is what we all call learning through play. Now, I may be wrong, but it seems to me that this is also the concept that Mondly tries to cultivate with their new AR app._
@@ -35,7 +31,11 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
 _ ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 2") _
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## _An out of this world encounter_
@@ -45,7 +45,7 @@ _ ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/gip
 _ ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 3") _
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  _But the coolest feature is yet to come. You just have to ask her to show you an animal. “Show me a rabbit” – I said – and a virtual rabbit magically appeared on the floor. I got to tell you: I have never been so amazed when seeing a rabbit in my whole life. Besides that, I learned that “rabbit” is “conejo” in Spanish. The rabbit started jumping around and I suddenly felt that anything could happen at this point so I quickly asked her to show me another animal fearing that the rabbit could take me to Wonderland._
@@ -55,7 +55,7 @@ _ ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.
 _ ![AUGMENTED REALITY MONDLY LANGUAGES](https://media.giphy.com/media/gC1iUtDE9Tkh0wDx3O/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 4") _
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## _Building the future of learning and teaching_
@@ -68,15 +68,15 @@ _ ![AR language learning app](https://media.giphy.com/media/C9pYCWN2mjxuWD0ufF/g
 
  _Now, I was indeed amazed, but there may be room for improvement. I’m sure that until the launch they will work more on the conversation topics, but when technology makes it possible I expect the character and the animals to be more realistic. I’ve seen it in games, so I’m sure that this will soon be possible in AR._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## _Pokémon Go is cool, but can’t we all be a little more productive?_
 
  _In the end, I am now sure that Mondly deserves a place next to the best of the best like Google and Apple. They identified the recipe for success in a simple learning problem and used advanced AR technology to give an answer. I have a feeling that more and more kids and even adults will stop chasing Pokémon. Instead, they will still play, but in a more productive way because they will also learn a new language meanwhile using Mondly AR or any other app from Mondly. That’s how you trick people into learning something useful: by luring them with something as interactive as this app._
 
 _ ![MondlyAR app](https://media.giphy.com/media/2yyH5SzNqpUzwwN3TZ/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 6") _
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  _As I left their headquarters in my 2004 Peugeot 206, I realized that these people live in the future and I am a decade behind them. Hopefully, smart use of technology like theirs will help us make our way to the future._
 
@@ -104,24 +104,22 @@ _ ![MondlyAR app](https://media.giphy.com/media/2yyH5SzNqpUzwwN3TZ/giphy.gif "Th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-earning-in-the-e-commerce-arena-via-engaging-reviews-for-2024/"><u>[New] Earning in the E-Commerce Arena via Engaging Reviews for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-from-free-to-profitable-unlocking-youtubes-monetization-at-500plus-for-2024/"><u>[New] From Free to Profitable Unlocking YouTube's Monetization at 500+ for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-tiktok-hits-twitters-viral-top-10-list/"><u>[Updated] In 2024, TikTok Hits Twitter's Viral Top 10 List</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-your-ultimate-guide-to-perfectly-recorded-lol-gaming/"><u>[Updated] Your Ultimate Guide to Perfectly Recorded LOL Gaming</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/2024-approved-how-to-add-audio-fade-in-effect/"><u>2024 Approved How to Add Audio Fade In Effect</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-rising-stars-in-digital-domain/"><u>2024 Approved Rising Stars in Digital Domain</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Honor Magic Vs 2 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jolly-juxtaposition-of-latins-and-games/"><u>Jolly Juxtaposition of Latins and Games</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/launching-the-novel-auditory-ar-interface/"><u>Launching the Novel Auditory AR Interface</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-english-a-key-to-inclusive-communication/"><u>Learning English: A Key to Inclusive Communication</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-languages-on-cue-researched-methods-tips-and-song-lists/"><u>Learning Languages on Cue - Researched Methods, Tips & Song Lists</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/maximizing-your-israeli-travel-experience-key-advice-and-local-lingo/"><u>Maximizing Your Israeli Travel Experience: Key Advice & Local Lingo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-through-spanish-tenses-and-conjugations/"><u>Navigating Through Spanish Tenses & Conjugations</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/secret-sonic-snatchers-6-in-the-shadows-voice-recording-apps/"><u>Secret Sonic Snatchers 6 In-the-Shadows Voice Recording Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/silk-strands-of-sentiment-elegant-italian-pick-up-lines/"><u>Silk Strands of Sentiment: Elegant Italian Pick-Up Lines</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-by-step-to-mastering-the-turkish-script-easy-reference-for-learners/"><u>Step-by-Step to Mastering the Turkish Script: Easy Reference for Learners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transformative-language-experience-unveiling-7-compelling-advantages-of-hindi-study-online-with-mondly/"><u>Transformative Language Experience: Unveiling 7 Compelling Advantages of Hindi Study Online with Mondly</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/troubleshooting-and-fixing-windows-7-network-card-drivers-solution/"><u>Troubleshooting and Fixing Windows 7 Network Card Drivers - SOLUTION</u></a></li>
-<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-meizu-21-pro-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Meizu 21 Pro? Here is How | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-exploring-periscopes-world-free-access-and-user-registration/"><u>[New] Exploring Periscope's World Free Access & User Registration</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-charting-your-path-to-youtube-affiliate-status-with-10k-vistas-goal/"><u>[Updated] In 2024, Charting Your Path to YouTube Affiliate Status with 10K Vistas Goal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-premier-language-phenomena-quick-backup-feature/"><u>Asia's Premier Language Phenomena: Quick Backup Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-guide-to-essential-russian-salutations-and-vocabulranium-navigating-a-new-world-of-social-interactions-and-expressions-in-latin-america/"><u>Beginner's Guide to Essential Russian Salutations & Vocabulranium: Navigating a New World of Social Interactions and Expressions in Latin America</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bulgaria-unlocked-learn-in-quick-bursts/"><u>Bulgaria Unlocked: Learn in Quick Bursts</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/bypassing-linguistic-hurdles-through-chatgpt/"><u>Bypassing Linguistic Hurdles Through ChatGPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-dedication-mondlys-ten-year-triumph/"><u>Celebrating Dedication: Mondly's Ten-Year Triumph</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cities-skylines-breakdown-where-every-block-fuels-your-city-planning-addiction/"><u>Cities: Skylines Breakdown – Where Every Block Fuels Your City-Planning Addiction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conhecer-gritos-de-ola-em-portugues-guia-completo/"><u>Conhecer Gritos De Olá Em Português - Guia Completo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-communal-connections-top-10-italian-friendly-phrases/"><u>Conquer Communal Connections: Top 10 Italian Friendly Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-slavic-languages-ukraines-ties-with-russ/"><u>Decoding Slavic Languages: Ukraine's Ties with Russ</u></a></li>
+<li><a href="https://extra-information.techidaily.com/discover-10-exceptional-commodity-lut-files/"><u>Discover 10 Exceptional Commodity LUT Files</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-updated-amd-rx-6700-xt-graphics-card-driver-for-various-windows-versions/"><u>Download Updated AMD RX 6700 XT Graphics Card Driver for Various Windows Versions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dual-dialect-development/"><u>Dual Dialect Development</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-steps-to-secure-clear-image-collections/"><u>In 2024, Steps to Secure, Clear Image Collections</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-apple-iphone-14-pro-max-location-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 7 Phone Number Locators To Track Apple iPhone 14 Pro Max Location | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unbeatable-deals-save-on-the-asus-vivobook-pro-with-a-300-discount-now-available-on-amazon-insights/"><u>Unbeatable Deals: Save on the Asus VivoBook Pro with a $300 Discount Now Available on Amazon - Insights</u></a></li>
 </ul></div>
 

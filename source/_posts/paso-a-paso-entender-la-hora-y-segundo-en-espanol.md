@@ -1,7 +1,7 @@
 ---
 title: "Paso a Paso: Entender La Hora Y Segundo en Español"
-date: 2024-12-30T21:27:15.297Z
-updated: 2025-01-03T16:08:45.010Z
+date: 2025-01-06T20:12:03.775Z
+updated: 2025-01-10T18:23:18.305Z
 tags:
   - speak
   - english
@@ -27,7 +27,7 @@ But first things first.
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## ¿Que hora es? – how to ask for the time in Spanish
@@ -77,10 +77,14 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Telling time in Spanish – a visual guide
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hour + minutes in Spanish time
@@ -94,10 +98,6 @@ Here are some examples:
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Different ways of telling time in Spanish
 
  There are three formulas of telling time in Spanish. Here are different ways of telling it’s 3:10:
@@ -109,7 +109,7 @@ Here are some examples:
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
@@ -127,7 +127,7 @@ Here are some examples:
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Other useful time phrases in Spanish
@@ -190,24 +190,19 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-directly-posting-twitvideos-on-whatsapp/"><u>[New] In 2024, Directly Posting TwitVideos on WhatsApp</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-step-by-step-capturing-powerful-presentations-in-adobe-presenter/"><u>[New] Step-by-Step Capturing Powerful Presentations in Adobe Presenter</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-best-value-online-image-editors-leading-15-at-zero-cost/"><u>[Updated] 2024 Approved Best Value Online Image Editors - Leading 15 at Zero Cost</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-crafting-success-tips-from-ginger-islet-for-2024/"><u>[Updated] Crafting Success Tips From Ginger Islet for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-simplified-methods-for-logging-google-voice-calls/"><u>[Updated] In 2024, Simplified Methods for Logging Google Voice Calls</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-unleashing-creativity-crafting-compelling-fb-video-campaigns/"><u>[Updated] In 2024, Unleashing Creativity Crafting Compelling FB Video Campaigns</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Vivo Y200e 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interactive-latino-education-enthralling-youths/"><u>Interactive Latino Education: Enthralling Youths</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introduction-to-basic-mathematical-terms-in-russian/"><u>Introduction to Basic Mathematical Terms in Russian</u></a></li>
-<li><a href="https://win-info.techidaily.com/mastering-the-creation-of-custom-windows-images-for-large-scale-setups-in-four-simple-steps/"><u>Mastering the Creation of Custom Windows Images for Large Scale Setups in Four Simple Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-the-lifelong-education-platform-now-with-70-million-members/"><u>Mondly: The Lifelong Education Platform Now With 70 Million Members</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-latvian-lessons-for-efficient-learning/"><u>Quick Latvian Lessons for Efficient Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simple-steps-to-chatting-with-a-chinese-friend/"><u>Simple Steps to Chatting with a Chinese Friend</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/take-your-fb-visibility-to-new-heights-proven-seo-strategies-reviewed/"><u>Take Your FB Visibility to New Heights Proven SEO Strategies Reviewed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-british-lingo-book-saying-it-right/"><u>The British Lingo Book: Saying It Right</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essential-journey-to-fluent-japanese-greetings/"><u>The Essential Journey to Fluent Japanese Greetings</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-4-affordable-residential-generator-offers-decembers-picks-by-zdnet/"><u>Top 4 Affordable Residential Generator Offers - December's Picks by ZDNet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vocabulinas-the-top-ten-arguments-for-language-learning/"><u>Vocabulinas: The Top Ten Arguments for Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/wow-italians-discover-20plus-native-slang/"><u>Wow Italians! Discover 20+ Native Slang</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1725285136851-digiarty/"><u>[公式] Digiartyソフトウェアの満足保証:返金ポリシー詳細解説</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-goovision-xtreme-cam-high-res-screen-capturer/"><u>[New] In 2024, GooVision Xtreme Cam High-Res Screen Capturer</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-the-ultimate-guide-to-surpassing-a-million-youtube-subscribers/"><u>[New] The Ultimate Guide to Surpassing a Million YouTube Subscribers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-secrets-of-the-pocket-acquiring-no-pay-images/"><u>[Updated] 2024 Approved Secrets of the Pocket Acquiring No-Pay Images</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-essential-guide-best-free-video-effect-websites-reviewed-and-rated-by-experts-for-2024/"><u>[Updated] Essential Guide Best Free Video Effect Websites Reviewed & Rated by Experts for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-pushing-boundaries-of-editing-how-to-erase-image-borders-on-canva/"><u>[Updated] Pushing Boundaries of Editing How to Erase Image Borders on Canva</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/affordable-japanese-language-learning-15-top-online-choices/"><u>Affordable Japanese Language Learning: 15 Top Online Choices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577362628-bangla-skills-boost-in-minutes/"><u>Bangla Skills Boost in Minutes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-cultural-gratitude-thanking-in-30-languages-154/"><u>Cross-Cultural Gratitude: Thanking in 30 Languages (154)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/de-talen-van-vaderland-its-linguistic-roots/"><u>De Talen Van Vaderland: Its Linguistic Roots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-german-a-foundational-guide-for-language-enthusiasts/"><u>Deciphering German: A Foundational Guide for Language Enthusiasts</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/fcp-x-visual-effects-green-screen-and-beyond-for-2024/"><u>FCP X Visual Effects Green Screen and Beyond for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expertise-acquiring-the-best-unboxing-tunes-and-melodies/"><u>In 2024, Expertise Acquiring the Best Unboxing Tunes and Melodies</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/setting-achievable-wellness-targets-using-chatgpt-a-comprehensive-guide/"><u>Setting Achievable Wellness Targets Using ChatGPT: A Comprehensive Guide</u></a></li>
 </ul></div>
 

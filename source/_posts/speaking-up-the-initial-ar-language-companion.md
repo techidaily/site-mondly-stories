@@ -1,7 +1,7 @@
 ---
 title: "Speaking Up: The Initial AR Language Companion"
-date: 2024-12-31T17:15:28.063Z
-updated: 2025-01-04T00:54:39.650Z
+date: 2025-01-07T20:35:39.783Z
+updated: 2025-01-10T16:59:25.395Z
 tags:
   - speak
   - english
@@ -26,10 +26,6 @@ Here’s a video showcasing Mondly AR:
 
 ##
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## We take learning out of the books and bring it to life into your living room using augmented reality
 
  The new experience we created helps you develop a strong sense of the language you want to learn through highly realistic visual lessons and purposeful conversations. This approach is aiming to stimulate you to learn languages not because you have to, but because [it’s genuinely fun.](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
@@ -37,7 +33,7 @@ Here’s a video showcasing Mondly AR:
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
@@ -46,12 +42,16 @@ Here’s a video showcasing Mondly AR:
 
 ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -70,7 +70,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -87,7 +87,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Media mentions about Mondly
@@ -119,22 +119,16 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/onfiguring-who-can-see-your-youtube-clips-for-2024/"><u>[New] Configuring Who Can See Your YouTube Clips for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-top-5-best-terraria-map-for-viewers-to-find-treasure/"><u>[Updated] 2024 Approved Top 5 Best Terraria Map for Viewers to Find Treasure</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-4k-camera-guide-low-cost-options-(1000/"><u>[Updated] In 2024, 4K Camera Guide Low-Cost Options <$1,000</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-seo-essentials-for-climbing-the-youtube-popularity-ladder/"><u>[Updated] In 2024, SEO Essentials for Climbing the YouTube Popularity Ladder</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-no-cost-visual-aids-free-templates-and-slide-show-resources/"><u>[Updated] No-Cost Visual Aids Free Templates & Slide Show Resources</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/our-shots-top-cameras-and-lenses-for-youtubers/"><u>Ace Your Shots Top Cameras & Lenses for YouTubers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enrich-teams-with-highest-rated-language-development-apps/"><u>Enrich Teams with Highest Rated Language Development Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-french-literature-top-20-novels-for-new-learners/"><u>Explore French Literature: Top 20 Novels for New Learners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-the-genesis-of-our-worlds-words/"><u>Exploring the Genesis of Our World’s Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expoeloquence-dubai-2020-elevating-global-dialogue/"><u>ExpoEloquence Dubai 2020: Elevating Global Dialogue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/find-your-latin-groove-with-online-tutoring-platforms/"><u>Find Your Latin Groove with Online Tutoring Platforms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fluent-future-redefining-how-we-learn-language-skills/"><u>Fluent Future: Redefining How We Learn Language Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-newbie-to-native-speaker-a-realistic-outlook/"><u>From Newbie To Native Speaker: A Realistic Outlook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-for-beginners-a-guide-to-counting-from-1-to-100-in-german/"><u>German For Beginners: A Guide To Counting From 1 To 100 In German</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-xiaomi-redmi-12-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Xiaomi Redmi 12 5GMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722978851506-quick-setup-for-your-zebra-gk420d-driver-free-download-available/"><u>Quick Setup for Your Zebra GK420d Driver: Free Download Available!</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211030908-9781960093790-the-djinns-gin/"><u>The Djinn's Gin | Free Book</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-speech-to-text-for-media/"><u>[New] 2024 Approved Speech to Text for Media</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-defending-your-youtube-profile/"><u>[New] In 2024, Defending Your YouTube Profile</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-overcoming-inconsistency-stop-obs-frame-loss/"><u>[Updated] Overcoming Inconsistency Stop OBS Frame Loss</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-turning-tides-in-photographic-history-retrieval-on-facebook/"><u>2024 Approved Turning Tides in Photographic History Retrieval on Facebook</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-xiaomi-redmi-note-12-proplus-5g-frp-by-drfone-android/"><u>How Can We Bypass Xiaomi Redmi Note 12 Pro+ 5G FRP?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-art-of-iphone-photos-arrangement-strategies-and-icloud-coordination/"><u>In 2024, The Art of iPhone Photos Arrangement Strategies and iCloud Coordination</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-jargon-the-most-useful-93-travel-terms-in-spanish/"><u>Journey Jargon: The Most Useful 93 Travel Terms in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-speech-based-augmented-interaction/"><u>Pioneering Speech-Based Augmented Interaction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-happy-birthday-worldwide/"><u>Saying Happy Birthday Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-affordable-and-independent-japan-studies/"><u>The Ultimate Guide to Affordable & Independent Japan Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579728851-top-3-linguistic-hubs-swift-multilingual-mastery-awaits/"><u>Top 3 Linguistic Hubs: Swift Multilingual Mastery Awaits</u></a></li>
 </ul></div>
 

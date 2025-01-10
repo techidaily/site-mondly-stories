@@ -1,7 +1,7 @@
 ---
 title: "Quick Catalan Mastery: Daily 10-Minute Routine"
-date: 2024-12-27T20:03:22.686Z
-updated: 2025-01-03T19:27:57.307Z
+date: 2025-01-08T16:00:28.894Z
+updated: 2025-01-10T16:05:38.471Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
  Consisting of super fun, efficient and accessible language lessons, the new Catalan course is now available on [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4538&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca) ,[Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4538&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca) and [web](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4538&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Catalan language in a nutshell
@@ -43,13 +43,13 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
 ![learn catalan language](https://edge.mondly.com/blog/wp-content/uploads/2020/03/learn-catalan-language-1-277x600.jpg "Learn Catalan Online In Just 10 Minutes A Day 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Learn Catalan with Mondly
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where is Catalan spoken?
@@ -61,7 +61,7 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
  Additionally, the Catalan language is also recognized as a minority language in Alghero (Sardinia, Italy), Aragon (Spain) and in the Pyrénées-Orientales department of France. These regions are often called Països Catalans (Catalan Countries).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Catalan vs Spanish
@@ -80,7 +80,7 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn Catalan online with Mondly
@@ -108,22 +108,19 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/nhancing-your-spotify-collection-with-youtube-music-integration/"><u>[New] Enhancing Your Spotify Collection with YouTube Music Integration</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-expert-tips-securing-your-best-gaming-moments-with-4-methods/"><u>[Updated] Expert Tips Securing Your Best Gaming Moments with 4 Methods</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-ultimate-ios-movie-guide-paid-vs-free-apps-ranked/"><u>[Updated] In 2024, Ultimate iOS Movie Guide Paid vs Free Apps Ranked</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-in-search-of-quality-identifying-the-top-5-virtual-title-designers/"><u>[Updated] In Search of Quality Identifying the Top 5 Virtual Title Designers</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-plotting-prime-promotional-summaries-for-2024/"><u>[Updated] Plotting Prime Promotional Summaries for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719154287548-facebook-invites-you-to-shape-tomorrows-metaverse-awaiting-10k/"><u>Facebook Invites You to Shape Tomorrow’s Metaverse, Awaiting 10K!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/guia-a-la-ortografia-de-los-colores/"><u>Guía a La Ortografía De Los Colores</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Vivo Y100t | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-latvian-like-a-native-a-daily-dedication/"><u>Learn Latvian Like a Native: A Daily Dedication</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mandarin-characters-and-their-usage/"><u>Mandarin Characters and Their Usage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polish-language-jumpstarting-guide/"><u>Polish Language Jumpstarting Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/promoting-intercultural-understanding-through-esl/"><u>Promoting Intercultural Understanding Through ESL</u></a></li>
-<li><a href="https://fox-that.techidaily.com/rejuvenate-your-iphones-control-center-a-step-by-step-guide-to-8-key-repairs/"><u>Rejuvenate Your IPhone’s Control Center: A Step-by-Step Guide to 8 Key Repairs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speaking-like-a-sea-rogue-20-words-of-the-deep/"><u>Speaking Like a Sea Rogue: 20 Words of the Deep</u></a></li>
-<li><a href="https://os-tips.techidaily.com/the-complete-guide-to-mood-tracking-on-apple-health-platform/"><u>The Complete Guide to Mood Tracking on Apple Health Platform</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-path-to-corporate-verbal-mastery-unveiled/"><u>The Path to Corporate Verbal Mastery Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-ais-potential-in-education-and-linguistics/"><u>Unveiling AI's Potential in Education & Linguistics</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-top-5-ps1-emulators-bringing-classic-games-back/"><u>[New] In 2024, Top 5 PS1 Emulators - Bringing Classic Games Back</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-revolutionize-streaming-top-converters-transform-4k-content/"><u>[Updated] Revolutionize Streaming Top Converters Transform 4K Content</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-learning-leaders-expert-picks-of-10-best-classroom-recorders/"><u>2024 Approved Learning Leaders Expert Picks of 10 Best Classroom Recorders</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/automated-user-tracking-with-the-cookiebot-solution/"><u>Automated User Tracking with the Cookiebot Solution</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/best-music-visualizer-apps-of-2020-top-7-picks-for-immersive-audio-experience/"><u>Best Music Visualizer Apps of 2020: Top 7 Picks for Immersive Audio Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/competition-heats-up-a-deep-dive-into-chromecasts-new-feature-google-tv-review/"><u>Competition Heats Up: A Deep Dive Into Chromecast's New Feature - Google TV Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-the-future-of-conversations-with-ai/"><u>Dive Into the Future of Conversations with AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-worlds-apart/"><u>English Worlds Apart</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-salutations-guide-essential-phrases-and-gestures/"><u>Japanese Salutations Guide: Essential Phrases & Gestures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-hindi-why-mondlys-online-study-triumphs/"><u>Journey Through Hindi: Why Mondly's Online Study Triumphs</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-lava-yuva-3-pro-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Lava Yuva 3 Pro</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-unveiling-the-top-10-audio-editing-platforms-a-guide-to-free-and-paid-services-for-musicians/"><u>New In 2024, Unveiling the Top 10 Audio Editing Platforms A Guide to Free & Paid Services for Musicians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-patois-top-15-language-list/"><u>Premier Patois: Top 15 Language List</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/simple-solutions-repairing-your-astro-a20-microphone-issues/"><u>Simple Solutions: Repairing Your Astro A20 Microphone Issues</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Navigating Italy in Fluency: The Traveler's Phrasebook"
-date: 2024-09-01T00:18:37.714Z
-updated: 2024-09-02T00:18:37.714Z
+date: 2025-01-09T16:31:49.345Z
+updated: 2025-01-10T19:06:54.423Z
 tags:
   - speak
   - english
@@ -61,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
  “Manarola, Italy” by Marc Zimmer©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Basic Italian phrases for travelers that need help
 
  Emergencies are not necessarily something we expect to happen when traveling. We always associate visiting new places with pleasant feelings. However, emergencies do happen sometimes whether we like it or not. So knowing how to ask for help in Italian may come in handy while traveling. Especially if you decide to travel to remote areas where the locals don’t really speak English. Make sure you learn these key**Italian phases** by heart because you know what they say: it’s always better to be safe than sorry.
@@ -82,10 +86,6 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 * Please wait a moment. –_Aspetti un momento, per favore._
 * I’ll be back immediately. –_Ritorno subito._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## 3\. Italian phrases for food lovers
 
  Food is a crucial part of a trip to Italy. No one – and I mean not even a single soul, not even Arya Stark – leaves Italy without indulging on mountains of pizza, pasta and [gelato](https://en.wikipedia.org/wiki/Gelato) . So here’s**how to order drinks or food in Italian restaurants:**
@@ -109,8 +109,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Can I have some ice cream? –_Posso prendere il gelato?_
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Basic Italian for tourists who need a place to spend the night
 
  Looking for the perfect accommodation can be a real headache sometimes. Well, imagine you did find it, but the hosts only speak Italian. How will you deal with that? Some**basic Italian** would surely be useful in this situation.
@@ -124,16 +125,16 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Very pleasant, thank you. –_Molto piacevole, grazie._
 * Here is your bill, please look it over. –_Ecco il suo conto, per favore lo controlli._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Italian for tourists who want to have fun
 
  Going out is probably one of the best ways to explore and get to know new cultures. The same places you visited during the day may reveal themselves differently during the night. Take_**Fontana di Trevi**_ for example. Nothing is as majestic as this world-famous Baroque fountain at night.
 
 ![common italian phases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/common-italian-phrases-1024x682.jpg "100+ Essential Italian Travel Phrases For Your Trip 4")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
  “Fontana di Trevi” by Ivan Bertona©
 
 * Is there a pub here? –_C’è un pub qui vicino?_
@@ -144,6 +145,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * How much does a ticket cost? –_Quanto costa un biglietto?_
 * One ticket, please. –_Un biglietto, per favore._
 * Are there seats available? –_Ci sono posti disponibili?_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Italian phrases about love
 
@@ -166,14 +171,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![basic italian phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/07/basic-italian-phrases-1024x575.jpg "100+ Essential Italian Travel Phrases For Your Trip 5")
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “Vernazza, Italy” by Daniil Vnoutchkov
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. Days of the week and numbers in Italian
 
  Wherever you go in the world, the days of the week and the numbers always fall into the category of**absolutely essential expressions.** It’s only a matter of time until you’ll make use of them. So seize the opportunity and memorize them now.
@@ -219,9 +222,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Speak Italian fluently in just 10 minutes a day
 
  Do you want to see these Italian phrases in action in real-life conversations? Get Mondly, the award-winning language learning app that will [help you speak Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as if you were Tuscany-born.
@@ -238,8 +238,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -247,8 +245,18 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/updated-game-speed-controls-unveiled-a-comprehensible-guide/"><u>[Updated] Game Speed Controls Unveiled A Comprehensible Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-grab-tiktok-videos-online-for-free/"><u>[Updated] In 2024, Grab TikTok Videos Online for FREE</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-learn-ukrainian-fast-in-just-10-minutes-a-day/"><u>How to Learn Ukrainian Fast in Just 10 Minutes a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immerse-in-cultures-and-conversations-powered-by-mondlyar/"><u>Immerse in Cultures and Conversations, Powered by MondlyAR</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-ultimate-playlist-of-film-scores-and-tracks/"><u>In 2024, Ultimate Playlist of Film Scores & Tracks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifelong-learning-top-4-benefits-for-multilingual-adults/"><u>Lifelong Learning: Top 4 Benefits for Multilingual Adults</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/making-latin-learning-fun-and-engaging-for-students/"><u>Making Latin Learning Fun And Engaging For Students</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/precision-and-power-choosing-best-kung-fu-games-ranked/"><u>Precision & Power Choosing Best Kung Fu Games Ranked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reasons-to-dive-into-german-top-10-facts/"><u>Reasons to Dive Into German: Top 10 Facts</u></a></li>
+<li><a href="https://techidaily.com/reset-pattern-lock-tutorial-for-google-pixel-8-by-drfone-android-unlock-android-unlock/"><u>Reset pattern lock Tutorial for Google Pixel 8</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/watermark-free-conversion-guide-transforming-mkv-to-avi-using-vlc/"><u>Watermark-Free Conversion Guide: Transforming MKV to AVI Using VLC</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Buccaneer's Guide: Key Slang for Seafaring Characters"
-date: 2024-12-29T00:27:48.552Z
-updated: 2025-01-03T16:25:05.237Z
+date: 2025-01-08T19:59:34.926Z
+updated: 2025-01-10T18:40:42.750Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 
 ![talk like a pirate day](https://media.giphy.com/media/5oVt3GSJuXKP6/giphy.gif "How To Talk Like A Pirate: 20 Pirate Words 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The origins of Talk Like a Pirate Day
 
  It was June 6, 1995, when John Baur and Mark Summers – later known by their pirate names Ol’ Chumbucket and Cap’n Slappy – played racquetball. The story says one of them got injured during the game and reacted with an outburst of “Arrr!”. Thus the Talk Like a Pirate Day was born. Out of respect for the observance of World War II’s D-Day on the 6th of June, the soon-to-be world-renowned pirates decided to choose Summers’ now ex-wife’s birthday – September 19 – to celebrate pirate lingo.
@@ -35,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 ![ahoy matey](https://edge.mondly.com/blog/wp-content/uploads/2019/09/ahoy-matey-1024x575.jpg "How To Talk Like A Pirate: 20 Pirate Words 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Ahoy, matey!” by Austin Neill©
@@ -45,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 Easy peasy, ain’t it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pirate lingo: useful pirate words and phrases
@@ -76,7 +80,7 @@ Easy peasy, ain’t it?
  Arr! Is Talk Like a Pirate Day one of the best parodic holidays ever or what? Not even [World Chocolate Day](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) sounds as good as talking like a pirate all day long with ye’ maties.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Avast, ye! Pirates have discovered a new way to learn languages
@@ -85,24 +89,20 @@ Easy peasy, ain’t it?
 
 ![jack sparrow](https://media.giphy.com/media/LrIA0CryFKvN6/giphy.gif "How To Talk Like A Pirate: 20 Pirate Words 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fahoy-its-talk-like-a-pirate-day-arr%2F&t=How+to+Talk+Like+a+Pirate%3A+20+Pirate+Words "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Ahoy! Get your language skills to the next level
 
 [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3348&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348) is a pocket-held language tutor that allows you to put your brain on autopilot and enjoy the sail to fluency in 33 languages.
 
  By combining solid neural science, cutting edge technologies, bite-sized Daily Lessons and a gamified experience guaranteed to make you addicted to learning languages, Mondly gets you fluent faster than you could ever imagine. Every true pirate loves it ![Learn a new language now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-3348&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-3348%26mt%3D8 "Learn a new language now")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,21 +119,19 @@ Easy peasy, ain’t it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ltimate-guide-to-calculate-your-youtube-views-and-money-for-2024/"><u>[New] Ultimate Guide to Calculate Your YouTube Views and Money. For 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-ultimate-monitor-match-up-recommendations-for-top-tier-xbox-sx-experience-for-2024/"><u>[New] Ultimate Monitor Match-Up Recommendations for Top-Tier Xbox SX Experience for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elite-cards-for-uhd-video-creation/"><u>Elite Cards for UHD Video Creation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honteruss-tales-of-triumph-and-tenacity/"><u>Honterus's Tales of Triumph & Tenacity</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-apple-iphone-se-2022-mirror-to-pc-top-apps-you-must-know-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone SE (2022) Mirror to PC? Top Apps You Must Know | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-insight-deciphering-por-que-vs-por-que/"><u>Language Insight: Deciphering 'Por Qué' Vs 'Por Que'</u></a></li>
-<li><a href="https://discover-help.techidaily.com/mastering-password-and-user-management-on-windows-a-guide-by-yl-computing/"><u>Mastering Password & User Management on Windows: A Guide by YL Computing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-years-savings-bonanza-get-free-premium-access-for-life-on-mondly/"><u>New Year's Savings Bonanza: Get Free Premium Access for Life on Mondly!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pro-tips-for-swift-online-czech-study/"><u>Pro Tips for Swift Online Czech Study</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/recent-fixes-to-overcome-constant-crashing-in-diablo-immortal/"><u>Recent Fixes to Overcome Constant Crashing in Diablo Immortal</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-samsung-galaxy-s24-ultra-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Samsung Galaxy S24 Ultra</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-artisans-guide-to-crafting-a-personalized-bot/"><u>The Artisan's Guide to Crafting a Personalized Bot</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/travelers-guide-120plus-vietnamese-words-and-phrases-you-must-know/"><u>Traveler's Guide: 120+ Vietnamese Words And Phrases You Must Know</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/unraveling-crypto-terms-understanding-coins-tokens-and-altcoins-a-comprehensive-guide-by-yl-computing/"><u>Unraveling Crypto Terms: Understanding Coins, Tokens, and Altcoins - A Comprehensive Guide by YL Computing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-a-centurys-worth-of-lessons/"><u>Unveiling a Century's Worth of Lessons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/kalotatoi-eygnwmwn-paradoseis-gkreman/"><u>Καλοτάτοι Ευγνώμων Παραδόσεις Γκρεμάν</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-easy-steps-to-extract-and-save-your-youtube-watch-lists/"><u>[Updated] 2024 Approved Easy Steps to Extract and Save Your YouTube Watch Lists</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-advanced-remote-collaboration-tools-post-zoom/"><u>[Updated] In 2024, Advanced Remote Collaboration Tools, Post-Zoom</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-is-your-channels-income-regular-via-youtube-in-2024/"><u>[Updated] Is Your Channel's Income Regular via YouTube, In 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/continuous-playback-made-easy-resolving-kodis-buffering-for-flawless-streaming/"><u>Continuous Playback Made Easy: Resolving Kodi's Buffering for Flawless Streaming</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/get-your-hands-on-the-newest-dex-version-for-pcdj-start-djing-today/"><u>Get Your Hands on the Newest DEX Version for PCDJ - Start DJing Today!</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-the-ultimate-selection-of-frames-for-professional-ig-artistry/"><u>In 2024, The Ultimate Selection of Frames for Professional IG Artistry</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-languages-connect-worlds-free-via-mondly-for-ukrainians/"><u>Learn Languages, Connect Worlds – Free via Mondly for Ukrainians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-breakthrough-in-language-learning-2022-edition/"><u>Mondly's Breakthrough in Language Learning, 2022 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-16-german-thanks-you-examples-for-every-occasion/"><u>Top 16 German Thanks You Examples for Every Occasion</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-7-techniques-for-clearing-up-a-fuzzy-iphone-lens/"><u>Top 7 Techniques for Clearing Up a Fuzzy iPhone Lens</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-language-learners-guide-international-cinema/"><u>Top Language Learners' Guide: International Cinema</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580764956-triple-threat-in-language-acquisition-easy-pathways-to-fluency/"><u>Triple Threat in Language Acquisition: Easy Pathways to Fluency</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-top-10-free-video-stabilization-tools-online-a-comprehensive-review/"><u>Updated Top 10 Free Video Stabilization Tools Online A Comprehensive Review</u></a></li>
 </ul></div>
 

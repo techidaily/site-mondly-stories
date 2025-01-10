@@ -1,7 +1,7 @@
 ---
 title: Swift Introduction to Turkish Phonetics and Script Basics
-date: 2024-09-01T00:19:41.123Z
-updated: 2024-09-02T00:19:41.123Z
+date: 2025-01-09T16:40:29.405Z
+updated: 2025-01-10T18:04:57.210Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/3a3db1628b8f2814d2040ecfe00634d164ea4b5f3
 
  But Turkish didn’t always use the Latin script. Let’s look a little bit at the history and see how today’s Turkish alphabet was born.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Turkish alphabet – a short history
 
  The Turkik languages have a long history of [writing systems](https://en.wikipedia.org/wiki/Turkish%5Falphabet) . Over time, these languages have been written using different alphabets like Cyrillic, Uyghur, Greek, Arabic, Latin and some other Asiatic writing systems.
@@ -30,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/3a3db1628b8f2814d2040ecfe00634d164ea4b5f3
 
 ![turkish language](https://edge.mondly.com/blog/wp-content/uploads/2019/10/turkish-language-1024x713.jpg "Turkish Alphabet And Pronunciation: A Quick Guide 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “The Blue Mosque, Istanbul, Turkey” by Adli Wahid©
 
  Then, in the 19th century, together with the introduction of the printing press and telegraph appeared the need for a more Turkish-oriented script. The Arabic script was perfect for writing Ottoman Turkish – which included a lot of [Arabic](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Persian words – but it was poorly suited for the Turkish part of the vocabulary.
@@ -37,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/3a3db1628b8f2814d2040ecfe00634d164ea4b5f3
  In other words, while the Arabic language is poor in vowels and rich in consonants, Turkish is exactly the opposite. Thus, the Arabic script was inadequate at representing Turkish phonemes. And this is exactly why Turkish reformists promoted the adoption of the Latin script.
 
  Fortunately, **in 1928, Mustafa Kemal Atatürk, the founder of the Turkish Republic, finally adopted the 29-letter Latin script as a part of his famous Reforms in Turkey – the same alphabet that Turks use today.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The pronunciation of each letter of the Turkish alphabet
 
@@ -48,11 +60,16 @@ thumbnail: https://thmb.techidaily.com/3a3db1628b8f2814d2040ecfe00634d164ea4b5f3
 
 ![turkish alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2019/10/turkish-alphabet-pronunciation-scaled-960x679.jpg "Turkish Alphabet And Pronunciation: A Quick Guide 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The pronunciation of the 29 letters of the Turkish alphabet
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Rules to help you get started with Turkish
 
  Language aficionados such as yourself know that Turkish is not [the hardest language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you can learn.[The FSI](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) (Foreign Service Institute) from the US government puts **Turkish on the fourth tier of their Interagency Language Roundtable (IRL) with 1100 hours or 44 weeks of study needed to achieve professional working proficiency.** This means that Turkish is indeed profoundly different from English.
@@ -93,8 +110,6 @@ thumbnail: https://thmb.techidaily.com/3a3db1628b8f2814d2040ecfe00634d164ea4b5f3
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -102,8 +117,22 @@ thumbnail: https://thmb.techidaily.com/3a3db1628b8f2814d2040ecfe00634d164ea4b5f3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-clear-cinematic-vision-top-camera-stabilizers-reviewed/"><u>[New] In 2024, Clear Cinematic Vision - Top Camera Stabilizers Reviewed</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-the-complete-guide-to-professional-fbx-game-capture/"><u>[Updated] In 2024, The Complete Guide to Professional FBX Game Capture</u></a></li>
+<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-motorola-edge-2023-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Motorola Edge 2023</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apex-preparation-for-top-tier-linguistic-proficiency-evaluations/"><u>Apex Preparation for Top-Tier Linguistic Proficiency Evaluations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beat-the-time-barrier-and-learn-slovak-in-smart-10-minute-chunks/"><u>Beat the Time Barrier & Learn Slovak in Smart 10-Minute Chunks!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-cultural-diplomacy-advantages-of-speaking-multiple-languages/"><u>Cross-Cultural Diplomacy: Advantages of Speaking Multiple Languages</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/dont-miss-out-final-hours-for-epic-gaming-bargains-in-october-prime-day-2024-save-big/"><u>Don't Miss Out! Final Hours for Epic Gaming Bargains in October Prime Day 2024, Save Big</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-honor-90-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Honor 90 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578519923-learn-croatian-why-and-how-discover-the-7-key-advantages/"><u>Learn Croatian: Why and How – Discover the 7 Key Advantages!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580654818-lifetime-access-to-languages-black-fridays-best-price/"><u>Lifetime Access to Languages - Black Friday's Best Price!</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-realme-c67-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Realme C67 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tech-innovation-for-education-mondlys-commitment-to-apple/"><u>Tech Innovation for Education: Mondly's Commitment to Apple</u></a></li>
+<li><a href="https://driver-install.techidaily.com/tips-to-tune-your-nvidia-hd-audio-on-w10-pcs/"><u>Tips to Tune Your NVIDIA HD Audio on W10 PCs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tracing-the-development-of-west-frisian-influence/"><u>Tracing the Development of West Frisian Influence</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-unresponsive-function-keys-a-comprehensive-guide/"><u>Troubleshooting Unresponsive Function Keys: A Comprehensive Guide</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Stille Hilfe Durch Worte Im Deutschen Kontext
-date: 2024-09-01T00:16:34.183Z
-updated: 2024-09-02T00:16:34.183Z
+date: 2025-01-03T18:57:52.427Z
+updated: 2025-01-10T19:33:02.172Z
 tags:
   - speak
   - english
@@ -20,11 +20,19 @@ thumbnail: https://thmb.techidaily.com/b652582b03a2fced3d442e3202bf4807e4a1918ed
 
  Let’s look at the most important ways to say “sorry” in German and when to use each of them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## When should you say you’re sorry?
 
  What you need to remember is that learning how to say “sorry” in German also has a cultural component. It’s not enough to learn how to say you’re sorry; you also have to learn_when_ to say you’re sorry. Unlike Americans and even Brits who apologize quite a lot,**Germans tend to keep their sorrys to a minimum.** In fact, they say sorry so rarely that they can come off as rude to people of other nationalities.
 
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to apologize in German
 
@@ -39,8 +47,9 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to say sorry in German – the “Excuse me” sorry
 
  If you bump into someone on the street or cause a mishap, the most common way to say “sorry” in German is_**Entschuldigung**_ which literally means “apology!”. This is basically the “sorry” or the “excuse me” you say for a minor inconvenience. In other words, we’re talking about a slight bump or barely touching that person. If you knock them over, a cool_Entschuldigung_ won’t do, so you should probably apologize sincerely.
@@ -50,8 +59,9 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Other ways to say sorry in German
 
  As you very well know, there can also be other situations where you need to say “sorry” in German. For example, the “can you repeat that?” sorry is quite common. Of course, you can always say_“Entschuldigung?”_ together with the proper facial expression, but sometimes that might not be enough.
@@ -95,9 +105,9 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### From 0 to conversational in German
 
  Do you want to stop apologizing for your pronunciation? Get Mondly, the award-winning language app that will help you [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1.
@@ -120,8 +130,6 @@ Here are some practical examples of apologies in German:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -129,8 +137,20 @@ Here are some practical examples of apologies in German:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-an-ultimate-guide-about-video-resolution-for-beginners-for-2024/"><u>[New] An Ultimate Guide About Video Resolution for Beginners for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-testing-the-capabilities-of-magix-image-viewer/"><u>[New] Testing the Capabilities of MAGIX Image Viewer</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-video-platforms-at-a-glance-comparing-vimeo-and-youtube/"><u>[Updated] In 2024, Video Platforms at a Glance Comparing Vimeo & YouTube</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/1-diagnosing-and-resolving-your-pcs-hardware-malfunctions-a-comprehensive-guide-by-yl-tech-experts/"><u>1. Diagnosing and Resolving Your PC's Hardware Malfunctions: A Comprehensive Guide by YL Tech Experts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-rise-in-popularity-top-10-instagram-hashtags-for-now/"><u>2024 Approved Rise in Popularity Top 10 Instagram Hashtags for Now</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/2024-update-for-hp-officejet-4500-printer-drivers-installation-guide-and-download-links/"><u>2024 Update for HP Officejet 4500 Printer Drivers: Installation Guide and Download Links</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/future-proofing-your-mp4s-srt-integration-hacks-for-2024/"><u>Future-Proofing Your MP4s SRT Integration Hacks for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gsl-perfection-achieved-pearson-and-mondly-union/"><u>GSL Perfection Achieved - Pearson & Mondly Union</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-inspires-global-education-touching-lives-of-70plus-million/"><u>Mondly Inspires Global Education, Touching Lives of 70+ Million</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-complexities-of-ru-sounds/"><u>Navigating the Complexities of RU Sounds</u></a></li>
+<li><a href="https://windows11.techidaily.com/optimize-task-management-on-windows-10-and-11/"><u>Optimize Task Management on Windows 10 & 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sigue-la-rutina-semanal-de-habla-hispana/"><u>Sigue La Rutina Semanal De Habla Hispana</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unleash-potential-discovering-free-onlineoffline-animations-for-2024/"><u>Unleash Potential Discovering Free Online/Offline Animations for 2024</u></a></li>
+</ul></div>
 

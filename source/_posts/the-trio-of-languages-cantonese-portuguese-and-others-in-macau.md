@@ -1,7 +1,7 @@
 ---
 title: "The Trio of Languages: Cantonese, Portuguese & Others in Macau"
-date: 2024-09-01T00:19:49.883Z
-updated: 2024-09-02T00:19:49.883Z
+date: 2025-01-08T17:03:12.094Z
+updated: 2025-01-10T19:14:31.853Z
 tags:
   - speak
   - english
@@ -36,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/dde748be235f13590c269ef1d0659f5ed0b11e11e
 
  Despite its tumultuous history, Macau is the perfect example of a happy ending.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Multilingualism in Macau
 
  Now that you know the history behind it, the Macau linguistic heritage makes much more sense.
@@ -51,13 +55,13 @@ thumbnail: https://thmb.techidaily.com/dde748be235f13590c269ef1d0659f5ed0b11e11e
 ![Cantonese in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/cantonese.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 2")
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Macanese: A Distinctive Creole Language of Macau
 
 **Macanese Patois or the Macanese creole language, known as Patuá** to its speakers, is a mixture of Cantonese, Malay, Sinhalese, and – most importantly – Portuguese. Developed as a lingua franca for communication among the multicultural community of traders, sailors, and settlers, Macanse emerged as a unique language reflecting the melting pot of cultures that Macau represented.
@@ -68,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/dde748be235f13590c269ef1d0659f5ed0b11e11e
 
  Even during the time when Macau was Portuguese territory, the usage of Macanese was already declining, and this trend is unlikely to change now that the territory is under Chinese administration. However, speakers of Macanese still hold a deep sense of pride in the fact that Macau has its unique local language.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Portuguese in Macau: A Journey of 11,000 km
 
  The story of how Portuguese came to Macau and established its presence is truly captivating. While the number of Portuguese speakers in Macau may be small today, the Portuguese influence remains evident in various aspects of Macau’s culture. This influence is particularly noticeable in the legal and administrative sectors, as well as in place names, cuisine, and other cultural elements.
@@ -76,18 +84,12 @@ thumbnail: https://thmb.techidaily.com/dde748be235f13590c269ef1d0659f5ed0b11e11e
 
  The linguistic connection between Macau and Portugal also results in significant movement between the two regions. According to the [2021 Macau Census](https://www.dsec.gov.mo/Censos2021/en-US/) , individuals born in Portugal make up around 0.3% of Macau’s total population, indicating a notable presence of Portuguese-born residents in Macau.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Official Portuguese Usage in Macau
 
  Despite the relatively small number of Portuguese speakers in Macau, the local government remains committed to promoting the Portuguese language. In public schools, students are taught Chinese, English, and Portuguese, reflecting the importance of these languages in the education system. Additionally, the government offers free programs to facilitate the learning of Portuguese among the general population.
 
  In official government documents, both written Portuguese and written Chinese (traditional) are used. This dual-language approach demonstrates the recognition and value given to both languages in administrative matters. In daily life, it is common to come across signs and displays in Macau that feature written Chinese and written Portuguese. This parallel use of languages is similar to the coexistence of written Chinese and British English in Hong Kong.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Cantonese: The Dominant Language of Macau
 
  Cantonese, a variant of the [Chinese language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , is spoken in Macau, Hong Kong, Southern China, as well as by Chinese communities in North America and Southeast Asian countries. While Cantonese is considered a dialect of Chinese, it is important to note that Mandarin and Cantonese are not mutually intelligible, meaning speakers of one may not understand the other.
@@ -96,14 +98,8 @@ thumbnail: https://thmb.techidaily.com/dde748be235f13590c269ef1d0659f5ed0b11e11e
 
 ![multilingualism in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/multilingualism-in-macau.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 3")
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
  Cantonese serves as the primary medium of instruction in the majority of schools in Macau. Additionally, there are mandatory classes that focus on Mandarin, ensuring students have exposure to and proficiency in the official language of China.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Future of Macau’s Languages
 
  The future of Macau’s languages, particularly Macanese and Portuguese, is uncertain at this point. Their survival in Macau depends on preservation efforts and demographic shifts.
@@ -112,13 +108,14 @@ thumbnail: https://thmb.techidaily.com/dde748be235f13590c269ef1d0659f5ed0b11e11e
 
  As China’s influence continues to grow, there has also been a rise in the use of Mandarin. Still, Cantonese remains dominant. On the other hand, Macanese (Patuá), with its small number of speakers, is in danger of extinction. In order to safeguard this distinctive aspect of Macau’s cultural heritage, concerted efforts are said to be made to preserve and promote Macanese through various cultural events and initiatives.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Is English widely spoken in Macau?
 
  English is not as widely spoken in Macau compared to Cantonese. However, due to Macau’s status as popular gambling destination, English is commonly understood and spoken. Many signs, menus, and information for tourists are also available in English. Additionally, English is taught as a compulsory subject in schools, contributing to a level of English proficiency among the younger generation.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Are there any efforts to revitalize endangered languages in Macau?
 
  There are Macanese individuals who are actively engaged in revitalizing the language through various creative mediums such as literature, theater, and music. However, the success of language revival ultimately relies on the active participation of younger generations—the ones who will be responsible for carrying it forward into the mid-twenty-first century. Their involvement and commitment are crucial for the preservation and continued vitality of the Macanese language.
@@ -150,8 +147,6 @@ thumbnail: https://thmb.techidaily.com/dde748be235f13590c269ef1d0659f5ed0b11e11e
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -159,8 +154,26 @@ thumbnail: https://thmb.techidaily.com/dde748be235f13590c269ef1d0659f5ed0b11e11e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-newest-methods-for-ios-screenshots-and-playback/"><u>[Updated] 2024 Approved Newest Methods for iOS Screenshots & Playback</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitching-videos-seamlessly-twitter-and-tumblr-guide/"><u>[Updated] 2024 Approved Twitching Videos Seamlessly Twitter & Tumblr Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/1716069913904-updated-in-2024-inbuilt-camera-functions-to-capture-screens-on-huaweis-matep-series-phones/"><u>[Updated] In 2024, Inbuilt Camera Functions to Capture Screens on Huawei's Mate/P Series Phones.</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-mac-screen-casting-and-microphone-integration-for-2024/"><u>[Updated] Mac Screen Casting and Microphone Integration for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-blueprint-for-mastering-french-phonetics/"><u>Beginner's Blueprint for Mastering French Phonetics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575207853-championing-the-best-3-sites-master-a-new-language-today/"><u>Championing the Best 3 Sites: Master a New Language Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/determining-the-most-practical-linguistic-skill-germanfrench/"><u>Determining the Most Practical Linguistic Skill: German/French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dissecting-the-linguistic-gaps-of-usa-and-uk/"><u>Dissecting the Linguistic Gaps of USA and UK</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/dive-into-enhanced-gameplay-with-the-cooler-master-57-inch-dual-4k-gaming-display-and-super-ultrawide-viewing-experience/"><u>Dive Into Enhanced Gameplay with the Cooler Master 57-Inch, Dual-4K Gaming Display and Super Ultrawide Viewing Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-and-learn-spanish-in-multiplayer-virtual-reality/"><u>Engage and Learn Spanish in Multiplayer Virtual Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578465650-eternal-access-to-mondlys-best-with-zero-price/"><u>Eternal Access to Mondly's Best with Zero Price</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576799927-expand-your-reach-mondly-support-on-oculus-quest-now/"><u>Expand Your Reach: Mondly Support on Oculus Quest Now!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-native-learning-chinese-thank-you-expressions/"><u>From Novice to Native: Learning Chinese Thank You Expressions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-lava-yuva-2-pro-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/key-steps-for-efficiently-engaging-recovery-tool/"><u>Key Steps for Efficiently Engaging Recovery Tool</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-meet-pop-culture-understand-ks/"><u>Languages Meet Pop Culture: Understand KS</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/maximizing-efficiency-streamlined-methods-to-download-vimeo-videos-for-2024/"><u>Maximizing Efficiency Streamlined Methods to Download Vimeo Videos for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/opening-and-managing-srt-files-seamlessly-for-2024/"><u>Opening and Managing SRT Files Seamlessly for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolve-the-0x800f0831-problem-in-no-time-a-guide-to-windows-update-remedies/"><u>Resolve the 0X800F0831 Problem in No Time: A Guide to Windows Update Remedies</u></a></li>
+</ul></div>
 

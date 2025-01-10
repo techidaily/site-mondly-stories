@@ -1,7 +1,7 @@
 ---
 title: "Saying Thanks in 30 Languages: An Intercultural Companion (154)"
-date: 2024-09-01T00:16:29.187Z
-updated: 2024-09-02T00:16:29.187Z
+date: 2025-01-04T16:10:33.499Z
+updated: 2025-01-10T18:37:08.952Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
 
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
 
@@ -56,7 +60,15 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Thanks” by Hanny Naibaho©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
 
@@ -82,8 +94,9 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in over 40 languages
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -105,8 +118,6 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -114,8 +125,22 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-3-best-ipad-voice-memo-and-capture-software/"><u>[New] In 2024, 3 Best iPad Voice Memo and Capture Software</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-the-blueprint-for-tiktok-profitability-mastering-filmmaker-funds-for-2024/"><u>[Updated] The Blueprint for TikTok Profitability – Mastering Filmmaker Funds for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-a-deep-dive-into-the-fundamentals-of-youtube-shorts/"><u>2024 Approved A Deep Dive Into The Fundamentals of YouTube Shorts</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/high-price-low-impact-a-comprehensive-review-of-samsungs-un65nu8000fxza-smart-tv/"><u>High Price, Low Impact: A Comprehensive Review of Samsung's UN65NU8000FXZA Smart TV</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-language-gems-the-most-prestigious-50-phrases/"><u>Latin Language Gems: The Most Prestigious 50 Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-urdu-online-a-breeze/"><u>Learn Urdu Online – A Breeze!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prosperous-relationships-start-with-japanese-greetings/"><u>Prosperous Relationships Start With Japanese Greetings</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/refund-process-and-terms-for-winxdvd-program-digitarty-official/"><u>Refund Process and Terms for WinXDVD Program - DigitArty Official</u></a></li>
+<li><a href="https://techidaily.com/remove-samsung-lock-screen-without-password-samsung-galaxy-s21-fe-5g-2023-by-drfone-android-unlock-android-unlock/"><u>Remove Samsung Lock Screen without Password(Samsung Galaxy S21 FE 5G (2023))</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-ultimate-selection-of-ipad-pro-enhancers-for-2cuary-expert-picks-from-zdnet/"><u>The Ultimate Selection of iPad Pro Enhancers for 2Cuary: Expert Picks From ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-word-lengthiest-language-entity/"><u>The Ultimate Word: Lengthiest Language Entity</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-nokia-xr21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-100-most-misspelled-words-in-english/"><u>Top 100 Most Misspelled Words in English</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/workplace-implications-of-using-chatgpt-the-legal-landscape/"><u>Workplace Implications of Using ChatGPT: The Legal Landscape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/yearly-goals-the-path-to-fruition/"><u>Yearly Goals: The Path to Fruition</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Deutsche Dialekte: Greetingsdiversität Ohne 'Hallo'"
-date: 2024-09-05T04:34:12.037Z
-updated: 2024-09-06T04:34:12.037Z
+date: 2025-01-03T17:51:47.175Z
+updated: 2025-01-10T19:16:49.555Z
 tags:
   - speak
   - english
@@ -20,12 +20,6 @@ _Hallo!_ It’s nice to be properly greeted, isn’t it? Everywhere in the world
 
  Meanwhile, don’t forget that ‘hello’ is probably the simplest way to sound fluent. Throw in a smile and you’ll also look like one!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Hallo – the universal ‘hello’ in German
 
 _Hallo_ is the simplest and most straightforward way to say ‘hello’ in German. It’s short, sweet, and common across the entire German-speaking world. Besides, it’s friendly and can be used successfully in any social situation – either formal or informal.
@@ -35,11 +29,9 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  First, some good news! As it turns out, Germans use_hi_ too. Careful though: as you already know,_hi_ is more informal than_hallo_ so you should keep this one between friends.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Hallöchen – ‘Hello’ (lit. ‘little hello’)
 
  If you want to avoid repetition and diversify your vocabulary, you can also say_hallöchen,_ which is literally a ‘little hello’. It’s best to use_hallöchen_ to greet… whoever says German is a harsh language 🤭.
@@ -65,11 +57,9 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Abend!_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -84,6 +74,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Was ist los? – “What’s up?”
 
  Very similar to_alles klar?_ ,_was ist los?_ is appropriate for very casual conversations.
@@ -92,22 +86,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Na – “Hey, how are you?”
 
  Ok, here’s a tough one._Na_ literally means ‘well!’ in German, but as a greeting, it’s used like a contracted way of saying “hi, how are you doing?”. What’s more,_na_ can even be used as an answer to the greeting:
@@ -125,6 +107,10 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** mostly northern Germany.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Moin moin – “Hi”
 
  The ‘harsh’ German language strikes again. Imagine you’re in Hamburg and people are cheerfully saying_moin_ or_moin moin_ or even_moinsten_ to you. What do you do? You say_moin_ back, of course!
@@ -133,17 +119,15 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** northern Germany, especially in and around Hamburg.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Grüezi – “Hello”
 
 _Grüezi_ is a greeting you can use in formal situations, such as speaking with people you don’t know.
 
 **Localization:** Switzerland.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Grüß Gott – “God bless you”
 
@@ -153,12 +137,6 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
 
 **Localization:** Bavaria (south-eastern Germany) and Austria.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. Servus – “At your service”
 
 _Servus_ was originally a shortened version of a [Latin phrase](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) meaning “at your service”. However, the original meaning was lost through time and the greeting we use nowadays is not as formal as you’d think.
@@ -198,8 +176,6 @@ _Tschüss!_ (‘Goodbye!’)
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -207,8 +183,24 @@ _Tschüss!_ (‘Goodbye!’)
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-the-ultimate-guide-to-macs-image-file-transformation/"><u>[New] 2024 Approved The Ultimate Guide to Mac's Image File Transformation</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-boost-your-income-on-reddit-with-these-13-strategies-for-2024/"><u>[New] Boost Your Income on Reddit with These 13 Strategies for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-color-correction-techniques/"><u>[New] Mastering Color Correction Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-brief-blueprints-iphone-content-for-desktop/"><u>[Updated] 2024 Approved Brief Blueprints IPhone Content for Desktop</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-thriving-in-twitter-live-tv-mode/"><u>2024 Approved Thriving in Twitter Live TV Mode</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-analysis-of-german-vs-french-languages-usability/"><u>Comparative Analysis of German vs French Languages' Usability</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-breakdown-the-top-features-and-capabilities-of-the-dell-xps-13-convertible-laptop/"><u>Comprehensive Breakdown: The Top Features & Capabilities of the Dell XPS 13 Convertible Laptop</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723210243867-error-code-0x80072f8f-on-your-computer-heres-how-you-can-troubleshoot-windows-1110-issues-easily/"><u>Error Code 0X80072F8F on Your Computer? Here's How You Can Troubleshoot Windows 11/10 Issues Easily!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestone-moments-with-mondly-languages-visionary-dreams-alive/"><u>Milestone Moments with Mondly Languages - Visionary Dreams Alive</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580253916-quick-language-leap-slovak-essentials-learned-in-10-minute-spurts/"><u>Quick Language Leap: Slovak Essentials Learned in 10-Minute Spurts!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resolving-latency-issues-a-guide-to-eliminating-audio-lag-on-your-chromecast/"><u>Resolving Latency Issues: A Guide to Eliminating Audio Lag on Your Chromecast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-blueprint-behind-mondlys-education/"><u>The Blueprint Behind Mondly's Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-mastering-spaniard-diacritical-marks/"><u>The Ultimate Guide to Mastering Spaniard Diacritical Marks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unearthing-the-worlds-largest-word-existence/"><u>Unearthing the World's Largest Word Existence</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unveiling-the-capabilities-of-the-tp-link-archer-a9-an-exceptional-wifi-solution-for-less-than-100/"><u>Unveiling the Capabilities of the TP-Link Archer A9: An Exceptional WiFi Solution for Less Than $100</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-linguistics-redefined-by-mondlys-innovative-ar-app/"><u>VR Linguistics Redefined by Mondly's Innovative AR App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-worth-dining-with-top-tier-phrases-for-romantic-encounters/"><u>Words Worth Dining With: Top-Tier Phrases for Romantic Encounters</u></a></li>
+</ul></div>
 

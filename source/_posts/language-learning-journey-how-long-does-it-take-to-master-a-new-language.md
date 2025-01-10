@@ -1,7 +1,7 @@
 ---
 title: "Language Learning Journey: How Long Does It Take To Master A New Language?"
-date: 2024-12-28T19:16:36.949Z
-updated: 2025-01-03T20:29:03.232Z
+date: 2025-01-04T20:32:39.102Z
+updated: 2025-01-10T18:46:23.671Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
  English is the most international language on the globe. If you are a native English speaker, chances are, you can get along quite comfortably in most Western countries without learning a word in another language. In Europe especially, with enough luck, someone out there may know enough English to initiate and sustain basic communication situations.
 
  But of course, for various other reasons either personal, cultural or work-related, you will find yourself in need of learning a foreign language. The next natural question after deciding to learn a new language is: how many hours does it take to learn a foreign language and achieve fluency?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Estimated times to learn a new language
 
@@ -43,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 * **Knowing more than one language helps —** languages with shared features with English are generally easier to learn, while those with significant cultural and linguistic differences may take longer to learn;
 * **The time spent learning depends on you** **—** The time it takes to learn a new language varies greatly depending on your motivation and dedication to the task.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Interagency Language Roundtable scale or the IRL scale
 
  The Interagency Language Roundtable is a grading scale used by the US government to scale [employees](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and diplomats working for the FSI (Foreign Service Institute). You’ll find this scale to be the most accurate when it comes to native English speakers learning a foreign language. Basically, what this scale does is establish the language difficulty.
@@ -59,6 +67,10 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
  But first, we need to clarify a certain aspect of learning foreign languages as a native English speaker: some languages are more difficult to learn than others. Why? Because English and some other languages haven’t been in contact with one another for thousands of years and have evolved in a totally different way. But studying languages that are completely different from English is not impossible. It takes longer, but you’ll eventually get there.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Easiest language to learn for English speakers
 
  The data presented below reflects a study held by the FSI (Foreign Service Institute) of the US government. Again, this is probably the most accurate data regarding how much time it takes for a native English speaker to become fluent in a particular new language.
@@ -66,7 +78,7 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
  The FSI has over 800 language learning courses in more than 70 languages with more than 70 years of experience in training US diplomats and foreign affairs employees.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Tier 1:** Languages that are most closely related to English
@@ -101,10 +113,6 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 * comparable stress and intonation patterns;
 * already share a number of vocabulary words.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Tier 2:** Similar to English
 
 | Language | Time needed to reach fluency |
@@ -118,7 +126,7 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 !["Fastest way to learn a language" by RF._.studio©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/fastest-way-to-learn-a-language-960x641.jpg "How Long Does It Take In Hours To Learn A Language? 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Tier 3:** Languages that may have cultural and linguistic differences compared to English
@@ -131,10 +139,6 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 | Haitian Creole | 900 hours or 36 weeks        |
 
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-1364&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1364)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Tier 4:** Languages that are profoundly different from English
 
@@ -161,10 +165,6 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 | Vietnamese      | 1100 hours or 44 weeks       |
 
  The languages above are just a part of the European languages classified as tier 4 by the FSI. The list goes on with other languages from all over the world, like Mongolian, Nepali, Thai, Xhosa, Zulu or Hebrew. All of them take about 1100 hours or 44 weeks to become fluent in. Thus, when it comes to the difficulty of languages, this list does indeed include hard languages to learn, but not the hardest.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Hardest language to learn for English speakers
 
@@ -224,19 +224,22 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/udio-integration-your-youtube-playlist-for-2024/"><u>[New] Audio Integration Your YouTube Playlist for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-fresh-ideas-to-talk-about-in-daily-vlogging/"><u>[New] Fresh Ideas to Talk About in Daily Vlogging</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-unveiling-high-definition-with-lgs-31mu97-b-digital-cinema-screen/"><u>[New] In 2024, Unveiling High Definition with LG's 31MU97-B Digital Cinema Screen</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210562412-9781935492214-el-descanso-pleno/"><u>El descanso pleno | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/grasping-numbers-as-a-non-native-speaker/"><u>Grasping Numbers as a Non-Native Speaker</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/immediate-purchase-options-for-apples-new-releases-post-wwdc-discover-locations-and-preorder-steps-zdnet/"><u>Immediate Purchase Options for Apple's New Releases Post-WWDC - Discover Locations & Preorder Steps | ZDNET</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-seamless-integration-of-youtube-media-in-gslides/"><u>In 2024, Seamless Integration of YouTube Media in GSlides</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-the-premier-audio-augmented-app/"><u>Introducing the Premier Audio-Augmented App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-multiple-languages-quickly-and-quietly-with-the-best-3-platforms/"><u>Master Multiple Languages Quickly & Quietly With the Best 3 Platforms!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/o-olhar-lusitano-expressoes-e-saudacoes-de-qualidade/"><u>O Olhar Lusitano: Expressões E Saudações De Qualidade</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/the-common-mistakes-that-prevent-longer-iphone-battery-life-avoid-them-at-all-cost/"><u>The Common Mistakes That Prevent Longer iPhone Battery Life - Avoid Them at All Cost!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-sounds-of-romance-in-language/"><u>The Sounds of Romance in Language</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/troubleshooting-tips-how-to-exit-safe-mode-on-your-ps4-console/"><u>Troubleshooting Tips: How To Exit Safe Mode On Your PS4 Console</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/united-in-happiness-july-4th-revelries/"><u>United in Happiness: July 4Th Revelries</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-seamless-slidecasts-combining-webcam-and-ppt/"><u>[New] 2024 Approved Seamless Slidecasts Combining Webcam and PPT</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-dive-into-audacity-simple-steps-to-record-on-mac-devices-for-2024/"><u>[New] Dive Into Audacity Simple Steps to Record on Mac Devices for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-effortless-techniques-for-stunning-time-lapse-photography-using-samsungs/"><u>[New] In 2024, Effortless Techniques for Stunning Time Lapse Photography Using Samsungs</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-professional-livestream-selector-pick-between-virusmix-and-castpro/"><u>[Updated] Professional Livestream Selector Pick Between VirusMix and CastPro</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-best-free-live-streaming-software-and-app-for-all-platforms-2023-list/"><u>2024 Approved Best Free Live Streaming Software and App for All Platforms [2023 List]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-journey-through-french-language-27-key-phrases/"><u>A Journey Through French Language: 27 Key Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficiently-acquiring-french-skills-indoor-methods/"><u>Efficiently Acquiring French Skills - Indoor Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-communication-through-3-neurological-activities/"><u>Enhanced Communication Through 3 Neurological Activities</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-vivo-s18-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-era-for-your-personal-data-rights/"><u>New Era for Your Personal Data Rights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/socratic-speeches-from-antiquity-to-modern-syntax/"><u>Socratic Speeches: From Antiquity to Modern Syntax</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachkompetenz-aufbauend-von-eins-bis-hundert-lernen/"><u>Sprachkompetenz Aufbauend: Von Eins Bis Hundert Lernen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-with-latvian-today-just-ten-minutes-a-day/"><u>Start with Latvian Today - Just Ten Minutes a Day</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/stream-with-ease-using-logitech-hd-pro-cx3070-download-the-right-drivers-for-your-os/"><u>Stream with Ease Using Logitech HD Pro CX3070: Download the Right Drivers for Your OS!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viaje-comprensivo-al-cuerpo-humano-de-la-piel-al-cartilago/"><u>Viaje Comprensivo Al Cuerpo Humano: De La Piel Al Cartílago</u></a></li>
 </ul></div>
 

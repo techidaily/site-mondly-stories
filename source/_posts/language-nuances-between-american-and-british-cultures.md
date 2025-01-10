@@ -1,7 +1,7 @@
 ---
 title: Language Nuances Between American and British Cultures
-date: 2025-01-01T21:50:31.663Z
-updated: 2025-01-03T16:03:08.898Z
+date: 2025-01-08T16:07:07.970Z
+updated: 2025-01-10T17:32:28.748Z
 tags:
   - speak
   - english
@@ -23,10 +23,6 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
  Before we go on… you’ve just realized, didn’t you? **The “sweater weather” is actually the “jumper weather” or the “pullover weather” in the UK.** Oh my God, this can’t be right, is it?
 
 ![British vs American](https://media.giphy.com/media/SqmkZ5IdwzTP2/giphy.gif "British English Vs American English Differences: Spelling, Pronunciation And More 2")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The English language in the Americas
 
@@ -67,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
  Previous  Next
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spellings differences: is it “colour” or “color”?
 
  That’s simple! “Colour” is the British spelling and “color” is the American spelling. Always remember that, when it comes to spelling, American English uses a simplified version. The explanation goes back to 1828 when Noah Webster wrote the first American dictionary –_An American Dictionary of the English Language._ Webster said he chose alternative spellings that were already in use in the United States “on such grounds as simplicity, analogy or etymology”.
@@ -95,10 +95,6 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
  If you speak English as a second language and you are not sure which is the correct spelling for the type of English you use, install a spell checker and let it do the job for you. In time, you’ll get used to the fitting spelling and learn to write correctly on your own.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Grammar differences
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
@@ -109,11 +105,19 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
  Thus, while**“The band is playing”** in the US, in the UK**“The band are playing”** . Likewise, if I’m in the US,**“My team is winning”** . But if I’m in the UK,**“My team are winning”** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Learned or learnt?
 
 **Learned** and**learnt** are both the correct past participle and past tense forms of the verb “to learn”. Easily overlooked in speech, but much more obvious in writing, this subtle difference addresses verbs.
 
  Many verbs that are irregular in the past tense in British English (_dreamt, burnt, learnt_), have been made regular in American English (_dreamed, burned, learned_).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Got or gotten?
 
@@ -130,7 +134,7 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
  Thus, in Britain, you’ll say**“I’ve been to the supermarket”** and in the US you’ll say**“I went to the supermarket”** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Prepositions
@@ -147,19 +151,11 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
  Additionally, in Britain, you are likely to hear “needn’t” a lot and in the US not at all. In its place, Americans use “don’t need to”.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## British accent vs American accent
 
  The biggest difference between British English and American English is, undoubtedly, the accent. The reason why these two variations sound so different is known as rhotacism, the change of a particular consonant into a rhotic consonant. In this case, the consonant is “r”.
 
  American accent is rhotic and Americans pronounce their “R’s” loud and clear. On the other hand, the British accent is non-rhotic and Brits usually replace their “R’s” with “H’s”. Thus, words like “water” or “card” will be pronounced_wa-tuh_ or_caahd_ .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## British vs American: which one should you learn and use?
 
@@ -175,6 +171,10 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Brush up your English in just 10 minutes a day
 
@@ -201,22 +201,19 @@ thumbnail: https://thmb.techidaily.com/cc01732303965dd5a4fe7a6395032b1f09e613e11
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-enhancing-online-privacy-youtubes-access-controls/"><u>[New] 2024 Approved Enhancing Online Privacy YouTube's Access Controls</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-mastering-viewer-interest-6-video-styles-explored/"><u>[Updated] Mastering Viewer Interest 6 Video Styles Explored</u></a></li>
-<li><a href="https://win-able.techidaily.com/46mv/"><u>「乃木坂46」メンバーの最新MVダウンロード手順</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-realizing-your-audio-based-ppt-with-easy-s2t-tools/"><u>2024 Approved Realizing Your Audio-Based PPT with Easy S2T Tools</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ring-social-platforms-facebook-live-vs-youtube-live-and-twitter-periscope/"><u>Comparing Social Platforms Facebook LIVE Vs. YouTube Live & Twitter Periscope</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/groundbreaking-guide-to-arabic-rookies/"><u>Groundbreaking Guide to Arabic Rookies</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/handling-windows-11-the-fix-for-license-near-expiry/"><u>Handling Windows 11: The Fix for 'License Near Expiry'</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-navigating-board-features-across-apple-android-and-windows-for-effective-online-collaboration/"><u>In 2024, Navigating Board Features Across Apple, Android & Windows for Effective Online Collaboration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-cheers-to-independence-day/"><u>International Cheers to Independence Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-czech-fast-top-rated-online-language-apps/"><u>Learn Czech Fast: Top-Rated Online Language Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-basic-numbers-in-spanish/"><u>Mastering Basic Numbers in Spanish</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/mastering-technology-choices-through-toms-hardware-wisdom/"><u>Mastering Technology Choices Through Tom's Hardware Wisdom</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-launches-virtual-reality-for-learning-languages-powered-by-chatbots/"><u>Mondly Launches Virtual Reality for Learning Languages, Powered by Chatbots</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pinnacle-languages-certifications-and-effective-preparation/"><u>Pinnacle Languages Certifications & Effective Preparation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/soviet-era-influences-on-uk-and-rus-speech/"><u>Soviet-Era Influences on Uk & Rus Speech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-speech-patterns-a-guide-to-french-idioms/"><u>Transform Speech Patterns: A Guide to French Idioms</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-audio-drivers-made-easy-with-yl-computings-techniques/"><u>Troubleshooting Audio Drivers Made Easy with YL Computing's Techniques</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-124-smile-inducing-short-videos-on-tiktok/"><u>[New] 124 Smile-Inducing Short Videos on TikTok</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-capturing-mac-screen-images-top-5-techniques/"><u>[New] Capturing Mac Screen Images Top 5 Techniques</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-premier-tiktok-editing-apps-for-windows-users-for-2024/"><u>[Updated] Premier TikTok Editing Apps for Windows Users for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-srt-audio-file-handling-for-oses/"><u>2024 Approved SRT Audio File Handling for OSes</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-the-ultimate-countdown-best-zombie-games-ranked/"><u>2024 Approved The Ultimate Countdown Best Zombie Games Ranked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-bilingual-in-minutes-enjoy-unbelievable-discounts/"><u>Become a Bilingual in Minutes: Enjoy Unbelievable Discounts!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cherishing-the-gift-of-daily-enlightenment/"><u>Cherishing the Gift of Daily Enlightenment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/googles-kid-nutrition-pioneer-mondly-kids-guide-of-2017/"><u>Google’s Kid Nutrition Pioneer: Mondly Kids Guide of 2017</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Where Is the Best Place to Catch Dratini On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-every-day-a-multilingual-day-with-arabic-and-mondly-onlines-top-6-reasons/"><u>Make Every Day a Multilingual Day with Arabic & Mondly Online's Top 6 Reasons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-ignites-passion-for-learning-engaging-the-worlds-youth/"><u>Mondly Ignites Passion for Learning – Engaging the World's Youth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tech-upgrade-for-students-mondlys-apple-collaboration/"><u>Tech Upgrade for Students: Mondly’s Apple Collaboration</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-surge-in-telegram-users-following-facebook-downtime/"><u>The Surge in Telegram Users Following Facebook Downtime</u></a></li>
 </ul></div>
 

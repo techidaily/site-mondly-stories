@@ -1,7 +1,7 @@
 ---
 title: Understanding Simplified Han Characters
-date: 2025-01-01T23:54:53.011Z
-updated: 2025-01-03T20:36:02.613Z
+date: 2025-01-03T17:05:08.849Z
+updated: 2025-01-10T18:54:37.416Z
 tags:
   - speak
   - english
@@ -38,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
  Out of these 13 groups of dialects, there are 7 that are considered major: Mandarin, Yue (Cantonese), Xiang, Min, Gan, Wu and Hakka.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The history of the Chinese language and its alphabet
 
  Chinese is not what we’d call a new language. Chinese is a language with a long tradition that has touched the lips of many great emperors from many great dynasties before becoming the language we all know (or wished we’d known) today. If we also count in [Old Chinese](https://en.wikipedia.org/wiki/Old%5FChinese) , which is the oldest attested stage of Chinese and the ancestor of all modern varieties of Chinese, we could say that Chinese is around 3200 years old. No less than three millennia of tradition!
@@ -51,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
  Meanwhile, spoken Chinese continued to evolve into Middle Chinese, the ancestor of almost all modern Chinese varieties. However, Middle Chinese was most a single unified language, but a family of mutually intelligible dialects that began diverging into different directions around the 10th century CE.
 
 ![chinese characters](https://edge.mondly.com/blog/wp-content/uploads/2020/06/chinese-characters-600x402.jpg "Quick Introduction To The Chinese Alphabet, Chinese Characters And Pinyin 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Chinese antique calligraphic text
 
@@ -64,10 +64,6 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
  Don’t worry though. There is also good news for us, Chinese beginners! Speakers of all varieties of Chinese typically write in [Standard Chinese](https://en.wikipedia.org/wiki/Standard%5FChinese) even though their spoken language is different. Of course, they’ll pronounce each character in their local variety of Chinese but use the Standard Chinese characters. Nevertheless, you should also note that Chinese languages are often different in terms of grammar and vocabulary. So whatever variety of Chinese you choose to learn, it’s best to stick to it until the end so you won’t get confused.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Two different systems for writing Chinese characters
 
  And when you thought it gets easier… it gets complicated again. Luckily, you were born in the right century and there are smart language learning apps such as [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5327&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5327?mother%5Flang=en%5Fus?target%5Flang=zh&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5327?mother%5Flang=en%5Fus?target%5Flang=zh) that can help you learn Chinese easier.
@@ -77,10 +73,6 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
  Simplified characters are used in the People’s Republic of China and Singapore and traditional characters are used in Taiwan, Hong Kong and Macau because they were not under Chinese rule when the simplified characters were introduced.
 
  Despite the obvious differences between the two systems, literate native speakers generally have no problem reading either of them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Don’t forget about pronunciation
 
@@ -105,7 +97,7 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
  Don’t let those numbers scare you though. If you really want to do this and you are passionate enough, learning Chinese won’t be about numbers, but about how accomplished you’ll feel when you’ll learn something new.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is Pinyin?
@@ -128,6 +120,10 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
 ![chinese writing system](https://edge.mondly.com/blog/wp-content/uploads/2020/06/chinese-writing-system-600x400.jpg "Quick Introduction To The Chinese Alphabet, Chinese Characters And Pinyin 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Wusheng Temple, Taiwan” by Henry & Co.©
 
 ## 10 Chinese characters you can learn right now
@@ -138,24 +134,28 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
  这是我**的** 朋友。- _Zhè shì wǒ**de** péngyou_ – This is**my** friend.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 一 yī – “one”, “once”, “single”, “first, ”best“, “a little”
 
  再来**一** 轮酒！- _Zàilái**yī** lún jiǔ!_ –**One** more round!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 是 shì – to be (used to link two nouns together)
 
  你**是** 一名旅行者吗？- _Nǐ**shì** yī míng lǚ xíng zhě ma?_ – Are you a tourist?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 不 bù – not (negative prefix)
 
  今天我**不** 工作。- _Jīntiān wǒ**bù** gōngzuò._ – I am**not** working today.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 了 le – modal verb particle
@@ -163,10 +163,6 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
  Used to indicate the completion of an activity or the change in a situation. It doesn’t really have an equivalent in English.
 
  现在太晚**了** 。- _Xiànzài tài wǎn**le** ._ – Now it’s not too late.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 人 rén – man, person, people
 
@@ -176,17 +172,21 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
 **我** 准备好要点菜了。- _**Wǒ** zhǔnbèi hǎo yàodiǎn càile._ –**I** am ready to order.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 在 zài – located (at), in
 
  你**在** 哪里生活？- _Nǐ**zài** nǎlǐ shēnghuó?_ – Where do you live?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 有 yǒu – to have, there is, there are, to exist
 
  你**有** 一张城市地图吗？- _Nǐ**yǒu** yī zhāng chéngshì dìtú ma?_ – Do you**have** a city map?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 他 tā – he, him, his
 
@@ -222,20 +222,22 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-essential-guidelines-to-create-impactful-youtube-banners/"><u>[New] In 2024, Essential Guidelines to Create Impactful YouTube Banners</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-pinnacle-photo-chronicles-creator-set/"><u>[Updated] Pinnacle Photo Chronicles Creator Set</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-behind-the-scenes-with-filmora-top-10-must-haves/"><u>2024 Approved Behind the Scenes with Filmora Top 10 Must-Haves</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/comprehensive-tutorial-on-performing-a-total-system-refresh-on-your-ipad/"><u>Comprehensive Tutorial on Performing a Total System Refresh on Your iPad</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-most-advanced-asus-router-releases/"><u>Discover The Most Advanced Asus Router Releases</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721480222651-extended-iphone-lock-screen-time-find-out-why-and-quick-fixes/"><u>Extended iPhone Lock Screen Time - Find Out Why and Quick Fixes!</u></a></li>
-<li><a href="https://techidaily.com/how-to-hard-reset-vivo-y02t-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Vivo Y02T Without Password | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simple-steps-to-mastering-turkish-orthography-an-easy-to-use-reference/"><u>Simple Steps to Mastering Turkish Orthography: An Easy-to-Use Reference</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/skyrocket-sales-harnessing-the-power-of-articulate-dialogue/"><u>Skyrocket Sales: Harnessing the Power of Articulate Dialogue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-10-list-of-spanish-salutations-and-greetings/"><u>The Ultimate 10 List of Spanish Salutations & Greetings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transcending-barriers-international-birthday-talk/"><u>Transcending Barriers: International Birthday Talk</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/universal-happiness-linguistic-birthday-gems/"><u>Universal Happiness: Linguistic Birthday Gems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-fluency-learning-russian-letter-sounds/"><u>Unlock Fluency: Learning Russian Letter Sounds</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unveiling-the-secrets-of-hardware-with-tom-the-expert-insight/"><u>Unveiling the Secrets of Hardware with Tom - The Expert Insight</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sygkentrwsh-eyxes-piatoy/"><u>Συγκέντρωση Ευχές Πιάτου</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-beatbell-instructions-making-tamil-music-your-call-alerts-for-2024/"><u>[New] BeatBell Instructions Making Tamil Music Your Call Alerts for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-cross-cultural-films-that-sharpen-your-vocabulentic-skills/"><u>10 Cross-Cultural Films That Sharpen Your Vocabulentic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-manieres-francaises-oui-bienvenue/"><u>4 Manières Françaises: Oui, Bienvenue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-surprising-ways-multilingualism-enriches-life/"><u>7 Surprising Ways Multilingualism Enriches Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-dedicated-decade-mondlybacks-filter-success/"><u>A Dedicated Decade: MondlyBack's Filter Success</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/airpod-resets-gone-wrong-heres-what-you-need-to-do/"><u>AirPod Resets Gone Wrong? Here's What You Need to Do!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilians-vs-europeans-the-subtleties-of-pt-shortcuts/"><u>Brazilians vs Europeans: The Subtleties of PT Shortcuts</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/bringing-down-the-time-barrier-for-fastening-fb-video-content-for-2024/"><u>Bringing Down the Time Barrier for Fastening FB Video Content for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/converse-with-australians-mastering-local-idioms/"><u>Converse with Australians: Mastering Local Idioms</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-the-key-discoveries-at-ces-2023-day-two-a-comprehensive-review-by-zdnet/"><u>Exploring the Key Discoveries at CES 2023 Day Two: A Comprehensive Review by ZDNet</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-do-i-stop-frequently-altering-settings-without-compromising-functionality/"><u>How Do I Stop Frequently Altering Settings Without Compromising Functionality?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-realme-12-proplus-5g-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Realme 12 Pro+ 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581279462-make-it-a-memorable-year-enjoy-unbeatable-savings-with-free-mondly-pro/"><u>Make It a Memorable Year: Enjoy Unbeatable Savings with Free Mondly Pro!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-samsung-galaxy-s23-fe-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Samsung Galaxy S23 FE Phone? Unlock It Now</u></a></li>
+<li><a href="https://win-blog.techidaily.com/revive-your-rpg-adventure-overcoming-stutter-and-freeze-problems-in-baldurs-gate-iii/"><u>Revive Your RPG Adventure: Overcoming Stutter and Freeze Problems in Baldur's Gate III</u></a></li>
+<li><a href="https://windows11.techidaily.com/tackling-windows-write-operations-error/"><u>Tackling Windows Write Operations Error</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578409266-unveiling-8-engaging-reasons-to-master-hindi-with-mondly-online/"><u>Unveiling 8 Engaging Reasons to Master Hindi with Mondly Online!</u></a></li>
 </ul></div>
 

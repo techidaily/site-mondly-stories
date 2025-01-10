@@ -1,7 +1,7 @@
 ---
 title: Global Perspective on Countries Dominating in French Speaking
-date: 2024-12-28T23:08:50.474Z
-updated: 2025-01-04T01:09:30.335Z
+date: 2025-01-06T16:28:01.175Z
+updated: 2025-01-10T17:42:17.621Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/c097990fd37784ce6293a6224fb832fd4d9a7841c
  French is one of the most spoken and widespread languages in the world. As a result of the French colonization from the 16th century onward, we have a**long list of French-speaking countries** today. In fact, along with English, French is the only language spoken on five continents: Europe, Africa, Asia, America and Oceania (or Australia). Naturally, we can’t help but ask ourselves: **how many people [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?** Let’s find out.
 
  Meanwhile, if you’re not sure whether you should [learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or not, our advice would be to go for it. **French has been adopted as the official language of the largest number of countries after English.** For this reason alone, speaking French will help you make friends and easily communicate all over the world.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How many people speak French?
 
@@ -45,7 +49,11 @@ thumbnail: https://thmb.techidaily.com/c097990fd37784ce6293a6224fb832fd4d9a7841c
 ![how many people speak french](https://edge.mondly.com/blog/wp-content/uploads/2022/10/how-many-people-speak-french-960x600.jpg "Top French-Speaking Countries | How Many People Speak French? 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### French-speaking countries in Europe
@@ -93,10 +101,6 @@ The French-speaking countries of Africa are:
 
  \* the number represents the percentage of the population who speak French.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### French-speaking countries in North America
 
  If we know anything about Canada, it is the fact that the French language occupies a special place in its heart. At a national level, both English and French are recognized as official languages, but their status differs from one province to another. For example, in Quebec, French is the only official language.
@@ -116,7 +120,7 @@ We told you that French speakers could be found everywhere in the world!
 !['French speakers' by Claudia Altamimi©](https://edge.mondly.com/blog/wp-content/uploads/2022/10/french-speakers-960x720.jpg "Top French-Speaking Countries | How Many People Speak French? 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### French-speaking countries in Oceania
@@ -130,7 +134,7 @@ We told you that French speakers could be found everywhere in the world!
  Later, in the 1880s, France and the United Kingdom claimed parts of the archipelago and they agreed to manage it jointly. However, an independence movement arose in the 1970s, and the Republic of Vanuatu was founded in 1980\. And that’s the story of how the French language made it all the way to Australia.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Countries where French is spoken although it’s not an official language
@@ -140,10 +144,6 @@ We told you that French speakers could be found everywhere in the world!
  Some of the largest minorities of French speakers can be found in Lebanon (38%), Algeria (33%), Tunisia (53%), Morocco (36%), Italy (20%) and Mauritius (73%). The same as before, the number represents the percentage of the entire population speaking French.
 
  Now we finally have the full picture and we can understand why French is spoken on five continents.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## A short history of the French language
 
@@ -193,17 +193,24 @@ We told you that French speakers could be found everywhere in the world!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-avoiding-virtual-reality-nausea-tips-and-tricks/"><u>[New] 2024 Approved Avoiding Virtual Reality Nausea Tips and Tricks</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-free-aesthetic-essentials-for-youtube-artistry/"><u>2024 Approved Free Aesthetic Essentials for YouTube Artistry</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-unleash-ps2-gaming-on-ios-the-best-emulators/"><u>2024 Approved Unleash PS2 Gaming on iOS The Best Emulators</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/can-cutting-edge-ai-technologies-such-as-chatgpt-enhance-healthcare-services/"><u>Can Cutting-Edge AI Technologies Such as ChatGPT Enhance Healthcare Services?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ensenanza-interactiva-sobre-el-cuerpo-humano-descubriendo-desde-la-piel-a-los-pulmones/"><u>Enseñanza Interactiva Sobre El Cuerpo Humano: Descubriendo Desde La Piel A Los Pulmones</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-benefits-learn-german-now/"><u>Exploring Benefits: Learn German Now!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exuberant-echoes-of-july-4th-joy/"><u>Exuberant Echoes of July 4Th Joy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/foundation-of-hope-dannys-colombia-support-initiative/"><u>Foundation of Hope: Danny's Colombia Support Initiative</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-beginner-to-fluent-learn-afrikaans-efficiently-on-mondly-heres-why/"><u>From Beginner to Fluent: Learn Afrikaans Efficiently on Mondly - Here’s Why</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/troubleshooting-frame-drop-issues-in-high-definition-high-dynamic-range-hdr-hevc-4k-videos/"><u>Troubleshooting Frame Drop Issues in High-Definition, High Dynamic Range (HDR) HEVC 4K Videos</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-demystifying-clubhouse-understanding-the-social-networks-foundation-purpose-and-potential-impact/"><u>Updated In 2024, Demystifying Clubhouse Understanding the Social Networks Foundation, Purpose, and Potential Impact</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/vital-elements-for-evaluation-prior-to-purchasing-a-freedom-style-mobile-device/"><u>Vital Elements for Evaluation Prior To Purchasing a Freedom-Style Mobile Device</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-boost-clicks-and-conversions-the-top-15-powerful-tools-for-fb-data-analysis/"><u>[New] 2024 Approved Boost Clicks & Conversions The Top 15 Powerful Tools for FB Data Analysis</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-are-there-risks-to-influencing-view-counts-financially-for-2024/"><u>[New] Are There Risks to Influencing View Counts Financially for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-rising-through-the-rankings-adding-highlight-channels-to-youtube/"><u>[New] In 2024, Rising Through the Rankings Adding Highlight Channels to YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-master-your-online-presence-the-ultimate-guide-to-effective-freefire-tags/"><u>[Updated] Master Your Online Presence The Ultimate Guide to Effective FreeFire Tags</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580338548-bangla-briskly-blossoms-with-just-10-minsday/"><u>Bangla Briskly Blossoms with Just 10 Mins/Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingual-blend-techniques/"><u>Bilingual Blend Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cognitive-clout-through-cross-cultural-communication/"><u>Cognitive Clout Through Cross-Cultural Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/googles-educational-leader-for-2017-mondly-kids-treats-guide/"><u>Google's Educational Leader for 2017 - Mondly Kids Treats Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-track-imei-number-of-xiaomi-redmi-13c-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Xiaomi Redmi 13C Through Google Earth?</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-quick-tip-to-uncover-your-recently-watched-movies-on-fb/"><u>In 2024, Quick Tip to Uncover Your Recently Watched Movies on FB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-pledge-for-the-new-year/"><u>Language Learning Pledge for the New Year</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ring-jump-cuts-for-dynamic-vlogging-for-2024/"><u>Mastering Jump Cuts for Dynamic Vlogging for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/movavi-full-video-library-catalog/"><u>Movavi - Full Video Library Catalog</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-ai-innovation-in-classroom-and-language-skills/"><u>Navigating AI Innovation in Classroom and Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-of-progress-advances-in-language-education-today/"><u>Speaking of Progress: Advances in Language Education Today</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-art-of-cinematic-dying-in-pro/"><u>The Art of Cinematic Dying in Pro</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-strategy-to-dominate-youtube-via-creator-hub-for-2024/"><u>The Ultimate Strategy to Dominate YouTube Via Creator Hub for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-fluency-discover-the-best-3-multilingual-resources/"><u>Unlock Fluency: Discover the Best 3 Multilingual Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-voice-mondlys-free-courses-offered/"><u>Unlock Your Voice: Mondly's Free Courses Offered</u></a></li>
 </ul></div>
 

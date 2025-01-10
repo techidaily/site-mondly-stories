@@ -1,7 +1,7 @@
 ---
 title: "Pearson's GSL Now: Mondly-Infused Exactitude"
-date: 2024-12-30T16:44:29.601Z
-updated: 2025-01-03T16:58:02.758Z
+date: 2025-01-08T16:22:55.453Z
+updated: 2025-01-10T20:16:35.547Z
 tags:
   - speak
   - english
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
 
  The Global Scale of Languages (GSL) helps educators and language learners know where they are, where they need to go and how they can get there.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Starting with the Global Scale of English (GSE)**
 
  Before we delve deeper into the GSL, it’s crucial to understand its roots: the GSE.
@@ -33,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
  The Global Scale of English (GSE) is not just another language framework; it’s an evolution in understanding linguistic proficiency.
 
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Introducing the Global Scale of Languages (GSL)**
 
@@ -43,7 +43,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **How Pearson created the GSL**
@@ -51,7 +51,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Why the GSL stands out**
@@ -59,10 +59,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Unparalleled insights:**  Going a step beyond traditional language measurement tools like the CEFR, the GSL provides a more detailed understanding of a learner’s skills through extensive global research.
 * **Confidence in clarity:**  The GSL enables learners to pinpoint their strengths in reading, writing, listening, and speaking with a straightforward 10-90 scale. This level of clarity fosters motivation and boosts learners’ confidence.
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Why start with French, Spanish, and Italian?**
 
@@ -73,7 +69,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Language learning backed by unparalleled global research**
@@ -86,6 +82,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Fast-track your progress with Mondly by Pearson**
 
@@ -108,21 +108,20 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-captivate-and-convert-creating-high-roi-animated-ads-on-facebook-for-2024/"><u>[New] Captivate and Convert Creating High-ROI Animated Ads on Facebook for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-key-points-to-understand-tiktok-web-macos/"><u>[New] In 2024, Key Points to Understand TikTok Web (macOS)</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-breakthrough-tactics-for-efficient-home-podcasting/"><u>[Updated] 2024 Approved Breakthrough Tactics for Efficient Home Podcasting</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-create-digital-humor-kapwings-meme-builder/"><u>[Updated] Create Digital Humor Kapwing's Meme Builder</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-total-capture-trio-setup/"><u>2024 Approved Total Capture Trio Setup</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/advanced-pro-version-of-the-vue-material-dashboard-using-laravel-framework-and-json-api-by-creative-tim-complete-frontendbackend-application/"><u>Advanced PRO Version of the Vue Material Dashboard Using Laravel Framework and JSON API by Creative Tim: Complete Frontend/Backend Application</u></a></li>
-<li><a href="https://discover-great.techidaily.com/complete-tutorial-for-restoring-lost-file-downloads-on-windows-operating-systems-1011/"><u>Complete Tutorial for Restoring Lost File Downloads on Windows Operating Systems (10/11)</u></a></li>
-<li><a href="https://blog-min.techidaily.com/dvd-to-mp4-transformation-made-easy-with-winx-free-ripper-software-compatible-with-windows-10-and-iphones/"><u>DVD to MP4 Transformation Made Easy with WinX Free Ripper Software Compatible with Windows 10 and iPhones</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/get-fluent-in-slovak-one-ten-minute-session-at-a-time/"><u>Get Fluent in Slovak, One Ten-Minute Session at a Time</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-bridges-globally-with-mondlys-7-year-success-story/"><u>Language Bridges Globally with Mondly's 7-Year Success Story</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-the-gateway-to-fluent-communication/"><u>Mondly: The Gateway to Fluent Communication</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-integration-with-pearson-for-superior-buttons/"><u>Mondly's Integration with Pearson For Superior Buttons</u></a></li>
-<li><a href="https://article-helps.techidaily.com/navigating-lunapic-like-an-ace-photographer/"><u>Navigating LunaPic Like an Ace Photographer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/swift-syntax-and-vocabul-written-by-user/"><u>Swift Syntax and Vocabul Written by User</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-wisdom-of-age-and-multilingualism-four-crucial-advantages-in-your-late-forties/"><u>The Wisdom of Age and Multilingualism: Four Crucial Advantages in Your Late Forties</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-learn-croatian-discover-its-advantages-and-how-to-start-now/"><u>Why Learn Croatian? Discover Its Advantages and How To Start Now</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-review-and-alternatives-unveiled-by-az-screenshotter/"><u>[New] 2024 Approved Review & Alternatives Unveiled by AZ Screenshotter</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nhancing-youtube-popularity-editing-and-optimizing-content-metadata/"><u>[New] Enhancing YouTube Popularity Editing & Optimizing Content Metadata</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-best-practices-for-documenting-live-streamed-sporting-matches/"><u>2024 Approved Best Practices for Documenting Live-Streamed Sporting Matches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-largest-language-contenders-highlight-and-retain/"><u>Asia's Largest Language Contenders: Highlight & Retain</u></a></li>
+<li><a href="https://win-net.techidaily.com/download-these-2-amazing-cost-free-apps-to-capture-and-edit-your-desktop/"><u>Download These 2 Amazing, Cost-Free Apps to Capture and Edit Your Desktop!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-gourmandise-guide-chocolate-words-unveiled-in-30-languages/"><u>Global Gourmandise Guide: Chocolate Words Unveiled in 30 Languages</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-enjoy-amazon-prime-shows-without-subtitles-a-users-guide/"><u>How to Enjoy Amazon Prime Shows Without Subtitles - A User's Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-hello-in-chinese-a-quick-guide-to-chinese-greetings/"><u>How to Say Hello in Chinese: A Quick Guide to Chinese Greetings</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/messaging-showdown-google-messages-vs-samsung-messages-on-android/"><u>Messaging Showdown: Google Messages Vs. Samsung Messages on Android</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-and-apples-the-future-of-educational-excellence/"><u>Mondly and Apples: The Future of Educational Excellence</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/online-gratuito-come-convertire-i-file-mpg-in-formato-mp4-con-movavi/"><u>Online Gratuito: Come Convertire I File MPG in Formato MP4 Con Movavi</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-mastery-of-latvian-language-10-minute-sessions/"><u>Rapid Mastery of Latvian Language, 10-Minute Sessions!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapidly-progress-in-korean-top-6-virtual-study-aids/"><u>Rapidly Progress in Korean: Top 6 Virtual Study Aids</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/the-ultimate-solution-for-realtek-microphone-not-working-problems-on-any-device/"><u>The Ultimate Solution for 'Realtek Microphone Not Working' Problems on Any Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-your-potential-in-fifties-through-foreign-language-study/"><u>Unlocking Your Potential in Fifties Through Foreign Language Study</u></a></li>
 </ul></div>
 

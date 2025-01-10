@@ -1,7 +1,7 @@
 ---
 title: "Saudações Em Português: Todas as Avispasidades Da Bênção"
-date: 2024-12-29T19:39:23.408Z
-updated: 2025-01-04T01:20:45.495Z
+date: 2025-01-05T20:05:09.837Z
+updated: 2025-01-10T18:10:54.575Z
 tags:
   - speak
   - english
@@ -21,26 +21,18 @@ thumbnail: https://thmb.techidaily.com/85ea88a283ba15f13d63e8eaf5823127ecc1dabd5
  So next time you go on an adventure to one of the 7 countries where Portuguese is the only official language (Portugal, Brazil, Mozambique, Angola, Cape Verde, Guinea-Bissau, São Tomé and Príncipe), try the following**Portuguese greetings** and see how easy it is to connect with someone even if you don’t speak the same language.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. How to say “hello” in Portuguese
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### “Hi” in Portuguese – Oi
 
@@ -66,12 +58,16 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
@@ -99,6 +95,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus: other basic Portuguese phrases that you should know
 
  Now that you know how to greet in Portuguese, shouldn’t you also master basic words like “yes”, “no” or “thank you” in Portuguese? Let’s kill two birds with one stone and see how a basic conversation in Portuguese should sound like:
@@ -124,7 +124,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
@@ -165,16 +165,15 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-how-to-go-live-with-recorded-material-on-the-worlds-largest-social-network-for-2024/"><u>[New] How to Go Live with Recorded Material on the World's Largest Social Network for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-essential-guide-to-radiant-android-videos/"><u>[New] The Essential Guide to Radiant Android Videos</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-full-inspection-immersing-in-virtual-reality-with-gear-360/"><u>[Updated] Full Inspection Immersing in Virtual Reality with Gear 360</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-magic-meets-technology-the-future-of-home-studio-production/"><u>[Updated] Magic Meets Technology The Future of Home Studio Production</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/get-your-gday-on-with-australian-expressions/"><u>Get Your 'G'day!' On with Australian Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-mastery-in-your-midlife-a-path-to-global-understanding-and-personal-growth/"><u>Language Mastery in Your Midlife – A Path to Global Understanding & Personal Growth</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/laptop-and-mobile-entrance-into-online-gatherings-google-meet-for-2024/"><u>Laptop & Mobile Entrance Into Online Gatherings (Google Meet) for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/revenue-revolution-how-to-design-effective-animated-fb-ads-for-2024/"><u>Revenue Revolution How to Design Effective Animated FB Ads for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/simplifying-your-approach-to-spanish-verbal-usage/"><u>Simplifying Your Approach to Spanish Verbal Usage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vr-lingo-master-new-tongues-flawlessly/"><u>VR Lingo: Master New Tongues Flawlessly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/yearly-goals-achievable-or-just-dreams/"><u>Yearly Goals: Achievable or Just Dreams?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-audio-capture-and-critical-examination/"><u>[New] 2024 Approved Audio Capture & Critical Examination</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-ghostly-witness-to-fb-vignettes/"><u>[New] Ghostly Witness to Fb Vignettes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-ultimate-instructions-for-prolonged-iphone-shots/"><u>[New] In 2024, The Ultimate Instructions for Prolonged iPhone Shots</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-in-search-of-greatness-top-15-timeless-stop-motion-films/"><u>[Updated] 2024 Approved In Search of Greatness Top 15 Timeless Stop Motion Films</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-finding-the-right-free-srt-translation-for-you-our-8-picks/"><u>[Updated] In 2024, Finding the Right FREE SRT Translation for You – Our #8 Picks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/acquiring-a-new-language-speed-vs-patience/"><u>Acquiring a New Language: Speed Vs. Patience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-no-barrier-to-multilingual-mastery/"><u>Age-No Barrier to Multilingual Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/clear-speech-path-hone-your-pronunciation-with-twisters/"><u>Clear Speech Path: Hone Your Pronunciation with Twisters</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/customizing-access-controls-for-standard-windows-users/"><u>Customizing Access Controls for Standard Windows Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-affection-in-diverse-languages/"><u>Expressing Affection in Diverse Languages</u></a></li>
 </ul></div>
 

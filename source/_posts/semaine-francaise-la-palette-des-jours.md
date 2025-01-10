@@ -1,7 +1,7 @@
 ---
 title: "Semaine Française: La Palette Des Jours"
-date: 2025-01-03T01:18:07.168Z
-updated: 2025-01-03T16:41:16.885Z
+date: 2025-01-06T16:50:22.547Z
+updated: 2025-01-10T18:36:00.408Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/d02ecec5426e8e1f2da5e128e095f9718e5fc3c11
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Days of the week in French
@@ -78,7 +78,7 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -125,16 +125,22 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-streamlining-your-creative-process-with-effective-instagram-video-editing-tips/"><u>[New] Streamlining Your Creative Process with Effective Instagram Video Editing Tips</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-mastering-quick-youtube-comment-removal-techniques/"><u>[Updated] Mastering Quick YouTube Comment Removal Techniques</u></a></li>
-<li><a href="https://win-answers.techidaily.com/cyberpunk-solved-troubleshooting-game-installation-challenges-on-steam/"><u>Cyberpunk ([SOLVED]) - Troubleshooting Game Installation Challenges on Steam</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/get-back-to-gaming-with-full-voice-support-in-fortnite/"><u>Get Back to Gaming with Full Voice Support in Fortnite!</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/maximizing-media-iphoneipad-download-youtube-videos-step-by-step-for-2024/"><u>Maximizing Media IPhone/iPad - Download Youtube Videos Step-by-Step for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-break-free-from-sony-vegas-explore-these-exceptional-windows-alternatives-for-2024/"><u>New Break Free From Sony Vegas Explore These Exceptional Windows Alternatives for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pt-variants-analysis-brazilians-vs-europeans-button-trends/"><u>PT Variants Analysis: Brazilians vs Europeans - Button Trends</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seamless-introduction-to-lithuanian-online/"><u>Seamless Introduction to Lithuanian Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-motivations-for-learning-the-german-language/"><u>Top Motivations for Learning the German Language</u></a></li>
-<li><a href="https://techidaily.com/whats-new-improved-clipboard-tools-and-graphics-program-for-windows-11-users/"><u>What's New? Improved Clipboard Tools and Graphics Program for Windows 11 Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/words-without-borders-mondlys-mission-to-uplift-ukrainians-in-linguistics/"><u>Words Without Borders – Mondly’s Mission to Uplift Ukrainians in Linguistics</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-exploring-slomos-full-potential-a-compre-written-context/"><u>[New] In 2024, Exploring SloMo's Full Potential A Compre Written Context</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-from-play-to-replay-capturing-switch-games/"><u>[New] In 2024, From Play to Replay Capturing Switch Games</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-ultimate-guide-to-zoom-transcription-software-fee-based/"><u>[Updated] Ultimate Guide to Zoom Transcription Software (Fee-Based)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/111-must-learn-croatian-language-skills-before-your-next-trip-to-the-coastal-paradise/"><u>111 Must-Learn Croatian Language Skills Before Your Next Trip to the Coastal Paradise</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211323554-9798869123688-45-nde/"><u>45分間死亡宣告- 彼が見たもの、そしてそれが彼の人生を永遠に変えた - 臨死体験（NDE） - スコット・ドラモンド | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-step-by-step-guide-to-indonesian-greeting-etiquette/"><u>A Step-by-Step Guide to Indonesian Greeting Etiquette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accent-enhancement-through-challenging-twisters-100/"><u>Accent Enhancement Through Challenging Twisters (100)</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/add-fade-inout-premiere-pro/"><u>Add Fade In/Out Premiere Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprende-a-agradecernos-a-los-animales-60-nombres/"><u>Aprende a Agradecernos a Los Animales: 60 Nombres</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-a-full-circle-mondlys-jubilee-year/"><u>Celebrating a Full Circle: Mondly’s Jubilee Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colombian-charity-danny-empowering-those-in-need/"><u>Colombian Charity Danny: Empowering Those in Need</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/declaring-heartfelt-feelings-in-hungarian/"><u>Declaring Heartfelt Feelings in Hungarian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-mondly-in-your-huawei-app/"><u>Discover Mondly in Your Huawei App</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/exploring-and-setting-up-chatgpt-plugins-today/"><u>Exploring and Setting Up ChatGPT Plugins Today</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/jabra-talk-45-exploration-impeccable-sound-plus-extended-usage-time/"><u>Jabra Talk 45 Exploration: Impeccable Sound + Extended Usage Time</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/musik-von-youtube-herunterladen-kostenlos-unter-verschiedenen-betriebssystemen-wie-windows-10-8-7-und-macos/"><u>Musik Von YouTube Herunterladen Kostenlos Unter Verschiedenen Betriebssystemen Wie Windows 10, 8, 7 Und macOS</u></a></li>
+<li><a href="https://extra-support.techidaily.com/navigating-the-world-of-internet-hilarity-for-2024/"><u>Navigating the World of Internet Hilarity for 2024</u></a></li>
 </ul></div>
 

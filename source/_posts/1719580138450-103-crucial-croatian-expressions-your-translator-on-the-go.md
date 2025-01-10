@@ -1,7 +1,7 @@
 ---
 title: "103 Crucial Croatian Expressions: Your Translator On-the-Go"
-date: 2024-09-01T00:17:52.549Z
-updated: 2024-09-02T00:17:52.549Z
+date: 2025-01-03T19:03:50.856Z
+updated: 2025-01-10T18:53:13.186Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/8df3a9bbe5d32c1e5c4eef1f9c5ff4d8504e6e331
 6. [Croatian phrases about love](#croatian-love)
 7. [Learn Croatian for your shopping sprees](#croatian-shopping)
 8. [Days of the week and numbers in Croatian](#numbers-in-croatian)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Hello in Croatian and other useful greetings
 
@@ -83,19 +87,12 @@ thumbnail: https://thmb.techidaily.com/8df3a9bbe5d32c1e5c4eef1f9c5ff4d8504e6e331
 * Please wait a moment. –_Pričekajte trenutak, molim Vas._
 * I’ll be back immediately. –_Odmah se vraćam._
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Croatian phrases for food lovers
 
  Food is all that some of us can think about. Yep. We all know that one friend who has to try every new food when visiting a new country. We sometimes are that friend. But who can blame the gourmand? Food is soooo good! And Croatia is nothing short of delightful food. You’ll absolutely need to try Peka (baking meat, seafood, and veggies), Brudet (fish stew), Stuffed peppers, Zagreb Schnitzel and the addictive Fritule dessert. So here’s**how to order drinks or food in Croatian restaurants:**
 
 ![croatian translation](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-translation-1024x694.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 3")
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
  “Delicious” by Cel Lisboa©
 
 * I have a reservation. My name is \_\_\_\_\_. –_Imam rezervaciju. Moje ime je \_\_\_\_._
@@ -111,9 +108,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 * I would like a coffee. –_Rado bih kavu._
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Basic Croatian for travelers who need a place to spend the night
 
  Finding the perfect place to stay can get stressful sometimes. Now imagine you found the perfect place on Airbnb, but the host only**speaks Croatian.** It wouldn’t hurt knowing some**basic Croatian** in this situation, would it?
@@ -128,8 +122,9 @@ DbSchema database designer for all databases, schema design in the team, schema 
 * Here is your bill, please look it over. –_Izvolite Vas Racun, molimo pregledajte ga._
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Croatian to English for tourists who want to have fun
 
  You’ll have to admit that parties connect people. Phones used to do that, but not anymore. Now going to a party is the best way to connect with people and get to know a new culture. Thus, if you have already planned your trip to Croatia, also squeeze in a night out to party and enjoy the Old Town from another perspective. It may reveal itself differently.
@@ -148,8 +143,9 @@ DbSchema database designer for all databases, schema design in the team, schema 
 * Are there seats available? –_Ima li slobodnih mjesta?_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Croatian phrases about love
 
  Love is paramount and ubiquitous. So don’t be surprised if you fall in love in Croatia. Everywhere is the perfect place to fall in love. Your soulmate can be right beside you or maybe thousands of miles away. So why not be thoughtful and learn some**Croatian phrases** about love beforehand? You never know who you might bump into. Kit Harington and Emilia Clarke could be roaming the streets of Dubrovnik right now (hihihi).
@@ -173,6 +169,10 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  “Primošten, Croatia” by Hrvoje Klaric©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Learn Croatian for your shopping sprees
 
  Choosing souvenirs for the entire family is the most atrocious punishment the humanity has ever seen. The stress of shopping for souvenirs often gets to ruin our sleep until very last evening of our vacation. But there’s a solution! Plan your shopping spree for the first day of the trip and just get it over with.
@@ -185,8 +185,9 @@ DbSchema database designer for all databases, schema design in the team, schema 
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8\. Days of the week and numbers in Croatian
 
  The days of the week and the numbers are absolutely essential words in any language. Sooner or later you’ll need them when roaming the world. So here are the days of the week and the**numbers in Croatian.**
@@ -246,8 +247,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -255,8 +254,18 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-creative-filmmakers-guide-prime-15-color-grading-look-ups-for-gopro/"><u>[Updated] 2024 Approved Creative Filmmaker's Guide Prime 15 Color Grading Look-Ups for GOPRO</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-complete-guide-to-creating-a-vr-ready-environment/"><u>[Updated] In 2024, The Complete Guide to Creating a VR-Ready Environment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/high-ranking-asian-vernaculars-archive-access-swiftly/"><u>High-Ranking Asian Vernaculars: Archive, Access Swiftly</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Samsung Galaxy S23+ | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-romanian-the-locally-developed-way/"><u>Learning Romanian, The Locally-Developed Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-made-my-language-journey-easier-and-more-effective-the-ultimate-10-tips/"><u>Mondly Made My Language Journey Easier and More Effective - The Ultimate 10 Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-turkeys-alphabet-an-intuitive-learning-resource-for-foreigners/"><u>Navigating Turkey's Alphabet: An Intuitive Learning Resource for Foreigners</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/obsudios-ultimate-guide-to-video-recording-with-obs-for-2024/"><u>Obsudio's Ultimate Guide to Video Recording with OBS for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/overcoming-adversities-in-digital-self-expression-for-2024/"><u>Overcoming Adversities in Digital Self-Expression for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/understanding-wav-vs-mp3-a-comprehensive-guide-for-high-quality-audio-movavi/"><u>Understanding WAV Vs. MP3: A Comprehensive Guide for High-Quality Audio - Movavi</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-israeli-itinerary-crucial-guidance-and-language-basics/"><u>Your Israeli Itinerary: Crucial Guidance and Language Basics</u></a></li>
+</ul></div>
 

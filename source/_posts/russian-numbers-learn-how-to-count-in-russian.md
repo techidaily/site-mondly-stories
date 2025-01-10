@@ -1,7 +1,7 @@
 ---
 title: Russian Numbers – Learn How to Count in Russian
-date: 2024-12-30T18:31:33.495Z
-updated: 2025-01-03T19:13:34.284Z
+date: 2025-01-06T19:43:30.518Z
+updated: 2025-01-10T20:03:35.281Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 
  Whether you need to find out what’s the price for a matryoshka, ask a stranger when is the next bus arriving or give someone your phone number, knowing the Russian numbers is definitely essential. On top of that, they are not even that hard to learn. Once you learn how to count to ten, counting to 100 is a piece of cake.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Russian numbers 1-10
 
  In order to understand the logic behind counting in Russian faster, it’s best to break down the information into multiple sections. As you may expect, the Russian numbers from 1 to 10 are the most important. Not only these are the ones you’ll probably use the most, but they also lay the foundations for the bigger numbers in Russian.
@@ -37,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 * neuter: одно _(odno)_ ; два _(dva)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn how to count to 20 in Russian
@@ -55,7 +59,7 @@ If you did manage, good job! You must be a natural.
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Russian numbers: 21 and onwards
@@ -65,7 +69,7 @@ If you did manage, good job! You must be a natural.
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian tens
@@ -85,7 +89,7 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian hundreds
@@ -93,10 +97,6 @@ And guess what! It works the same with the hundreds.
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
 
 Not as hard as you’d expect, is it?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Russian ordinal numbers
 
@@ -143,22 +143,20 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-premier-sound-pivot-for-podcast-masters/"><u>[New] Premier Sound Pivot for Podcast Masters</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-step-by-step-to-mastering-adobes-cloud-storage-capabilities-and-options/"><u>[Updated] 2024 Approved Step-by-Step to Mastering Adobe's Cloud Storage Capabilities & Options</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-becoming-an-expert-in-igtv-a-complete-overview-for-2024/"><u>[Updated] Becoming an Expert in IGTV A Complete Overview for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-best-cameras-the-creme-de-la-crop-of-mobile-video-recorders/"><u>[Updated] Best Cameras The Crème De La Crop of Mobile Video Recorders</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-zipping-down-peaks-top-moments-from-olympic-snowboard-cross-event-for-2024/"><u>[Updated] Zipping Down Peaks Top Moments From Olympic Snowboard Cross Event for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-apple-m1-explained-the-future-in-your-hands/"><u>2024 Approved Apple M1 Explained The Future in Your Hands</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/camera-showdown-of-the-year-pixel-ninexl-challenges-iphone-15-pro-stunning-results-and-astonishing-twist-digital-trends/"><u>Camera Showdown of the Year: Pixel nineXL Challenges iPhone 15 Pro - Stunning Results & Astonishing Twist! | Digital Trends</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enchant-locals-speak-20plus-italian-idioms-right-away/"><u>Enchant Locals: Speak 20+ Italian Idioms Right Away</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhancing-learning-experiences-through-ai-techniques/"><u>Enhancing Learning Experiences Through AI Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enterprise-grade-data-sanitization-with-bitraser-video-guide/"><u>Enterprise-Grade Data Sanitization with BitRaser Video Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-russian-phrases-your-passport-to-conversation/"><u>Essential Russian Phrases: Your Passport to Conversation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-the-thrill-of-digital-arabic-study-with-mondlys-help/"><u>Explore the Thrill of Digital Arabic Study with Mondly's Help</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressing-affection-linguistic-love-strategies/"><u>Expressing Affection: Linguistic Love Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/farsi-chronicles-insights-from-yesteryears-to-today/"><u>Farsi Chronicles: Insights From Yesteryears to Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/farsis-history-illuminates-learning-pathways/"><u>Farsi’s History Illuminates Learning Pathways</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-realme-12-pro-5g-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Realme 12 Pro 5G FRP</u></a></li>
-<li><a href="https://extra-information.techidaily.com/streamlining-your-projects-with-voice-over-integration/"><u>Streamlining Your Projects with Voice Over Integration</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-immortalize-your-gaming-adventures-on-pc-6-ways/"><u>[New] In 2024, Immortalize Your Gaming Adventures on PC [6 Ways]</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-leading-tools-top-6-fb-lite-video-extractors/"><u>[New] In 2024, Leading Tools TOP 6 FB Lite Video Extractors</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagrowth-hack-secrets-for-scaling-to-1000month-fans-for-2024/"><u>[New] InstaGrowth Hack Secrets for Scaling to 1,000/Month Fans for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-ultimate-price-guide-for-cloud-storage-services/"><u>[Updated] 2024 Approved Ultimate Price Guide for Cloud Storage Services</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-learn-to-record-your-xbox-games-with-ease/"><u>[Updated] Learn to Record Your Xbox Games with Ease</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/a-deep-dive-into-the-middle-of-the-road-marvels-avengers-film/"><u>A Deep Dive Into the Middle-of-the-Road Marvel's Avengers Film</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-guide-for-apple-iphone-7-lock-screen-drfone-by-drfone-ios/"><u>Complete Guide For Apple iPhone 7 Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expert-tips-for-online-korean-learning-the-ultimate-collection/"><u>Expert Tips for Online Korean Learning: The Ultimate Collection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingering-glances-and-flairful-flattery-in-france/"><u>Lingering Glances and Flairful Flattery in France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-latin-faster-top-rated-online-learning/"><u>Master Latin Faster: Top-Rated Online Learning</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/reclaim-your-lost-treasures-from-the-sands-of-time-mac-files/"><u>Reclaim Your Lost Treasures From the Sands of Time (Mac Files)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revamp-user-agreement-and-rights/"><u>Revamp: User Agreement & Rights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-vocabulary-with-mondly-top-app-of-2022/"><u>Transform Your Vocabulary with Mondly - Top App of 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-potential-of-your-mind-learn-languages-with-mondlys-ar/"><u>Unlock the Potential of Your Mind: Learn Languages with Mondly’s AR</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/winx-dvd-ripper-and-hd-video-converter-the-ultimate-free-software-for-copying-and-upgrading-movies/"><u>WinX DVD Ripper & HD Video Converter: The Ultimate Free Software for Copying and Upgrading Movies</u></a></li>
 </ul></div>
 

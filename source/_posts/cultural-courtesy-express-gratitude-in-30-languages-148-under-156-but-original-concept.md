@@ -1,7 +1,7 @@
 ---
 title: "Cultural Courtesy: Express Gratitude in 30 Languages (148) [Under 156 but Original Concept]"
-date: 2024-09-01T00:20:24.184Z
-updated: 2024-09-02T00:20:24.184Z
+date: 2025-01-04T16:34:52.542Z
+updated: 2025-01-10T18:19:25.605Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/a926f3585163fc206a043d86defc31e04aa0b8209
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
 
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
 
@@ -56,7 +60,15 @@ thumbnail: https://thmb.techidaily.com/a926f3585163fc206a043d86defc31e04aa0b8209
 
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Thanks” by Hanny Naibaho©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
 
@@ -82,8 +94,9 @@ thumbnail: https://thmb.techidaily.com/a926f3585163fc206a043d86defc31e04aa0b8209
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in over 40 languages
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -105,8 +118,6 @@ thumbnail: https://thmb.techidaily.com/a926f3585163fc206a043d86defc31e04aa0b8209
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -114,8 +125,20 @@ thumbnail: https://thmb.techidaily.com/a926f3585163fc206a043d86defc31e04aa0b8209
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-create-a-playlist-on-youtube-for-2024/"><u>[New] How to Create a Playlist on YouTube for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-the-art-of-preserving-your-playlist-perfection-in-cross-services/"><u>[Updated] 2024 Approved The Art of Preserving Your Playlist Perfection in Cross Services</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-master-the-art-of-picture-perfection-on-snapchat-apps/"><u>[Updated] Master the Art of Picture Perfection on Snapchat Apps</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-strategies-for-enhancing-youtube-videos-perfecting-your-thumbnails/"><u>[Updated] Strategies for Enhancing YouTube Videos Perfecting Your Thumbnails</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-instant-collage-creation-tips-for-social-media-posts/"><u>2024 Approved Instant Collage Creation Tips for Social Media Posts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amorates-anthology-flirtatious-italian-sayings/"><u>Amorate’s Anthology: Flirtatious Italian Sayings</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/discover-the-ideal-childrens-ipads-2022-recommendations-from-zdnet/"><u>Discover the Ideal Children's iPads: 2022 Recommendations From ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577485164-learn-japanese-numbers-in-just-10-minutes/"><u>Learn Japanese Numbers In Just 10 Minutes!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-its-innovative-question-and-answer-space/"><u>Mondly Unveils Its Innovative Question & Answer Space</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-online-strategies-for-language-acquisition/"><u>Optimal Online Strategies for Language Acquisition</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pivotal-moments-in-video-edits-and-their-significance-for-2024/"><u>Pivotal Moments in Video Edits and Their Significance for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/this-innovative-virtual-reality-app-helps-you-learn-a-foreign-language-in-a-fun-way/"><u>This Innovative Virtual Reality App Helps You Learn a Foreign Language in a Fun Way</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-non-apple-non-anker-magsafe-wallet-goes-on-sale-our-ultimate-guide-to-the-best-alternative/"><u>Top Non-Apple, Non-Anker MagSafe Wallet Goes on Sale: Our Ultimate Guide to the Best Alternative!</u></a></li>
+</ul></div>
 

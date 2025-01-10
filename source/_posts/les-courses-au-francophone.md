@@ -1,7 +1,7 @@
 ---
 title: Les Courses Au Francophone
-date: 2024-12-31T00:38:22.877Z
-updated: 2025-01-03T16:50:06.140Z
+date: 2025-01-09T20:21:32.490Z
+updated: 2025-01-10T18:53:38.163Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/dc5fff1a9acb5e2e1b1bb4c72b06c12c5151a76a3
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Days of the week in French
@@ -78,7 +78,7 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -125,24 +125,17 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-elemental-story-framework/"><u>[Updated] 2024 Approved Elemental Story Framework</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-how-to-record-a-webinar/"><u>2024 Approved How to Record a Webinar</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/4-ways-to-transfer-contacts-from-apple-iphone-xs-max-to-iphone-quickly-drfone-by-drfone-transfer-from-ios/"><u>4 Ways to Transfer Contacts from Apple iPhone XS Max to iPhone Quickly | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/best-video-editing-software-for-windows-beyond-sony-vegas-for-2024/"><u>Best Video Editing Software for Windows Beyond Sony Vegas for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/get-down-under-with-easy-aussie-slang/"><u>Get Down Under with Easy Aussie Slang</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/harnessing-household-light-use-of-outdoor-elements/"><u>Harnessing Household Light Use of Outdoor Elements</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-do-you-unlock-your-iphone-14-learn-all-4-methods-by-drfone-ios/"><u>In 2024, How Do You Unlock your iPhone 14? Learn All 4 Methods</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-the-real-story-exploring-recordcast-features/"><u>In 2024, The Real Story Exploring RecordCast Features</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-top-platforms-enhance-your-youtube-presence/"><u>In 2024, Top Platforms Enhance Your YouTube Presence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/japans-linguistic-gateway-free-online-tools-for-self-learning/"><u>Japan's Linguistic Gateway: Free Online Tools for Self-Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-ar-for-immersive-language-experiences/"><u>Mondly Unveils AR for Immersive Language Experiences</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/navigating-the-landscape-of-fb-med-ad-optimization-for-2024/"><u>Navigating the Landscape of FB Med Ad Optimization for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quick-latvian-language-drills-10-minutesday/"><u>Quick Latvian Language Drills, 10 Minutes/Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saying-bonjour-the-elegant-way-to-express-happiness-and-goodwill/"><u>Saying 'Bonjour': The Elegant Way to Express Happiness & Goodwill</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/schrittweise-erlernen-von-deutschen-nummern-ab-1/"><u>Schrittweise Erlernen Von Deutschen Nummern Ab 1</u></a></li>
-<li><a href="https://fox-that.techidaily.com/struggling-with-your-iphones-sound-buttons-here-are-7-fixes-to-restore-them/"><u>Struggling with Your iPhone's Sound Buttons? Here Are 7 Fixes to Restore Them</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/troubleshooting-errors-what-to-do-when-rocket-league-wont-launch-correctly/"><u>Troubleshooting Errors - What to Do When Rocket League Won't Launch Correctly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vr-verbal-voyage-conquer-global-languages-at-your-fingertips/"><u>VR Verbal Voyage: Conquer Global Languages at Your Fingertips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/which-are-the-most-studied-foreign-languages-in-america/"><u>Which Are the Most Studied Foreign Languages in America?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2023s-leading-cameras-for-samsung-gear-360-successors-for-2024/"><u>[New] 2023'S Leading Cameras for Samsung Gear 360 Successors for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-elevating-audio-fidelity-on-obs/"><u>[Updated] 2024 Approved Elevating Audio Fidelity on OBS</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-quick-tips-for-posting-videos-on-instagram/"><u>[Updated] 2024 Approved Quick Tips for Posting Videos on Instagram</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-selecting-ideal-dimensions-aspect-ratio-guide/"><u>[Updated] Selecting Ideal Dimensions Aspect Ratio Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-an-aussie-speaker-with-ease/"><u>Become an Aussie Speaker with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-speaking-with-these-17-authentic-spanish-idioms/"><u>Conquer Speaking with These 17 Authentic Spanish Idioms</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/diskpart-choosing-between-clean-and-clean-all-whats-the-best-option-for-your-system-maintenance/"><u>Diskpart - Choosing Between 'Clean' And 'Clean All': What's the Best Option for Your System Maintenance?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exclusive-notice-updated-legal-info/"><u>Exclusive Notice: Updated Legal Info</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lenovo-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Lenovo Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-languages-easier-mondlys-innovative-guidebook/"><u>Navigating Languages Easier: Mondly’s Innovative Guidebook</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-samsung-galaxy-xcover-7-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Samsung Galaxy XCover 7 Reset Code | Dr.fone</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/wie-sie-airdrop-dateien-erfolgreich-von-ihrem-iphone-14-zu-windows-11-10-8-oder-7-hochladen/"><u>Wie Sie AirDrop-Dateien Erfolgreich Von Ihrem iPhone 14 Zu Windows 11, 10, 8 Oder 7 Hochladen</u></a></li>
 </ul></div>
 

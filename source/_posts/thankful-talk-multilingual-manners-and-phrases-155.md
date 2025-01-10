@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2024-12-30T18:02:20.039Z
-updated: 2025-01-03T23:35:39.926Z
+date: 2025-01-09T18:14:13.377Z
+updated: 2025-01-10T18:55:54.526Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
@@ -61,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -127,21 +127,20 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-top-5-affordable-pinterest-video-downloaders-unveiled/"><u>[New] 2024 Approved Top 5 Affordable, Pinterest Video Downloaders Unveiled</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-next-gen-peripherals-exploring-virtual-reality-accessories/"><u>2024 Approved Next-Gen Peripherals Exploring Virtual Reality Accessories</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/disabling-onboard-scanner-functions-a-step-by-step-guide-by-yl-software-experts/"><u>Disabling Onboard Scanner Functions: A Step-by-Step Guide by YL Software Experts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/entertaining-methods-for-latino-education/"><u>Entertaining Methods for Latino Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/eternal-access-to-mondlys-best-with-zero-price/"><u>Eternal Access to Mondly's Best with Zero Price!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressive-uk-speak-beyond-the-basics/"><u>Expressive UK Speak: Beyond the Basics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fascinating-and-fun-learning-of-spanish/"><u>Fascinating and Fun Learning of Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fifty-and-beyond-five-motivations-for-new-languages/"><u>Fifty and Beyond: Five Motivations for New Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-quills-to-keystrokes-enduring-elizabethan-expressions/"><u>From Quills to Keystrokes: Enduring Elizabethan Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gepflegte-gute-auftaktsatze-im-deutschen/"><u>Gepflegte Gute-Auftaktsätze Im Deutschen</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-quick-ways-to-transfer-contacts-from-apple-iphone-7-to-iphone-withwithout-itunes-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Quick Ways to Transfer Contacts from Apple iPhone 7 to iPhone With/Without iTunes | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-from-amateurs-to-aviators-9-top-rated-drone-editors-reviewed/"><u>In 2024, From Amateurs to Aviators 9 Top-Rated Drone Editors Reviewed</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-strategies-to-prevent-account-suspension-on-youtube/"><u>In 2024, Strategies to Prevent Account Suspension on YouTube</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Oppo Reno 10 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-wallpaper-shifts-on-a-windows-pc/"><u>Mastering Wallpaper Shifts on a Windows PC</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-voice-logging-devices-scrutiny/"><u>[Updated] 2024 Approved Voice Logging Devices Scrutiny</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-boundless-treasure-tales-of-instagram-flair-for-2024/"><u>[Updated] Boundless Treasure Tales of Instagram Flair for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/australian-vernacular-vocabulary-compendium/"><u>Australian Vernacular Vocabulary Compendium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decouvrir-la-france-la-semaine-des-jours/"><u>Découvrir La France: La Semaine Des Jours</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embark-on-spanish-numerals-1-10/"><u>Embark on Spanish Numerals 1-10</u></a></li>
+<li><a href="https://win-forum.techidaily.com/1722915261372-explore-the-giants-of-social-networking-facebook-twitter-instagram-and-youtube/"><u>Explore the Giants of Social Networking - Facebook, Twitter, Instagram & Youtube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gratitude-across-cultures-thank-you-phrases-in-30-languages-154/"><u>Gratitude Across Cultures: Thank-You Phrases in 30 Languages (154)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartfelt-temptation-italian-courtship-expressions/"><u>Heartfelt Temptation: Italian Courtship Expressions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/honor-bypass-tools-to-bypass-lock-screen-honor-100-pro-by-drfone-android-unlock-android-unlock/"><u>Honor Bypass Tools to Bypass Lock Screen(Honor 100 Pro)</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-poco-c55-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Poco C55 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-top-7-best-waterproof-action-camera/"><u>In 2024, Top 7 Best Waterproof Action Camera</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-communication-through-turkey-and-korea/"><u>Intercultural Communication Through Turkey and Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-champions-innovation-seizes-award/"><u>Mondly Champions Innovation, Seizes Award</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-convergence-of-imagination-and-technology-how-ai-merges-fiction-with-fact-showcased-by-8-strategies/"><u>The Convergence of Imagination & Technology: How AI Merges Fiction with Fact, Showcased by 8 Strategies</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-impact-of-conversations-on-the-growth-of-chatgpts-knowledge-base/"><u>The Impact of Conversations on the Growth of ChatGPT's Knowledge Base</u></a></li>
 </ul></div>
 

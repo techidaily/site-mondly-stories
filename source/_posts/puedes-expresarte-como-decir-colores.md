@@ -1,7 +1,7 @@
 ---
 title: "Puedes Expresarte: Cómo Decir Colores"
-date: 2024-12-30T21:05:10.615Z
-updated: 2025-01-03T17:23:05.496Z
+date: 2025-01-05T18:18:55.136Z
+updated: 2025-01-10T18:23:51.431Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/bff355a17bbebb56de3c041755295c5c8bf9f4acf
  Color is omnipresent in our lives. From the very first moment we become aware of our surroundings, color stimulates our senses. Our mother’s blue eyes comfort us, the yellow banana makes us drool, the red toy car brings excitement and the green veggies are “healthy but disgusting”. Naturally, colors are some of the first words we learn, not just in our native language but in any language. Learning to say the colors in Spanish is also an important first step in [learning basic Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . So, let’s dive right in and learn how to say **_red, blue, green,_ and** **_more_ in Spanish** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The colors in Spanish
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/bff355a17bbebb56de3c041755295c5c8bf9f4acf
 ![blue orange](https://edge.mondly.com/blog/wp-content/uploads/2021/04/blue-orange-960x640.jpg "Learn The Colors In Spanish – Quick Pronunciation Guide 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Blue orange” by davisuko©
@@ -69,7 +69,7 @@ Want more? Here’s lesson two of colors in Spanish with Mondly:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in Spanish
@@ -100,19 +100,17 @@ Want more? Here’s lesson two of colors in Spanish with Mondly:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-jazzy-deadites-designer/"><u>[New] 2024 Approved Jazzy Deadites Designer</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-youtube-video-magic-best-tools-for-effortless-webm-conversion/"><u>[New] 2024 Approved YouTube Video Magic Best Tools for Effortless WebM Conversion</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-elevate-your-podcast-with-professional-scriptwriting-strategies/"><u>[New] In 2024, Elevate Your Podcast with Professional Scriptwriting Strategies</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-essential-tips-for-monitoring-facebook-live-streams/"><u>[New] In 2024, Essential Tips for Monitoring Facebook Live Streams</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/crafting-perfection-ios-and-androids-best-montage-aides-for-2024/"><u>Crafting Perfection IOS & Android's Best Montage Aides for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enigmatic-expressions-delving-into-the-language-of-seduction/"><u>Enigmatic Expressions: Delving Into the Language of Seduction</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressive-excellence-top-training-for-speech-masters/"><u>Expressive Excellence: Top Training for Speech Masters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/free-to-flourish-mondlys-linguistic-pathway-for-aspiring-ukrainians/"><u>Free to Flourish: Mondly’s Linguistic Pathway for Aspiring Ukrainians</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-latin-to-iberia-spanish-vs-portuguese-phonetic-study/"><u>From Latin to Iberia: Spanish Vs. Portuguese Phonetic Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-native-grasping-the-core-of-german-speech-and-script/"><u>From Novice to Native: Grasping the Core of German Speech & Script</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-speaker-in-croatia-here-are-the-top-7-reasons/"><u>From Novice to Speaker in Croatia - Here Are The Top 7 Reasons!</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-realme-c53-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Realme C53 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-realme-c67-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Realme C67 5G Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/reinstating-hidden-pane-windows-6-procedures-in-win11/"><u>Reinstating Hidden Pane Windows: 6 Procedures in Win11</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-5-best-zoom-transcription-software-free-and-paid/"><u>[New] 2024 Approved 5 Best Zoom Transcription Software [Free & Paid]</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-visualize-the-possibilities-a-beginners-guide-to-snapseed/"><u>[Updated] 2024 Approved Visualize the Possibilities A Beginner's Guide to Snapseed</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-achieve-sharpness-camera-tips-without-a-tripod/"><u>[Updated] Achieve Sharpness Camera Tips Without a Tripod</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-ukranian-learning-in-brief-sessions-104-chars/"><u>Accelerated Ukranian Learning in Brief Sessions (104 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-global-ed-tech-showcase-hails-mondly-at-10-spotlight/"><u>Apple's Global Ed-Tech Showcase Hails Mondly at #10 Spotlight</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/effortless-viewing-instructions-for-using-mobile-device-control-with-samsung-smart-tvs/"><u>Effortless Viewing: Instructions for Using Mobile Device Control with Samsung Smart TVs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-validates-mondly-your-assured-path-to-multilingual-excellence/"><u>Google Validates: Mondly, Your Assured Path to Multilingual Excellence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honterus-sparking-passion-and-purpose/"><u>Honterus: Sparking Passion and Purpose</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-essential-mac-capturing-apps-beyond-the-traditional-bandicam/"><u>In 2024, Essential Mac Capturing Apps Beyond the Traditional Bandicam</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-oneplus-nord-3-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can OnePlus Nord 3 5GMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/itel-data-retrieval-tool-restore-lost-data-from-itel-by-fonelab-android-recover-data/"><u>Itel Data Retrieval tool – restore lost data from Itel</u></a></li>
 </ul></div>
 

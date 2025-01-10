@@ -1,7 +1,7 @@
 ---
 title: "Salutations Françaises: La Réponse Idyllique"
-date: 2024-09-05T04:34:39.352Z
-updated: 2024-09-06T04:34:39.352Z
+date: 2025-01-09T18:53:11.993Z
+updated: 2025-01-10T18:21:07.293Z
 tags:
   - speak
   - english
@@ -14,12 +14,6 @@ keywords: Salutations Françaises,Réponse Idyllique,Françaises (French Greetin
 thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b85a4b94012ab008856dbcd1d.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Salutations Françaises: La Réponse Idyllique
 
  You probably already know that_merci_ ,_merci beaucoup_ and_je vous remercie_ are the most popular informal and formal ways to say [thank you](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in French. But what’s the best way to respond to that depending on the social context? How do you say you’re welcome in French?
@@ -35,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
  We’ll start with the most common way to say you’re welcome in French: ‘_de rien’._
 
  You can use ‘_de rien’_ as an informal response to somebody who has thanked you. You’ll hear this expression used commonly throughout France in a range of situations.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The literal translation of_‘de rien’_
 
@@ -54,12 +52,6 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
 
  “Strasbourg, France” by Patrick Robert Doyle©
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. The informal “you’re welcome”:_je t’en prie_
 
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
@@ -67,17 +59,9 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
  It is most common amongst very close friends and family members. This particular form is most appropriate when you want to express a higher level of gratitude than_‘de rien’_ , but with somebody close to you, with whom your relationship is casual.
 
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### The literal translation of_‘je t’en prie’_
 
  Essentially, the literal translation of ‘je t’en prie’ is ‘I pray you it’. Don’t look too far into this – it certainly doesn’t translate as such to French speakers!
@@ -94,12 +78,6 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
 
  This should make_‘je vous en prie’_ nice and easy to remember. Just be careful not to use it with close friends. Using_‘vous’_ will sound unnatural if you are in close company. Likewise, always use this version of you’re welcome in French if you are speaking with somebody you do not know, no matter their level of seniority.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The literal translation of_‘je vous en prie’_
 
  Again, the literal translation of ‘je vous en prie’ is ‘I pray you it’. The important thing to remember here is not the literal translation, but when exactly you should use_‘vous’_ instead of_‘tu’_ .
@@ -116,14 +94,16 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
 
 ![you're welcome](https://edge.mondly.com/blog/wp-content/uploads/2021/05/youre-welcome-960x640.jpg "4 Popular Ways To Say You’re Welcome In French 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Southern France, Toulouse” by DAT VO©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030373/7443" target="_top" id="2030373">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030373" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030373/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. The easiest to remember:_pas de problème_
 
  When you’re in the early stages of [learning French](https://travel-lingual.com/how-long-take-to-learn-french/) , sometimes the most sensible thing to do is use what you can remember. The word_‘problème’_ in this particular French expression resembles the English word ‘problem’ and should not be too difficult for you to learn. Be cautious of the [French grave accent](https://travel-lingual.com/french-accent-marks/) on the_‘e’_ as this alters the pronunciation of the word.
@@ -142,17 +122,15 @@ Example:
 
  A:_Pas de problème. Merci._ (“No problem. Thanks.”)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Bonus: Less common ways to say “you’re welcome” in French
 
  If you want to mix things up a bit, another informal and very casual way of saying you’re welcome in French is_‘il n’y a pas de quoi’_ . This literally means “there is no what”, but an adapted translation would be “there is no reason (to thank me)”. Being a casual expression, it can be used safely in the same contexts as_‘de rien’_ .
 
  Furthermore,_‘avec plaisir’_ is what you should use if you travel to southern France and want to sound like a local. It literally translates to “with pleasure”, but it is the French correspondent of “my pleasure”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Which version of you’re welcome in French should you use and when?
 
@@ -177,12 +155,6 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Speak French fluently in just 10 minutes a day
 
  **Do you want to [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) like a fluent speaker?** Get Mondly, the award-winning language learning app that will help you speak French as if you were Paris-born.
@@ -199,8 +171,6 @@ _Th_ _is post is delivered to you by James A. Smith._
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -208,8 +178,26 @@ _Th_ _is post is delivered to you by James A. Smith._
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-championing-the-leading-gif-apps-on-iphones/"><u>[New] Championing the Leading GIF Apps on iPhones</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-perfect-your-video-for-instagram-narrative-flow/"><u>[New] In 2024, Perfect Your Video for Instagram Narrative Flow</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-streamline-your-content-youtube-to-dailymotion-shift/"><u>[New] In 2024, Streamline Your Content YouTube to Dailymotion Shift</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mastering-yt-thumbnail-design-for-enhanced-views/"><u>[Updated] Mastering YT Thumbnail Design for Enhanced Views</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-secrets-to-profitability-on-youtube-shorts-fundamentals-and-future-earnings-for-2024/"><u>[Updated] Secrets to Profitability on YouTube Shorts Fundamentals & Future Earnings for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-top-15-royalty-free-music-hideouts-for-video-artists/"><u>2024 Approved Top 15 Royalty-Free Music Hideouts for Video Artists</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendizaje-basico-de-hora-y-contadores-en-espanol/"><u>Aprendizaje Básico De Hora Y Contadores en Espaňol</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722888951448-direct-sound-alerts-from-your-wrist-discover-the-upcoming-apple-audio-device-tease/"><u>Direct Sound Alerts From Your Wrist? Discover the Upcoming Apple Audio Device Tease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719574561356-dive-into-new-tongues-for-just-055-per-lesson-this-year/"><u>Dive Into New Tongues for Just $0.55 Per Lesson This Year!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-speech-mastery-in-minimal-time/"><u>Expressive Speech Mastery in Minimal Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/getting-started-with-urdu-essential-linguistic-tools/"><u>Getting Started with Urdu: Essential Linguistic Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hofliches-aussprechen-von-reue-in-deutsch/"><u>Höfliches Aussprechen Von Reue in Deutsch</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-x9a-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Honor X9a? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/novel-selection-for-francophones-starting-their-journey/"><u>Novel Selection for Francophones Starting Their Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parisian-chatter-key-french-phrases-for-the-wandering-linguist/"><u>Parisian Chatter: Key French Phrases for the Wandering Linguist</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pidgin-into-mainstream-the-evolution-of-english-vocabulary/"><u>Pidgin Into Mainstream: The Evolution of English Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579754766-speak-worldwide-cut-learning-costs-by-nearly-96-this-year/"><u>Speak Worldwide - Cut Learning Costs by Nearly 96% This Year!</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollow-unfriend-actions-prior-to-facebook-deletion/"><u>Unfollow, Unfriend: Actions Prior to Facebook Deletion</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/storyblocks/"><u>ストックビデオ素材集 Storyblocks - 無料ダウンロード用途の高品質動画</u></a></li>
+</ul></div>
 

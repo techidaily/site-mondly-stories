@@ -1,7 +1,7 @@
 ---
 title: Contare in Italiano per Novizianti - Vol. 1 (1-1000)
-date: 2024-09-05T04:35:08.502Z
-updated: 2024-09-06T04:35:08.502Z
+date: 2025-01-09T16:04:30.301Z
+updated: 2025-01-10T17:06:14.405Z
 tags:
   - speak
   - english
@@ -14,12 +14,6 @@ keywords: Contare in Italiano,Novizianti,Italiano per Novizianti,Vol. 1,Catechis
 thumbnail: https://thmb.techidaily.com/849f56ab1426764bff20d4db63fa0a5cb770114051bf7d548d3853a87e8edbdb.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Contare in Italiano per Novizianti - Vol. 1 (1-1000)
 
  Lucky for us, language learners, most languages use Arabic numerals (0, 1, 2, 3, 4, 5, 6, 7, 8, 9) in writing. The challenging parts are pronunciation and spelling. When you start [learning Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you will, of course, need to learn numbers. Italian numbers are easy to remember and pronounce because they follow a simple and predictable pattern. Once you know the Italian numbers to 10, counting to 100 and even 1000 is easy.
@@ -27,11 +21,9 @@ thumbnail: https://thmb.techidaily.com/849f56ab1426764bff20d4db63fa0a5cb77011405
  There’s hardly a day that passes without using [numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . They’re essential to our day-to-day lives. From shopping to giving people your phone number and setting up a meeting at a certain time, numbers are probably one of the first lessons you should take in any language. So, let’s see how easy it is to count from_zero_ to_cento_ in_Italiano_ .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Count to 10 in Italian
 
  To master the Italian numbers quickly, it’s essential to first learn how to count to 10\. The numbers from 1 to 10 are important for two reasons: you will probably use them the most and they lay the foundations for any Italian number you can think of.
@@ -101,11 +93,9 @@ Let’s see some examples:
 * to say “20 children”, you’ll say_venti bambini_
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -119,17 +109,9 @@ Let’s see some examples:
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Count tens in Italian
 
  Except for 10_(dieci)_ and 20_(venti)_ , all tens digits in Italian are based on their roots. Once you know all of them, you’ll know how to count to 100 – which is_cento_ – in Italian.
@@ -164,11 +146,9 @@ Let’s see some examples:
 * 98 – _novant**otto**_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Italian numbers 100 to 1000 and beyond
 
  The same rules apply to bigger numbers as well. Add the suffix_cento_ to the multiplier digit and here are your hundreds:
@@ -198,11 +178,9 @@ Let’s see some examples:
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  “The Amalfi Coast” by Gregory Smirnov©
 
  Back to counting, from 100 and beyond, the bigger the number is, the longer its written form. Italian doesn’t isolate hundreds, tens and ones. They become one long word with no hyphens or spaces. For example:
@@ -265,8 +243,6 @@ Let’s see some examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -274,8 +250,22 @@ Let’s see some examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-metaverse-contrasted-with-multimetaverse-a-detailed-breakdown-in-depth-guide/"><u>[New] 2024 Approved Metaverse Contrasted with MultiMetaverse A Detailed Breakdown (In-Depth Guide)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-restorerite-professionals-insight-for-2024/"><u>[New] RestoreRite Professionals Insight for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-alternative-film-choices-ranked-7-1/"><u>[Updated] 2024 Approved Alternative Film Choices Ranked #7-1</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-auto-enhancing-shots-with-innovative-exposure-algorithms/"><u>[Updated] Auto-Enhancing Shots with Innovative Exposure Algorithms</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-convert-spoken-words-into-text-effortlessly-using-ms-word/"><u>[Updated] Convert Spoken Words Into Text Effortlessly Using MS Word</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-elevating-your-itunes-media-library-with-recordings/"><u>[Updated] Elevating Your iTunes Media Library with Recordings</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-cinematic-edge-master-the-top-5-camera-skills-for-2024/"><u>[Updated] The Cinematic Edge Master the Top 5 Camera Skills for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/afrikaans-for-business-success-top-reasons-learned-via-mondlys-method/"><u>Afrikaans for Business Success: Top Reasons Learned via Mondly's Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/age-is-just-a-number-4-compelling-motives-for-senior-language-learning/"><u>Age Is Just a Number – 4 Compelling Motives for Senior Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childhood-as-a-perfect-language-learning-time/"><u>Childhood as a Perfect Language-Learning Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/climb-the-linguistic-ladder-for-workplace-success/"><u>Climb the Linguistic Ladder for Workplace Success</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-samsung-galaxy-f04-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Samsung Galaxy F04 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sneak-in-some-slovak-today-daily-10-minute-language-dive/"><u>Sneak in Some Slovak Today: Daily 10-Minute Language Dive</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-number-one-your-starting-point/"><u>Spanish Number One - Your Starting Point</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-path-to-urdu-mastery/"><u>Swift Path to Urdu Mastery</u></a></li>
+</ul></div>
 

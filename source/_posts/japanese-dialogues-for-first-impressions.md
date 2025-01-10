@@ -1,7 +1,7 @@
 ---
 title: Japanese Dialogues for First Impressions
-date: 2024-12-31T21:27:30.020Z
-updated: 2025-01-03T21:31:03.917Z
+date: 2025-01-06T19:20:41.363Z
+updated: 2025-01-10T19:43:59.421Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/a297ffbc354d264eb1493e128ad67218845cfbc00
  Learning as much as a simple **_Konnichiwa_ (“hello” in Japanese)** or **_Arigato_ (“thank you” in Japanese)** can work wonders. So here’s a guide to all the**Japanese greetings** you’ll need in your Japanese adventure: from**“hello” in Japanese** to**_Moshi Moshi_** (used to say “hello” on the phone), goodbye and other**common Japanese greetings.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. “Hello” in Japanese
@@ -40,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/a297ffbc354d264eb1493e128ad67218845cfbc00
 ![honnichiwa](https://edge.mondly.com/blog/wp-content/uploads/2019/08/honnichiwa-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Kyoto, Japan” by Sorasak©
@@ -53,13 +53,13 @@ thumbnail: https://thmb.techidaily.com/a297ffbc354d264eb1493e128ad67218845cfbc00
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Good morning in Japanese and other relevant greetings
 
@@ -78,6 +78,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Japanese
 
@@ -122,15 +126,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Kyoto, Japan” by Andre Benz©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Don’t forget about the Japanese bow
 
@@ -147,6 +143,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -201,22 +201,19 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-best-of-breed-top-rated-youtubers-streaming-arsenal/"><u>[New] 2024 Approved Best of Breed Top-Rated Youtuber's Streaming Arsenal</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-secure-your-video-conferences-recording-made-easy/"><u>[New] 2024 Approved Secure Your Video Conferences Recording Made Easy</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-ultimate-editors-guide-best-for-youtube-content/"><u>[New] The Ultimate Editor's Guide Best for YouTube Content</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-paint-your-posts-brightly-instagrams-triple-highlight-strategies/"><u>[Updated] In 2024, Paint Your Posts Brightly Instagram's Triple Highlight Strategies</u></a></li>
-<li><a href="https://techidaily.com/how-do-i-reset-my-infinix-smart-8-plus-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Infinix Smart 8 Plus Phone without technical knowledge? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-motorola-moto-g73-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Motorola Moto G73 5G FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-through-windows-11s-new-frontier/"><u>In 2024, Navigating Through Windows 11'S New Frontier</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/intercultural-agility-mastering-adaptable-communication-skills/"><u>Intercultural Agility: Mastering Adaptable Communication Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-linkages-the-portuguese-connection-across-continents/"><u>Language Linkages: The Portuguese Connection Across Continents</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/audience-score-keeper-apps/"><u>Live Audience Score Keeper Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lively-spanish-lessons-for-young-minds/"><u>Lively Spanish Lessons for Young Minds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/persuasive-prose-for-pleasure-flirting-tactics-in-english/"><u>Persuasive Prose for Pleasure: Flirting Tactics in English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spoken-bliss-us-liberty-celebrations/"><u>Spoken Bliss: U.S. Liberty Celebrations</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/step-by-step-guide-transferring-your-dvd-collection-from-disc-to-pc-using-windows-and-macos/"><u>Step-by-Step Guide: Transferring Your DVD Collection From Disc to PC Using Windows & macOS</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-picks-6-exceptional-online-platforms-for-korean-learning/"><u>Top Picks: 6 Exceptional Online Platforms for Korean Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-secrets-of-turko-korean-relationship/"><u>Unveiling the Secrets of Turko-Korean Relationship</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/valentine-vocabulary-gift-romance-across-cultures/"><u>Valentine Vocabulary Gift: Romance Across Cultures</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-transforming-images-on-snapchat-an-editors-playbook/"><u>[New] In 2024, Transforming Images on Snapchat An Editor's Playbook</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-warmth-in-visuals-ideal-winter-backgrounds-for-youtube/"><u>[New] In 2024, Warmth in Visuals Ideal Winter Backgrounds for YouTube</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-the-ultimate-guide-to-flawless-remote-recording-experience/"><u>2024 Approved The Ultimate Guide to Flawless Remote Recording Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-manual-learn-chinese-common-phrases/"><u>Beginner's Manual: Learn Chinese Common Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-cultural-loanwords-in-contemporary-english/"><u>Cross-Cultural Loanwords in Contemporary English</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exploring-the-new-frontier-a-comparative-study-on-tiktok-and-triller-for-2024/"><u>Exploring the New Frontier A Comparative Study on TikTok & Triller for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/full-screen-mode-enhancing-fb-videos/"><u>Full-Screen Mode Enhancing Fb Videos</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-poco-c65-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Poco C65 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/migraje-eficiente-y-simple-pasos-para-cambiar-de-correo-electronico-desde-hotmail-hacia-gmail/"><u>Migraje Eficiente Y Simple: Pasos Para Cambiar De Correo Electrónico Desde Hotmail Hacia Gmail</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-new-help-and-inquiry-resource/"><u>Mondly Unveils New Help and Inquiry Resource</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ease-behind-kids-embracing-second-languages/"><u>The Ease Behind Kids Embracing Second Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-threat-education-networks-language-learning-for-all-ages/"><u>Triple Threat Education Networks: Language Learning for All Ages!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unveiling-8-honest-video-promotion-services-for-2024/"><u>Unveiling 8 Honest Video Promotion Services for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/xcom-2-stability-issues-fixing-game-crashes-on-windows-platforms/"><u>XCOM 2 Stability Issues: Fixing Game Crashes on Windows Platforms</u></a></li>
 </ul></div>
 

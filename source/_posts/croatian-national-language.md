@@ -1,7 +1,7 @@
 ---
 title: Croatian National Language
-date: 2024-09-01T00:21:27.114Z
-updated: 2024-09-02T00:21:27.114Z
+date: 2025-01-03T16:36:46.200Z
+updated: 2025-01-10T18:46:31.426Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 
  Home to beautiful lakes, magic cities, and unbroken forests, Croatia was an underrated travel destination before Game of Thrones. As you may know, a lot of scenes in Game of Thrones were filmed there, the most prominent location being Dubrovnik as King’s Landing. Over time, the notoriety of the entire country grew together with the show. So what is there to know about the language of such a beautiful country? Is it hard to learn [Croatian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ? How do you say ‘hello’ in Croatian if you do decide to travel there? Read on to find out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Croatian language in a nutshell
 
  Spoken by approximately [6.7 million people](https://www.ethnologue.com/language/hrv) in Croatia, Bosnia and Herzegovina, the Serbian province of Vojvodina, and other neighboring countries, Croatian is a South Slavic language of the Indo-European family. Also known as_Hrvatski_ by the natives, it is the official language of Croatia and one of the 24 official languages of the European Union.
@@ -34,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 
  “Plitvice, Croatia” by Mike Swigunski©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How similar are Croatian and Serbian?
 
  If you know the story of Yugoslavia, then you also know about the strong connection between Serbia, Croatia, Bosnia, and Montenegro. Sharing a common linguistic ancestor and being encouraged to use a joint language between 1918 and the 1990s, definitely had an impact on what we regard today as four independent languages. But then there’s also the fact that after the collapse of Yugoslavia, political developments have encouraged these ethnic groups to emphasize the differences between their languages. This is what you can call a turbulent and ofter erratic history.
@@ -47,8 +55,9 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
  Add regional dialects and subdialects to that, and there you have it. What was previously called ‘the Serbo-Croatian language’ are today two different languages: Croatian and Serbian.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## It is hard to learn Croatian?
 
  If you’re a native English speaker, yes, Croatian may prove [hard to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . But not harder than languages such as Japanese, Chinese or Arabic.
@@ -60,13 +69,15 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 ![aerial view of Dubrovnik, Croatia](https://edge.mondly.com/blog/wp-content/uploads/2021/10/croatian-language-960x640.jpg "What Language Is Spoken In Croatia? 3")
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  “Dubrovnik, Croatia” by Geio Tischler©
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Hello in Croatian and other basic Croatian words
 
  **The most popular way to say ‘hello’ in Croatian is_bok_ , but you can also use_zdravo,_ a more formal hello.** Similarly to other languages, it all depends on who you are talking to and how friendly you allow yourself to be. If you’re a tourist in Croatia,_bok_ or_bog_ (in some areas) should work fine in most situations.
@@ -91,9 +102,6 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## From 0 to conversational in Croatian
 
  Do you want to see the Croatian language in action? Get Mondly, the award-winning language learning app that will help you speak Croatian like a pro.
@@ -115,8 +123,6 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -124,8 +130,20 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-tactics-for-increasing-campaign-efficiency-with-smart-hashtag-usage-on-fb-for-2024/"><u>[New] Tactics for Increasing Campaign Efficiency with Smart Hashtag Usage on FB for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unseen-smiles-hidden-glances-in-photos/"><u>[New] Unseen Smiles, Hidden Glances in Photos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-comprehensive-guide-to-youtubes-subscription-advantages/"><u>[Updated] Comprehensive Guide to YouTube's Subscription Advantages</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-essential-list-no-charge-platforms-for-stunning-video-transformations-for-2024/"><u>[Updated] Essential List No-Charge Platforms for Stunning Video Transformations for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/das-deutsche-verabschiedungsworterbuch-prasentiert-sich/"><u>Das Deutsche Verabschiedungswörterbuch Präsentiert Sich</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-urdu-easier-learn-for-10-minutes-daily/"><u>Make Urdu Easier: Learn for 10 Minutes Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oration-ovations-for-worlds-pedagogues/"><u>Oration Ovations for World's Pedagogues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/orchestrate-your-own-interpretation-harmonized-language-learning/"><u>Orchestrate Your Own Interpretation: Harmonized Language Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-precision-innovation-integrating-gsl-and-mondly/"><u>Pearson's Precision Innovation: Integrating GSL & Mondly</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/pixelpilot-expert-tips-for-screen-snagging-for-2024/"><u>PixelPilot Expert Tips for Screen Snagging for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sony-xperia-5-review-smaller-but-still-tall-and-expensive/"><u>Sony Xperia 5 Review: Smaller But Still Tall and Expensive</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/steering-ai-ethics-why-openais-ceo-calls-for-oversight/"><u>Steering AI Ethics: Why OpenAI's CEO Calls for Oversight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-lingua-love-connection-flirting-in-spanish/"><u>The Lingua-Love Connection: Flirting in Spanish</u></a></li>
+</ul></div>
 

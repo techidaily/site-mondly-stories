@@ -1,7 +1,7 @@
 ---
 title: Mondly's Principles for Knowledge Acquisition
-date: 2024-12-28T20:27:48.308Z
-updated: 2025-01-04T01:05:29.993Z
+date: 2025-01-03T20:10:57.329Z
+updated: 2025-01-10T18:21:19.950Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -102,19 +102,20 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-perpetual-media-capture-utility/"><u>[New] 2024 Approved Perpetual Media Capture Utility</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-how-to-watch-record-and-edit-football-matches-for-free/"><u>[New] How to Watch, Record, and Edit Football Matches for Free</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-streamlined-methods-to-store-mov-on-your-windows-pc/"><u>[New] In 2024, Streamlined Methods to Store .mov on Your Windows PC</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-experience-the-next-level-of-virtual-reality-with-htcs-vive-headset-for-2024/"><u>[Updated] Experience the Next Level of Virtual Reality with HTC's Vive Headset for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-captivate-viewers-designing-engaging-youtube-trailers-with-filmora/"><u>2024 Approved Captivate Viewers Designing Engaging YouTube Trailers with Filmora</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/comparing-wmv-and-mp4-determining-the-superior-format-for-quality-and-file-size/"><u>Comparing WMV and MP4: Determining the Superior Format for Quality & File Size</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honteruss-quest-for-excellence-and-inspiration/"><u>Honterus's Quest for Excellence & Inspiration</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-tecno-pop-8-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Tecno Pop 8 Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-iphone-xs-when-we-dont-have-apple-id-or-password-by-drfone-ios/"><u>In 2024, How to Unlock iPhone XS When We Dont Have Apple ID or Password?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-bengali-online-in-just-10-minutes-a-day/"><u>Learn Bengali Online in Just 10 Minutes a Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-middle-ground-champion-a-deep-dive-into-the-capabilities-of-the-dell-inspiron-3671-desktop/"><u>The Middle Ground Champion: A Deep Dive Into the Capabilities of the Dell Inspiron ^ 3671 Desktop</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukrainian-vs-russian-slavic-sibling-languages/"><u>Ukrainian vs Russian: Slavic Sibling Languages?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unleash-your-brain-power-with-language-learning-after-50/"><u>Unleash Your Brain Power with Language Learning After 50</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voicemirror-vr-speaking-the-worlds-languages/"><u>VoiceMirror VR: Speaking the World's Languages</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-top-5-ios-podcast-apps-your-ultimate-listing/"><u>[New] 2024 Approved Top 5 iOS Podcast Apps Your Ultimate Listing</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-mastering-fading-techniques-for-less-intensity-in-logic-pro-tracks/"><u>2024 Approved Mastering Fading Techniques for Less Intensity in Logic Pro Tracks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-guide-to-indonesian-social-etiquette/"><u>A Beginner's Guide to Indonesian Social Etiquette</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chinese-script-for-newcomers/"><u>Chinese Script for Newcomers</u></a></li>
+<li><a href="https://network-issues.techidaily.com/dxgkrnlsys-and-windows-blue-screen-error-fix/"><u>dxgkrnl.sys and Windows Blue Screen Error Fix</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enrich-your-speech-quality-top-27-french-idiomatic-expressions/"><u>Enrich Your Speech Quality: Top 27 French Idiomatic Expressions</u></a></li>
+<li><a href="https://network-issues.techidaily.com/hidden-visual-chipset-restore-nvidia-graphics-recognition/"><u>Hidden Visual Chipset: Restore NVIDIA Graphics Recognition</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-prevent-the-grounded-pc-crash-of-2024-essential-tips-and-tweaks/"><u>How to Prevent the Grounded PC Crash of 2024 - Essential Tips and Tweaks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-basics-of-urdu-with-must-know-terminology/"><u>Learn Basics of Urdu with Must-Know Terminology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-local-language-speak-like-an-aussie/"><u>Learn Local Language: Speak Like an Aussie</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-pc-issues-during-a-match-of-battlefield-5-stability-tips-and-solutions/"><u>Overcoming PC Issues During a Match of Battlefield 5 - Stability Tips & Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/proven-steps-for-dominating-mondly-use/"><u>Proven Steps For Dominating Mondly Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-for-the-young-explorer-in-elementary-schools/"><u>Spanish for the Young Explorer in Elementary Schools</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-art-of-amassing-attention-on-ig-a-guide-for-a-thousand-likesmonth-for-2024/"><u>The Art of Amassing Attention on IG A Guide for a Thousand Likes/Month for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-6-plus-drfone-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for iPhone 6 Plus | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Fundamentals of Fluent Russian Communication
-date: 2025-01-01T00:02:48.828Z
-updated: 2025-01-03T21:21:24.292Z
+date: 2025-01-03T19:09:41.723Z
+updated: 2025-01-10T19:03:49.472Z
 tags:
   - speak
   - english
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
  Whether you’re planning an expedition, immersing in classic Russian literature, meeting with Russian-speaking friends, or even looking to impress with your language skills, using**Russian greetings** will surely be appreciated. Here are some of the most common ways to say “hello” in Russian:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Здравствуйте (Zdravstvuyte): Hello in Russian
@@ -76,7 +76,7 @@ Good job, you!
 ![hi in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hi-in-russian.jpg "Russian Greetings: Common Phrases And Basic Words 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Russian farewells
@@ -88,10 +88,6 @@ Good job, you!
 * **До встречи (Do vstrechi)** – See you soon: This is a bit more formal than Пока (Poka) and technically very similar to До свидания (Do svidaniya). The only difference is that it implies that you actually intend to meet later with the person you’re addressing it to.
 * **Увидимся (Uvidimsya)** – See you: It’s relatively informal and akin to the English “see you later”. You can tell your friends Увидимся (Uvidimsya) if you expect to meet them again in the near future.
 * **До скорого (Do skorogo)** – See you soon: It’s a warm farewell, yet rather polite. In practice, it aligns more with “see you” than “see you soon”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Helpful phrases for greetings
 
@@ -115,6 +111,10 @@ Good job, you!
 
  Found this interesting? You might want to learn about the [Russian alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [Russian numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) too.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Cultural insights on Russian greetings
 
  It’s one thing to know how to greet someone in Russian and it’s another to greet them the Russian way. Here’s what you should keep in mind if you’re meeting with Russian-speaking friends:
@@ -132,21 +132,21 @@ Good job, you!
 
  Use transliteration. It can be tricky to get the hang of Russian words using the Cyrillic alphabet, so resources that use transliteration will always come in handy.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How do Russians say “hello” and “goodbye”?
 
  Здравствуйте (Zdravstvuyte) is generally used for slightly formal hellos, while Привет (Privyet) is more suitable for casuals settings. The most common way to say “goodbye” in Russian is До свидания (Do svidaniya).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How can I greet someone respectfully in Russian if I don’t know their name?
 
  To greet someone respectfully in Russian you can say Здравствуйте (Zdravstvuyte) or use the time specific greetings.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Are there specific greetings for different times of the day in Russian?
 
@@ -182,15 +182,18 @@ Good job, you!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-illuminating-images-in-lightroom-a-step-by-step-hdr-guide/"><u>[New] Illuminating Images in Lightroom A Step-by-Step HDR Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-innovate-and-create-ranked-list-of-best-drawing-apps-for-android-users/"><u>[Updated] Innovate and Create Ranked List of Best Drawing Apps for Android Users</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-achieving-professional-bokeh-on-mobile-phones/"><u>In 2024, Achieving Professional Bokeh on Mobile Phones</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-poco-c50-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Poco C50</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/korean-alphabet-a-quick-guide-to-hangul/"><u>Korean Alphabet – A Quick Guide to Hangul</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-of-love-a-global-valentines-day-guide/"><u>Language of Love: A Global Valentine’s Day Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multicultural-mastery-the-art-of-interacting-across-borders/"><u>Multicultural Mastery: The Art of Interacting Across Borders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pace-yourself-learn-japans-counting-quickly/"><u>Pace Yourself, Learn Japan's Counting Quickly</u></a></li>
-<li><a href="https://win-extraordinary.techidaily.com/systemwiedereinrichtung-in-windows-11-wie-man-den-sicheren-modus-nutzt/"><u>Systemwiedereinrichtung in Windows 11: Wie Man Den Sicheren Modus Nutzt</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/ultimate-troubleshooting-techniques-for-fixing-unexpected-app-closures/"><u>Ultimate Troubleshooting Techniques for Fixing Unexpected App Closures</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-pro-gear-for-documenting-excursions/"><u>[New] 2024 Approved Pro Gear for Documenting Excursions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-exporting-your-youtube-and-twitter-creations-via-whatsapp/"><u>[New] Exporting Your YouTube & Twitter Creations via WhatsApp</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-strategic-playlist-formation-your-guide-to-youtube-mastery/"><u>[Updated] Strategic Playlist Formation Your Guide to YouTube Mastery</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-what-lies-beneath-the-surface-of-instagrams-reels-for-2024/"><u>[Updated] What Lies Beneath the Surface of Instagram's Reels for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-vivo-x-fold-2-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Vivo X Fold 2 to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-basics-a-10-minute-daily-regimen/"><u>Bangla Basics: A 10-Minute Daily Regimen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-basic-to-brilliant-mondly-mastery-techniques/"><u>From Basic to Brilliant: Mondly Mastery Techniques</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-on-your-apple-iphone-se-2022-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID On your Apple iPhone SE (2022)?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/ideal-iphoneandroid-faceshaping-software-for-2024/"><u>Ideal iPhone/Android Faceshaping Software for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-film-timeframe-determining-gb-storage-requirement/"><u>In 2024, Film Timeframe Determining GB Storage Requirement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-temps-de-la-semaine-en-langue-francaise/"><u>Les Temps De La Semaine en Langue Française</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-languages-made-simple-explore-our-top-triads-benefits/"><u>Mastering Languages Made Simple: Explore Our Top Triad's Benefits</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Vivo X100 Pro? | Dr.fone</u></a></li>
 </ul></div>
 

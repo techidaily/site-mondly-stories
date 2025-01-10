@@ -1,7 +1,7 @@
 ---
 title: International Greetings 101
-date: 2025-01-02T21:52:06.774Z
-updated: 2025-01-03T18:04:51.662Z
+date: 2025-01-09T18:45:48.003Z
+updated: 2025-01-10T19:47:40.112Z
 tags:
   - speak
   - english
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/80eceb8d178e7070d961e9242a3b69515c63dafd8
 
 ![hello in russian](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-russian-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Hello Russia” by Michael Parulava©
 
  At the same time,**_Здравствуйте (Zdravstvuyte)_** is also a very nice way to greet your Russian friends. The root of the word actually goes back to the expression “to be healthy and well” so it is also a wish for good health.
@@ -41,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/80eceb8d178e7070d961e9242a3b69515c63dafd8
  Wanna dig deeper into Russian greetings? Here are five different ways to say [**‘hello’ in Russian**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hello in Japanese — こんにちは (Kon’nichiwa)
@@ -51,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/80eceb8d178e7070d961e9242a3b69515c63dafd8
  Moreover, don’t forget that the Japanese culture is a culture of respect. If you want to go all-in and immerse yourself entirely in the Japanese culture, it’s best to [study Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) etiquette before your trip.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hello in Korean — 안녕하세요 (Annyeonghaseyo)
@@ -61,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/80eceb8d178e7070d961e9242a3b69515c63dafd8
 _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello. By comparison,_안녕 (Annyeong)_ is a little more informal and it’s what you should use if you want to say**‘hi’ in Korean.**
 
 ![hello in japanese](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-japanese-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Mount Fuji, Japan” by David Edelstein©
 
@@ -92,15 +100,15 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
  “Antibes, France” by Reuben Mcfeeters©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Hello in Italian — Ciao
 
  The Italian_Ciao_ is so popular that it has also been borrowed by other countries to be used between friends as a joke or even seriously. Together with_Capisce_ and_Grazie_ ,_Ciao_ forms the Holy Trinity of the Italian language. Anyone who wants to summon his or her inner Italian just uses these three words and automatically becomes Italian. Oh, let’s not forget about the famous [Italian hand gesture](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ! (Admit it. You tried that, too, at some point.)
 
 ![hello in different languages](https://media.giphy.com/media/DqZKCC1rRht8FmnKbv/giphy.gif "How To Say &Quot;Hello&Quot; In Different Languages 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Back to seriousness, Italians are all about respecting their elders, so if you need a more formal**‘hello’ in Italian** , you can safely use **_Salve_ .**
 
@@ -112,10 +120,6 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
  Of course, like in many other languages, this is not the only way to say ‘hello’ in Chinese. To find out what are other ways to say ‘hi’ in Chinese, here’s an [in-depth guide on](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) **Chinese greetings.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Hello in Portuguese — Olá
 
 **_Olá_ or_Oi_ ?** What’s your Portuguese hello of choice?
@@ -123,10 +127,6 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless of the person you are addressing._Oi_ , on the other hand, is how you can say**‘hi’ in Portuguese** and it is very informal and friendly. Careful though. While it is one of the most common ways to greet your friends in Brazil, people from Portugal don’t use it as much.
 
  To learn more about Portuguese greetings, check out our guide on how to say [**‘** **hello’ in Portuguese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Hello in different languages
 
@@ -202,20 +202,15 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-unveil-the-8-greatest-places-to-download-3d-text-psd-files/"><u>[New] 2024 Approved Unveil the 8 Greatest Places to Download 3D Text PSD Files</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-captivating-spokesperson-appraisal-8th-analysis/"><u>[New] In 2024, Captivating Spokesperson Appraisal 8Th Analysis</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-ultimate-shot-recorder-hunters-top-picks/"><u>[Updated] In 2024, Ultimate Shot Recorder Hunters' Top Picks</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-key-elements-for-effective-spotify-ad-execution/"><u>[Updated] The Key Elements for Effective Spotify Ad Execution</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-why-does-itools-virtual-location-not-work-for-apple-iphone-13-miniipad-solved-drfone-by-drfone-virtual-ios/"><u>In 2024, Why Does iTools Virtual Location Not Work For Apple iPhone 13 mini/iPad? Solved | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-leading-70plus-million-in-international-learning-community/"><u>Mondly: Leading 70+ Million in International Learning Community</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/precision-perfecting-10-must-know-pixlr-hacks-for-2024/"><u>Precision Perfecting 10 Must-Know Pixlr Hacks for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-historical-roots-of-earths-languages-explored/"><u>The Historical Roots of Earth's Languages Explored</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-ultimate-selection-of-educational-tools-my-favorite-8-apps-of-2024/"><u>The Ultimate Selection of Educational Tools: My Favorite 8 Apps of 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-teams-with-targeted-language-training-for-success/"><u>Transform Teams with Targeted Language Training for Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/triple-tiered-asian-dialects-quick-save-easy-find/"><u>Triple-Tiered Asian Dialects: Quick Save, Easy Find</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211032856-9781250878557-trippy/"><u>Trippy | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-turkeys-script-an-easy-to-learn-alphabet-and-pronunciation-guide/"><u>Understanding Turkey's Script: An Easy-to-Learn Alphabet & Pronunciation Guide</u></a></li>
-<li><a href="https://os-tips.techidaily.com/unfixable-damaged-iphone-securely-restore-your-precious-information-today/"><u>Unfixable Damaged iPhone? Securely Restore Your Precious Information Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worlds-words-seeking-the-most-elongated-term/"><u>World's Words: Seeking the Most Elongated Term</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-how-to-remove-or-replace-the-background-in-logitech/"><u>[Updated] In 2024, How to Remove or Replace the Background in Logitech</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-sharpen-the-rest-partially-blurred-photo-tactics/"><u>[Updated] Sharpen the Rest Partially Blurred Photo Tactics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/croatia-mother-tongue/"><u>Croatia: Mother Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-the-languages-santa-speaks-with-reindeer/"><u>Deciphering the Languages Santa Speaks with Reindeer</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/diagnosing-the-root-of-your-lcd-screens-flickering-woes-a-comprehensive-guide-by-yl-computing/"><u>Diagnosing the Root of Your LCD Screen's Flickering Woes: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dynamic-classroom-dynamics-with-latin-studies/"><u>Dynamic Classroom Dynamics with Latin Studies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-global-communication-with-mondlys-brilliance/"><u>Embrace Global Communication with Mondly's Brilliance</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-oppo-find-n3-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Oppo Find N3?</u></a></li>
+<li><a href="https://some-tips.techidaily.com/simplify-your-inbox-discover-the-simple-method-to-clear-out-messages-without-needing-separate-accounts-techtips-by-zdnet/"><u>Simplify Your Inbox: Discover the Simple Method to Clear Out Messages Without Needing Separate Accounts! | TechTips by ZDNet</u></a></li>
+<li><a href="https://fox-links.techidaily.com/vertex-productions-summary-pinnacle-studio-assessment-2023/"><u>Vertex Productions Summary Pinnacle Studio Assessment, 2023</u></a></li>
 </ul></div>
 

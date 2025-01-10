@@ -1,7 +1,7 @@
 ---
 title: 6 Cinematic Journeys Through the Heart of Denmark
-date: 2024-09-01T00:20:07.702Z
-updated: 2024-09-02T00:20:07.702Z
+date: 2025-01-03T20:12:29.488Z
+updated: 2025-01-10T19:32:12.747Z
 tags:
   - speak
   - english
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/0bb0f990e78102071e50c31f7028b725d7f6b1084
 
 Grab the popcorn and enjoy!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Der kommer en dag (2016) (The Day Will Come)
 
 [**IMDb rating: 7,8**](https://www.imdb.com/title/tt4659056/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -33,6 +37,10 @@ Grab the popcorn and enjoy!
  The events that follow are distressing – to say the least. The boys discover very quickly that Gudbjerg is run by Heck (Lars Mikkelsen), a cruel headmaster who is sacredly devoted to both physical and mental punishments as a way of instilling discipline in children. From public humiliation to hard physical labor – the boys from Gudbjerg are subject to every punishment possible in order to later become obedient citizens.
 
  Elmer and Erik try to become “invisible”, but that doesn’t spare them from being bullied by some of the older boys. Are they gonna find salvation? Watch it and find out.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Adams Æbler (2005) (Adam’s Apples)
 
@@ -45,8 +53,9 @@ Grab the popcorn and enjoy!
  “Adams Æbler” is a successful combination of black humor and drama guaranteed to keep you glued to the screen.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Efter brylluppet (2006) (After the Wedding)
 
 [**IMDb rating: 7,7**](https://www.imdb.com/title/tt0457655/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -58,17 +67,9 @@ Grab the popcorn and enjoy!
  This is only the second movie in the list blessed with the presence of Mads Mikkelsen, but hang in there! There’s more on the way.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Hævnen (2010) (In a Better World)
 
 [**IMDb rating: 7,6**](https://www.imdb.com/title/tt1340107/?ref%5F=nv%5Fsr%5F1?ref%5F=nv%5Fsr%5F1)
@@ -80,8 +81,9 @@ Grab the popcorn and enjoy!
  Academy Award winner for Best Foreign Language Film of the Year in 2011 (already convinced, aren’t you?), “Hævnen” is a story about friendship, choices, revenge, forgiveness and the consequences of our actions. There’s no way you won’t find yourself in it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. En kongelig affære (2012) (A Royal Affair)
 
 [**IMDb rating: 7,5**](https://www.imdb.com/title/tt1276419/?ref%5F=fn%5Fal%5Ftt%5F1)
@@ -92,9 +94,6 @@ Grab the popcorn and enjoy!
 
  The two lovers use their influence on King Christian to start a revolution that will change the nation forever. But will this be in their own best interest? Believe me, you absolutely have to watch this. Not only that this film was also nominated for an Oscar, but the costume design and the acting are absolutely amazing. Time watching it will not be time wasted.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ## 1\. Jagten (2012) (The Hunt)
 
 [**IMDb rating: 8,3**](https://www.imdb.com/title/tt2106476/)
@@ -126,8 +125,6 @@ Grab the popcorn and enjoy!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -135,8 +132,20 @@ Grab the popcorn and enjoy!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/updated-advanced-android-photography-essentials/"><u>[Updated] Advanced Android Photography Essentials</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-youtube-video-magic-best-tools-for-effortless-webm-conversion/"><u>[Updated] In 2024, YouTube Video Magic Best Tools for Effortless WebM Conversion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581598414-all-the-best-ways-to-say-thank-you-in-greek/"><u>All The Best Ways To Say Thank You In Greek</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-hottest-language-trends-top-3-speakers/"><u>Asia's Hottest Language Trends: Top 3 Speakers</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/corporate-governance-policies-and-ethical-standards/"><u>Corporate Governance Policies and Ethical Standards</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/einfache-abschiedsfloskeln-in-deutscher-umgangssprache/"><u>Einfache Abschiedsfloskeln in Deutscher Umgangssprache</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-nubia-z50-ultra-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from Nubia Z50 Ultra</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-infinix-hot-40i-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Infinix Hot 40i Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/inside-look-how-ct-imaging-reveals-secrets-of-apples-vision-pro-and-meta-quest-gear-insights-from-zdnet/"><u>Inside Look: How CT Imaging Reveals Secrets of Apple's Vision Pro & Meta Quest Gear - Insights From ZDNet</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/maximize-writing-efficiency-discover-the-8-best-ai-applications-for-authors/"><u>Maximize Writing Efficiency: Discover the 8 Best AI Applications for Authors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575254325-mondly-champion-of-language-learning-germany-resonates/"><u>Mondly: Champion of Language Learning - Germany Resonates</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-best-6-retailers-for-finding-and-buying-premium-laptops-online/"><u>The Best 6 Retailers for Finding and Buying Premium Laptops Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-path-to-expertise-announcing-1500-no-charge-lessons-a-day/"><u>The Path to Expertise: Announcing 1500 No-Charge Lessons a Day</u></a></li>
+</ul></div>
 

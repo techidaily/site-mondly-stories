@@ -1,7 +1,7 @@
 ---
 title: Mondly's Framework for Effective Learning
-date: 2024-09-01T00:20:53.980Z
-updated: 2024-09-02T00:20:53.980Z
+date: 2025-01-07T18:21:56.601Z
+updated: 2025-01-10T19:05:24.675Z
 tags:
   - speak
   - english
@@ -20,8 +20,6 @@ thumbnail: https://thmb.techidaily.com/7951d32be8f36c4eb18b2a1ca73585423cfb1568f
 
  The answer is simpler than you think. They learn by doing. And that’s the best approach for you too.
 
-
-
  After years of working abroad and learning several languages, the founders of what would soon become Mondly made a decision. They needed to bring this amazing approach to an app. And they did.
 
 ![language learning app](https://edge.mondly.com/blog/wp-content/uploads/2021/01/language-learning-app-960x761.png "The Learning Method Behind Mondly 4")
@@ -31,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/7951d32be8f36c4eb18b2a1ca73585423cfb1568f
  **Mondly is based on the inductive method: learn by doing, context and example, and extrapolate to rules.** In other words, start thinking in the language that you’d like to learn rather than construct a phrase in your native language, apply the rules and only then translate it accordingly.
 
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
 
@@ -44,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/7951d32be8f36c4eb18b2a1ca73585423cfb1568f
 
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
@@ -51,6 +57,10 @@ thumbnail: https://thmb.techidaily.com/7951d32be8f36c4eb18b2a1ca73585423cfb1568f
 [Studies](https://academic.oup.com/applij/article-abstract/34/4/457/199564?redirectedFrom=fulltext) have shown that knowing as little as 100 words helps you understand 50% of any text in the language you’re learning. Surprising as it may seem, it’s true. Knowing 1,000 words will give you a high coverage of 75% of any text. Here’s how much lexical coverage you need to reach fluency in almost any language:
 
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lexical coverage overview
 
@@ -64,9 +74,9 @@ thumbnail: https://thmb.techidaily.com/7951d32be8f36c4eb18b2a1ca73585423cfb1568f
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Take Mondly for a test drive
 
  Take your language learning experience to the next level. With Mondly, you’ll learn by doing.
@@ -83,8 +93,6 @@ The ultimate burning program for all your needs!</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -92,8 +100,19 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-unmatched-gaming-laptops-top-4k-picks-reviewed/"><u>[Updated] 2024 Approved Unmatched Gaming Laptops - Top 4K Picks Reviewed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-recovering-the-solitary-sound-device-for-2024/"><u>[Updated] Recovering the Solitary Sound Device for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/120plus-vital-words-and-phrases-for-the-modern-voyager/"><u>120+ Vital Words and Phrases for the Modern Voyager</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-live-streaming-duel-pitting-obs-against-shadowgl/"><u>2024 Approved Live Streaming Duel Pitting OBS Against ShadowGL</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575949876-a-blast-from-the-past-meets-future-savings-with-new-years-promo-on-mondly-pro/"><u>A Blast From the Past Meets Future Savings with New Year's Promo on Mondly Pro</u></a></li>
+<li><a href="https://some-tips.techidaily.com/apples-compact-computing-discover-the-new-m4-powered-mac-mini-as-slim-as-apple-tv/"><u>Apple's Compact Computing: Discover the New M4-Powered Mac Mini - As Slim as Apple TV?</u></a></li>
+<li><a href="https://media-tips.techidaily.com/guide-preventing-selected-ads-from-showing-up-on-your-youtube-channel/"><u>Guide: Preventing Selected Ads From Showing up on Your YouTube Channel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unites-with-pearson-scholarly-coalition/"><u>Mondly Unites With Pearson Scholarly Coalition</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/optimize-with-cookiebot-boost-engagement-and-retargeting/"><u>Optimize with Cookiebot: Boost Engagement and Retargeting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-lms-for-streamlined-linguistics-education/"><u>Top LMS for Streamlined Linguistics Education</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-made-simple-overcome-your-disappointing-discord-install-failure/"><u>Troubleshooting Made Simple: Overcome Your Disappointing Discord Install Failure</u></a></li>
+<li><a href="https://win-web3.techidaily.com/ultimate-guide-advanced-steps-to-merge-your-vehicle-with-novel-backdrops/"><u>Ultimate Guide: Advanced Steps to Merge Your Vehicle with Novel Backdrops</u></a></li>
+</ul></div>
 

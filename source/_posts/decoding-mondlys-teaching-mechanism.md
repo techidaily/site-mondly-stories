@@ -1,7 +1,7 @@
 ---
 title: Decoding Mondly's Teaching Mechanism
-date: 2024-09-01T00:17:02.398Z
-updated: 2024-09-02T00:17:02.398Z
+date: 2025-01-05T19:43:53.173Z
+updated: 2025-01-10T16:25:58.785Z
 tags:
   - speak
   - english
@@ -20,8 +20,6 @@ thumbnail: https://thmb.techidaily.com/b39a417d51f84d42969e276c8326049152a3ecf4c
 
  The answer is simpler than you think. They learn by doing. And that’s the best approach for you too.
 
-
-
  After years of working abroad and learning several languages, the founders of what would soon become Mondly made a decision. They needed to bring this amazing approach to an app. And they did.
 
 ![language learning app](https://edge.mondly.com/blog/wp-content/uploads/2021/01/language-learning-app-960x761.png "The Learning Method Behind Mondly 4")
@@ -31,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/b39a417d51f84d42969e276c8326049152a3ecf4c
  **Mondly is based on the inductive method: learn by doing, context and example, and extrapolate to rules.** In other words, start thinking in the language that you’d like to learn rather than construct a phrase in your native language, apply the rules and only then translate it accordingly.
 
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
 
@@ -44,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/b39a417d51f84d42969e276c8326049152a3ecf4c
 
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
@@ -51,6 +57,10 @@ thumbnail: https://thmb.techidaily.com/b39a417d51f84d42969e276c8326049152a3ecf4c
 [Studies](https://academic.oup.com/applij/article-abstract/34/4/457/199564?redirectedFrom=fulltext) have shown that knowing as little as 100 words helps you understand 50% of any text in the language you’re learning. Surprising as it may seem, it’s true. Knowing 1,000 words will give you a high coverage of 75% of any text. Here’s how much lexical coverage you need to reach fluency in almost any language:
 
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lexical coverage overview
 
@@ -64,8 +74,9 @@ thumbnail: https://thmb.techidaily.com/b39a417d51f84d42969e276c8326049152a3ecf4c
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Take Mondly for a test drive
 
  Take your language learning experience to the next level. With Mondly, you’ll learn by doing.
@@ -82,8 +93,6 @@ thumbnail: https://thmb.techidaily.com/b39a417d51f84d42969e276c8326049152a3ecf4c
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -91,8 +100,23 @@ thumbnail: https://thmb.techidaily.com/b39a417d51f84d42969e276c8326049152a3ecf4c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-beyond-saturation-and-contrast-hdrs-role-in-quality-enhancement/"><u>[New] In 2024, Beyond Saturation and Contrast HDR's Role in Quality Enhancement</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-instagram-shout-out-for-podcast-fans-for-2024/"><u>[New] Instagram Shout-Out for Podcast Fans for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-the-evolution-continues-iphone-xs-photographic-advancements-for-2024/"><u>[New] The Evolution Continues IPhone X's Photographic Advancements for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/game-on-the-leading-12-youtube-videographers-for-opening-tutorials-freepaid/"><u>Game On The Leading 12 YouTube Videographers for Opening Tutorials (Free/Paid)</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-vivo-v29-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Vivo V29 Pro | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-landscapes-comparing-british-canadian-and-southern-us-pronunciation/"><u>Linguistic Landscapes: Comparing British, Canadian, and Southern U.S. Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-mother-tongue-20-a-modern-guide-to-linguistic-growth/"><u>Mastering Mother Tongue 2.0: A Modern Guide to Linguistic Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pinnacle-programs-for-efficient-polyglotism/"><u>Pinnacle Programs for Efficient Polyglotism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rallying-colombo-support-with-dannys-foundation/"><u>Rallying Colombo Support with Danny's Foundation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-social-etiquette-key-phrase-skills-for-beginners/"><u>Russian Social Etiquette: Key Phrase Skills for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tailored-tips-for-leveraging-mondly-to-its-fullest/"><u>Tailored Tips for Leveraging Mondly to Its Fullest</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/top-picks-video-grabbers-on-microsofts-os-for-2024/"><u>Top Picks Video Grabbers on Microsoft's OS for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-korean-your-portal-into-squid-game/"><u>Understanding Korean: Your Portal Into Squid Game</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unveiling-the-power-of-portability-how-the-huawei-matebook-x-pro-challenges-elite-laptops-review/"><u>Unveiling the Power of Portability: How the Huawei MateBook X Pro Challenges Elite Laptops Review</u></a></li>
+<li><a href="https://win11.techidaily.com/your-blueprint-for-engaging-the-backup-and-restore-feature-in-windows-11/"><u>Your Blueprint for Engaging the Backup and Restore Feature in Windows 11</u></a></li>
+</ul></div>
 

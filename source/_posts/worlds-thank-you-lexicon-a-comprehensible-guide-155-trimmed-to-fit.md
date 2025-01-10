@@ -1,7 +1,7 @@
 ---
 title: "World's Thank-You Lexicon: A Comprehensible Guide (155) [Trimmed to Fit]"
-date: 2024-09-05T04:34:58.509Z
-updated: 2024-09-06T04:34:58.509Z
+date: 2025-01-04T20:03:53.109Z
+updated: 2025-01-10T18:23:27.709Z
 tags:
   - speak
   - english
@@ -14,18 +14,6 @@ keywords: World's Best Phrases of Gratitude,Comprehensive Guide to Expressing Th
 thumbnail: https://thmb.techidaily.com/ec6b1f1d7d998ce573dd315cc18c0246f2fda616f5f88137d905e138146bac2b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## World's Thank-You Lexicon: A Comprehensible Guide (155) [Trimmed to Fit]
 
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
@@ -33,11 +21,9 @@ thumbnail: https://thmb.techidaily.com/ec6b1f1d7d998ce573dd315cc18c0246f2fda616f
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to say “thank you” in 30 languages
 
 * **Thank you in Afrikaans:** _Dankie_
@@ -75,19 +61,15 @@ thumbnail: https://thmb.techidaily.com/ec6b1f1d7d998ce573dd315cc18c0246f2fda616f
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The origin of saying “thank you”
 
  The mere act of expressing gratitude sits at the core of human interaction, so it should be interesting to analyze it a bit more. As the [Oxford Dictionaries](https://en.oxforddictionaries.com/definition/thank%5Fyou) explain, “thank you” is “a polite expression used when acknowledging a gift, service, or compliment, or accepting or refusing an offer”. “Thank you” is basically the general expression of gratitude or politeness to someone for an act of kindness that he or she has done.
@@ -112,11 +94,9 @@ thumbnail: https://thmb.techidaily.com/ec6b1f1d7d998ce573dd315cc18c0246f2fda616f
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## From 0 to conversational in over 40 languages
 
  Do you want to speak Spanish fluently fast? Or maybe French? Get [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6274&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6274) , the award-winning language learning app that will help you speak up to 41 languages.
@@ -138,8 +118,6 @@ thumbnail: https://thmb.techidaily.com/ec6b1f1d7d998ce573dd315cc18c0246f2fda616f
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -147,8 +125,24 @@ thumbnail: https://thmb.techidaily.com/ec6b1f1d7d998ce573dd315cc18c0246f2fda616f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-discover-poi-delights-in-instant-from-coffee-shops-to-concert-venues-for-2024/"><u>[New] Discover POI Delights in Instant, From Coffee Shops to Concert Venues for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-elite-list-8-amazing-3d-websites-and-glittering-text/"><u>[New] In 2024, Elite List 8 Amazing 3D Websites & Glittering Text</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-understanding-aspect-ratios-impact-on-youtube-viewership/"><u>[New] In 2024, Understanding ASPECT RATIOS' Impact on YOUTUBE Viewership</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-learn-to-record-mi-11s-display-effortlessly-for-2024/"><u>[Updated] Learn to Record Mi 11'S Display Effortlessly for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-master-the-art-of-gaming-best-monitors-and-tvs-for-xbox-series-x/"><u>[Updated] Master the Art of Gaming Best Monitors & TVs For Xbox Series X</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-at-work-language-tools-for-corporate-success/"><u>Fluent at Work: Language Tools for Corporate Success</u></a></li>
+<li><a href="https://network-issues.techidaily.com/hardware-preferences-retained-post-update/"><u>Hardware Preferences Retained Post-Update</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/instant-screen-capture-pro-chrome/"><u>Instant Screen Capture Pro (Chrome)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-japanese-anywhere-10-no-cost-online-platforms-revealed/"><u>Learn Japanese Anywhere: 10 No-Cost Online Platforms Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-leads-bridging-cultures-and-courses-with-70plus-million-users/"><u>Mondly Leads: Bridging Cultures & Courses with 70+ Million Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-more-payments-mondly-unlocked-forever/"><u>No More Payments: Mondly Unlocked Forever</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oxford-3000-mondly-style-for-quick-learning/"><u>Oxford 3000, Mondly Style for Quick Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sculpting-success-in-global-language-assessments-and-certifications/"><u>Sculpting Success in Global Language Assessments & Certifications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-significance-of-ai-in-modern-educational-practices/"><u>The Significance of AI in Modern Educational Practices</u></a></li>
+<li><a href="https://win-lab.techidaily.com/trouble-locating-compatible-drivers-for-your-pcs-hardware-in-windows-unravel-the-mystery-with-yl-computing/"><u>Trouble Locating Compatible Drivers for Your PC's Hardware in Windows - Unravel the Mystery with YL Computing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/varfor-sweden-svensk-forsalar/"><u>Varför Sweden? - Svensk Försalar</u></a></li>
+</ul></div>
 

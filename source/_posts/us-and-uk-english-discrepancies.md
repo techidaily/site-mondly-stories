@@ -1,7 +1,7 @@
 ---
 title: US & UK English Discrepancies
-date: 2024-12-29T17:04:55.783Z
-updated: 2025-01-03T18:08:39.619Z
+date: 2025-01-05T18:51:06.156Z
+updated: 2025-01-10T17:41:05.643Z
 tags:
   - speak
   - english
@@ -63,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
 
  Previous  Next
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spellings differences: is it “colour” or “color”?
 
  That’s simple! “Colour” is the British spelling and “color” is the American spelling. Always remember that, when it comes to spelling, American English uses a simplified version. The explanation goes back to 1828 when Noah Webster wrote the first American dictionary –_An American Dictionary of the English Language._ Webster said he chose alternative spellings that were already in use in the United States “on such grounds as simplicity, analogy or etymology”.
@@ -91,12 +95,16 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
 
  If you speak English as a second language and you are not sure which is the correct spelling for the type of English you use, install a spell checker and let it do the job for you. In time, you’ll get used to the fitting spelling and learn to write correctly on your own.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Grammar differences
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Collective nouns
@@ -111,6 +119,10 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
 
  Many verbs that are irregular in the past tense in British English (_dreamt, burnt, learnt_), have been made regular in American English (_dreamed, burned, learned_).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Got or gotten?
 
  In the UK, the past participle of “get” – “gotten” – is considered archaic and was replaced with “got” some time ago. Americans, on the other hand, still use “gotten” as the past participle of “get”.
@@ -120,7 +132,7 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
 **American English:** get – got – gotten
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Tenses
@@ -135,15 +147,7 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
 
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  British English vs American English
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Other grammar differences
 
@@ -156,10 +160,6 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
  The biggest difference between British English and American English is, undoubtedly, the accent. The reason why these two variations sound so different is known as rhotacism, the change of a particular consonant into a rhotic consonant. In this case, the consonant is “r”.
 
  American accent is rhotic and Americans pronounce their “R’s” loud and clear. On the other hand, the British accent is non-rhotic and Brits usually replace their “R’s” with “H’s”. Thus, words like “water” or “card” will be pronounced_wa-tuh_ or_caahd_ .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## British vs American: which one should you learn and use?
 
@@ -201,24 +201,22 @@ thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a45347
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-vlogging-basics-top-uncomplicated-projects/"><u>[New] 2024 Approved Vlogging Basics Top Uncomplicated Projects</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-seamless-online-media-dissemination-on-vimeo/"><u>[Updated] 2024 Approved Seamless Online Media Dissemination on Vimeo</u></a></li>
-<li><a href="https://win-forum.techidaily.com/connect-with-the-world-via-major-platforms-discover-facebook-twitter-instagram-and-youtube/"><u>Connect with the World via Major Platforms - Discover Facebook, Twitter, Instagram and Youtube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/greetings-galore-a-journey-through-japans-language/"><u>Greetings Galore: A Journey Through Japan's Language</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-sony-xperia-5-v-frp-by-drfone-android/"><u>How Can We Bypass Sony Xperia 5 V FRP?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-setting-up-video-size-on-youtube-complete-tutorial/"><u>In 2024, Setting Up Video Size on YouTube Complete Tutorial</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-samsung-galaxy-a05s-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Samsung Galaxy A05s Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lepiderme-et-la-peau-composants-en-francais-anatomie/"><u>L'épiderme Et La Peau: Composants en Français (Anatomie)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/mastering-instagrams-visual-narratives-a-guide-for-prodigies-for-2024/"><u>Mastering Instagram's Visual Narratives A Guide for Prodigies for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-decorates-with-award-in-tech-awards/"><u>Mondly Decorates with Award in Tech Awards</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-named-one-of-google-plays-best-apps-of-2017back-buttonfilter-button/"><u>Mondly Kids App Named One Of Google Play's Best Apps Of 2017Back ButtonFilter Button</u></a></li>
-<li><a href="https://win11.techidaily.com/proven-methods-tracking-down-windows-10s-past/"><u>Proven Methods: Tracking Down Windows 10'S Past</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-benefits-of-learning-croatian-7-reasons-to-start-today/"><u>The Benefits Of Learning Croatian: 7 Reasons To Start Today</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unheard-side-of-stories-rethinking-the-true-impact-of-the-fb-papers/"><u>The Unheard Side of Stories: Rethinking the True Impact of The FB Papers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/triad-of-popular-asian-vernaculars-quick-reorder-save/"><u>Triad of Popular Asian Vernaculars: Quick Reorder, Save</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ukraines-access-to-language-mastery-via-mondly-free-of-charge/"><u>Ukraine's Access to Language Mastery via Mondly, Free-of-Charge</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-the-aussie-tongue-100plus-terms-guide/"><u>Unlock the Aussie Tongue: 100+ Terms Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-primary-speech-is-used-by-israelis-today/"><u>What Primary Speech Is Used by Israelis Today?</u></a></li>
-<li><a href="https://win-special.techidaily.com/dts-m4v-to-mp4-online-conversion-tool-by-movavi/"><u>무료 DTS M4V to MP4 변환: Online Conversion Tool by Movavi</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-direct-digital-diaries-2023-edition/"><u>[New] 2024 Approved Direct Digital Diaries - 2023 Edition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-evaluating-a-64gb-drive-writable-by-videos/"><u>[New] Evaluating a 64GB Drive' Writable by Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-mastering-live-streams-from-obs-to-fb/"><u>[New] Mastering Live Streams From OBS to FB</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-stepping-into-a-new-digital-era-mastering-your-tiktok-handle-change-process-for-2024/"><u>[Updated] Stepping Into a New Digital Era Mastering Your TikTok Handle Change Process for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-top-quality-no-cost-desktop-recording-the-best-apps-list-for-2024/"><u>[Updated] Top Quality, No Cost Desktop Recording The Best Apps List for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unlocking-the-full-potential-of-zoom-on-your-google-meet-calls-for-2024/"><u>[Updated] Unlocking the Full Potential of Zoom on Your Google Meet Calls for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-vivo-y100i-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Vivo Y100i Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-danish-flicks-to-immerse-in-lingua-franca/"><u>6 Danish Flicks to Immerse in Lingua Franca</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-thrilling-benefits-learning-hindi-online-via-mondly/"><u>7 Thrilling Benefits: Learning Hindi Online via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beacon-of-inspiration-johannes-honterus/"><u>A Beacon of Inspiration: Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chord-powered-communication-science-backed-music-learning-techniques/"><u>Chord-Powered Communication: Science Backed Music Learning Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crafting-connections-romantic-german-pick-up-lines/"><u>Crafting Connections: Romantic German Pick Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-global-understanding-pathways-to-successful-communication/"><u>Cultivating Global Understanding: Pathways to Successful Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultures-spooky-holiday-rituals/"><u>Cultures' Spooky Holiday Rituals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsche-grussformeln-fur-die-abreise/"><u>Deutsche Grußformeln Für Die Abreise</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-issues-with-starting-your-hosted-network-feature-on-windows-10-devices/"><u>Overcoming Issues with Starting Your Hosted Network Feature on Windows 10 Devices</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-the-issue-preventing-spotify-app-from-closing-on-iphone-lock/"><u>Solving the Issue: Preventing Spotify App From Closing on iPhone Lock</u></a></li>
 </ul></div>
 

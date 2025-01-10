@@ -1,7 +1,7 @@
 ---
 title: Global Halloween Festivities & Customs
-date: 2024-12-29T16:02:02.559Z
-updated: 2025-01-04T00:31:05.362Z
+date: 2025-01-04T16:29:33.996Z
+updated: 2025-01-10T16:49:52.907Z
 tags:
   - speak
   - english
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
  The leaves have all turned yellow, red and brown. Everywhere in the neighborhood smells like pumpkin pie, roasted chestnuts and mulled wine. Everyone is wearing warmer clothes and brighter smiles. Kids are carrying their heavy schoolbags back home to a delicious lunch and scary jack-o’-lanterns have begun popping up here and there. It’s glaringly obvious:**Halloween is almost here!** Soon enough houses will be covered in black and orange decorations and children will shout excitedly:**“Trick or treat?! Give me something good to eat!”.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Origins of Halloween
@@ -28,14 +28,10 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
  Nevertheless, there are many countries around the world that have their own Halloween-like traditions celebrating the afterlife. For example, in some parts of the world, on All Hallows’ Eve, people visit the graveyards of their loved ones to pray and place flowers. But let’s dive in already and look at **four of the most fascinating Halloween-like traditions from different corners of the world.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Halloween-like Traditions Worldwide
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Mexico: Día de Muertos (Day of the Dead)
@@ -47,12 +43,16 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Calaveras” by Valeria Almaraz©
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### China: The Hungry Ghost Festival
 
@@ -73,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
@@ -136,20 +136,22 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-does-quick-subscribe-strategy-boost-audience-growth/"><u>2024 Approved Does Quick-Subscribe Strategy Boost Audience Growth?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gratitude-in-mandarin-mastering-xiexie-and-more/"><u>Gratitude in Mandarin: Mastering Xièxiè and More</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-samsung-galaxy-a15-5g-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Samsung Galaxy A15 5G Fingerprint Lock</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-maximize-your-video-workflow-with-the-best-8-apps-for-mac-and-phone/"><u>In 2024, Maximize Your Video Workflow with the Best #8 Apps for Mac & Phone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-oppo-a56s-5g-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Oppo A56s 5G Phone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-lava-yuva-2-pro-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Lava Yuva 2 Pro Android SIM Unlock APK</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-to-speak-like-a-native-ru-letter-pronunciations/"><u>Learn to Speak Like a Native: RU Letter Pronunciations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-merges-with-pearson-edu-connectivity/"><u>Mondly Merges With Pearson Edu-Connectivity</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/study-the-russian-alphabet-pronunciation/"><u>Study The Russian Alphabet Pronunciation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/taste-the-world-translating-chocolate-in-30-languages/"><u>Taste the World: Translating 'Chocolate' In 30 Languages</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/technological-temptation-understanding-seven-ai-techniques-cybercriminals-use-for-love-deceptions/"><u>Technological Temptation: Understanding Seven AI Techniques Cybercriminals Use for Love Deceptions</u></a></li>
-<li><a href="https://win-blog.techidaily.com/the-eternal-struggle-a-closer-look-at-perseverance-within-the-black-experience/"><u>The Eternal Struggle: A Closer Look at Perseverance Within the Black Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-path-to-fluency-unveil-8-superior-benefits-of-learning-hindi-online-with-mondly/"><u>The Path to Fluency: Unveil 8 Superior Benefits of Learning Hindi Online with Mondly!</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unlocking-virtual-reality-on-pc-a-comprehensive-guide-for-psvr-users/"><u>Unlocking Virtual Reality on PC: A Comprehensive Guide for PSVR Users</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-sony-vegas-vs-adobe-premiere-which-one-is-better/"><u>Updated Sony Vegas VS Adobe Premiere, Which One Is Better?</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-remedy-for-accidental-youself-reappearance-during-fb-chats/"><u>[New] In 2024, Remedy for Accidental 'Youself' Reappearance During FB Chats</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-sony-xperia-xz-bridging-the-gap-to-ultra-hd-phones/"><u>[New] Sony Xperia XZ - Bridging the Gap to Ultra HD Phones</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-compact-5-listing-visuals-with-accompaniment-recorders/"><u>[Updated] In 2024, Compact 5 Listing Visuals with Accompaniment Recorders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/blueprint-for-achieving-new-year-goals/"><u>Blueprint For Achieving New Year Goals</u></a></li>
+<li><a href="https://win11.techidaily.com/boosting-game-loading-times-for-epic-universe/"><u>Boosting Game Loading Times for Epic Universe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-dictionaries-10-languages-one-sunrise-salutation/"><u>Dawn Dictionaries: 10 Languages, One Sunrise Salutation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-anytime-anywhere-mondly-and-huawei/"><u>Engage Anytime, Anywhere - Mondly and Huawei</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-linguistics-for-enhanced-intelligence/"><u>Global Linguistics for Enhanced Intelligence</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-oneplus-12-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove OnePlus 12 Fingerprint Lock</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-from-novice-to-expert-advanced-screencasting-steps/"><u>In 2024, From Novice to Expert Advanced Screencasting Steps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-lifelines-top-ten-ways-for-a-better-future/"><u>Language Learning Lifelines: Top Ten Ways for a Better Future</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestones-in-a-decade-mondlybacks-button-innovations/"><u>Milestones in a Decade: MondlyBack’s Button Innovations</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-the-problem-of-an-unresponsive-iphone-tips-and-tricks/"><u>Solving the Problem of an Unresponsive iPhone – Tips & Tricks</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/streamline-conversations-androids-chatgpt-widget-guide/"><u>Streamline Conversations: Android's ChatGPT Widget Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-motivational-force-behind-honterus/"><u>The Motivational Force Behind Honterus</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-redesigned-home-tab-and-feed-structure-on-facebook/"><u>Unveiling The Redesigned Home Tab & Feed Structure on Facebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-voyage-speak-a-foreign-language-effortlessly/"><u>Virtual Voyage: Speak a Foreign Language Effortlessly</u></a></li>
 </ul></div>
 

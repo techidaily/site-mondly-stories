@@ -1,7 +1,7 @@
 ---
 title: Introducing the First Augmented Reality Language App with Speech Recognition
-date: 2025-01-02T17:46:10.003Z
-updated: 2025-01-03T16:08:25.639Z
+date: 2025-01-05T17:53:30.880Z
+updated: 2025-01-10T17:13:03.434Z
 tags:
   - speak
   - english
@@ -27,7 +27,7 @@ Here’s a video showcasing Mondly AR:
 ##
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## We take learning out of the books and bring it to life into your living room using augmented reality
@@ -37,7 +37,7 @@ Here’s a video showcasing Mondly AR:
 ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Mondly, the lifelike language learning assistant uses augmented reality to bring language lessons to life. She has the ability to make planets, animals and musical instruments magically appear into your own environment, creating a scenery where you can walk up and around these virtual creations and even interact with them. This spatial interaction creates a truly immersive experience which was made possible using the latest augmented reality technologies such as ARCore from Google.
@@ -46,12 +46,16 @@ Here’s a video showcasing Mondly AR:
 
 ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "Introducing The First Augmented Reality Language App With Speech Recognition 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Alex Iliescu, our CEO, spoke about the launch:
 
 > _We started working on Mondly AR in August 2017 and by the time [Blade Runner 2049](http://www.imdb.com/title/tt1856101/) was released, we already had a working demo. Watching Blade Runner 2049 made me realize that we were beginning to build the future. To me, Joi (the holographic companion of officer K) looked like a super advanced version of Mondly – the character we were creating. They can both understand speech, reply with a human voice and change outfits. Of course, Mondly is not as smart and realistic as Joi. Yet. But she can teach you 7 languages. And this is just the beginning._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Here’s what you should know about Mondly AR
@@ -70,7 +74,7 @@ Alex Iliescu, our CEO, spoke about the launch:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facts and figures about Mondly
@@ -85,10 +89,6 @@ Alex Iliescu, our CEO, spoke about the launch:
 * Launched [Mondly VR](https://www.oculus.com/experiences/quest/4214902388537196/?utm%5Fsource=mondly&utm%5Fcampaign=blog&utm%5Fchannel=direct) , the first Virtual Reality language app with speech recognition in the world in February 2017
 * Available on iPhone, iPad, Android and Web
 * [Mondly Press Kit](https://www.dropbox.com/sh/vo4j5214zvwdxy5/AAC20VxIgpuiEe7ED2%5F37VNEa?dl=0)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Media mentions about Mondly
 
@@ -119,19 +119,22 @@ Alex Iliescu, our CEO, spoke about the launch:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-from-script-to-smile-generate-text-memes-instantly/"><u>[New] From Script to Smile Generate Text Memes Instantly</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/astery-in-motion-in-depth-review-of-video-editing-software/"><u>[New] Mastery in Motion In-Depth Review of Video Editing Software</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-cricket-apple-iphone-xs-for-free-by-drfone-ios/"><u>How To Unlock Cricket Apple iPhone XS for Free</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-a-beginners-pathway-to-screen-casting-and-capturing-macos/"><u>In 2024, A Beginner's Pathway to Screen Casting and Capturing macOS</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-languages-through-visual-narratives/"><u>Learning Languages Through Visual Narratives</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-connects-educates-surpassing-the-70-million-mark-worldwide/"><u>Mondly Connects, Educates - Surpassing the 70 Million Mark Worldwide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/premier-asian-language-cohort-fast-sort-and-store/"><u>Premier Asian Language Cohort: Fast Sort & Store</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/social-media-smarts-picking-between-snapchats-ai-and-gpt/"><u>Social Media Smarts: Picking Between Snapchat’s AI and GPT</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-poco-c55-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Poco C55 FRP</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-pronunciation-in-the-german-language/"><u>The Essentials of Pronunciation in the German Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-lexicon-of-love-a-journey-through-hungarian-sentences/"><u>The Lexicon of Love: A Journey Through Hungarian Sentences</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-swashbucklers-handbook-navigating-piratical-chatter/"><u>The Swashbuckler's Handbook: Navigating Piratical Chatter</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-application-boot-issues-overcoming-error-code-0xc00n000007b/"><u>Troubleshooting Application Boot Issues: Overcoming Error Code 0Xc00n000007b</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-guide-resolving-packet-loss-problems-in-discord-communication/"><u>Troubleshooting Guide: Resolving Packet Loss Problems in Discord Communication</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-drone-guide-for-the-thrifty-consumer-cost-effective-choices-for-2024/"><u>[New] Drone Guide for the Thrifty Consumer Cost-Effective Choices for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-overcome-youtube-tweet-buffer-in-chromebook/"><u>[Updated] 2024 Approved Overcome YouTube Tweet Buffer in Chromebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100-tongue-twisting-challenges-for-exceptional-accent/"><u>100 Tongue-Twisting Challenges for Exceptional Accent</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-opening-doors-to-collective-listening-on-youtube/"><u>2024 Approved Opening Doors to Collective Listening on YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-untapped-potential-gained-by-learning-languages/"><u>6 Untapped Potential Gained by Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579707441-accelerate-latvian-skills-10-minutes-per-day-maximum-effort/"><u>Accelerate Latvian Skills - 10 Minutes Per Day, Maximum Effort!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bards-brilliance-in-modern-dialogue-36-phrases-examined/"><u>Bard's Brilliance in Modern Dialogue: 36 Phrases Examined</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/beat-the-lag-strategies-to-enhance-your-counter-strike-ebys-online-play-on-pc/"><u>Beat the Lag: Strategies to Enhance Your Counter-Strike Eby's Online Play on PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparing-german-and-french-language-applications/"><u>Comparing German and French Language Applications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-language-hurdles-learnings-greatest-trials/"><u>Conquering Language Hurdles: Learning's Greatest Trials</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/discover-unmatched-gameplay-luxury-how-dells-high-end-3000-laptop-redefines-expectations-in-pc-gaming-zdnet-review/"><u>Discover Unmatched Gameplay Luxury: How Dell's High-End $3,000 Laptop Redefines Expectations in PC Gaming | ZDNET Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-santas-language-proficiency/"><u>Discovering Santa's Language Proficiency</u></a></li>
+<li><a href="https://windows11.techidaily.com/key-steps-for-admin-level-access-on-windows/"><u>Key Steps for Admin-Level Access on Windows</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quick-and-efficient-task-management-in-ms-project/"><u>Quick and Efficient Task Management in MS Project</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/streamline-your-presence-optimal-obs-use-on-facebook-feed-for-2024/"><u>Streamline Your Presence Optimal OBS Use on Facebook Feed for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578312799-the-16-best-ways-to-say-thank-you-in-german/"><u>The 16 Best Ways To Say Thank You In German</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/wma-a-formato-3gp-sin-gastos-guia-completa-para-convertir-en-linea-gratuita-con-fasttrackconverter/"><u>WMA a Formato 3GP Sin Gastos: Guía Completa Para Convertir en Línea Gratuita Con FastTrackConverter</u></a></li>
 </ul></div>
 

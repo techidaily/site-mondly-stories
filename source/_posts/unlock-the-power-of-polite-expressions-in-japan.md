@@ -1,7 +1,7 @@
 ---
 title: Unlock the Power of Polite Expressions in Japan
-date: 2025-01-02T22:57:10.681Z
-updated: 2025-01-04T01:10:11.762Z
+date: 2025-01-03T20:31:42.027Z
+updated: 2025-01-10T18:30:32.492Z
 tags:
   - speak
   - english
@@ -36,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/2ba6e093c71356d417ecac5da46572ca39801b84e
 ![honnichiwa](https://edge.mondly.com/blog/wp-content/uploads/2019/08/honnichiwa-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Kyoto, Japan” by Sorasak©
@@ -49,13 +49,13 @@ thumbnail: https://thmb.techidaily.com/2ba6e093c71356d417ecac5da46572ca39801b84e
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Good morning in Japanese and other relevant greetings
 
@@ -75,6 +75,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3.“Goodbye” in Japanese
 
  Another greeting we borrowed from the Japanese and sometimes use in our day-to-day conversations in English is**_Sayōnara_** (さよなら), a greeting that carries the connotation of farewell and translates to “goodbye”.
@@ -92,10 +96,14 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “See you soon, human” by Alain Pham©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
@@ -140,10 +148,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Bonus: basic conversation in Japanese
 
  If you don’t want to stop at just**“thank you” or “hello” in Japanese,** here are a few more**Japanese phrases** that are fairly easy to remember and will definitely make all the difference for your trip to Japan:
@@ -164,10 +168,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -201,21 +201,20 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-windows-11-expert-strategies-for-recording-high-quality-sounds/"><u>[New] Windows 11 Expert Strategies for Recording High-Quality Sounds</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-selective-slow-speed-video-capture-apps-androidiphone/"><u>2024 Approved Selective Slow-Speed Video Capture Apps Android/iPhone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honoring-time-mondlybacks-filter-evolution/"><u>Honoring Time: MondlyBack’s Filter Evolution</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-motorola-edge-40-neo-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Motorola Edge 40 Neo Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-perform-the-latest-chromecast-software-updates-effortlessly/"><u>How To Perform The Latest Chromecast Software Updates Effortlessly</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-revolutionary-background-swap-tools-frameswitch-prodigy/"><u>In 2024, Revolutionary Background Swap Tools FrameSwitch Prodigy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-conjuncts-with-pearson-knowledge-hub/"><u>Mondly Conjuncts With Pearson Knowledge Hub</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-rejoices-7-years-of-worldwide-learning/"><u>Mondly Rejoices - 7 Years of Worldwide Learning</u></a></li>
-<li><a href="https://facebook.techidaily.com/personalizing-your-feed-with-a-new-twist-in-business-advertising/"><u>Personalizing Your Feed with a New Twist in Business Advertising</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pioneering-your-data-protection/"><u>Pioneering Your Data Protection</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/proficient-communication-premium-linguistic-tools-reviewed/"><u>Proficient Communication: Premium Linguistic Tools Reviewed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/semana-espanola-dias-y-horas-al-alcance/"><u>Semana Española: Días Y Horas Al Alcance</u></a></li>
-<li><a href="https://article-tips.techidaily.com/sportswomens-scorecard-poker-analysis-for-2024/"><u>SPORTSWOMEN'S SCORECARD Poker Analysis for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1723808289175-struggling-with-gmail-passwords-here-are-effective-solutions/"><u>Struggling with Gmail Passwords? Here Are Effective Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/tips-to-ensure-clear-messaging-in-multilingual-facebook-posts/"><u>Tips to Ensure Clear Messaging in Multilingual Facebook Posts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/which-nations-prepare-for-thanksgiving/"><u>Which Nations Prepare for Thanksgiving?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-explore-best-asmr-apps-both-sides-of-the-os/"><u>[New] 2024 Approved Explore Best ASMR Apps, Both Sides of the OS</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitter-videos-on-facebook-the-transfer-guide/"><u>[New] 2024 Approved Twitter Videos on Facebook The Transfer Guide</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-chuckle-chipmunks-robotic-jokesters-for-2024/"><u>[New] Chuckle Chipmunks Robotic Jokesters for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amores-secret-language-italian-flirting-guide/"><u>Amore’s Secret Language: Italian Flirting Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-fluent-in-tagalog-fast-and-easy/"><u>Become Fluent in Tagalog Fast and Easy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-freedom-spoken-everywhere/"><u>Celebrating Freedom, Spoken Everywhere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-the-enigma-in-turko-korean-tongues/"><u>Deciphering the Enigma in Turko-Korean Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-latin-legacy-spanish-vs-portuguese/"><u>Decoding the Latin Legacy: Spanish Vs. Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eduverse-a-new-dimension-for-linguistic-education/"><u>Eduverse: A New Dimension for Linguistic Education</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/exploring-the-leading-augmented-reality-eyewear-a-2eught-list-tech-insights-by-zdnet/"><u>Exploring the Leading Augmented Reality Eyewear - A 2Eught List | Tech Insights by ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581890717-get-up-and-learn-urdu-10-minute-rule/"><u>Get Up & Learn Urdu – 10-Minute Rule!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-xiaomi-13t-lock-screen-password-by-drfone-android/"><u>How to Reset your Xiaomi 13T Lock Screen Password</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-your-complete-guide-to-understanding-tiktoks-pfp-symbol/"><u>In 2024, Your Complete Guide to Understanding TikTok’s PFP Symbol</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Lenovo ThinkPhone? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-nokia-c22-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Nokia C22 | Dr.fone</u></a></li>
 </ul></div>
 

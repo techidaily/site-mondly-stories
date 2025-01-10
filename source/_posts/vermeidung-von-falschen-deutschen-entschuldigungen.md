@@ -1,7 +1,7 @@
 ---
 title: Vermeidung Von Falschen Deutschen Entschuldigungen
-date: 2025-01-02T20:14:04.368Z
-updated: 2025-01-04T00:52:04.878Z
+date: 2025-01-04T20:35:03.647Z
+updated: 2025-01-10T19:57:23.023Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
  Let’s look at the most important ways to say “sorry” in German and when to use each of them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When should you say you’re sorry?
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to apologize in German
@@ -47,7 +47,7 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say sorry in German – the “Excuse me” sorry
@@ -59,7 +59,7 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Other ways to say sorry in German
@@ -105,7 +105,7 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in German
@@ -139,22 +139,24 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-best-facebook-lite-video-downloading-software-of-2023/"><u>[Updated] In 2024, Best Facebook Lite Video Downloading Software of 2023</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-leveraging-interactivity-elevate-your-online-stream-presence/"><u>2024 Approved Leveraging Interactivity Elevate Your Online Stream Presence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-tactics-mastering-a-second-or-third-language-online/"><u>Essential Tactics: Mastering a Second (or Third) Language Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/everyday-language-explained-slang-terms-uncovered/"><u>Everyday Language Explained: Slang Terms Uncovered</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-us-uk-language-differences/"><u>Exploring US-UK Language Differences</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/facing-the-goliath-studying-german/"><u>Facing the Goliath: Studying German</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-footsteps-toward-fluency-in-arabic/"><u>First Footsteps Toward Fluency in Arabic</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixing-the-graphics-driver-failed-bug-a-step-by-step-guide-for-valorant-players/"><u>Fixing the 'Graphics Driver Failed' Bug: A Step-by-Step Guide for Valorant Players</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/frases-amigas-aqui-vai-a-melhor-maneira-de-dizer-ola/"><u>Frases Amigas: Aqui Vai a Melhor Maneira De Dizer Olá</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-the-land-down-under-top-100-terms/"><u>From the Land Down Under: Top 100 Terms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fundacion-danny-en-colombia-solidaridad-con-pobres/"><u>Fundacion Danny en Colombia: Solidaridad Con Pobres</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-narrative-nexus-cutting-edge-storytelling-channels-of-the-year/"><u>In 2024, Narrative Nexus Cutting-Edge Storytelling Channels of the Year</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-optimal-energy-packs-for-black-gopro-hero5-certified-and-imposters/"><u>In 2024, Optimal Energy Packs for Black GoPro Hero5 – Certified & Imposters</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-the-ultimate-selfie-stick-showdown-for-iphone-8-winners/"><u>In 2024, The Ultimate Selfie Stick Showdown for iPhone (#8 Winners)</u></a></li>
-<li><a href="https://howto.techidaily.com/tecno-pop-8-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Tecno Pop 8 Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-convert-mts-for-motorola-g54-5g-by-aiseesoft-video-converter-play-mts-on-android/"><u>The way to convert MTS for Motorola G54 5G</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unlocking-your-access-to-the-facebook-marketplace/"><u>Unlocking Your Access to the Facebook Marketplace</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-effective-youtube-thumbnails-and-banners-for-2024/"><u>[New] Crafting Effective YouTube Thumbnails & Banners for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-simplifying-cross-platform-video-sharing-between-twitter-and-snapchat/"><u>[New] In 2024, Simplifying Cross-Platform Video Sharing Between Twitter & Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-masterful-backup-techniques-for-iphone-to-snapchat-content-for-2024/"><u>[New] Masterful Backup Techniques for iPhone to Snapchat Content for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-top-trending-ig-filters-ranked/"><u>[Updated] In 2024, Top Trending IG Filters Ranked</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-creating-unique-youtube-music-mixtapes/"><u>2024 Approved Creating Unique YouTube Music Mixtapes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-decoding-youtubes-economics-how-to-quantify-watches-and-earnings/"><u>2024 Approved Decoding YouTube's Economics How to Quantify Watches and Earnings</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/analyzing-the-upgrade-dilemma-iphone-14-vs-iphone-16-pro-explained/"><u>Analyzing the Upgrade Dilemma: IPhone 14 Vs. IPhone 16 Pro Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabic-introductory-pathway-for-new-learners/"><u>Arabic Introductory Pathway for New Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chinese-greetings-more-than-just-a-warm-welcome/"><u>Chinese Greetings: More Than Just a Warm Welcome</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/complete-insiders-guide-to-japanese-scripts/"><u>Complete Insider’s Guide to Japanese Scripts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-mondlys-study-strategy/"><u>Exploring Mondly's Study Strategy</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-infinix-smart-8-hd-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Infinix Smart 8 HD without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/1721267206667-iphone-stuck-in-attempting-to-recover-data-loop-heres-how-to-break-free/"><u>IPhone Stuck in ‘Attempting to Recover Data’ Loop? Here’s How to Break Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-gems-from-worldwide-cinemas/"><u>Language Gems From Worldwide Cinemas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-senior-edition/"><u>Multilingual Mastery, Senior Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-language-essentials-10-different-greeting-phrases/"><u>Spanish Language Essentials: 10 Different Greeting Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-multiple-languages-for-sharper-senses/"><u>Speaking Multiple Languages for Sharper Senses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-asian-linguistic-titans-unveiled/"><u>Top 3 Asian Linguistic Titans Unveiled</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-thumbnails-the-ultimate-guide-to-optimal-youtube-sizes-for-2024/"><u>Top Thumbnails The Ultimate Guide to Optimal YouTube Sizes for 2024</u></a></li>
 </ul></div>
 

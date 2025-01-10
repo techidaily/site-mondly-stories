@@ -1,7 +1,7 @@
 ---
 title: "Global Educators Celebration: Multilingual Homage"
-date: 2024-09-05T04:34:22.430Z
-updated: 2024-09-06T04:34:22.430Z
+date: 2025-01-03T20:25:49.659Z
+updated: 2025-01-10T19:15:12.897Z
 tags:
   - speak
   - english
@@ -14,24 +14,12 @@ keywords: Global Educators Celebration,Multilingual Homage,International Educati
 thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a76d990245599509aeb0bc8f2.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Global Educators Celebration: Multilingual Homage
 
  Every year, on October 5, we are honoring teachers and their role in providing quality education for students everywhere. Also known as International Teachers Day, World Teachers’ Day was established in 1994 and it observes the anniversary of the adoption of the 1966 ILO/UNESCO Recommendation concerning the Status of Teachers. This [Recommendation](https://unesdoc.unesco.org/ark:/48223/pf0000160495) set the standard regarding the rights and the responsibilities of the teachers concerning their education, employment, recruitment, and teaching conditions.
 
 ![teachers day](https://edge.mondly.com/blog/wp-content/uploads/2019/10/teachers-day-1024x682.jpg "World Teachers’ Day | How To Say “Teacher” In Different Languages 2")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  “The teacher” by neonbrand©
 
 [Teachers are the best people](https://www.myenglishteacher.eu/) in the world. They always go above and beyond to support their students. They change lives. And one day is not enough to thank them for all their dedication to education.
@@ -39,17 +27,9 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
  Our [World in Data](https://ourworldindata.org/teachers-and-professors) shows that, in 2014, there were almost 90 million teachers in the world. On Teachers’ Day, thank at least one of them and let’s make this world a better place.
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Empowering teachers through technology
 
  **We, at Mondly, strongly believe that education is the foundation of our society.** That is why we work tirelessly to make the joy of learning languages possible in every corner of the world.
@@ -59,17 +39,9 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
 ![mondlyWORKS](https://edge.mondly.com/blog/wp-content/uploads/2019/10/mondly-works-for-teachers-1024x521.png "World Teachers’ Day | How To Say “Teacher” In Different Languages 3")
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  MondlyWORKS
 
  But MondlyWORKS is not just for language teachers that want to change the way they teach their students. MondlyWORKS is also for schools that want to help their foreign teachers learn the language of the country they are in. So if you want to show the foreign teachers from your school how much you appreciate them,[get MondlyWORKS‌](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and help them accommodate.
@@ -77,17 +49,9 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
  Teachers change the world one student at a time. Let’s make sure they have the best tools to do their job right. Here are [5 amazing tools you can give teachers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to celebrate World Teacher’s Day.
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to say “teacher” in different languages
 
  World Teachers’ Day is a global celebration. Let’s treat it accordingly and discover the beauty of the word “teacher” in more than 30 languages. From teacher in Spanish_(_ _profesor)_ to teacher in German_(_ _Lehrer)_ or French_(professeur)_ .
@@ -142,11 +106,9 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Learn a new language in just 10 minutes a day
 
  Do you want to take a step further and learn a new language in just 10 minutes a day?
@@ -167,8 +129,6 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -176,8 +136,26 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-unlock-facebook-potential-with-effective-engagement-strategies/"><u>[New] 2024 Approved Unlock Facebook Potential with Effective Engagement Strategies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-mastering-the-art-of-photo-color-correction/"><u>[New] In 2024, Mastering the Art of Photo Color Correction</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-the-drone-editors-toolkit-techniques-for-visual-excellence/"><u>[New] In 2024, The Drone Editor's Toolkit Techniques for Visual Excellence</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-mastering-vrecorder-download-install/"><u>[New] Mastering VRecorder Download, Install</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-embark-on-an-avatar-journey-crafting-characters-with-ease-and-style/"><u>[Updated] In 2024, Embark on an Avatar Journey Crafting Characters with Ease and Style</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-create-and-change-an-igtv-cover-photo-thumbnail/"><u>[Updated] In 2024, How to Create and Change an IGTV Cover Photo (Thumbnail)?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-unboxing-the-year-in-tweet-videos-complete-23-package-for-2024/"><u>[Updated] Unboxing the Year in Tweet Videos - Complete '23 Package for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/beyond-illusion-vr-timeline-explored-for-2024/"><u>Beyond Illusion VR Timeline Explored for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-the-ice-with-indonesian-social-phrases/"><u>Break the Ice with Indonesian Social Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-indonesian-chit-chat-starts-here/"><u>Discovering Indonesian Chit-Chat Starts Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/getting-acquainted-with-zhuyin/"><u>Getting Acquainted with Zhuyin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-tongue-proven-strategies-for-eloquence/"><u>Master the Tongue: Proven Strategies for Eloquence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-language-skills-as-a-vital-fifties-endeavor/"><u>Second Language Skills as a Vital Fifties Endeavor</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachstarter-zahlen-bis-100-in-deutscher-sprache/"><u>Sprachstarter: Zählen Bis 100 in Deutscher Sprache</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-swift-polsk-learners-handbook/"><u>The Swift Polsk Learner's Handbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-top-10-italian-greetings-how-to-say-hello-in-italian/"><u>The Top 10 Italian Greetings: How To Say Hello In Italian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-korean-mastery-the-top-6-online-linguistic-hubs/"><u>Unlocking Korean Mastery: The Top 6 Online Linguistic Hubs</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1726028936401-webm-wav/"><u>WebM から WAV への音質保持オプション付き変換ガイド</u></a></li>
+</ul></div>
 

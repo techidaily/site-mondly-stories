@@ -1,7 +1,7 @@
 ---
 title: Join the International English Community at Pearson
-date: 2024-09-01T00:20:43.833Z
-updated: 2024-09-02T00:20:43.833Z
+date: 2025-01-03T18:30:18.385Z
+updated: 2025-01-10T20:09:26.415Z
 tags:
   - speak
   - english
@@ -20,11 +20,19 @@ thumbnail: https://thmb.techidaily.com/9cea731b530f7b35cf528443775e7bde67a8420df
 
  Back in May 2022, Pearson announced that it had acquired Mondly to expand its reach in the language learning market and offer a full range of ways for people to learn and prove their English skills. Today,  Mondly by Pearson is stronger, more innovative and more focused than ever.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Everything you love about Mondly. Supercharged.**
 
  While our mission at Mondly remains the same, getting together with Pearson allows us to achieve our goal on a much larger scale. We will preserve the same learning experience everyone loves as we work to enhance the process and technology behind it. The aim is to harness the power of both Mondly and Pearson to supercharge language learning.
 
  Here’s a video showcasing what brought us together and how we aim to help all of you make the most of the opportunities you are given.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Mondly by Pearson. Together.**
 
@@ -40,15 +48,17 @@ thumbnail: https://thmb.techidaily.com/9cea731b530f7b35cf528443775e7bde67a8420df
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **About Pearson**
 
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **About Mondly**
 
  Mondly is a leading online language learning platform that enables over 100 million learners from 190 countries to learn 41 languages. Launched in 2014, it quickly became a household name in the mobile space, reaching the #1 position in Education in most European countries, LATAM and Asia. Mondly is also a pioneer in VR Education, with its most recent launch on Meta Quest being in the top 10 VR apps worldwide.
@@ -63,8 +73,6 @@ thumbnail: https://thmb.techidaily.com/9cea731b530f7b35cf528443775e7bde67a8420df
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -72,8 +80,18 @@ thumbnail: https://thmb.techidaily.com/9cea731b530f7b35cf528443775e7bde67a8420df
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-apples-role-in-simplifying-educational-audio-archives/"><u>[New] In 2024, Apple's Role in Simplifying Educational Audio Archives</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagrams-edge-transforming-your-videography-with-precision-cropping/"><u>[New] Instagram's Edge Transforming Your Videography with Precision Cropping</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-myths-about-language-learning/"><u>5 Myths About Language Learning</u></a></li>
+<li><a href="https://win-dash.techidaily.com/brother-hl-2240-driver-software-fresh-release-for-improved-functionality-in-windows-computers/"><u>Brother HL-2240 Driver Software - Fresh Release for Improved Functionality in Windows Computers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialects-diverse-a-study-of-foreign-elements-in-english/"><u>Dialects Diverse: A Study of Foreign Elements in English</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/expert-hints-and-tips-from-toms-computer-world/"><u>Expert Hints & Tips From Tom’s Computer World</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/free-online-conversion-gif-to-jpeg-image-transformation-with-movavi/"><u>Free Online Conversion - GIF to JPEG Image Transformation with Movavi</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-linguistic-excellence-7-reasons-why-mondly-helps-with-afrikaans/"><u>Journey to Linguistic Excellence: 7 Reasons Why Mondly Helps With Afrikaans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-rhetoric-the-subtleties-of-spanish-flirting/"><u>Romance Rhetoric: The Subtleties of Spanish Flirting</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unveiling-apples-latest-wwdc-masterstroke-the-subtle-yet-powerful-ai-innovation/"><u>Unveiling Apple's Latest WWDC Masterstroke: The Subtle yet Powerful AI Innovation</u></a></li>
+</ul></div>
 

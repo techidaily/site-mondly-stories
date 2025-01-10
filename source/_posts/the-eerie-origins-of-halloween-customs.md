@@ -1,7 +1,7 @@
 ---
 title: The Eerie Origins of Halloween Customs
-date: 2025-01-03T00:42:30.930Z
-updated: 2025-01-03T18:20:00.846Z
+date: 2025-01-05T19:05:51.460Z
+updated: 2025-01-10T19:20:14.951Z
 tags:
   - speak
   - english
@@ -18,16 +18,24 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 
  The leaves have all turned yellow, red and brown. Everywhere in the neighborhood smells like pumpkin pie, roasted chestnuts and mulled wine. Everyone is wearing warmer clothes and brighter smiles. Kids are carrying their heavy schoolbags back home to a delicious lunch and scary jack-o’-lanterns have begun popping up here and there. It’s glaringly obvious:**Halloween is almost here!** Soon enough houses will be covered in black and orange decorations and children will shout excitedly:**“Trick or treat?! Give me something good to eat!”.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Origins of Halloween
 
  Celebrated yearly on October 31, Halloween, Hallowe’en or All Hallows’ Eve is a world-old holiday whose origins date back to the ancient Celtic festival of Samhain that took place on the lands that are now Ireland, the United Kingdom, and northern France. For hundreds – or even thousands – of years, people have celebrated this holiday, but it was never as loved and as notorious as it is today.
 
  Nevertheless, there are many countries around the world that have their own Halloween-like traditions celebrating the afterlife. For example, in some parts of the world, on All Hallows’ Eve, people visit the graveyards of their loved ones to pray and place flowers. But let’s dive in already and look at **four of the most fascinating Halloween-like traditions from different corners of the world.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Halloween-like Traditions Worldwide
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Mexico: Día de Muertos (Day of the Dead)
@@ -37,10 +45,6 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
  The same as Halloween,_Día de Muertos_ is a celebration of the afterlife. Friends and family gather to remember and pray for their loved ones who have died. Mexicans view death as a natural part of the human cycle and praying for someone who has died as a way of helping them in their spiritual journey. So Día de Muertos is not a day of sadness, but one of celebration and color!
 
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Calaveras” by Valeria Almaraz©
 
@@ -73,16 +77,12 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 ![halloween in different countries](https://edge.mondly.com/blog/wp-content/uploads/2019/09/neonbrand-A59lWOrZVnw-unsplash-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Halloween party” by NeONBRAND©
 
  Contrary to what you may believe, pumpkins and asking for candy and gifts are traditions of the past that were popular in many Italian regions before the American Halloween became so notorious.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Romania: Saint Andrew’s Day
 
@@ -91,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 ![dracula's castle](https://edge.mondly.com/blog/wp-content/uploads/2019/09/draculas-castle-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 9")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Dracula’s Castle in Romania” by Nomadic Julien©
@@ -136,20 +136,20 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-crafting-the-perfect-introduction-15-viral-youtube-video-intros/"><u>[New] 2024 Approved Crafting the Perfect Introduction 15 Viral YouTube Video Intros</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-decoding-the-freeze-in-photo-booth-videos/"><u>[New] In 2024, Decoding the Freeze in Photo Booth Videos</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-fresh-start-a-lenovo-laptop-the-definitive-factory-reset-guide/"><u>How To Fresh-Start a Lenovo Laptop: The Definitive Factory Reset Guide</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-zte-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted ZTE Contacts An Easy Method Explained.</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-poco-x6-pro-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Poco X6 Pro Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-the-basics-motion-graphics-framework/"><u>In 2024, Mastering the Basics Motion Graphics Framework</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-star-app-by-apple-today/"><u>International Star App by Apple Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introduccion-al-medir-tiempo-en-espanol/"><u>Introducción Al Medir Tiempo en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jour-de-fois-francais/"><u>Jour De Fois Français</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-delights-selecting-top-film-selections/"><u>Multilingual Delights: Selecting Top Film Selections</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/opening-doors-with-russian-vital-travel-linguistic-tools/"><u>Opening Doors with Russian: Vital Travel Linguistic Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seamless-hangul-acquisition-the-korean-alphabet-in-a-nutshell/"><u>Seamless Hangul Acquisition: The Korean Alphabet in a Nutshell</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seamless-transition-into-the-world-of-latin/"><u>Seamless Transition Into the World of Latin</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/step-by-step-tutorial-acquiring-and-installing-windows-drivers-for-hp-spectre-x360-laptop/"><u>Step-by-Step Tutorial: Acquiring & Installing Windows Drivers for HP Spectre X360 Laptop</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-online-tone-generators-can-be-very-useful-while-calibrating-the-audio-equipment-testing-your-hearing-or-tuning-music-instruments-etc-lets-check/"><u>Updated Online Tone Generators Can Be Very Useful While Calibrating the Audio Equipment, Testing Your Hearing or Tuning Music Instruments, Etc. Lets Check</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-obs-rescue-cameras-are-back-up-for-2024/"><u>[New] OBS Rescue Cameras Are Back Up for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-unlock-content-potential-with-the-right-vimeo-membership-choice/"><u>[Updated] 2024 Approved Unlock Content Potential with the Right Vimeo Membership Choice</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1-expert-online-assistance-hub-troubleshoot-and-optimize-winx-dvd-rippervideo-converter-suite/"><u>1. Expert Online Assistance Hub: Troubleshoot & Optimize WinX DVD Ripper/Video Converter Suite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579989099-4-popular-ways-to-say-youre-welcome-in-french/"><u>4 Popular Ways to Say You’re Welcome in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-gathering-in-different-dialects-to-applaud-educators/"><u>A Gathering in Different Dialects to Applaud Educators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/sible-video-ideas-the-simplest-10-concepts-everyone-can-learn-to-make-for-2024/"><u>Accessible Video Ideas The Simplest 10 Concepts Everyone Can Learn to Make for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581699597-bokmal-brilliance-daily-ten-minute-cadence/"><u>Bokmål Brilliance, Daily Ten-Minute Cadence!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-bridges-and-linguistic-skills-why-you-should-learn-a-language-in-your-forties/"><u>Cultural Bridges and Linguistic Skills: Why You Should Learn a Language in Your Forties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581335688-hasten-time-learn-1-10-in-japanese-numbers/"><u>Hasten Time, Learn 1-10 in Japanese Numbers</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-do-digital-assistants-mimic-human-interaction-through-advanced-programming/"><u>How Do Digital Assistants Mimic Human Interaction Through Advanced Programming?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581766437-predominant-language-study-programs-abroad-from-us/"><u>Predominant Language Study Programs Abroad From U.S</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/schritt-fur-schritt-installation-von-windows-11-auf-nvme-ohne-startprobleme/"><u>Schritt-Für-Schritt Installation Von Windows 11 Auf NVME Ohne Startprobleme</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-tips-for-efficient-macos-sierra-system-updates-for-2024/"><u>Top Tips for Efficient macOS Sierra System Updates for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576296887-transform-your-talking-ability-now-at-half-the-usual-rate/"><u>Transform Your Talking Ability - Now at Half the Usual Rate!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ultimate-fixes-for-frame-rate-problems-in-godfall-elevate-your-gaming-experience/"><u>Ultimate Fixes for Frame Rate Problems in Godfall: Elevate Your Gaming Experience</u></a></li>
 </ul></div>
 

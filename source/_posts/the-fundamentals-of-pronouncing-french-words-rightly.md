@@ -1,7 +1,7 @@
 ---
 title: The Fundamentals of Pronouncing French Words Rightly
-date: 2025-01-01T23:43:16.154Z
-updated: 2025-01-03T23:30:51.423Z
+date: 2025-01-03T20:31:58.837Z
+updated: 2025-01-10T20:42:51.905Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/93fd3ecf6c0ec1cdbec9f4930fda0699ca8c61749
  There’s no need to worry, though. As you yourself find French difficult to pronounce, French people sometimes find English hard to pronounce. Luckily, with the right training, speaking French can be as simple as saying [_bonjour_](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or _de rien_ (that’s [_you’re welcome_ in French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## An introduction to French sounds & French pronunciation
@@ -44,13 +44,13 @@ To help you get started with the _magique_  French sounds, we put together this 
 
 ![french pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/french-pronunciation-600x600.jpg "Quick Guide To French Pronunciation - How To Speak French Like A Native 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  French pronunciation in a nutshell
 
  It’s not a 100% faithful transliteration of French sounds, but neither can it be. As you already saw, there are many French sounds that don’t exist in English, so we’ll have to improvise. Don’t worry, though. Read on and you’ll discover how to correctly pronounce some of the most difficult of them. Remember, we’re only focusing on pronunciation, not [F rench grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) here. We’ll tackle that in the next [French lessons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The most common French pronunciation challenges and how to overcome them
 
@@ -76,10 +76,6 @@ Repeat the phrase **_regardez mon frère_** and find out where right now.
 
  To master the other variables, you just have to continue practicing.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The nasal sounds
 
  Nasal sounds in French are just as important as the “r”. Maybe even more important. While it may not be utterly necessary to use that specific guttural “r”, the nasal sounds are a must.
@@ -87,10 +83,6 @@ Repeat the phrase **_regardez mon frère_** and find out where right now.
  So how do you do it? For example, start saying the word “song”, but stop just before your throat closes to produce the “ng” sound. _Voilà !_ You’ve just pronounced the French word _cent_ (“hundred”).
 
  To practice the pronunciation of “in”, ”ain” or ”eint”, start saying the word “clang” and stop just before your throat closes into the “ng” sound. Now, try again without the “kl” sound in the beginning. It’s easy!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### ë, è, é and ê
 
@@ -105,6 +97,10 @@ _**é**_ is pronounced the same way you pronounce it in the English word “may�
 **_ê_** is pronounced the same way as _**è** ._
 
 Well, not very different from each other, are they?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The silent letters
 
@@ -123,6 +119,10 @@ Well, not very different from each other, are they?
 
 ![french buildings](https://edge.mondly.com/blog/wp-content/uploads/2020/05/french-buildings-960x640.jpg "Quick Guide To French Pronunciation - How To Speak French Like A Native 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “French buildings” by Orlova Maria©
 
 ## What are French liaisons and how to master them?
@@ -135,6 +135,10 @@ To put it simply, _French liaisons_  or French connecting sounds bind together t
 
 Now, some of these _liaisons_  are optional, others are required, and some are forbidden (or, if you liked the well-known novel [_Les liaisons dangereuses_](https://en.wikipedia.org/wiki/Les%5FLiaisons%5Fdangereuses)  , you can simply say they are dangerous to use). Let’s get into a little more detail.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Required French liaisons
 
  Generally,_liaisons_ between syntactically related words (like an article and a noun, a pronoun and a verb or a noun and its adjective) are required. Of course, there are always exceptions, but the rule applies most of the time and it can help you improve your [French pronunciation](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast. Here are a few examples:
@@ -144,7 +148,7 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
 * _vous avez_ \[voo zah vay\] – you have (pronoun + verb)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### “Dangereuses” French liaisons
@@ -159,10 +163,6 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
 * after inversions – _parlez-vous espagnol ?_ (“do you speak Spanish?”)
 
  \*_h aspiré_ is different from h muet (“mute h”). It’s true that in French “h” is always a silent letter. However, in Old and Middle French, on certain words, the “h” was pronounced. This is why, if you want to say_les hôpitaux_  (“hospitals”), there is a_liaison_  between the two words because the “h” is_muet_  and not_aspiré._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Optional French liaisons
 
@@ -220,18 +220,22 @@ _Bonne chance!_
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-digital-revolution-integrating-dslr-into-online-platforms-from-home-pcsmacs/"><u>[New] Digital Revolution Integrating DSLR Into Online Platforms From Home PCs/Macs</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-exploring-6-exquisite-eastern-themed-homes-in-mc/"><u>[New] In 2024, Exploring 6 Exquisite Eastern Themed Homes in MC</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-prodigious-platform-professionals/"><u>[Updated] 2024 Approved Prodigious Platform Professionals</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-discover-vida-transform-your-video-creations/"><u>[Updated] Discover Vida Transform Your Video Creations</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-ultimate-vote-players-best-political-game-reviews/"><u>[Updated] Ultimate Vote-Players Best Political Game Reviews</u></a></li>
-<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-motorola-moto-g73-5g-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Motorola Moto G73 5G to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-selecting-your-favorite-free-game-capture-software/"><u>2024 Approved Selecting Your Favorite Free Game Capture Software</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-11-passcode-screen-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 11 Passcode Screen? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-korean-faster-uncovering-best-online-platforms-and-tips/"><u>Master Korean Faster: Uncovering Best Online Platforms & Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-urdu-with-a-minimum-time-investment/"><u>Master Urdu with a Minimum Time Investment</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-basic-german-speech-phonetics-and-letters-uncovered/"><u>Navigating Basic German Speech: Phonetics and Letters Uncovered</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sound-science-for-language-success-music-and-effective-strategies/"><u>Sound Science for Language Success - Music & Effective Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/understanding-spanish-verbal-mood-variation/"><u>Understanding Spanish Verbal Mood Variation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-capture-the-magic-of-moonlight-iphonely/"><u>[Updated] Capture the Magic of Moonlight iPhonely</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-years-forward-with-mondlys-direction/"><u>10 Years Forward with Mondly’s Direction</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-oneplus-nord-ce-3-lite-5g-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from OnePlus Nord CE 3 Lite 5G to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-spotlight-shines-on-mondly-as-10-in-education-tech/"><u>Apple's Spotlight Shines on Mondly as #10 in Education Tech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-bridge-into-the-arab-world/"><u>Beginner's Bridge Into the Arab World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bengali-begins-here-daily-tiny-sessions/"><u>Bengali Begins Here: Daily Tiny Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-language-barriers-mastering-the-hardest-languages/"><u>Breaking Language Barriers: Mastering the Hardest Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-a-new-tongue-in-minutes-start-with-slovak-today/"><u>Conquer a New Tongue in Minutes - Start with Slovak Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-atlantic-language-contrasts/"><u>Cross-Atlantic Language Contrasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficiently-mastering-latvian-one-day-at-a-time/"><u>Efficiently Mastering Latvian, One Day at a Time</u></a></li>
+<li><a href="https://driver-install.techidaily.com/harmonizing-usbasp-drivers-in-w7-8110/"><u>Harmonizing USBasp Drivers in W7, 8.1/10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-critique-of-the-ring-doorbell-pro-a-comprehensive-overview/"><u>In-Depth Analysis and Critique of the Ring Doorbell Pro: A Comprehensive Overview</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/latest-macbook-model-whats-the-most-recent-release/"><u>Latest MacBook Model: What's the Most Recent Release?</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723004544593-quick-fixes-get-your-elden-rings-multiplayer-up-and-running-again/"><u>Quick Fixes: Get Your Elden Ring's Multiplayer Up and Running Again</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-audio-alchemists-handbook-creating-custom-auditory-alerts-on-android-phones-for-2024/"><u>The Audio Alchemist's Handbook Creating Custom Auditory Alerts on Android Phones for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>The Best iSpoofer Alternative to Try On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-essential-guide-to-cloud-security-risks-and-protection-strategies-expert-analysis-by-zdnet/"><u>The Essential Guide to Cloud Security Risks & Protection Strategies | Expert Analysis by ZDNet</u></a></li>
 </ul></div>
 

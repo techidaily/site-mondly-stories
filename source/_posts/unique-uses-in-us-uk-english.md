@@ -1,7 +1,7 @@
 ---
 title: Unique Uses in US-UK English
-date: 2024-09-01T00:18:50.837Z
-updated: 2024-09-02T00:18:50.837Z
+date: 2025-01-08T19:56:14.961Z
+updated: 2025-01-10T16:44:48.322Z
 tags:
   - speak
   - english
@@ -91,17 +91,14 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
  If you speak English as a second language and you are not sure which is the correct spelling for the type of English you use, install a spell checker and let it do the job for you. In time, you’ll get used to the fitting spelling and learn to write correctly on your own.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Grammar differences
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Collective nouns
 
  In American English, collective nouns such as “band”, “team”, “family” or “crew” are considered plural. In contrast, British English considers collective nouns either singular or plural, but more often plural as a way to emphasize the members of the group.
@@ -128,9 +125,6 @@ The ultimate burning program for all your needs!</a>
 
  Thus, in Britain, you’ll say**“I’ve been to the supermarket”** and in the US you’ll say**“I went to the supermarket”** .
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Prepositions
 
  In British English, “at” is generally used in relation to time and place. In contrast, in American English, “on” is used in relation to time and “in” is used in relation to place.
@@ -138,13 +132,11 @@ The ultimate burning program for all your needs!</a>
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  British English vs American English
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Other grammar differences
 
  Generally, the British are more likely to use formal speech, while Americans will rather go with informal expressions. For instance, Brits will use “shall” where Americans use “will” or “should”.
@@ -152,13 +144,18 @@ The ultimate burning program for all your needs!</a>
  Additionally, in Britain, you are likely to hear “needn’t” a lot and in the US not at all. In its place, Americans use “don’t need to”.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## British accent vs American accent
 
  The biggest difference between British English and American English is, undoubtedly, the accent. The reason why these two variations sound so different is known as rhotacism, the change of a particular consonant into a rhotic consonant. In this case, the consonant is “r”.
 
  American accent is rhotic and Americans pronounce their “R’s” loud and clear. On the other hand, the British accent is non-rhotic and Brits usually replace their “R’s” with “H’s”. Thus, words like “water” or “card” will be pronounced_wa-tuh_ or_caahd_ .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## British vs American: which one should you learn and use?
 
@@ -174,6 +171,10 @@ The ultimate burning program for all your needs!</a>
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Brush up your English in just 10 minutes a day
 
@@ -191,8 +192,6 @@ The ultimate burning program for all your needs!</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -200,8 +199,23 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/updated-a-step-by-step-approach-to-rl-streaming/"><u>[Updated] A Step-by-Step Approach to RL Streaming</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-inclusive-insight-easeus-professional-analysis-for-2024/"><u>[Updated] Inclusive Insight EaseUS Professional Analysis for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-yuneecs-game-changer-typhoon-q500/"><u>[Updated] Yuneec's Game-Changer Typhoon Q500</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-dissecting-the-difference-360-video-and-vr-filmmaking/"><u>2024 Approved Dissecting the Difference 360 Video and VR Filmmaking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hablar-en-espanol-el-ciclo-de-los-dias-del-mes/"><u>Hablar en Español: El Ciclo De Los Días Del Mes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israel-expedition-essentials-practical-advice-and-useful-dialogue/"><u>Israel Expedition Essentials: Practical Advice & Useful Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-structure-corporelle-revelee-parts-in-french/"><u>La Structure Corporelle Révélée: Parts in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastery-in-mouthage-elite-linguistic-training-plans/"><u>Mastery in Mouthage: Elite Linguistic Training Plans</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-macvideoeditor-for-2024/"><u>New MacVideoEditor for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-language-learning-platforms-for-success/"><u>Optimal Language Learning Platforms for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/origins-of-the-germanic-dialektaal-voortgang/"><u>Origins of the Germanic Dialektaal Voortgang</u></a></li>
+<li><a href="https://common-error.techidaily.com/renderer-boot-sequence-issue-corrected-for-enhanced-stability-new-fixes-applied/"><u>Renderer Boot Sequence Issue Corrected for Enhanced Stability - New Fixes Applied</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sverige-mojligen-allt-i-gorelse/"><u>Sverige Möjligen: Allt I Görelse</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-guide-to-correcting-nba-2k24-issue-with-error-code-727e66ac-tips-and-fixes-for-enthusiasts/"><u>Ultimate Guide to Correcting NBA 2K24 Issue with Error Code 727E66ac - Tips & Fixes for Enthusiasts</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-grok-ai-inside-look-at-elon-musks-new-creation-its-functionality-and-associated-costs/"><u>Understanding Grok AI: Inside Look at Elon Musk's New Creation, Its Functionality & Associated Costs</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-troubleshooting-resolving-code-0x0000004e-issue/"><u>Windows Troubleshooting: Resolving Code 0X0000004E Issue</u></a></li>
+</ul></div>
 

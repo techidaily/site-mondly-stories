@@ -1,7 +1,7 @@
 ---
 title: Salutations Françaises Pour Accueillir
-date: 2024-12-30T21:23:04.407Z
-updated: 2025-01-03T20:40:35.521Z
+date: 2025-01-03T19:48:27.784Z
+updated: 2025-01-10T20:33:04.629Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
  You can use ‘_de rien’_ as an informal response to somebody who has thanked you. You’ll hear this expression used commonly throughout France in a range of situations.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The literal translation of_‘de rien’_
 
  Whilst it’s important not to think too much about the literal translation of phrases from French into English, it can help us remember how and when to use them. The literal translation of ‘_de rien’_ is ‘of nothing’. In English, we’d likely say ‘no problem’ or ‘don’t worry about it.’
@@ -46,15 +50,7 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
 ![de rien](https://edge.mondly.com/blog/wp-content/uploads/2021/05/de-rien-960x540.jpg "4 Popular Ways To Say You’re Welcome In French 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Strasbourg, France” by Patrick Robert Doyle©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. The informal “you’re welcome”:_je t’en prie_
 
@@ -78,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
  This should make_‘je vous en prie’_ nice and easy to remember. Just be careful not to use it with close friends. Using_‘vous’_ will sound unnatural if you are in close company. Likewise, always use this version of you’re welcome in French if you are speaking with somebody you do not know, no matter their level of seniority.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The literal translation of_‘je vous en prie’_
 
  Again, the literal translation of ‘je vous en prie’ is ‘I pray you it’. The important thing to remember here is not the literal translation, but when exactly you should use_‘vous’_ instead of_‘tu’_ .
@@ -96,13 +96,13 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
  “Southern France, Toulouse” by DAT VO©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. The easiest to remember:_pas de problème_
 
  When you’re in the early stages of [learning French](https://travel-lingual.com/how-long-take-to-learn-french/) , sometimes the most sensible thing to do is use what you can remember. The word_‘problème’_ in this particular French expression resembles the English word ‘problem’ and should not be too difficult for you to learn. Be cautious of the [French grave accent](https://travel-lingual.com/french-accent-marks/) on the_‘e’_ as this alters the pronunciation of the word.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The literal translation of_‘pas de problème’_
 
@@ -119,7 +119,7 @@ Example:
  A:_Pas de problème. Merci._ (“No problem. Thanks.”)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: Less common ways to say “you’re welcome” in French
@@ -127,6 +127,10 @@ Example:
  If you want to mix things up a bit, another informal and very casual way of saying you’re welcome in French is_‘il n’y a pas de quoi’_ . This literally means “there is no what”, but an adapted translation would be “there is no reason (to thank me)”. Being a casual expression, it can be used safely in the same contexts as_‘de rien’_ .
 
  Furthermore,_‘avec plaisir’_ is what you should use if you travel to southern France and want to sound like a local. It literally translates to “with pleasure”, but it is the French correspondent of “my pleasure”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Which version of you’re welcome in French should you use and when?
 
@@ -150,10 +154,6 @@ _Th_ _is post is delivered to you by James A. Smith._
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Speak French fluently in just 10 minutes a day
 
@@ -180,15 +180,24 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-stories-unseen-aspects-revealed/"><u>[New] In 2024, Instagram Stories Unseen Aspects Revealed</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-slow-motion-spectrum-top-cams-reviewed-by-experts/"><u>[Updated] In 2024, The Slow-Motion Spectrum Top Cams Reviewed by Experts</u></a></li>
-<li><a href="https://win-trending.techidaily.com/2021-ultimate-shopping-manual-navigating-black-friday-and-cyber-monday-deals-on-zdnet/"><u>2021 Ultimate Shopping Manual: Navigating Black Friday & Cyber Monday Deals on ZDNet</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-snapchats-top-stories/"><u>2024 Approved Exploring Snapchat's Top Stories</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engaging-latin-lessons-made-fun/"><u>Engaging Latin Lessons Made Fun</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-10-diverse-spanish-greeting-expressions/"><u>Exploring 10 Diverse Spanish Greeting Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-por-que-to-por-que-the-shift-explained/"><u>From 'Por Que' To 'Por Qué': The Shift Explained</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-gorgeousness-expressive-approaches/"><u>German Gorgeousness: Expressive Approaches</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-essential-11-audio-focused-smartphone-applications/"><u>New Essential 11 Audio-Focused Smartphone Applications</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-accessing-command-line-interface-within-your-files/"><u>Step-by-Step Guide: Accessing Command Line Interface Within Your Files</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-resolve-frozen-youtube-videos-on-androidios/"><u>[New] Resolve Frozen YouTube Videos on Android/iOS</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-revisiting-yesteryears-social-stories-on-fb-device-guide/"><u>[Updated] 2024 Approved Revisiting Yesteryear's Social Stories on FB Device Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-dynamic-and-diverse-10-essential-text-presets-for-adobe-ae-for-2024/"><u>[Updated] Dynamic and Diverse 10 Essential Text Presets for Adobe AE for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-highlighted-14-examples-of-motion-texts/"><u>[Updated] Highlighted 14 Examples of Motion Texts</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unleash-the-potential-a-comprehensively-curated-list-of-nft-creating-engines/"><u>[Updated] Unleash the Potential A Comprehensively Curated List of NFT-Creating Engines</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-asus-rog-phone-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-urdu-language-acquisition/"><u>First Steps in Urdu Language Acquisition</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-3-ways-of-how-to-get-someones-apple-id-off-iphone-12-pro-without-password-by-drfone-ios/"><u>In 2024, 3 Ways of How to Get Someones Apple ID Off iPhone 12 Pro without Password</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-oppo-reno-8t-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Oppo Reno 8T Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-crafting-captivating-livestreams-with-zoom-for-youtube-audiences/"><u>In 2024, Crafting Captivating Livestreams with Zoom for YouTube Audiences</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-v27-pro-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo V27 Pro to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/novel-selection-for-newbies-top-french-literature-list/"><u>Novel Selection for Newbies: Top French Literature List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/silent-understandings-crafting-connection-with-care/"><u>Silent Understandings: Crafting Connection with Care</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-catalan-learning-10-minute-sprints/"><u>Speedy Catalan Learning, 10-Minute Sprints</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-european-linguistic-odyssey-celebrated-on-this-day/"><u>The European Linguistic Odyssey Celebrated on This Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-nordic-tongue-speaking-the-heart-of-vikings/"><u>The Nordic Tongue: Speaking the Heart of Vikings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turko-korean-codex-of-communications/"><u>Turko-Korean Codex of Communications</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-intriguing-relationship-between-turkish-and-korean-languages/"><u>Unveiling the Intriguing Relationship Between Turkish and Korean Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-wishes-on-american-independence-day/"><u>Worldwide Wishes on American Independence Day</u></a></li>
 </ul></div>
 

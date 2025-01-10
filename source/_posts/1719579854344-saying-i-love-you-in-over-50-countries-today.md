@@ -1,7 +1,7 @@
 ---
 title: Saying 'I Love You' In Over 50 Countries Today!
-date: 2024-09-01T00:20:04.061Z
-updated: 2024-09-02T00:20:04.061Z
+date: 2025-01-05T17:34:03.118Z
+updated: 2025-01-10T18:57:24.328Z
 tags:
   - speak
   - english
@@ -56,11 +56,19 @@ Here are some more ways to say “I love you” in other languages:
 
  Is this still not enough? Here’s how saying “I love you” different languages can be fun:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say I love you – a quick guide for “I love you”s in 30 most common languages
 
  Modern society makes us feel so much and express so little! We’ve become shallow. Just like [the song](https://www.youtube.com/watch?v=bo%5FefYhYU2A) says, many of us aren’t probably happy in this modern world. We bury ourselves every day under mountains of unexpressed feelings often because of social media. We’re afraid to show our inner, deeper selves. We put on masks. We don’t dare to be romantic anymore. And still, our loved ones are the ones that get to discover more of ourselves. More than just a pretty face and a cool Instagram account. That’s because they drown us in authentic, real love. They see the best in us and stick around even the hardest times. And they deserve the same back. Always. Not just on Valentine’s Day. But every single day! Wine for him, flowers for her, little gifts for the both of them. Today. This is a reminder.
 
 ![i love you in french](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-french.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Now back to expressing your love in different languages. If you feel like the video above wasn’t enough for you, here’s how to write “I love you” in different languages – with transliterations where it’s needed. **Keep in mind that these aren’t always the most commonly used in their home country.** They are, instead, the most complete and grammatically correct – which is what you really need in the beginning.
 
@@ -83,6 +91,10 @@ Here are some more ways to say “I love you” in other languages:
 * **I love you in Hindi:** _मैं तुमसे प्यार करती हूँ! – Main tumasee pyaar karatee huun!_
 
 ![how to say i love you by Tyler Nix©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/how-to-say-i-love-you-scaled.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * **I love you in Croatian:** _Volim te!_
 * **I love you in Hungarian:** _Szeretlek!_
@@ -107,29 +119,28 @@ Here are some more ways to say “I love you” in other languages:
 
 **Here’s a short recap with only the correct pronunciations:**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## “I love you” in sign language
 
  To sign “I love you”, put up your thumb, index finger and pinkie finger while keeping your ring finger and your middle finger down. Like this:
 
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
 
  Now that you know how to say “I love you” in so many languages, here’s a sweet present idea you could use for your next anniversary or Valentine’s Day. All you need to buy is a big jar – big enough for all your love. The rest of it comes from the bottom of your heart. The first step is to prepare 365 pieces of paper of different colors and sizes and write “I love you” in different languages on the first 32 of them. Go wildly romantic with the rest of them: you could write love quotes for him or love quotes for her, poems or songs that you both like. Next step? Decorate the jar with tiny lights, pieces of lace or stickers.
 
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
  When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### A love poem for your loved one
 
  Look no further if you need a love poem or a love song for your jar. It doesn’t necessarily need to be original. It just has to come from the heart. Here’s**a love song for your love jar:**
@@ -182,13 +193,6 @@ _With you, my heart will forever blend._
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ### From “I love you” to conversational fast
 
  Do you want to go the extra mile and learn a new language for someone you love? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -211,8 +215,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -220,8 +222,24 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-get-verified-on-instagram-6-tips-to-grow-followers-for-2024/"><u>[New] How to Get Verified on Instagram 6 Tips to Grow Followers for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-audiotrack-collection-pc-noises/"><u>[New] In 2024, Audiotrack Collection PC Noises</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-top-10-most-watched-music-videos-on-fb/"><u>[Updated] Top 10 Most Watched Music Videos on FB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/audiolocale-the-auditory-journey-to-polyglotism/"><u>Audiolocale: The Auditory Journey to Polyglotism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captivating-hearts-in-italian-the-art-of-poetic-pick-up-lines/"><u>Captivating Hearts in Italian: The Art of Poetic Pick Up Lines</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comprehensive-tutorial-on-deleting-cache-data-for-leading-internet-browsers/"><u>Comprehensive Tutorial on Deleting Cache Data for Leading Internet Browsers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-dialogue-dive-into-culture-in-mondly-vr/"><u>Dive Into Dialogue, Dive Into Culture in Mondly VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-heartfelt-conversations-with-magyar-vocabulary/"><u>Embracing Heartfelt Conversations with Magyar Vocabulary</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-c300-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Nokia C300 Phone without Any Data Loss</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-safaris-picture-in-picture-feature-usage-guide/"><u>In 2024, Safari's Picture-in-Picture Feature Usage Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/maximize-your-language-potential-why-learn-afrikaans-through-mondly/"><u>Maximize Your Language Potential: Why Learn Afrikaans Through Mondly?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-love-across-languages-overcoming-communication-gaps/"><u>Navigating Love Across Languages: Overcoming Communication Gaps</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-era-vr-game-engines-whats-revolutionary/"><u>New Era VR Game Engines What's Revolutionary ?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/norges-language-leap-10-minute-magic/"><u>Norge's Language Leap - 10-Minute Magic!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/picking-the-ideal-next-language-quest/"><u>Picking The Ideal Next-Language Quest</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/tech-sleuths-guide-to-choosing-the-best-screen-recorder/"><u>Tech Sleuths’ Guide to Choosing the Best Screen Recorder</u></a></li>
+<li><a href="https://win-trending.techidaily.com/windows-osversions-11-7-pcpc/"><u>Windows OS(Versions 11-7)でデータ移行のプロセスとテクニックを学ぶ - PCからPCへの完全な手引き</u></a></li>
+</ul></div>
 

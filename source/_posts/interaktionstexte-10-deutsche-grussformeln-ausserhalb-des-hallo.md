@@ -1,7 +1,7 @@
 ---
 title: "Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'"
-date: 2024-12-29T18:46:45.705Z
-updated: 2025-01-03T22:34:10.919Z
+date: 2025-01-06T17:10:09.105Z
+updated: 2025-01-10T19:11:53.712Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  First, some good news! As it turns out, Germans use_hi_ too. Careful though: as you already know,_hi_ is more informal than_hallo_ so you should keep this one between friends.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Hallöchen – ‘Hello’ (lit. ‘little hello’)
 
  If you want to avoid repetition and diversify your vocabulary, you can also say_hallöchen,_ which is literally a ‘little hello’. It’s best to use_hallöchen_ to greet… whoever says German is a harsh language 🤭.
@@ -35,10 +39,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Kidding, but you did get the point. This tiny, little hello is reserved for very informal situations.
 
  Since we’re discussing diminutives, let’s also mention that_tschüss_ (‘bye’) can become_tschüssi_ . How cute!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Guten Tag – “Hello” or “Good day”
 
@@ -82,14 +82,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
@@ -111,6 +103,10 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** mostly northern Germany.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Moin moin – “Hi”
 
  The ‘harsh’ German language strikes again. Imagine you’re in Hamburg and people are cheerfully saying_moin_ or_moin moin_ or even_moinsten_ to you. What do you do? You say_moin_ back, of course!
@@ -119,11 +115,19 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** northern Germany, especially in and around Hamburg.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Grüezi – “Hello”
 
 _Grüezi_ is a greeting you can use in formal situations, such as speaking with people you don’t know.
 
 **Localization:** Switzerland.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Grüß Gott – “God bless you”
 
@@ -132,10 +136,6 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
  A variation of this is_Grüß dich,_ which can be interpreted as “greetings to you”. This one is less formal, but it is still mostly used by seniors.
 
 **Localization:** Bavaria (south-eastern Germany) and Austria.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Servus – “At your service”
 
@@ -185,17 +185,24 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-engage-followers-effective-strategies-for-fb-slideshows-for-2024/"><u>[New] Engage Followers Effective Strategies for FB Slideshows for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/10-iphone-camera-features-you-should-know-in-ios-11-for-2024/"><u>10 iPhone Camera Features You Should Know in iOS 11 for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-advanced-techniques-flawless-insertion-of-vimeo-video-in-slides/"><u>2024 Approved Advanced Techniques Flawless Insertion of Vimeo Video in Slides</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effective-solutions-resolving-your-dota-2-game-crashes/"><u>Effective Solutions: Resolving Your Dota 2 Game Crashes</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-google-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Google Fingerprint Lock</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Samsung Galaxy A54 5G? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-russia-with-just-over-100-key-phrases/"><u>Navigating Russia with Just Over 100 Key Phrases</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-free-top-10-best-online-video-editors-no-watermark/"><u>New 2024 Approved FREE Top 10 Best Online Video Editors No Watermark</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/online-tools-for-swift-acquisition-of-czech-skills/"><u>Online Tools for Swift Acquisition of Czech Skills</u></a></li>
-<li><a href="https://win11.techidaily.com/step-by-step-guide-shrinking-large-video-files-down-to-manageable-mb-sizes/"><u>Step-by-Step Guide: Shrinking Large Video Files Down to Manageable MB Sizes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-by-step-tutorial-restoring-audio-input-on-windows-11-pcs/"><u>Step-by-Step Tutorial: Restoring Audio Input on Windows 11 PCs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-10-germans-lingo-mastering-expressions-and-phrases-quickly/"><u>Top 10 Germans Lingo: Mastering Expressions and Phrases Quickly</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-appreciative-adjacencies-templates-for-any-spend-plan/"><u>[New] In 2024, Appreciative Adjacencies Templates for Any Spend Plan</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-from-last-minute-to-first-impression-how-to-rewind-video-on-instagram/"><u>[Updated] In 2024, From Last Minute to First Impression How to Rewind Video on Instagram</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-snapchat-spotlight-unveiled-usage-explained/"><u>2024 Approved Snapchat Spotlight Unveiled Usage Explained</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-realme-c67-4g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Realme C67 4G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-an-audience-star-with-top-language-test-preparation/"><u>Becoming an Audience Star with Top Language Test Preparation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charms-of-chic-french-lingo-for-love/"><u>Charms of Chic: French Lingo for Love</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-interlingual-secrets-turkey-and-korea/"><u>Deciphering Interlingual Secrets: Turkey and Korea</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/fix-your-pc-a-step-by-step-guide-for-d3dx925dll-not-found-errors/"><u>Fix Your PC! A Step-by-Step Guide for 'd3dx9_25.dll' Not Found Errors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578795871-german-vs-french-which-language-is-more-useful-to-learn/"><u>German vs French: Which Language Is More Useful to Learn</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-the-most-out-of-culinary-classes-with-these-essential-study-tips/"><u>Get the Most Out of Culinary Classes with These Essential Study Tips</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/how-to-boost-your-youtube-revenue-from-mobile-a-comprehensive-guide/"><u>How to Boost Your YouTube Revenue From Mobile - A Comprehensive Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-huawei-nova-y71-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Huawei Nova Y71</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-dawns-good-morning-versions-from-10-different-cultures/"><u>International Dawns: Good Morning Versions From 10 Different Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-transforming-the-way-we-learn-languages/"><u>Mondly: Transforming the Way We Learn Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-year-new-verbal-horizon/"><u>New Year, New Verbal Horizon</u></a></li>
+<li><a href="https://driver-download.techidaily.com/quick-and-easy-guide-downloading-and-installing-nvidia-gtx-460-drivers-on-windows/"><u>Quick and Easy Guide: Downloading & Installing NVIDIA GTX 460 Drivers on Windows</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/secure-a-steal-with-bandh-exclusive-deal-on-apple-macbook-pro-16-inch-m1-max-detailed-breakdown-and-comparison-from-zdnet/"><u>Secure a Steal with B&H: Exclusive Deal on Apple MacBook Pro 16-Inch M1 Max - Detailed Breakdown & Comparison From ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/skyrocket-your-portuguese-proficiency-with-these-six-steps/"><u>Skyrocket Your Portuguese Proficiency with These Six Steps</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/transforming-tech-ai-for-programmers/"><u>Transforming Tech: AI for Programmers</u></a></li>
 </ul></div>
 

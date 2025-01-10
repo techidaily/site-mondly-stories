@@ -1,7 +1,7 @@
 ---
 title: "Indonesian Greetings Unveiled: An Introduction"
-date: 2024-12-30T23:53:00.445Z
-updated: 2025-01-03T23:55:21.022Z
+date: 2025-01-08T16:35:15.720Z
+updated: 2025-01-10T17:26:28.215Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
 
  Besides, you’ll love [learning Indonesian words](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6912&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id) as some of them sound very cute to English speakers. Known as_Bahasa Indonesia_ to Indonesians, Indonesian calls the dolphin_lumba-lumba_ and the teeth_gigi_ . Cute. Told ‘ya!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## When and how should you say hello in Indonesia
 
  Unlike other Asian countries that place a big emphasis on the culture of respect, Indonesia doesn’t necessarily use honorifics. Besides, just like in English, Indonesian greetings don’t have formal variations for elders or those of a higher social status.
@@ -37,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say ‘hello’ in Indonesian
@@ -49,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
@@ -71,7 +67,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -81,7 +77,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say goodbye
@@ -94,6 +90,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Start learning Indonesian today
 
@@ -126,19 +126,20 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-skyrocketing-fb-engagement-masterful-seo-techniques-explored/"><u>[Updated] In 2024, Skyrocketing FB Engagement Masterful SEO Techniques Explored</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-top-6-instagram-money-calculator-safe-and-effective/"><u>2024 Approved Top 6 Instagram Money Calculator - Safe & Effective</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-nokia-130-music-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Nokia 130 Music | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-vivo-x100-pro-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Vivo X100 Pro to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-intrepid-insights-top-10-undiscovered-vlc-commands/"><u>In 2024, Intrepid Insights Top 10 Undiscovered VLC Commands</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lettura-e-comprensione-dei-numeri-italiani-da-1-a-1000/"><u>Lettura E Comprensione Dei Numeri Italiani: Da 1 a 1000</u></a></li>
-<li><a href="https://video-capture.techidaily.com/mastering-movie-capture-pc-mac-and-mobile-techniques/"><u>Mastering Movie Capture PC, Mac & Mobile Techniques</u></a></li>
-<li><a href="https://win11.techidaily.com/overcoming-unauthorized-user-error-in-windows-1111/"><u>Overcoming Unauthorized User Error in Windows 11/11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/snack-safely-with-mondly-kids-a-top-2017-app-by-google-play/"><u>Snack Safely with Mondly Kids: A Top 2017 App by Google Play</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-international-map-of-french-language-proficiency/"><u>The International Map of French Language Proficiency</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-new-frontier-advanced-chatbot-innovation/"><u>The New Frontier: Advanced Chatbot Innovation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-right-language-awaits-your-mastery-next/"><u>The Right Language Awaits Your Mastery Next?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-streetwise-vocabulary-popular-english-jargon-and-meanings/"><u>The Streetwise Vocabulary: Popular English Jargon and Meanings</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-to-oneplus-11r-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to OnePlus 11R Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-essential-six-hubs-where-companies-thrive-socially-and-professionally/"><u>[New] In 2024, Essential Six Hubs Where Companies Thrive Socially & Professionally</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/uick-and-easy-guide-to-turn-videos-into-animated-gif-delights/"><u>[New] Quick & Easy Guide to Turn Videos Into Animated GIF Delights</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-instavideo-magic-crafting-a-plan-to-capture-your-audiences-attention/"><u>[Updated] 2024 Approved InstaVideo Magic Crafting a Plan to Capture Your Audience's Attention</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-mastering-screen-capture-for-google-meet-talks/"><u>2024 Approved Mastering Screen Capture for GooGle Meet Talks</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/enhancing-virtual-meetings-with-ai-the-role-of-chatgpt-in-team-engagement/"><u>Enhancing Virtual Meetings with AI: The Role of ChatGPT in Team Engagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/frequently-studied-international-languages-usa-focus/"><u>Frequently Studied International Languages: USA Focus</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-newest-version-of-hp-officejet-4500-driver-compatible-with-2024-updates/"><u>Get the Newest Version of HP Officejet 4500 Driver - Compatible with 2024 Updates</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mornings-spoken-worldwide-exploring-greetings-from-different-cultures/"><u>Mornings Spoken Worldwide: Exploring Greetings From Different Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nautical-nobilitys-verbiage-top-20-sea-terms/"><u>Nautical Nobility's Verbiage: Top 20 Sea Terms</u></a></li>
+<li><a href="https://windows11.techidaily.com/navigating-through-the-admin-labyrinth-of-windows/"><u>Navigating Through the Admin Labyrinth of Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/playful-poetry-prose-for-pursuit-in-spanish-flirting/"><u>Playful Poetry: Prose for Pursuit in Spanish Flirting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romantic-prose-crafting-conversations-in-rome/"><u>Romantic Prose: Crafting Conversations in Rome</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-wake-up-calls-morning-greetings-in-10-diverse-tongues/"><u>World Wake-Up Calls: Morning Greetings In 10 Diverse Tongues</u></a></li>
 </ul></div>
 
