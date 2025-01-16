@@ -1,7 +1,7 @@
 ---
 title: "Worldwide Breakfast Banter: How to Say 'Good Morning'"
-date: 2025-01-04T18:42:49.401Z
-updated: 2025-01-10T18:32:10.716Z
+date: 2025-01-10T16:56:27.358Z
+updated: 2025-01-16T08:53:21.306Z
 tags:
   - speak
   - english
@@ -31,19 +31,11 @@ thumbnail: https://thmb.techidaily.com/5d7817aad095517ef8a3802d67c136a4ed2562ac9
 
 _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) – one of the most common travel words around the world. Nothing breaks the cultural ice like a respectful greeting in the local language. This is why the ability to say good morning in different languages is a life skill that is well worth learning. Let’s dive in!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Good morning in Spanish:_¡Buenos días!_
 
 **_Buenos días_ literally means “good days”, but it is used to say “good morning” in Spanish.** Suitable for all social contexts, this greeting can be used with both friends and strangers. If you want to mix things up, you can also add_hola_ and say “hola, buenos días” as it is a very standard and friendly salutation. If you want to say goodbye in the morning, you can say “adiós, buenos días” which is a nice way to wish someone a good day.
 
  It is also important to note that in some countries from South America it’s common to say “buen día” which is literally the singular form of “buenos días”. However, if you go to Spain, it’s best to stick with “buenos días”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Good morning in French:_Bon matin !_
 
@@ -53,15 +45,15 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Both “bonjour” and “bon matin” are appropriate in both formal and informal settings and can be used with friends and strangers alike.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Good morning in German:_Guten Morgen!_
 
  To say “good morning” in German, you can use the phrase “Guten Morgen”. This is a common and polite way to greet someone until noon. It can be used with both friends and strangers which makes it appropriate in both formal and informal social contexts.
 
  As you probably know, Germans like to be efficient, so sometimes greetings tend to be kept short. Therefore, in informal situations, you can simply say “Morgen!”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Good morning in Italian:_Buongiorno!_
 
@@ -70,7 +62,7 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Literally meaning “good day”, “buongiorno” can safely be used in all kinds of social contexts from morning until after lunch.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Good morning in Portuguese:_Bom dia!_
@@ -92,7 +84,7 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Additionally, if you want to go the extra mile, it is considered polite to ask about the person’s well-being after greeting them. For example, “как дела?”_(kak dela?)_ which means “how are you?” is often used in conjunction with “доброе утро”_(dobraye utro)_ . This makes the greeting more friendly and personal.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Good morning in Chinese:_早上好！_
@@ -101,6 +93,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  The same as the English “good morning”, 早 (zǎo) can be used in most social settings provided it’s morning, of course.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 8\. Good morning in Japanese:_おはようございます！_
 
  When greeting someone in the morning hours before 10:00 a.m. in Japanese, おはようございます_(Ohayōgozaimasu)_ is the most appropriate choice. It is considered more formal than こんにちは_(Konnichiwa)_ or “hello” and is safe to use with people you are not familiar with or in formal settings such as with your boss or teacher.
@@ -108,6 +104,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  In addition to being used as a way to say “hello”, おはようございます_(Ohayōgozaimasu)_ can also be used as a way to say “goodbye”.
 
 !["Good morning in Spanish" by Dawid Zawiła©](https://edge.mondly.com/blog/wp-content/uploads/2023/01/good-morning-in-spanish-960x640.jpg "How To Say Good Morning In 10 Different Languages 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 9\. Good morning in Arabic:_صباح الخير!_
 
@@ -165,19 +165,24 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ed-conquered-everlasting-deactivation-of-youtube-shorts/"><u>[Updated] Conquered Everlasting Deactivation of YouTube Shorts</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-from-vlogs-to-viral-jake-pauls-online-empire-expansion-for-2024/"><u>[Updated] From Vlogs to Viral Jake Paul’s Online Empire Expansion for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-vivo-y27-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Vivo Y27 4G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/age-defying-linguistic-skills-post-fifty-milestone/"><u>Age-Defying Linguistic Skills Post-Fifty Milestone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/communicate-with-command-ultimate-training-techniques/"><u>Communicate with Command: Ultimate Training Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/euro-dialects-revealed-europes-language-festival-today/"><u>Euro-Dialects Revealed – Europe's Language Festival Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-pronunciation-basics-for-first-timers/"><u>French Pronunciation Basics for First-Timers</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-fetch-and-install-updated-nvidia-drivers-seamlessly/"><u>How to Fetch and Install Updated NVIDIA Drivers Seamlessly</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-oneplus-ace-3-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of OnePlus Ace 3 Phone</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/live-broadcast-tools-and-online-cam-effects-discover-the-best-manycam-substitutes-for-your-videos/"><u>Live Broadcast Tools & Online Cam Effects: Discover the Best ManyCam Substitutes for Your Videos</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-the-ios-18-update-a-step-by-step-guide-to-personalizing-your-iphones-control-center-insights-from-zdnet/"><u>Mastering the iOS 18 Update: A Step-by-Step Guide to Personalizing Your iPhone's Control Center - Insights From ZDNet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/profiling-highest-numbers-of-speakers-in-each-country-written-in-french/"><u>Profiling Highest Numbers of Speakers in Each Country' Written In French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-prime-strategies-to-pick-up-languages-digitally/"><u>Step-by-Step Guide: Prime Strategies to Pick up Languages Digitally</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/trim-excess-space-on-win-10-display/"><u>Trim Excess Space on WIN 10 Display</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-gaining-heavy-followers-and-verification-status-a-quick-guide-with-top-6-insights/"><u>[New] In 2024, Gaining Heavy Followers & Verification Status A Quick Guide with Top 6 Insights</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-digital-tales-fundamentals-the-core-principles/"><u>[Updated] 2024 Approved Digital Tales Fundamentals The Core Principles</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-latest-vr-gaming-engines-review-2023-edition-for-2024/"><u>[Updated] Latest VR Gaming Engines Review - 2023 Edition for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-asmr-insights-understanding-its-health-benefits/"><u>2024 Approved ASMR Insights Understanding Its Health Benefits</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/disabled-apple-iphone-12-pro-max-how-to-unlock-a-disabled-apple-iphone-12-pro-max-by-drfone-ios/"><u>Disabled Apple iPhone 12 Pro Max How to Unlock a Disabled Apple iPhone 12 Pro Max?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-vivo-y100-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Vivo Y100 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-star-app-by-apple-today/"><u>International Star App by Apple Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduccion-al-medir-tiempo-en-espanol/"><u>Introducción Al Medir Tiempo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jour-de-fois-francais/"><u>Jour De Fois Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-delights-selecting-top-film-selections/"><u>Multilingual Delights: Selecting Top Film Selections</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/opening-doors-with-russian-vital-travel-linguistic-tools/"><u>Opening Doors with Russian: Vital Travel Linguistic Tools</u></a></li>
+<li><a href="https://program-issues.techidaily.com/pc-players-rejoice-tormented-souls-no-longer-plagued-by-frequent-crashes/"><u>PC Players Rejoice: Tormented Souls No Longer Plagued by Frequent Crashes!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/screen-captures-galore-expert-techniques-for-twitter-visuals-for-2024/"><u>Screen Captures Galore Expert Techniques for Twitter Visuals for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-hangul-acquisition-the-korean-alphabet-in-a-nutshell/"><u>Seamless Hangul Acquisition: The Korean Alphabet in a Nutshell</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamless-transition-into-the-world-of-latin/"><u>Seamless Transition Into the World of Latin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-turkish-alphabet-decoded-an-inclusive-language-learning-tool/"><u>The Turkish Alphabet Decoded: An Inclusive Language Learning Tool</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/vertrauenswurdig-und-zuverlassig-top-ersatz-fur-den-acronis-server/"><u>Vertrauenswürdig Und Zuverlässig: Top-Ersatz Für Den Acronis Server</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-travelers-handbook-the-top-105-croatian-language-tools-you-need/"><u>Your Traveler’s Handbook: The Top 105 Croatian Language Tools You Need</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/movavi-jpgjpeg/"><u>무료 Movavi에서 인터넷에서 JPG/JPEG 이미지 변환 서비스 - 편집기</u></a></li>
 </ul></div>
 

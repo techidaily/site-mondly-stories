@@ -1,7 +1,7 @@
 ---
 title: "Phi Beta Jove: From Classical to Modern Greek"
-date: 2025-01-05T18:14:47.161Z
-updated: 2025-01-10T16:07:37.623Z
+date: 2025-01-09T05:43:53.905Z
+updated: 2025-01-15T20:30:09.679Z
 tags:
   - speak
   - english
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/6afde60cdf2c4ed08818a0c3bb279e1893a9ceb46
  So, let’s embark on a journey through time and explore the history of the ancient Greek language. We will look at its profound impact on modern languages and culture and how it differs from modern Greek. With a little help from the Greek gods and goddesses, you’ll see that ancient Greek is not a relic of the past but a living legacy echoing everywhere in the modern world.
 
  Men think about the Roman Empire a lot, but I believe ancient Greece is just as fascinating. What do you think?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Ancient Greek Language – Historical Journey
 
@@ -48,7 +52,7 @@ thumbnail: https://thmb.techidaily.com/6afde60cdf2c4ed08818a0c3bb279e1893a9ceb46
  Ancient Greek writing during this archaic period featured the “Boustrophedon” style (literally “ox-turning”, after the manner of an ox plowing a field), where alternate lines of text were reversed, a technique observed in earlier civilizations. Nevertheless, around the 8th century BC, the Greek alphabet was standardized.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Dialects of Ancient Greece
@@ -58,10 +62,6 @@ thumbnail: https://thmb.techidaily.com/6afde60cdf2c4ed08818a0c3bb279e1893a9ceb46
  These dialects, including Attic and Ionic, Aeolic, Arcadocypriot, and Doric, with sub-dialects like Macedonian Greek, resulted from the Greek tribes’ geographic dispersion, varied settlement locations, and political autonomy.
 
  Naturally, this complex linguistic landscape, characterized by many dialects and writing styles, highlights nothing more than the rich diversity and evolution of the ancient Greek language.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Iconic texts written in the ancient Greek language
 
@@ -80,14 +80,6 @@ Other literary works of art representative of this period include:
 
 ![ancient greece language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greece-language.jpg "Ancient Greek Language Influence On Modern Languages 6")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Ancient Greek Writing System and Alphabet
 
  Did you know the word **‘alphabet’ originates from the initial two letters of the Greek alphabet,_‘alpha’_ and_‘beta’_ ?** While this may seem like a fun piece of unimportant trivia, you’ll soon discover that the influence of the ancient Greek language on modern languages is far greater than we think.
@@ -97,7 +89,7 @@ Other literary works of art representative of this period include:
  However, the earliest attested form of the Greek language is a clay tablet written in the Linear B script. Historians claim that it dates to between 1450 and 1350 BC. Unrelated to the Greek alphabet, which emerged around the 8th century BC, Linear B last appeared in the 13th century BC. The centuries between the two writing scripts, where no Greek writings have been found, is referred to as the Greek Dark Ages.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cultural Influences of Ancient Greek on the Western Civilization
@@ -128,6 +120,10 @@ Other literary works of art representative of this period include:
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9012&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9012&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9012&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9012&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9012%26mt%3D8)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Ancient Greek influence on art, architecture, and literature
 
  Beyond politics and philosophy, Greek mythology is probably the one that influenced Western culture the most. The epic tales of gods, goddesses, demigods, and heroes have inspired numerous artists, writers, and thinkers to create their next big work of art. If you look into it, you’ll see that the influence of Greek myths can still be found everywhere, from literature and sculpture to popular culture and advertising.
@@ -147,7 +143,7 @@ Other literary works of art representative of this period include:
 ![ancient Greek vs modern Greek](https://edge.mondly.com/blog/wp-content/uploads/2023/10/ancient-greek-vs-modern-greek.jpg "Ancient Greek Language Influence On Modern Languages 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Ancient Greek Language Influence on Modern Languages
@@ -170,6 +166,10 @@ Other literary works of art representative of this period include:
 
  This is just one example among countless others where a modern English word owes its existence to Ancient Greek ancestry. As a matter of fact, it’s estimated that **more than 150,000 English words can be traced back to their Greek origins.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## English words of Greek origin
 
 | **English word** | **Greek origin**                                                                                          |
@@ -191,6 +191,10 @@ Other literary works of art representative of this period include:
 | theology         | from ‘theos’ (god) + ‘logia’ (study)                                                                      |
 | cardiology       | from ‘kardiā’ (heart) + ‘logia’ (study)                                                                   |
 | technology       | from ‘tekhnē’ (art, craft) + ‘logia’ (study)                                                              |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Expressions that originated from Greek
 
@@ -218,15 +222,15 @@ _Describes a weakness in spite of overall great strength or resilience._
 
  Thus, he was tasked with completing twelve extremely challenging “labors”. These labors included daunting tasks such as retrieving the guardian dog from the underworld and defeating the multi-headed Hydra. Hence, the term ‘Herculean’ describes any job or task that is incredibly difficult and requires enormous strength.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. The Midas Touch
 
 _Refers to a person who has good fortune._
 
  The phrase originates from the Greek myth of King Midas of Phrygia, who was granted a wish by the god Dionysus. Midas wished that everything he touched would turn to gold. Unfortunately, this blessing became a curse as his food, water, wine, and even his beloved daughter Zoe turned to gold upon his touch, illustrating the unintended consequences of his ill-considered desire for wealth.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. The Apple of Discord
 
@@ -237,6 +241,10 @@ _Refers to a person who has good fortune._
  These are just a few of the witty expressions Greek myths left us with. So, feel free to expand your search and use them wisely in your day-to-day conversations. Not only are they a fun way to sound cooler, but they will also broaden your knowledge of the world. I mean, you definitely can not call someone a ‘narcissist’ without knowing Narcissus’ legend, right?
 
 ![what is greece's language](https://edge.mondly.com/blog/wp-content/uploads/2023/10/what-is-greeces-language.jpg "Ancient Greek Language Influence On Modern Languages 9")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Differences Between Ancient Greek and Modern Greek
 
@@ -252,10 +260,6 @@ _Refers to a person who has good fortune._
 
  To summarize everything we learned about the ancient Greek language, let’s look at some frequently asked questions.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Is ancient Greek still spoken today?
 
  Just like Latin, the ancient Greek language is still used in scholarly circles and ecclesiastical domains, preserved in texts and liturgies. However, nobody speaks ancient Greek natively anymore.
@@ -267,10 +271,6 @@ _Refers to a person who has good fortune._
 ### What writing system did ancient Greeks use?
 
  The earliest attested writing system used by ancient Greeks is a clay tablet written in the Linear B script. It is hypothesized to be descended from the older Linear A script which is undeciphered. However, around the 8th century BCE, Greeks adopted the Greek alphabet used today.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How can I learn to speak ancient Greek?
 
@@ -306,24 +306,18 @@ _Refers to a person who has good fortune._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-ultimate-list-youtubes-top-vr-video-sessions/"><u>[New] In 2024, Ultimate List YouTube's Top VR Video Sessions</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-ios-mastery-effortlessly-extracting-youtube-videos/"><u>[New] IOS Mastery Effortlessly Extracting Youtube Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/aximize-your-youtube-viewing-download-icons-via-online-and-os-specific-methods-for-2024/"><u>[New] Maximize Your YouTube Viewing Download Icons via Online & OS-Specific Methods for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-essential-virtual-worlds-worth-playing/"><u>[Updated] 2024 Approved Essential Virtual Worlds Worth Playing</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-masterful-traffic-puller-genius/"><u>[Updated] 2024 Approved Masterful Traffic Puller Genius</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-fostering-an-online-oasis-paving-the-way-for-a-prolific-youtube-presence/"><u>[Updated] Fostering an Online Oasis Paving the Way for a Prolific Youtube Presence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-beginners-guide-to-japenese-social-etiquette/"><u>A Beginner's Guide to Japenese Social Etiquette</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/begin-latin-mastery-at-your-fingertips-online/"><u>Begin Latin Mastery at Your Fingertips Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/belgiums-communication-tapestry-unveiled/"><u>Belgium's Communication Tapestry Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conocer-los-nombres-de-animales-hispanohablantes/"><u>Conocer Los Nombres De Animales Hispanohablantes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conversational-charm-spoken-words-that-whisper-desire/"><u>Conversational Charm: Spoken Words That Whisper Desire</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580036957-embark-on-a-new-language-expedition/"><u>Embark on a New Language Expedition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/empower-yourself-with-japan-education-for-free/"><u>Empower Yourself with Japan Education, For Free</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579183296-germans-premier-learning-portal-mondly-emerges-victorious/"><u>German's Premier Learning Portal - Mondly Emerges Victorious!</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-oppo-a78-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Oppo A78 Phone that is Locked?</u></a></li>
-<li><a href="https://driver-error.techidaily.com/resolving-the-gtx-cups-and-windows-10-troubleshooting-guide/"><u>Resolving the GTX Cups and Windows 10 [Troubleshooting Guide]</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581512791-revolutionize-your-year-with-unlimited-lifetime-access-to-mondly-premium-at-no-cost/"><u>Revolutionize Your Year with Unlimited Lifetime Access to Mondly Premium at No Cost!</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/strategic-use-of-visual-media-in-classroom-teaching-for-2024/"><u>Strategic Use of Visual Media in Classroom Teaching for 2024</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/top-rated-clear-screen-protector-background-applications-for-android-and-iphone-devices/"><u>Top Rated Clear Screen Protector Background Applications for Android and iPhone Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-key-to-unlocking-linguistic-adventures-on-oculus-quest/"><u>'Mondly': The Key to Unlocking Linguistic Adventures on Oculus Quest</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-story-lore-who-are-the-premier-channels/"><u>[Updated] Story Lore Who Are the Premier Channels?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-screens-that-make-a-statement-the-ultimate-4k-displays-for-macs/"><u>2024 Approved Screens That Make a Statement The Ultimate 4K Displays for Macs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-tongues-touching-english-lexical-diversification/"><u>Global Tongues Touching English: Lexical Diversification</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-nokia-105-classic-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Nokia 105 Classic Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/pinnacle-music-organizer-for-android-users/"><u>Pinnacle Music Organizer for Android Users</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/seamless-steps-shifting-your-pubg-game-from-one-iphone-to-another/"><u>Seamless Steps: Shifting Your PUBG Game From One iPhone to Another</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-du-mercredi/"><u>Semaine Française Du Mercredi</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-bengali-language-bootcamp/"><u>Speedy Bengali Language Bootcamp</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fundamentals-of-pronouncing-french-words-rightly/"><u>The Fundamentals of Pronouncing French Words Rightly</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/ultimate-tutorial-how-to-efficiently-digitize-dvd-movies-for-storage-on-your-windows-or-macos-computer/"><u>Ultimate Tutorial: How to Efficiently Digitize DVD Movies for Storage on Your Windows or macOS Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-charm-of-german-speech-essential-25-phrases/"><u>Unlocking the Charm of German Speech - Essential 25 Phrases</u></a></li>
 </ul></div>
 

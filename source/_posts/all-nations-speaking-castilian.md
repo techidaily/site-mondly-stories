@@ -1,7 +1,7 @@
 ---
 title: All Nations Speaking Castilian
-date: 2024-09-10T13:26:36.751Z
-updated: 2024-09-11T13:26:36.751Z
+date: 2025-01-09T05:39:45.735Z
+updated: 2025-01-16T09:01:33.992Z
 tags:
   - speak
   - english
@@ -42,20 +42,6 @@ thumbnail: https://thmb.techidaily.com/84164da8d50de5c78ef7a37eabfb52e8bc2ce824a
 
  Now just imagine how many new friends you could make if you started [learning Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) now!
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## List of Spanish-speaking countries
 
  **Formally, Spanish is the official language of 20 countries and one dependent territory: Argentina, Bolivia, Chile, Colombia, Costa Rica, Cuba, Dominican Republic, Ecuador, El Salvador, Equatorial Guinea, Guatemala, Honduras, Mexico, Nicaragua, Panama, Paraguay, Peru, Spain, Uruguay, Venezuela and Puerto Rico.**
@@ -65,20 +51,6 @@ thumbnail: https://thmb.techidaily.com/84164da8d50de5c78ef7a37eabfb52e8bc2ce824a
  To make sure we’re on the same page, let’s swiftly define what makes a country ‘Spanish-speaking’. A ‘Spanish-speaking country’ is a country where Spanish is the official language. For example, many people speak Spanish in the United States. In fact, Spanish is the second most spoken language here. However, the US can’t be considered a Spanish-speaking country because Spanish is not an official language here. While it stands to reason, it’s crucial to make this difference.
 
 !['How many people speak Spanish' by Cecy Alvarado©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/how-many-people-speak-spanish-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 2")
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  In addition to the 20 countries, Spanish is also the official language of several international organizations. These include the United Nations, the European Union, the Organization of American States, the Union of South American Nations, the Community of Latin American and Caribbean States, the [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Union and many other international organizations.
 
@@ -100,19 +72,9 @@ thumbnail: https://thmb.techidaily.com/84164da8d50de5c78ef7a37eabfb52e8bc2ce824a
 * Uruguay — 98%
 * Venezuela — 97%
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### Spanish-speaking countries in Central America
 
@@ -133,6 +95,10 @@ thumbnail: https://thmb.techidaily.com/84164da8d50de5c78ef7a37eabfb52e8bc2ce824a
 
 * Mexico — 97% (percentage of the entire population speaking Spanish)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Spanish-speaking countries in the Caribbean
 
  If Mexico is the country with the most Spanish speakers in the world, Cuba is the country with the largest proportion of Spanish speakers in the world.
@@ -141,25 +107,9 @@ thumbnail: https://thmb.techidaily.com/84164da8d50de5c78ef7a37eabfb52e8bc2ce824a
 * Dominican Republic — 98%
 * Puerto Rico — 99%
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### Spanish-speaking countries in Europe
 
@@ -175,25 +125,9 @@ thumbnail: https://thmb.techidaily.com/84164da8d50de5c78ef7a37eabfb52e8bc2ce824a
 
 !['Spanish speakers' by Florian Wehde©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/spanish-speakers-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 3")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Countries where Spanish is spoken although it’s not an official language
 
@@ -202,6 +136,10 @@ thumbnail: https://thmb.techidaily.com/84164da8d50de5c78ef7a37eabfb52e8bc2ce824a
  One reason is that Spain was once a very powerful empire and its influence can still be seen in many parts of the world. Another reason is that many people from Spanish-speaking countries have migrated and brought their language with them. Probably the best example is **the United States where more than 41 million people speak Spanish as a native language.**
 
  Other countries with large minorities of Spanish speakers are Belize, the Philippines (Spanish was an official language here from 1565 to 1973), Gibraltar and Andorra.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## A brief history of the Spanish language
 
@@ -221,20 +159,6 @@ thumbnail: https://thmb.techidaily.com/84164da8d50de5c78ef7a37eabfb52e8bc2ce824a
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Speak Spanish like a local fast
 
@@ -258,8 +182,6 @@ thumbnail: https://thmb.techidaily.com/84164da8d50de5c78ef7a37eabfb52e8bc2ce824a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -267,16 +189,24 @@ thumbnail: https://thmb.techidaily.com/84164da8d50de5c78ef7a37eabfb52e8bc2ce824a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-zoom-meeting-fundamentals-for-the-uninitiated/"><u>[New] 2024 Approved Zoom Meeting Fundamentals for the Uninitiated</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-barebones-calm-music-selection/"><u>[New] Barebones Calm Music Selection</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-discover-the-genesis-advanced-reverse-lookup-on-instagram-photos-for-2024/"><u>[New] Discover the Genesis Advanced Reverse Lookup on Instagram Photos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ssential-compliance-rules-for-thriving-on-youtube-for-2024/"><u>[New] Essential Compliance Rules for Thriving on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-maximize-your-media-a-review-of-top-youtube-downloader-software/"><u>[Updated] 2024 Approved Maximize Your Media A Review of Top YouTube Downloader Software</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-connect-through-the-cosmos-posting-panoramic-pictures-via-mobile-apps/"><u>2024 Approved Connect Through the Cosmos Posting Panoramic Pictures via Mobile Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-dialogues-for-the-discerning-tourist/"><u>Italian Dialogues for the Discerning Tourist</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-made-easy-mondly-app-for-oculus-quest-available/"><u>Languages Made Easy: Mondly App for Oculus Quest Available</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latest-notice-data-handling-guidelines/"><u>Latest Notice: Data Handling Guidelines</u></a></li>
+<li><a href="https://win-lab.techidaily.com/mcafee-uninstallation-issues-discover-the-ultimate-guide-to-completely-remove-it/"><u>McAfee Uninstallation Issues? Discover The Ultimate Guide To Completely Remove It</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-a-study-on-its-instructional-method/"><u>Mondly: A Study on Its Instructional Method</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-role-in-accelerating-my-linguistic-competence-the-best-10-ways/"><u>Mondly's Role in Accelerating My Linguistic Competence - The Best 10 Ways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polite-expressions-a-guide-to-saying-thank-you-in-30-languages-152-trimmed-to-fit/"><u>Polite Expressions: A Guide to Saying Thank You in 30 Languages (152) [Trimmed to Fit]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-5-best-apps-for-language-teachers/"><u>The 5 Best Apps for Language Teachers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-italian-hand-gestures-italians-use-all-the-time/"><u>Top 10 Italian Hand Gestures Italians Use All The Time</u></a></li>
+<li><a href="https://win-forum.techidaily.com/top-social-media-platforms-facebook-twitter-and-instagram-youtube-guide/"><u>Top Social Media Platforms: Facebook, Twitter & Instagram | YouTube Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/universal-unlock-pattern-for-xiaomi-13t-pro-by-drfone-android/"><u>Universal Unlock Pattern for Xiaomi 13T Pro</u></a></li>
+</ul></div>
 

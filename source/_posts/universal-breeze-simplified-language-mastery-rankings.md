@@ -1,7 +1,7 @@
 ---
 title: "Universal Breeze: Simplified Language Mastery Rankings"
-date: 2025-01-03T18:08:02.959Z
-updated: 2025-01-10T18:55:17.259Z
+date: 2025-01-12T22:37:30.541Z
+updated: 2025-01-16T03:40:18.244Z
 tags:
   - speak
   - english
@@ -34,29 +34,29 @@ As [the FSI confirms](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFF
 
 Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) !
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Swedish
 
  Spoken by 10 million people in both Sweden and Finland, the [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) language is known to be mutually intelligible with Norwegian and Danish (to some extent). Good news, right?
 
  An important characteristic of Swedish grammar that makes it different from English is the placement of the definite article after the noun. However, its vocabulary contains many loanwords from German, French, and English. That means you’ll have a better chance at mastering it faster if you already know the above-mentioned languages. Everywhere you look in the world of languages, there’s a connection that can help you learn faster. Make the most of it!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Norwegian
 
 ![norwegian landscape](https://edge.mondly.com/blog/wp-content/uploads/2019/06/norwegian-landscape-960x720.jpg "Top 10 Easiest Languages To Learn 2")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Lofoten Islands, Svolvær, Norway” by John O’Nolan©
 
  With around 5 million native speakers,[Norwegian has an interesting story](https://www.britannica.com/topic/Norwegian-language) behind its two distinct norms: Bokmål (also known as Dano-Norwegian or Riksmål) and New Norwegian (also known as Nynorsk).
 
  The story started back in the 15th century after the union of Norway with Denmark. That’s when Old Norwegian writing traditions gradually began to die out, and Dano-Norwegian took over. Then, in 1814, Norway became independent, and although the linguistic union with Danish persisted, the people felt they needed a language of their own. That’s when the New Norwegian norm began to be used. Today, the people of Norway learn to read and write in New Norwegian, but only about 20% of them use it as their language of choice in writing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Afrikaans – the easiest language to learn for both English and Dutch speakers
 
@@ -66,6 +66,10 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
  Thus, if you are a language nerd that also wants to become a [polyglot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , with Dutch you can kill one and three-quarters of a bird with one stone because you’ll also understand a big part of the Afrikaans language. If simplicity isn’t enough for you, here are [7 more reasons to learn Afrikaans!](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Dutch
 
  As we already mentioned, Dutch can be considered Afrikaans’ oldest sibling since they share almost the same vocabulary (90-95%). With around 24 million speakers, Dutch is the third most widely spoken Germanic language – the first two being English and German – and the official language of the Netherlands and [Belgium](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) (together with French and German).
@@ -73,7 +77,7 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
  Careful though! The spoken language of Dutch is tricky as it has many dialects. While Standard Dutch is used for official purposes, its dialects are used in a great variety of informal situations. Sometimes you’ll find villages that use a Dutch dialect of their own.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Romance languages are almost just as easy to learn
@@ -96,10 +100,6 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
  Seriously now, Italian is also highly readable, with a shorter alphabet than English: 21 letters instead of 26.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Spanish
 
  Since we talked about Italian, Spanish couldn’t be far behind, right? The same advantages as with Italian apply here as well, the many [cognates](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) making the learning experience a lot easier.
@@ -114,11 +114,11 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
 ![romanian castle](https://edge.mondly.com/blog/wp-content/uploads/2019/06/romanian-castle-960x641.jpg "Top 10 Easiest Languages To Learn 4")
 
- ‘Peleș Castle, România’ by Majkl Velner©
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ ‘Peleș Castle, România’ by Majkl Velner©
 
 ## Portuguese
 
@@ -161,20 +161,19 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-youtubes-role-in-todays-dynamic-educational-landscape/"><u>[New] 2024 Approved YouTube's Role in Today's Dynamic Educational Landscape</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-unlocking-the-secrets-to-stellar-sims-gameplay-recording-for-2024/"><u>[New] Unlocking the Secrets to Stellar Sims Gameplay Recording for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-5-superior-recording-gear-options-for-ipad-and-mac-owners/"><u>[Updated] In 2024, 5 Superior Recording Gear Options for iPad & Mac Owners</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-ranking-the-greats-top-15-stop-motion-masterpieces/"><u>2024 Approved Ranking the Greats - Top 15 Stop Motion Masterpieces</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/comprehensive-solution-for-srt-not-working-in-premiere/"><u>Comprehensive Solution for SRT Not Working in Premiere</u></a></li>
-<li><a href="https://win-able.techidaily.com/1722986659885-constraint-a-utilize-old-english-lexical-choices-and-grammatical-structures-in-the-conversion/"><u>Constraint A: Utilize Old English Lexical Choices and Grammatical Structures in the Conversion.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/contare-in-italiano-per-novizianti-vol-1-1-1000/"><u>Contare in Italiano per Novizianti - Vol. 1 (1-1000)</u></a></li>
-<li><a href="https://win-hot.techidaily.com/error-the-content-youre-looking-for-doesnt-exist-here/"><u>Error: The Content You're Looking For Doesn't Exist Here</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-boundless-gallery-of-forgotten-artists/"><u>In 2024, The Boundless Gallery of Forgotten Artists</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/japenese-phrases-for-polite-introduction/"><u>Japenese Phrases for Polite Introduction</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-rules-2022s-premier-language-app/"><u>Mondly Rules: 2022'S Premier Language App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/neurodevelopmental-advantages-in-youthful-language-learning/"><u>Neurodevelopmental Advantages in Youthful Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sharpen-your-verbal-skills-9-english-communication-hacks/"><u>Sharpen Your Verbal Skills: 9 English Communication Hacks</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transferir-archivos-de-ssd-a-hdd-con-facilidad-en-windows/"><u>Transferir Archivos De SSD a HDD Con Facilidad en Windows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/urdu-for-beginners-core-vocabulary-selection/"><u>Urdu for Beginners: Core Vocabulary Selection</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-in-depth-look-vitas-complete-video-editing-app-2024/"><u>[New] In-Depth Look Vita's Complete Video Editing App, 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-authenticity-through-customer-produced-videos/"><u>[Updated] Authenticity Through Customer-Produced Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-crystal-clear-on-screen-discovering-the-cg318-4k-monitor-for-2024/"><u>[Updated] Crystal Clear on Screen Discovering the CG318-4K Monitor for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-navigating-the-world-of-instagram-story-highlights/"><u>2024 Approved Navigating the World of Instagram Story Highlights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/te-viewership-must-use-youtube-seo-tools/"><u>Elevate Viewership Must-Use YouTube SEO Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honoring-ten-years-at-mondlys-milestone/"><u>Honoring Ten Years at Mondly's Milestone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-samsung-galaxy-a34-5g-using-video-repair-utility-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix Corrupt video files of Samsung Galaxy A34 5G using Video Repair Utility?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-macs-premier-selection-of-mp4-cutter-software/"><u>In 2024, Mac's Premier Selection of MP4 Cutter Software</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-the-art-of-video-discovery-on-facebook/"><u>Mastering the Art of Video Discovery on Facebook</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/solving-the-problem-of-vlc-not-playing-dvds-on-windows-1011/"><u>Solving the Problem of VLC Not Playing DVDs on Windows 10/11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-in-just-minutes-each-day/"><u>Speak Like a Native in Just Minutes Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swiftly-learn-urdu-online-every-day/"><u>Swiftly Learn Urdu Online, Every Day!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-majority-of-french-users-top-five-francophone-states-analyzed/"><u>The Majority of French Users: Top Five Francophone States Analyzed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-better-spelling-the-most-commonly-misspelled-vocabulary/"><u>Unlocking Better Spelling: The Most Commonly Misspelled Vocabulary</u></a></li>
 </ul></div>
 

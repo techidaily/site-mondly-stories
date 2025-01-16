@@ -1,7 +1,7 @@
 ---
 title: Unearthing the Roots of Human Verbal Expression
-date: 2025-01-05T20:27:04.183Z
-updated: 2025-01-10T17:10:26.889Z
+date: 2025-01-10T20:45:35.433Z
+updated: 2025-01-15T23:58:54.320Z
 tags:
   - speak
   - english
@@ -58,19 +58,11 @@ thumbnail: https://thmb.techidaily.com/025f6d9d96521fea43b8d17c7244b091345a22a6d
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "The First &Amp; Oldest Languages Ever Spoken: Origins Of Human Communication 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Do you want to learn some of the oldest languages on Earth?
 
  Mondly offers courses in Greek, Arabic, Chinese, Hebrew and even Latin.
 
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4757&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4757&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4757&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4757&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4757%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Ancient languages: the oldest dead languages on Earth
 
@@ -95,7 +87,7 @@ Other ancient languages that are now extinct are:
 * [**Mycenaean Greek**](https://en.wikipedia.org/wiki/Linear%5FB) – the most ancient attested form of the Greek language with the earliest writings dating back to 1450 BC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10 oldest living languages in the world
@@ -116,6 +108,10 @@ Here are some of the oldest languages in the world still spoken today.
 
  Although many believe Sanskrit to be an extinct language, 24,800 people have registered Sanskrit as their mother tongue at the 2011 census. Additionally, it continues to be used as a ceremonial and ritual language in Hinduism and some Buddhist practices.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Greek (cc. 3400 years old)
 
 **First attested:** 1450 BC.
@@ -127,6 +123,10 @@ Here are some of the oldest languages in the world still spoken today.
  Greek was also mentioned in the “extinct languages” category because Mycenaean Greek is the precursor of Modern Greek. Thus, it’s debatable whether the Greek language we speak today is indeed 3400 years old or not. However, since its roots lie in Mycenaean Greek, we can all agree that Greek is indeed one of the oldest living languages in the world.
 
  The Greek language holds an important place in history thanks to its rich literature that includes epic poems such as_Iliad_ and_Odyssey_ . Additionally, Greek is also the language in which many of the fundamental works in astronomy, mathematics, logic and philosophy (the Platonic dialogues and the works of Aristotle) are composed.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Coptic Egyptian (cc. 2200 years old)
 
@@ -141,6 +141,10 @@ Here are some of the oldest languages in the world still spoken today.
  Unfortunately, the language will probably soon become extinct since there are only a few people left in the world who continue to [use Coptic](https://dailynewsegypt.com/2005/12/10/coptic-languages-last-survivors/) as their day-to-day vernacular.
 
 !['First language' by NEOM©](https://edge.mondly.com/blog/wp-content/uploads/2020/05/first-language-960x640.jpg "The First &Amp; Oldest Languages Ever Spoken: Origins Of Human Communication 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hebrew (cc. 3000 years old)
 
@@ -167,7 +171,7 @@ Here are some of the oldest languages in the world still spoken today.
 ![oldest language](https://edge.mondly.com/blog/wp-content/uploads/2020/05/oldest-language-960x640.jpg "The First &Amp; Oldest Languages Ever Spoken: Origins Of Human Communication 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Hebrew” by Mick Haupt©
@@ -194,6 +198,10 @@ Here are some of the oldest languages in the world still spoken today.
 
 [Old Arabic](https://en.wikipedia.org/wiki/Old%5FArabic) is the ancestor of the Arabic language and it is believed that its earliest inscription is a prayer to the three gods of the Transjordanian Canaanite kingdoms dated to the early 1st millennium BC.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Persian (Farsi) (cc. 2500 years old)
 
 **First attested:** 522 – 486 BC
@@ -209,7 +217,7 @@ Here are some of the oldest languages in the world still spoken today.
 ![oldest living language](https://edge.mondly.com/blog/wp-content/uploads/2020/05/oldest-living-language-960x640.jpg "The First &Amp; Oldest Languages Ever Spoken: Origins Of Human Communication 6")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “The Holy Book” by T Foz©
@@ -226,10 +234,6 @@ Here are some of the oldest languages in the world still spoken today.
 
  Unfortunately, at the moment there is no archaeological evidence to support this claim, so experts stick to the original findings.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Irish Gaelic (1500 years old)
 
 **First attested:** 4th century AD
@@ -244,15 +248,7 @@ Here are some of the oldest languages in the world still spoken today.
 
 ![ancient languages](https://media.giphy.com/media/4Z9jjKGJVM9Ck8E4cN/giphy.gif "The First &Amp; Oldest Languages Ever Spoken: Origins Of Human Communication 7")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Having embarked upon an enlightening journey through the realm of both living and ancient languages, let us now revisit the garnered wisdom.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### What are the oldest languages still spoken today?
 
@@ -266,19 +262,23 @@ Here are some of the oldest languages in the world still spoken today.
 
  According to Ethnologue, there are 7,168 living languages in the world today.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why is it important to preserve endangered languages?
 
  Preserving endangered languages is important because they are vital to cultural preservation and identity. When a language disappears, it often takes with it a unique perspective of the world, including knowledge about traditions, stories, medicinal practices and more.
 
  Moreover, endangered languages offer useful insight into linguistics and cognitive science while also contributing to linguistic diversity. All languages, no matter how big or small, offer unique perspectives and ideas about the world we live in.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What is the most widely spoken language in the world now?
 
  The most widely spoken language in the world is Mandarin Chinese with 920 million native speakers. However, if you count both native and non-native speakers, English is the most spoken language with 1.5 billion speakers.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### What can we learn from studying the world's oldest languages?
 
@@ -320,24 +320,18 @@ Here are some of the oldest languages in the world still spoken today.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-comprehensible-techniques-for-effective-classroom-recordings-on-mac/"><u>[New] Comprehensible Techniques for Effective Classroom Recordings on Mac</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-bring-life-to-your-photos-motion-blur-techniques-for-illustration/"><u>[Updated] Bring Life to Your Photos Motion Blur Techniques for Illustration</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-simplifying-your-system-switch-from-sierra-to-os-x-1010/"><u>[Updated] Simplifying Your System Switch From Sierra to OS X 10.10</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ai-ocr-abbyy/"><u>「テガキを駆使したAI OCR: 手書き文字認識におけるコゲントラボ対フレックスキャプチャーの完璧な合体」 - ABBYYブログ</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/3gpflv-movavi/"><u>無限制網路上轉換3GP到FLV - 利用Movavi自動化工具</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-comprehensive-list-of-germanys-most-common-thank-you-sayings/"><u>A Comprehensive List of Germany’s Most Common 'Thank You' Sayings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accueils-francais-quelles-options-exister/"><u>Accueils Français: Quelles Options Exister?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/captivating-classroom-experience-in-latin/"><u>Captivating Classroom Experience in Latin</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/colors-in-spanish-how-to-pronounce-them/"><u>Colors In Spanish: How To Pronounce Them</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-germanys-charm-mastering-the-top-25-idioms/"><u>Deciphering Germany's Charm - Mastering the Top 25 Idioms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/delve-into-korean-for-a-deeper-squid-game-comprehension/"><u>Delve Into Korean for a Deeper Squid Game Comprehension</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutsches-bedauernsatzkonstruieren/"><u>Deutsches Bedauernsatzkonstruieren</u></a></li>
-<li><a href="https://techidaily.com/1722973651656-download-updated-geforce-rtx-3070-drivers-for-enhanced-gaming-on-windows-11-or-10-step-by-step-guide/"><u>Download Updated GeForce RTX 3070 Drivers for Enhanced Gaming on Windows 11 or 10 - Step-by-Step Guide!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576146709-jumpstart-your-latvian-language-learning-today/"><u>Jumpstart Your Latvian Language Learning Today</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-the-art-of-running-vintage-software-on-your-latest-windows-11-system/"><u>Mastering the Art of Running Vintage Software on Your Latest Windows 11 System</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/resolving-dvd-playback-issues-in-vlc-on-windows-10-and-macos/"><u>Resolving DVD Playback Issues in VLC on Windows 10 & MacOS</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-most-reliable-gopro-cases-1-10-showdown-for-2024/"><u>The Most Reliable GoPro Cases - #1-10 Showdown for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ltimate-resource-for-creating-professional-impactful-videodumps-for-2024/"><u>The Ultimate Resource for Creating Professional, Impactful Videodumps for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578897201-zap-up-your-skills-speed-up-slovak-learning-with-micro-lessons/"><u>Zap Up Your Skills: Speed up Slovak Learning with Micro Lessons!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-real-time-recorder-battle-go-obs-vs-shadowplay/"><u>[Updated] In 2024, Real-Time Recorder Battle Go OBS! Vs. ShadowPlay</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-million-viewer-milestone-unpacking-youtubes-revenue-formula/"><u>2024 Approved Million-Viewer Milestone Unpacking YouTube’s Revenue Formula</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/best-10-web-based-hd-screen-capture-tools-for-2024/"><u>Best 10 Web-Based HD Screen Capture Tools for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exclusive-review-syma-s111g-remote-control-helicopter-for-budget-enthusiasts/"><u>Exclusive Review: Syma S111G Remote Control Helicopter for Budget Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-rewrites-the-future-of-multilingual-education-with-ar/"><u>Mondly Rewrites the Future of Multilingual Education with AR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlyar-revolutionizing-virtual-reality-for-language-learners/"><u>MondlyAR: Revolutionizing Virtual Reality for Language Learners</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/navigating-the-risks-of-custom-gpts-in-conversational-ai-strategies-for-keeping-personal-information-confidential-with-chatgpt/"><u>Navigating the Risks of Custom GPTs in Conversational AI: Strategies for Keeping Personal Information Confidential with ChatGPT</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-how-to-edit-webm-video-files-here-are-10-of-the-best-free-webm-video-editors-that-you-can-have-a-free-trial-online-or-on-desktop-computers/"><u>New In 2024, How to Edit WebM Video Files? Here Are 10 of the Best Free WebM Video Editors that You Can Have a Free Trial Online or on Desktop Computers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-language-evolution-mondly-leads-the-pack-in-germany/"><u>Online Language Evolution: Mondly Leads the Pack in Germany</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/socialize-and-speak-in-espanol-with-virtual-companions/"><u>Socialize & Speak In Español with Virtual Companions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-romance-say-i-love-you-in-10plus-languages/"><u>Unlock Romance: Say I Love You In 10+ Languages!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/us-and-uk-english-discrepancies/"><u>US & UK English Discrepancies</u></a></li>
 </ul></div>
 

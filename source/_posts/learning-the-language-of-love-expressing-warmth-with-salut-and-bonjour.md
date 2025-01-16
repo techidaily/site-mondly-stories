@@ -1,7 +1,7 @@
 ---
 title: "Learning the Language of Love: Expressing Warmth with 'Salut' & 'Bonjour'"
-date: 2025-01-07T17:14:17.916Z
-updated: 2025-01-10T19:59:53.678Z
+date: 2025-01-09T21:45:42.666Z
+updated: 2025-01-16T06:08:29.583Z
 tags:
   - speak
   - english
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/5780260a4b921055eadce5da1ebf75bed86b12220
 _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to see you love the French language as much as I do! In some of the previous lessons, we’ve talked about [French phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ,[French movies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [best way to learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but for today’s lesson it’s time to go back to the basics and learn how to say “hello” in French. Of course, we all know and love the classic_Bonjour!_ But what are other French greetings we could use to diversify our French conversations?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The most common way to say “hello” in French:_Bonjour!_
@@ -29,10 +29,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  The most awesome thing about_Bonjour_ is that it is a quite universal greeting. This means **you can use it safely in all kinds of social contexts and interactions** – regardless of the level of formality (or the lack of it).
 
  But everyone wants to make a change from time to time. So let’s dive into 12 ways to say hello in French that are not_Bonjour._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 1\. “Hi” in French –_Salut!_
 
@@ -71,12 +67,16 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  Usually expressed with the raising tone of a question,_Allô_ is what you could say over the phone to check whether the person you are talking to is still on the other end of the line or not:_Allô?_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Excuse me? –_Excusez-moi?_
 
  Looking for a polite way to get someone’s attention in French? Maybe there’s someone blocking your way in the store or maybe you want to get noticed by the office clerk. In these situations, a classic greeting would be a bit redundant. So instead you could use this “question-like”_Excusez-moi?_ that has a double meaning and works as both a greeting and a way to get someone’s attention.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. “How are you” in French –_Comment ça va?_
 
@@ -86,22 +86,22 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Or you can play it simple, follow the lead of the French speakers and answer directly with_Et toi?_ (“And you?”) since the_Ça va bien_ (“I’m good”) answer is usually implied.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 9\. What’s up? –_Ça va?_
 
  The English translation of_Ça va?_ , the little and cooler brother of_Comment ça va?_ , is “how’s it going” or literally “does it go?” and it can be used exactly the same like in the previous examples.
 
  The only slight difference is the level for formality associated of each phrase:_Ça va?_ is obviously more suitable for informal interactions with friends and family.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10\. What’s up? –_Quoi de neuf?_
 
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 11\. The cute Bonjour:_Coucou!_
@@ -113,7 +113,7 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 ![bonjour](https://edge.mondly.com/blog/wp-content/uploads/2019/11/bonjour-scaled-960x641.jpg "How To Say Hello In French: 12 Useful French Greetings 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
@@ -156,22 +156,18 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-discovering-one-platform-play-in-apex-legends-without-cross-play-complications/"><u>[New] 2024 Approved Discovering One-Platform Play in Apex Legends Without Cross-Play Complications</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-lustrous-android-video-techniques-for-every-user/"><u>[New] Lustrous Android Video Techniques for Every User</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-optimal-obs-configurations-for-thrifty-computers/"><u>[New] Optimal OBS Configurations for Thrifty Computers</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-unlocking-superior-communication-optimal-use-of-zoom-in-skype-sessions/"><u>[Updated] In 2024, Unlocking Superior Communication Optimal Use of ZOOM in Skype Sessions</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-download-the-most-recent-hp-deskjet-3755-printer-driver-for-windows-1087-users/"><u>How to Download the Most Recent HP DeskJet 3755 Printer Driver for Windows 10/8/7 Users</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-stop-your-pc-from-randomly-crashing-top-6-fixes-you-can-trust/"><u>How to Stop Your PC From Randomly Crashing - Top 6 Fixes You Can Trust</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-galleryguide-adjusting-post-dimensions-in-instagram/"><u>In 2024, GalleryGuide Adjusting Post Dimensions in Instagram</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Realme 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lapprentissage-de-lanatomie-les-composants-du-corps-humain-en-francais/"><u>L'Apprentissage De L'Anatomie: Les Composants Du Corps Humain en Français</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-korean-from-home-cutting-edge-online-resource-list/"><u>Mastering Korean From Home: Cutting-Edge Online Resource List</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-swedish-phonetics-rapidly/"><u>Mastering Swedish Phonetics Rapidly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-shines-in-google-plays-finest-selection/"><u>Mondly Kids App Shines in Google Play's Finest Selection</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pedagogical-prowess-in-the-younger-generation/"><u>Pedagogical Prowess in the Younger Generation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saga-syntaxes-how-dialogues-shape-star-wars-narrative/"><u>Saga Syntaxes: How Dialogues Shape Star Wars' Narrative</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-future-of-customizing-colorful-computers-simplified-with-hytes-nexus-link-for-rgb-devices/"><u>The Future of Customizing Colorful Computers: Simplified with Hyte's Nexus Link for RGB Devices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-surprising-benefits-of-learning-a-new-language-in-your-senior-years/"><u>The Surprising Benefits Of Learning A New Language In Your Senior Years</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/virtual-reality-as-your-classroom-mondlys-innovative-language-learners-tool/"><u>Virtual Reality as Your Classroom: Mondly's Innovative Language Learner's Tool</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unlocking-igtvs-potential-5-ways-to-surge-follower-count-for-2024/"><u>[New] Unlocking IGTV's Potential 5 Ways to Surge Follower Count for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-streamline-your-music-experience-make-a-youtube-playlist-on-the-go/"><u>[Updated] Streamline Your Music Experience Make a YouTube Playlist on the Go</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-honor-90-gt-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Honor 90 GT Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-xiaomi-civi-3-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-on-apple-iphone-11-with-or-without-password-drfone-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID on Apple iPhone 11 With or Without Password | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-of-croatia/"><u>Languages of Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/meet-the-future-innovative-ai-for-discussion/"><u>Meet the Future: Innovative AI for Discussion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-free-courses-elevating-ukrainian-speakers-to-global-standards/"><u>Mondly’s Free Courses: Elevating Ukrainian Speakers to Global Standards</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshoot-and-optimize-your-file-explorer-in-windows-10-today/"><u>Troubleshoot and Optimize Your File Explorer in Windows 10 Today</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/troubleshooting-lenovo-onekey-recovery-post-windows-update-issues/"><u>Troubleshooting Lenovo OneKey Recovery Post-Windows Update Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-major-french-speakers-belt-worldwide/"><u>Unveiling Major French Speakers' Belt Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-lifelentic-learning-a-new-language-at-50plus-benefits-you/"><u>Why Lifelentic Learning a New Language at 50+ Benefits You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-ultimate-resource-list-for-learning-korean-online/"><u>Your Ultimate Resource List for Learning Korean Online</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Conversational Openers: Starting Conversations in China"
-date: 2024-09-10T13:25:37.737Z
-updated: 2024-09-11T13:25:37.737Z
+date: 2025-01-11T09:33:43.063Z
+updated: 2025-01-16T09:59:23.064Z
 tags:
   - speak
   - english
@@ -18,26 +18,6 @@ thumbnail: https://thmb.techidaily.com/c64aba238bf38e8dde6a455b091ef6dd75fa774a2
 
  How should we say “hello” in Chinese? 你好 nǐ hǎo is maybe the most well-known Chinese greeting. But surely, like in many other languages, 你好 nǐ hǎo is not_the only way_ to greet someone in Chinese. There must be different kinds of greetings you can use with friends and other people you are close to, formal greetings that are suitable for business meetings, slightly formal “hello”s you can say when entering a store and so on. Well, indeed, there are! The [Chinese language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is just as rich in greetings as any other language. So, let’s dive in and learn the best ways to say “hello” in Mandarin like a fluent speaker.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Let’s learn how to actually say “hello” in Mandarin Chinese
 
  The Mandarin “hello” is the “hello” that brings more than 1 billion people together. As you probably already know, Chinese is the most spoken language in the world, so learning how to say “hello” in Chinese is a pretty big deal for any avid language learner such as yourself, wouldn’t you say?
@@ -50,23 +30,13 @@ thumbnail: https://thmb.techidaily.com/c64aba238bf38e8dde6a455b091ef6dd75fa774a2
 
 ![mandarin hello](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mandarin-hello-1024x683.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Li River, China” by Sam Beasley©
 
  Now that you know the easiest and most popular way to say “hello” in Chinese, let’s move on to more advanced Mandarin Chinese greetings that are guaranteed to make you sound fluent.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 1\. 早！(zǎo) – “Morning!” in Chinese
 
@@ -78,23 +48,13 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 4\. 你吃了吗？(nǐ chī le ma) – “Have you eaten?”
 
@@ -102,39 +62,11 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  To answer to this greeting, you can say “chī le, nǐ ne?” which means “I’ve eaten, how about you?”.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 5\. 久仰 (jiǔyǎng) – a very formal Chinese greeting
 
  On your way to a business meeting where you’ll meet someone for the first time? Well, that’s the perfect moment to use this very formal Mandarin greeting.
 
  If you want something even MORE‌ formal than that, go with 久闻大名 (jiǔwéndàmíng) literally meaning “your name is famous” – a phrase which could translate to something like “I have heard much about you”. But only use this on very special occasions like meeting the president or a person you hold in very high regard.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 6\. 最近好吗？(zuì jìn hào mǎ) – “How are you these days?”
 
@@ -142,25 +74,19 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
 
- “Hello there!” by Theodor Lundqvist©
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
-
-
+ “Hello there!” by Theodor Lundqvist©
 
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
 
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. 下午好 (xiàwǔ hǎo) – “Good afternoon” in Chinese
 
@@ -169,6 +95,10 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
@@ -197,8 +127,6 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -206,16 +134,26 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-in-2024-bygone-brilliance-art-beyond-intellectual-property/"><u>[New] In 2024, Bygone Brilliance Art Beyond Intellectual Property</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-cutting-edge-instagram-analysis-platforms-for-smarter-metrics-management/"><u>[Updated] 2024 Approved Cutting-Edge Instagram Analysis Platforms for Smarter Metrics Management</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-flipboard-celebs-snapchat-reels/"><u>[Updated] 2024 Approved Flipboard Celebs' Snapchat Reels</u></a></li>
+<li><a href="https://win-answers.techidaily.com/accelerate-chrome-performance-with-easy-tricks/"><u>Accelerate Chrome Performance with Easy Tricks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eng-through-a-foreign-lens-language-adaptation/"><u>ENG Through a Foreign Lens: Language Adaptation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/erfahren-sie-die-deutschen-wochentage-in-deutscher-sprache/"><u>Erfahren Sie Die Deutschen Wochentage in Deutscher Sprache</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-insights-into-spanish-verb-conjugations/"><u>Essential Insights Into Spanish Verb Conjugations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/excellence-in-app-design-mondly-family-edition/"><u>Excellence in App Design - Mondly Family Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-to-fluency-basic-russian-for-every-traveler/"><u>First Steps to Fluency: Basic Russian for Every Traveler</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluently-french-your-key-vocabulary-list-for-exploring-france/"><u>Fluently French: Your Key Vocabulary List for Exploring France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-novel-selections-top-picks-for-new-language-learners/"><u>French Novel Selections: Top Picks for New Language Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fan-to-fluent-speaker-learn-korean-play-squid-game/"><u>From Fan to Fluent Speaker: Learn Korean, Play Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fundacion-danny-from-colombia-providing-assistance-to-those-who-need-it-most/"><u>Fundación Danny From Colombia: Providing Assistance To Those Who Need It Most</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-5-best-apps-blending-visual-storytelling-and-music/"><u>In 2024, 5 Best Apps Blending Visual Storytelling & Music</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-switch-showdown-top-10-arcade-combat-classics/"><u>In 2024, Switch Showdown Top 10 Arcade Combat Classics</u></a></li>
+<li><a href="https://extra-support.techidaily.com/premium-picks-top-macpc-bd-players-and-codecs-for-2024/"><u>Premium Picks Top Mac/PC BD Players and Codecs for 2024</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/top-5-showbox-substitutes-premium-list-of-free-streaming-services-for-movies-and-tv/"><u>Top 5 ShowBox Substitutes: Premium List of Free Streaming Services for Movies & TV</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-editor-picked-technology-gadgets-according-to-zdnet/"><u>Top Editor-Picked Technology Gadgets According to ZDNet</u></a></li>
+</ul></div>
 

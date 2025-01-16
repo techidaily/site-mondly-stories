@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Compendium of Basic Russian Dialogues
-date: 2025-01-07T19:42:02.125Z
-updated: 2025-01-10T17:07:20.821Z
+date: 2025-01-09T02:35:15.852Z
+updated: 2025-01-16T10:26:11.632Z
 tags:
   - speak
   - english
@@ -69,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/a6af875fb6cb15aafd717b61af0a7acb112fadf86
 * Where are you from? –_Откуда ты? – Otkuda ty?_
 * Have a good day. –_Ну тогда до свидания. – Nu togda do svidaniya._
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Useful Russian phrases for when you are at the airport
 
  Arriving at the airport – both at the beginning and at the end of your journey – will also require some basic Russian phrases. Whether we are talking about small talk with the person sitting next to you on the airplane, passport verification or asking for directions, these Russian phrases will definitely have your back in any situation.
@@ -93,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/a6af875fb6cb15aafd717b61af0a7acb112fadf86
 * Is this seat taken? –_Это место свободно? – Eto mesto svobodno?_
 * I would like to change my seat. –_Я хотел бы пересесть. – Ya hotel by peresest._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Common Russian phrases for travelers who need help
 
  How do you say_where is The Red Square_ in Russian? How do you say_can you help me_ in Russian? How do you say_where is a pharmacy_ in Russian? – these are all valid questions that pop up in the traveler’s mind and by the time the plane lands, you should know the correct answer to them.  
@@ -111,10 +111,6 @@ thumbnail: https://thmb.techidaily.com/a6af875fb6cb15aafd717b61af0a7acb112fadf86
 
 ![learn russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/learn-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Photo by A.L.
 
 * Where can I buy tickets? –_Где здесь можно купить билеты? – Gde zdes mozhno kupit bilety?_
@@ -127,6 +123,10 @@ thumbnail: https://thmb.techidaily.com/a6af875fb6cb15aafd717b61af0a7acb112fadf86
 * Please wait a moment. – _Пожалуйста, подождите чуть-чуть. – Pozhaluysta, podozhdite chut-chut._
 * I’ll be back immediately. –_Я скоро вернусь. – Ya skoro vernus._
 * Drive me to this address. –_Отвезите меня по этому адресу. – Otvezite menya po etomu adresu_ .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Advanced Russian phrases for different hotel situations
 
@@ -171,6 +171,10 @@ thumbnail: https://thmb.techidaily.com/a6af875fb6cb15aafd717b61af0a7acb112fadf86
 
 ![useful-russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-words-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Photo by Henrique Félix
 
 * I would like a dessert. –_Я хотел бы десерт. Ya hotel by desert._
@@ -178,6 +182,10 @@ thumbnail: https://thmb.techidaily.com/a6af875fb6cb15aafd717b61af0a7acb112fadf86
 * We would like to have lunch. –_Мы хотели бы пообедать. – My hoteli by poobedat._
 * We would like to have dinner. –_Мы хотели бы поужинать. – My hoteli by pouzhynat._
 * What would you like for breakfast? –_Что бы вы хотели на завтрак? – Chto by vy hoteli na zavtrak?_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Russian for travelers who want to have fun
 
@@ -203,10 +211,6 @@ Just joking. Still is an amazing drink, though!
 * Let’s have some fun. –_Повеселимся! – Poveselimsya!_
 * Are there seats available? –_Ещё остались свободные места? – Yeshcho ostalis svobodnyye mesta?_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. Basic Russian phrases for shopping sprees
 
  This is the cruelest drudgery our loved ones from home put us through while on holiday. _Should I buy a matryoshka doll? Or some vodka? Maybe a refrigerator magnet? But when? What if I don’t buy anything? Will they hate me for life?_ Funny or not, these are all questions that haunt us while on holiday. The best solution? Schedule two hours tops and just get it over with. The same way you would do with a bandage.
@@ -223,10 +227,6 @@ Just joking. Still is an amazing drink, though!
 * What would you like? –_Что вы предпочитаете? – Chto vy predpochitayete?_
 * Can I have some ice cream? –_Можно мне мороженого? – Mozhno mne morozhenogo?_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 8\. Russia Travel Guide – how to say that you have fallen in love?
 
  If you learn how to master these next phrases, you will definitely be getting your travel vocabulary to the next level.  
@@ -242,10 +242,6 @@ Just joking. Still is an amazing drink, though!
 
 ![common-russian-phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/07/common-russian-phrases-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 10")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Photo by Greg Rakozy
 
 * May I hold your hand? –_Можно взять тебя за руку? – Mozhno vzyat tebya za ruku?_
@@ -257,12 +253,16 @@ Just joking. Still is an amazing drink, though!
 * Would you like to have dinner with me? –_Поужинаем вместе? – Pouzhynayem vmeste?_
 * I love you. – Я люблю тебя. –_Ya lyublyu tebya._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus: Basic Russian phrases for football lovers
 
 ![russian-phrases-world-cup](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-phrases-world-cup-1024x576.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 11")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Photo by Fauzan Saari
@@ -303,20 +303,21 @@ Just joking. Still is an amazing drink, though!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-launching-educator-channels-10-key-tips-for-youtube-success/"><u>[New] Launching Educator Channels 10 Key Tips for YouTube Success</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-discreet-audio-modulation-strategies-with-audacity/"><u>[Updated] Discreet Audio Modulation Strategies with Audacity</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/babeldubai-2020-revolutionizing-global-communication/"><u>BabelDubai 2020: Revolutionizing Global Communication</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/black-friday-deals-dive-into-language-learning-at-a-steal/"><u>Black Friday Deals: Dive Into Language Learning at a Steal!</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/charting-a-course-through-public-domain-landmarks/"><u>Charting a Course Through Public Domain Landmarks</u></a></li>
-<li><a href="https://windows11.techidaily.com/covertly-masking-taskbars-language-feature-in-win11/"><u>Covertly Masking Taskbar's Language Feature in Win11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-the-upsides-of-speaking-german-top-10/"><u>Discover the Upsides of Speaking German (Top 10)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embracing-change-celebrating-ten-years-at-mondly/"><u>Embracing Change, Celebrating Ten Years at Mondly</u></a></li>
-<li><a href="https://some-tips.techidaily.com/enjoy-your-meta-quest-3r-access-and-enjoy-apples-immersive-3d-spatial-video-experience-a-step-by-step-guide/"><u>Enjoy Your Meta Quest 3R: Access and Enjoy Apple's Immersive 3D Spatial Video Experience - A Step-by-Step Guide</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/innovative-autodoc-strategies-for-microsoft-word-enthusiasts/"><u>Innovative AutoDoc Strategies for Microsoft Word Enthusiasts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581435720-invest-in-yourself-lifetime-access-for-just-pennies/"><u>Invest in Yourself: Lifetime Access for Just Pennies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580883532-learn-bengali-online-in-just-10-minutes-a-day/"><u>Learn Bengali Online In Just 10 Minutes A Day</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/pro-video-illumination-top-strategies-for-immaculate-cinematography/"><u>Pro Video Illumination Top Strategies for Immaculate Cinematography</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-iphone-xs-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone XS Data From iOS iTunes | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/why-im-choosing-the-new-iphone-16-pro-mini-over-the-iphone-16-pro-max-insights/"><u>Why I'm Choosing the New iPhone 16 Pro (Mini) Over the iPhone 16 Pro Max - Insights</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-fast-and-easy-guide-how-to-set-up-snapchat-on-a-mac-for-2024/"><u>[New] Fast & Easy Guide How to Set up Snapchat on a Mac for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-windows-11-discover-new-apps-and-games-now/"><u>[New] In 2024, Windows 11 Discover New Apps & Games Now</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-vid-recorders-vault-top-techniques-for-tv-streaming-for-2024/"><u>[New] Vid-Recorder's Vault Top Techniques for TV Streaming for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-supercharge-your-tweet-views-for-flawless-hd/"><u>[Updated] In 2024, Supercharge Your Tweet Views for Flawless HD</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-no-more-watermarks-iphones-and-tiktok-downloads/"><u>2024 Approved No More Watermarks IPhones and TikTok Downloads</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-prime-collage-apps-for-android-lovers/"><u>2024 Approved Prime Collage Apps for Android Lovers</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-comprehensive-guide-to-ultimate-video-editing-vivacut-24-edition/"><u>2024 Approved The Comprehensive Guide to Ultimate Video Editing VivaCut '24 Edition</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/from-lurker-to-influencer-enhancing-your-facebook-experience/"><u>From Lurker to Influencer Enhancing Your Facebook Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-weekdays-eine-sprachubung/"><u>German Weekdays: Eine Sprachübung</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-samsung-galaxy-a34-5g-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Samsung Galaxy A34 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israelian-journey-essentials-must-know-guide-and-dialogue-tools/"><u>Israelian Journey Essentials: Must-Know Guide & Dialogue Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/propelled-progress-the-role-of-ai-in-scholarly-pursuits/"><u>Propelled Progress: The Role of AI in Scholarly Pursuits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-alluring-saga-and-advantages-of-persian-study/"><u>The Alluring Saga and Advantages of Persian Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-way-to-learn-french-at-home/"><u>The Best Way to Learn French at Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-sweet-speech-guide-to-chocolate-in-many-languages/"><u>The Sweet Speech Guide to Chocolate in Many Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/when-and-where-do-countries-celebrate-thanksgiving/"><u>When and Where Do Countries Celebrate Thanksgiving?</u></a></li>
 </ul></div>
 

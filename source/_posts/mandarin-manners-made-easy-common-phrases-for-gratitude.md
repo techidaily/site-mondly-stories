@@ -1,7 +1,7 @@
 ---
 title: "Mandarin Manners Made Easy: Common Phrases for Gratitude"
-date: 2024-09-10T13:24:51.461Z
-updated: 2024-09-11T13:24:51.461Z
+date: 2025-01-09T16:16:03.631Z
+updated: 2025-01-15T21:05:31.743Z
 tags:
   - speak
   - english
@@ -22,26 +22,6 @@ thumbnail: https://thmb.techidaily.com/f7921a39c56c18854a738fb18f72fdf7d073d9479
 
  **So here are 12 of the most important ways to say thank you in Chinese.**
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 1\. Xièxiè – the most common Chinese thanks
 
  As already mentioned, **the most common way to say “thanks” or “thank you” in Chinese is_xièxiè_ (谢谢) or_xièxie._**  A rough [Chinese pronunciation](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) of that is_syeh-syeh,_ but while it sounds like the same words repeated twice, there is actually a very subtle difference between the two. Because the first syllable is a fourth tone and the second is a neutral, you should start the pronunciation high with the first syllable and then say the second one more lightly and without any emphasis.
@@ -58,21 +38,15 @@ thumbnail: https://thmb.techidaily.com/f7921a39c56c18854a738fb18f72fdf7d073d9479
 
 ![thanks in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/thanks-in-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 2")
 
- “Xiangxi, China” by Theodor Lundqvist©
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
+ “Xiangxi, China” by Theodor Lundqvist©
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Thank you very much in Chinese
 
@@ -91,19 +65,9 @@ Other variations include:
 * (I’m) really grateful! – 非常感谢你!_Fēi cháng gǎn xiè nǐ!_ (slightly more formal than the previous)
 * Thank you SO much! – 太谢谢你了! –_Tài xiè xiè nǐ le!_
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## 3\. Thank you for… in Chinese
 
@@ -120,35 +84,11 @@ Other variations include:
 
 ![xiexie chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/xiexie-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 3")
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  “Jiaxing, China” by Jay©
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## 4\. Other ways to express your gratitude in Chinese
 
@@ -169,19 +109,9 @@ Other variations include:
 
 ---
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### Here’s how to speak Chinese in just 10 minutes a day
 
@@ -201,8 +131,6 @@ Other variations include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -210,16 +138,26 @@ Other variations include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-perfecting-sound-design-for-canva-video-templates/"><u>[New] Perfecting Sound Design for Canva Video Templates</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-samsung-galaxy-s23-tactical-edition-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Samsung Galaxy S23 Tactical Edition to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-with-locals-understanding-indonesian-salutations/"><u>Engaging with Locals: Understanding Indonesian Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-multilingual-skills-via-researched-musical-techniques/"><u>Enhance Multilingual Skills via Researched Musical Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-terms-and-policies-unveiled/"><u>Enhanced Terms and Policies Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-top-5-linguistic-software-for-instructors/"><u>Essential Top 5 Linguistic Software for Instructors</u></a></li>
+<li><a href="https://techtrends.techidaily.com/everything-you-need-to-know-about-netflixs-online-video-services/"><u>Everything You Need To Know About Netflix's Online Video Services</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/excellence-in-e-learning-mondly-sets-the-standard/"><u>Excellence in E-Learning: Mondly Sets the Standard</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-benefits-of-learning-croatian-here-are-the-top-7-for-you/"><u>Explore the Benefits of Learning Croatian – Here Are The Top 7 For You!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/faster-fluency-cognitive-strategies-for-effortless-language-acquisition/"><u>Faster Fluency: Cognitive Strategies for Effortless Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-proficient-russian-numeral-acquisition/"><u>From Novice to Proficient: Russian Numeral Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-playgrounds-to-classrooms-spanish-for-kids/"><u>From Playgrounds to Classrooms: Spanish for Kids</u></a></li>
+<li><a href="https://win11.techidaily.com/guide-successful-video-streaming-on-google-chrome/"><u>Guide: Successful Video Streaming on Google Chrome</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/high-def-gaming-gpu-recommendations/"><u>High-Def Gaming GPU Recommendations</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-xiaomi-13-ultra-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Xiaomi 13 Ultra Face Lock?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-14-plus-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 14 Plus? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-transform-your-feed-a-comprehensive-guide-to-videos/"><u>In 2024, Transform Your Feed A Comprehensive Guide to Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/iphone-hdr-basics-for-everyday-shooting-enthusiasts-for-2024/"><u>IPhone HDR Basics for Everyday Shooting Enthusiasts for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-artificial-intelligence-prompt-design-a-guide-to-future-job-prospects/"><u>Understanding Artificial Intelligence Prompt Design: A Guide to Future Job Prospects</u></a></li>
+</ul></div>
 

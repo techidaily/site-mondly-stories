@@ -1,7 +1,7 @@
 ---
 title: Master Catalan Quickly with Daily Dips
-date: 2025-01-06T16:16:23.255Z
-updated: 2025-01-10T18:59:36.189Z
+date: 2025-01-14T06:47:07.654Z
+updated: 2025-01-15T21:40:34.778Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
  Consisting of super fun, efficient and accessible language lessons, the new Catalan course is now available on [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4538&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca) ,[Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4538&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca) and [web](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4538&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Catalan language in a nutshell
@@ -43,13 +43,13 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
 ![learn catalan language](https://edge.mondly.com/blog/wp-content/uploads/2020/03/learn-catalan-language-1-277x600.jpg "Learn Catalan Online In Just 10 Minutes A Day 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Learn Catalan with Mondly
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where is Catalan spoken?
@@ -61,7 +61,7 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
  Additionally, the Catalan language is also recognized as a minority language in Alghero (Sardinia, Italy), Aragon (Spain) and in the Pyrénées-Orientales department of France. These regions are often called Països Catalans (Catalan Countries).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Catalan vs Spanish
@@ -80,7 +80,7 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn Catalan online with Mondly
@@ -108,24 +108,18 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-crafting-gentle-sound-declines-with-logic-pro/"><u>[New] 2024 Approved Crafting Gentle Sound Declines with Logic Pro</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-gamers-rejoice-mavic-air-vs-sparks-duel-explored/"><u>[New] Gamers Rejoice! Mavic Air Vs. Spark's Duel Explored</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-high-fidelity-portals-to-ps3-gaming-on-pcs/"><u>[Updated] 2024 Approved High-Fidelity Portals to Ps3 Gaming on PCs</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-mac-enthusiasts-take-on-screenflow-software-review/"><u>[Updated] In 2024, Mac Enthusiast's Take on ScreenFlow Software Review</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/affordable-setups-tailored-obs-for-budget-computers-for-2024/"><u>Affordable Setups Tailored OBS for Budget Computers for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/commemorating-1500-no-cost-everyday-learning-sessions/"><u>Commemorating 1,500 No-Cost Everyday Learning Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhanced-travel-experiences-with-language-mastery/"><u>Enhanced Travel Experiences with Language Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-teach-english-as-a-second-language/"><u>How to Teach English as a Second Language</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-on-your-iphone-12-pro-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID On your iPhone 12 Pro without Security Questions?</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-credit-card-on-your-apple-iphone-8-plus-apple-id-and-apple-pay-by-drfone-ios/"><u>In 2024, How to Change Credit Card on Your Apple iPhone 8 Plus Apple ID and Apple Pay</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-the-ultimate-guide-to-metaverse-laughter/"><u>In 2024, The Ultimate Guide to Metaverse Laughter</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/joint-endeavor-mondly-pearson-button-filters-elevation/"><u>Joint Endeavor: Mondly-Pearson Button Filters Elevation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577339220-norwegian-skills-surge-10-minute-mini-marathons/"><u>Norwegian Skills Surge, 10-Minute Mini-Marathons!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pronunciation-patchwork-unraveling-irish-aussie-and-us-accents/"><u>Pronunciation Patchwork: Unraveling Irish, Aussie, and U.S. Accents</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-blueprint-mastering-a-language-through-the-web/"><u>The Ultimate Blueprint: Mastering a Language Through the Web</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/together-we-learn-mondlys-language-course-drive/"><u>Together, We Learn: Mondly’s Language Course Drive</u></a></li>
-<li><a href="https://win-help.techidaily.com/top-5-tools-for-efficient-management-of-android-data-without-using-samsung-kies/"><u>Top 5 Tools for Efficient Management of Android Data Without Using Samsung Kies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/un-viaje-intrigante-al-cuerpo-humano-en-espanol-de-la-boca-al-subterraneo/"><u>Un Viaje Intrigante Al Cuerpo Humano en Español: De La Boca Al Subterráneo</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unleash-joy-and-sadness-with-these-10-best-ig-meme-communities-for-2024/"><u>Unleash Joy and Sadness with These 10 Best IG Meme Communities for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-cutting-edge-cinema-from-the-past-a-guide-to-80s-vhs-effects-in-film-editing/"><u>[New] 2024 Approved Cutting-Edge Cinema From the Past A Guide to 80S VHS Effects in Film Editing</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-evaluating-wirecast-other-options-to-consider/"><u>[New] Evaluating WireCast Other Options To Consider</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-hps-color-expertise-in-full-display-the-z32x-review/"><u>[Updated] HP's Color Expertise in Full Display The Z32X Review</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-tecno-spark-10-pro-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Tecno Spark 10 Pro Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-semaine-francaise-comprendre-les-mots/"><u>La Semaine Française: Comprendre Les Mots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-to-perfectly-articulate-ru-letters/"><u>Learn to Perfectly Articulate RU Letters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-turkish-writing-and-speech-quick-guide-to-its-phonetics/"><u>Mastering Turkish Writing & Speech: Quick Guide to Its Phonetics</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/repair-corrupt-video-files-on-mac-best-methods/"><u>Repair Corrupt Video Files on Mac [Best Methods]</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-your-hp-laptop-webcam-issues-in-windows-11/"><u>Solving Your HP Laptop Webcam Issues in Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speed-in-language-acquisition-theoretical-and-practical-views/"><u>Speed in Language Acquisition: Theoretical & Practical Views</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/top-7-icloud-activation-bypass-tools-for-your-apple-iphone-14-by-drfone-ios/"><u>Top 7 iCloud Activation Bypass Tools For your Apple iPhone 14</u></a></li>
+<li><a href="https://win-popular.techidaily.com/windows-defender-and-ransomware-prevention-can-it-keep-you-safe-learn-more-at-yl-software-blog/"><u>Windows Defender and Ransomware Prevention: Can It Keep You Safe? Learn More at YL Software Blog</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/synapseis-eyxes-politikhs-gkreman/"><u>Συνάψεις Ευχές Πολιτικής Γκρεμάν</u></a></li>
 </ul></div>
 

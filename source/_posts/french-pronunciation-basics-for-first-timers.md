@@ -1,7 +1,7 @@
 ---
 title: French Pronunciation Basics for First-Timers
-date: 2024-09-10T13:28:00.189Z
-updated: 2024-09-11T13:28:00.189Z
+date: 2025-01-10T05:37:32.622Z
+updated: 2025-01-16T03:36:47.354Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/2dd2e24a58c5be887d5c8f88ca29fd663a35485ed
 
  There’s no need to worry, though. As you yourself find French difficult to pronounce, French people sometimes find English hard to pronounce. Luckily, with the right training, speaking French can be as simple as saying [_bonjour_](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or _de rien_ (that’s [_you’re welcome_ in French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## An introduction to French sounds & French pronunciation
 
 The same as English, [French](https://en.wikipedia.org/wiki/French%5Flanguage)  uses the 26-letter basic Latin script, with four diacritics appearing on vowels – circumflex accent, acute accent, grave accent, diaeresis – and the cedilla in “ç”.
@@ -40,37 +44,13 @@ To help you get started with the _magique_  French sounds, we put together this 
 
 ![french pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/french-pronunciation-600x600.jpg "Quick Guide To French Pronunciation - How To Speak French Like A Native 2")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
  French pronunciation in a nutshell
 
  It’s not a 100% faithful transliteration of French sounds, but neither can it be. As you already saw, there are many French sounds that don’t exist in English, so we’ll have to improvise. Don’t worry, though. Read on and you’ll discover how to correctly pronounce some of the most difficult of them. Remember, we’re only focusing on pronunciation, not [F rench grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) here. We’ll tackle that in the next [French lessons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## The most common French pronunciation challenges and how to overcome them
 
@@ -86,19 +66,9 @@ To help you get started with the _magique_  French sounds, we put together this 
 
 Repeat the phrase **_regardez mon frère_** and find out where right now.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### “u”, “eu” and “ue” in French
 
@@ -118,20 +88,6 @@ Repeat the phrase **_regardez mon frère_** and find out where right now.
 
  To practice the pronunciation of “in”, ”ain” or ”eint”, start saying the word “clang” and stop just before your throat closes into the “ng” sound. Now, try again without the “kl” sound in the beginning. It’s easy!
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### ë, è, é and ê
 
  There are so many “e”s in French! How are they actually pronounced? Well, let’s see.
@@ -145,6 +101,10 @@ _**é**_ is pronounced the same way you pronounce it in the English word “may�
 **_ê_** is pronounced the same way as _**è** ._
 
 Well, not very different from each other, are they?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The silent letters
 
@@ -163,26 +123,6 @@ Well, not very different from each other, are they?
 
 ![french buildings](https://edge.mondly.com/blog/wp-content/uploads/2020/05/french-buildings-960x640.jpg "Quick Guide To French Pronunciation - How To Speak French Like A Native 3")
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  “French buildings” by Orlova Maria©
 
 ## What are French liaisons and how to master them?
@@ -195,19 +135,9 @@ To put it simply, _French liaisons_  or French connecting sounds bind together t
 
 Now, some of these _liaisons_  are optional, others are required, and some are forbidden (or, if you liked the well-known novel [_Les liaisons dangereuses_](https://en.wikipedia.org/wiki/Les%5FLiaisons%5Fdangereuses)  , you can simply say they are dangerous to use). Let’s get into a little more detail.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### Required French liaisons
 
@@ -230,19 +160,9 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
 
  \*_h aspiré_ is different from h muet (“mute h”). It’s true that in French “h” is always a silent letter. However, in Old and Middle French, on certain words, the “h” was pronounced. This is why, if you want to say_les hôpitaux_  (“hospitals”), there is a_liaison_  between the two words because the “h” is_muet_  and not_aspiré._
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### Optional French liaisons
 
@@ -255,20 +175,6 @@ Now, some of these _liaisons_  are optional, others are required, and some are f
 ![interior versailles palace](https://edge.mondly.com/blog/wp-content/uploads/2020/05/interior-versailles-palace-1-960x640.jpg "Quick Guide To French Pronunciation - How To Speak French Like A Native 4")
 
  “Versailles Palace, France” by Louis Paulin©
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to perfect your French pronunciation
 
@@ -305,8 +211,6 @@ _Bonne chance!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -314,16 +218,22 @@ _Bonne chance!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-is-optimal-hdr-with-aurora-worth-it/"><u>[New] 2024 Approved Is Optimal HDR with Aurora Worth It?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-chuckle-factory-designing-7-video-ideas-for-humorists-for-2024/"><u>[New] Chuckle Factory Designing 7 Video Ideas for Humorists for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-zero-to-youtube-pros-creating-an-account-rightly-for-2024/"><u>[New] From Zero to YouTube Pros Creating an Account Rightly for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-the-final-showdown-is-obs-studio-superior-to-bandicam/"><u>[New] The Final Showdown Is OBS Studio Superior to Bandicam?</u></a></li>
+<li><a href="https://app-tips.techidaily.com/1-insightful-analysis-unveiling-the-challenges-of-leveraging-generative-ai-in-business-key-findings-from-deloittes-latest-study/"><u>1. Insightful Analysis: Unveiling the Challenges of Leveraging Generative AI in Business - Key Findings From Deloitte's Latest Study</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-transform-your-tiktok-videos-immediate-backdrop-changes-explored/"><u>2024 Approved Transform Your TikTok Videos Immediate Backdrop Changes Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-learn-norwegian-bokmal-fast-in-just-10-minutes-a-day/"><u>How to Learn Norwegian (Bokmål) Fast in Just 10 Minutes a Day</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hts-into-income-average-earnings-per-advertisement-playback-in-2024/"><u>Insights Into Income Average Earnings per Advertisement Playback, In 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-global-speech-functionality-in-oculus-quest-via-mondly/"><u>Introducing Global Speech Functionality in Oculus Quest via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/preparing-for-your-israeli-sojourn-5-tips-and-language-basics/"><u>Preparing for Your Israeli Sojourn: 5 Tips & Language Basics</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/say-no-more-to-shimmering-displays/"><u>Say No More to Shimmering Displays</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-into-a-multilingual-universe-with-mondlys-cutting-edge-vr-app/"><u>Step Into a Multilingual Universe with Mondly's Cutting-Edge VR App</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-from-iphone-se-2022-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock From iPhone SE (2022) You Should Try Out</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-25-german-idioms-to-speak-like-a-germanback-buttonfilter-button/"><u>Top 25 German Idioms To Speak Like A GermanBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-enabled-language-education-takes-off-with-mondlys-new-app/"><u>VR-Enabled Language Education Takes Off with Mondly's New App</u></a></li>
+</ul></div>
 

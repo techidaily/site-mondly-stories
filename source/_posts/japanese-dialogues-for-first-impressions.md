@@ -1,7 +1,7 @@
 ---
 title: Japanese Dialogues for First Impressions
-date: 2025-01-06T19:20:41.363Z
-updated: 2025-01-10T19:43:59.421Z
+date: 2025-01-14T17:19:23.885Z
+updated: 2025-01-15T19:04:52.797Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/a297ffbc354d264eb1493e128ad67218845cfbc00
 
  Learning as much as a simple **_Konnichiwa_ (“hello” in Japanese)** or **_Arigato_ (“thank you” in Japanese)** can work wonders. So here’s a guide to all the**Japanese greetings** you’ll need in your Japanese adventure: from**“hello” in Japanese** to**_Moshi Moshi_** (used to say “hello” on the phone), goodbye and other**common Japanese greetings.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. “Hello” in Japanese
 
  If you ever watched at least one anime series, you probably already know this: **“hello” in Japanese is_Konnichiwa_ .** Rings any bell? It most probably does since**_Konnichiwa_** is undeniably the most**common Japanese greeting.** Thanks to some of the most influential anime of all time such as Dragon Ball Z, Death Note, and Naruto, a lot of people living outside Japan know at least a few [**words in Japanese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and_Konnichiwa_ is definitely one of them.
@@ -39,10 +35,6 @@ thumbnail: https://thmb.techidaily.com/a297ffbc354d264eb1493e128ad67218845cfbc00
 
 ![honnichiwa](https://edge.mondly.com/blog/wp-content/uploads/2019/08/honnichiwa-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Kyoto, Japan” by Sorasak©
 
  If you have to write**“hello” in Japanese,** there are two ways to do it (three if you also count in Romaji – the romanization of the [Japanese writing](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) system):
@@ -54,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/a297ffbc354d264eb1493e128ad67218845cfbc00
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
@@ -79,10 +71,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3.“Goodbye” in Japanese
 
  Another greeting we borrowed from the Japanese and sometimes use in our day-to-day conversations in English is**_Sayōnara_** (さよなら), a greeting that carries the connotation of farewell and translates to “goodbye”.
@@ -100,7 +88,15 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “See you soon, human” by Alain Pham©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -126,6 +122,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Kyoto, Japan” by Andre Benz©
 
 ## Don’t forget about the Japanese bow
@@ -143,10 +143,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -168,6 +164,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -201,19 +201,16 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-transforming-images-on-snapchat-an-editors-playbook/"><u>[New] In 2024, Transforming Images on Snapchat An Editor's Playbook</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-warmth-in-visuals-ideal-winter-backgrounds-for-youtube/"><u>[New] In 2024, Warmth in Visuals Ideal Winter Backgrounds for YouTube</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-the-ultimate-guide-to-flawless-remote-recording-experience/"><u>2024 Approved The Ultimate Guide to Flawless Remote Recording Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beginners-manual-learn-chinese-common-phrases/"><u>Beginner's Manual: Learn Chinese Common Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cross-cultural-loanwords-in-contemporary-english/"><u>Cross-Cultural Loanwords in Contemporary English</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/exploring-the-new-frontier-a-comparative-study-on-tiktok-and-triller-for-2024/"><u>Exploring the New Frontier A Comparative Study on TikTok & Triller for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/full-screen-mode-enhancing-fb-videos/"><u>Full-Screen Mode Enhancing Fb Videos</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-poco-c65-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Poco C65 Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/migraje-eficiente-y-simple-pasos-para-cambiar-de-correo-electronico-desde-hotmail-hacia-gmail/"><u>Migraje Eficiente Y Simple: Pasos Para Cambiar De Correo Electrónico Desde Hotmail Hacia Gmail</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-new-help-and-inquiry-resource/"><u>Mondly Unveils New Help and Inquiry Resource</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ease-behind-kids-embracing-second-languages/"><u>The Ease Behind Kids Embracing Second Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/triple-threat-education-networks-language-learning-for-all-ages/"><u>Triple Threat Education Networks: Language Learning for All Ages!</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unveiling-8-honest-video-promotion-services-for-2024/"><u>Unveiling 8 Honest Video Promotion Services for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/xcom-2-stability-issues-fixing-game-crashes-on-windows-platforms/"><u>XCOM 2 Stability Issues: Fixing Game Crashes on Windows Platforms</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-digital-broadcasting-made-simple-your-essential-guide-to-4-recording-tips/"><u>[New] 2024 Approved Digital Broadcasting Made Simple Your Essential Guide to 4 Recording Tips</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-cutting-edge-creatives-on-your-feed/"><u>[New] The Cutting-Edge Creatives on Your Feed</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-xiaomi-redmi-note-12r-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Xiaomi Redmi Note 12R Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ehensive-strategies-for-swiftly-clearing-feedback/"><u>Comprehensive Strategies for Swiftly Clearing Feedback</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-rhythms-an-energetic-learning-approach/"><u>Latin Rhythms: An Energetic Learning Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-latvian-fast-ten-minute-online-lessons-each-day/"><u>Master Latvian Fast: Ten-Minute Online Lessons Each Day</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/navigating-the-net-abroad-check-out-our-2024-guide-to-premium-travel-vpns-tested-by-pros-cnet/"><u>Navigating the Net Abroad? Check Out Our 2024 Guide to Premium Travel VPNs, Tested by Pros | CNET</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-updated-tandu-with-ease/"><u>Navigating the Updated T&U with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-top-francophone-countries-and-their-linguistic-statistics/"><u>The Top Francophone Countries and Their Linguistic Statistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-linguistic-quandaries-and-strategies-for-success/"><u>Top 9 Linguistic Quandaries & Strategies for Success</u></a></li>
 </ul></div>
 

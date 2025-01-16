@@ -1,7 +1,7 @@
 ---
 title: "Sprachkompetenz Aufbauend: Von Eins Bis Hundert Lernen"
-date: 2024-09-10T13:23:54.318Z
-updated: 2024-09-11T13:23:54.318Z
+date: 2025-01-13T01:02:24.312Z
+updated: 2025-01-16T00:25:52.077Z
 tags:
   - speak
   - english
@@ -20,25 +20,9 @@ thumbnail: https://thmb.techidaily.com/149d89db1d566f99ab4d551162b9bf69c95986fcd
 
  Besides, contrary to the popular belief that [German is hard to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , German numbers are actually easy to master. In fact, it’s just as easy to learn how to count in German as it is in English. Once you know how to count to 20, the rest of the numbers will follow a predictable pattern. So here’s an uncomplicated guide on how to count from 1 to 100 in German.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## German Numbers 1-10
 
@@ -60,20 +44,6 @@ thumbnail: https://thmb.techidaily.com/149d89db1d566f99ab4d551162b9bf69c95986fcd
 
  If you are not familiar with the [German pronunciation rules](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can watch this short video to hear how each number from 1 to 10 is pronounced:
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## German Numbers 11-20
 
  As it happens with several other languages, the numbers from 11 to 20 don’t yet follow the pattern we talked about. The same as in English, ‘eleven’ and ‘twelve’ are two rebels refusing to follow the crowd. Otherwise, all the other numbers are formed by bringing together the first four letters of the basic 3 to 9 numbers and the word_zehn_ meaning ‘ten’.
@@ -91,19 +61,9 @@ thumbnail: https://thmb.techidaily.com/149d89db1d566f99ab4d551162b9bf69c95986fcd
 * **nineteen —_neunzehn_**
 * **twenty —_zwanzig_**
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## German multiples of 10
 
@@ -126,39 +86,13 @@ Here are the multiples of 10 in German:
 
 ![count in german](https://edge.mondly.com/blog/wp-content/uploads/2022/08/count-in-german.png "German Numbers: Learn How To Count From 1 To 100 In German 2")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
-
-
-
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## How to count from 1 to 100 in German
 
@@ -188,19 +122,9 @@ Now let’s look at some examples to make sure you got it:
 
 ---
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### From 0 to 100 and beyond in German
 
@@ -224,8 +148,6 @@ Now let’s look at some examples to make sure you got it:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -233,16 +155,21 @@ Now let’s look at some examples to make sure you got it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-simplifying-the-process-of-creating-time-lapses-with-gopro/"><u>[New] 2024 Approved Simplifying the Process of Creating Time Lapses with GoPro</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-the-ultimate-hack-grabbing-gif-images-from-tweets/"><u>[New] 2024 Approved The Ultimate Hack Grabbing GIF Images From Tweets</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-top-8-best-zombie-games/"><u>[New] In 2024, Top 8 Best Zombie Games</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-from-live-action-to-digital-footage-gadget-guidebook/"><u>[Updated] 2024 Approved From Live Action to Digital Footage Gadget Guidebook</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-beginners-blueprint-for-online-content-simple-straightforward-video-projects/"><u>2024 Approved Beginner's Blueprint for Online Content Simple, Straightforward Video Projects</u></a></li>
+<li><a href="https://win-studio.techidaily.com/2024mp3maciphone/"><u>2024簡易指南：如何無縫將MP3文件自電腦或Mac移動至iPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-polyglot-commemoration-for-teaching-excellence/"><u>A Polyglot Commemoration for Teaching Excellence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aid-to-the-poorest-foundation-danny-colombia-way/"><u>Aid to the Poorest: Foundation Danny Colombia Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-connections-through-language-the-essence-of-bonjour/"><u>Cultural Connections Through Language: The Essence of 'Bonjour'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dannys-aid-network-in-colombia-strengthening-society/"><u>Danny's Aid Network in Colombia: Strengthening Society</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/decoding-digital-innovations-toms-critical-assessments-on-modern-computer-equipment/"><u>Decoding Digital Innovations: Tom's Critical Assessments on Modern Computer Equipment</u></a></li>
+<li><a href="https://win-studio.techidaily.com/fehlerbehebung-fur-den-fehlercode-0x80n4010f-problem-mit-dem-zugriff-auf-die-outlook-datendatei/"><u>Fehlerbehebung Für Den Fehlercode 0X80n.4010F – Problem Mit Dem Zugriff Auf Die Outlook-Datendatei</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578492484-master-uk-idioms-and-expressions-become-a-true-brit/"><u>Master UK Idioms & Expressions: Become a True Brit</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-capturing-screen-images-on-your-desktop/"><u>Step-by-Step Guide: Capturing Screen Images on Your Desktop</u></a></li>
+</ul></div>
 

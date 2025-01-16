@@ -1,7 +1,7 @@
 ---
 title: "Quick Start: Learn Urdu, Every Day"
-date: 2025-01-04T20:33:12.578Z
-updated: 2025-01-10T18:43:06.286Z
+date: 2025-01-12T07:01:50.695Z
+updated: 2025-01-16T01:05:10.653Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
  Consisting of super fun, effective and accessible Urdu lessons, the newly added course is now available on [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) ,[Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) and [web](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn Urdu online with Mondly
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
 ![urdu learning for beginners](https://edge.mondly.com/blog/wp-content/uploads/2020/03/urdu-learning-for-beginners-1-562x600.jpg "Learn Urdu Online In Just 10 Minutes A Day 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Learn Urdu with Mondly
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
  Moreover, in the 19th century, the Hindi–Urdu [controversy](https://en.wikipedia.org/wiki/Hindi%E2%80%93Urdu%5Fcontroversy) arose in colonial India. The debate was whether Hindi or Urdu should be chosen as a national language. In 1900, the government issued a decree granting symbolic equal status to both Hindi and Urdu. But then, Gandhi proposed using either Devanagari or Urdu script, under the traditional generic term Hindustani. Therefore, in 1950, Hindi, in the Devanagari script, along with English, replaced Urdu as one of the official languages of India.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn Urdu from Hindi, Arabic, English, Korean and more
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
  Starting right now, you can [learn Urdu](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4511&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4511?mother%5Flang=en%5Fus?target%5Flang=ur) from Hindi, Arabic, English, Korean and 29 other languages only with Mondly.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10 basic Urdu words and phrases you can learn right now
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Speak Urdu today
@@ -103,18 +103,24 @@ thumbnail: https://thmb.techidaily.com/d3d14caf519c1def322723a3dc59c24a3c8f8aede
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-battle-tested-selecting-the-supreme-7-fps/"><u>[New] In 2024, Battle Tested Selecting the Supreme 7 FPS</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-tiny-tycoons-car-contests-for-2024/"><u>[Updated] Tiny Tycoons' Car Contests for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-pro-tips-transforming-mundane-footage-into-epic-gopro-time-lapses/"><u>2024 Approved Pro Tips Transforming Mundane Footage Into Epic GoPro Time-Lapses</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-the-skaldic-odyssey-ragnarok-awakens/"><u>2024 Approved The Skaldic Odyssey Ragnarök Awakens</u></a></li>
-<li><a href="https://win11.techidaily.com/a-handy-guide-to-resolving-windows-filesystem-problems/"><u>A Handy Guide to Resolving Windows Filesystem Problems</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/crafting-captivating-unboxing-content-top-tips/"><u>Crafting Captivating Unboxing Content Top Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivating-eloquence-in-japanese-language/"><u>Cultivating Eloquence in Japanese Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-synergy-uniting-diverse-minds-and-ideas/"><u>Cultural Synergy: Uniting Diverse Minds and Ideas</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gentlemans-guide-to-glib-guesswork-with-spanish/"><u>Gentleman's Guide to Glib Guesswork with Spanish</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-easily-update-your-video-graphics-adapter-drivers-step-by-step/"><u>How to Easily Update Your Video Graphics Adapter Drivers – Step by Step</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-nokia-c12-pro-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Nokia C12 Pro</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multitask-language-mastery/"><u>Multitask Language Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/triumph-over-tribal-speeches-mastering-the-worlds-toughest-languages/"><u>Triumph Over Tribal Speeches: Mastering the World's Toughest Languages</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-6plus-software-choices-download-youtube-music-as-mp3-for-iphone-users/"><u>[New] 2024 Approved 6+ Software Choices Download YouTube Music as MP3 for iPhone Users</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-acoustic-amplification-of-social-media-content-on-facebook/"><u>[New] Acoustic Amplification of Social Media Content on Facebook</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-explore-12-prime-flip-screen-cameras-revolutionizing-vlogs/"><u>[New] In 2024, Explore 12 Prime Flip Screen Cameras Revolutionizing Vlogs</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-leading-open-source-20-best-pubg-images/"><u>[New] Leading Open Source 20 Best PUBG Images</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/1-kopfsteckertutorial-wie-man-iphon-videos-muhelos-auf-einem-dell-laptop-speichert/"><u>1. Kopfsteckertutorial: Wie Man iPhon-Videos Mühelos Auf Einem Dell-Laptop Speichert</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grecian-lexicon-historical-journey-and-modern-day-importance/"><u>Grecian Lexicon: Historical Journey & Modern Day Importance</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/how-to-make-and-convert-slow-motion-videos-on-iphone/"><u>How to Make and Convert Slow Motion Videos on iPhone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-lava-storm-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Lava Storm 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-swedish-letters-and-accents-swiftly/"><u>Learn Swedish Letters & Accents Swiftly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-tagalog-in-under-an-hour-join-today/"><u>Master Tagalog in Under an Hour - Join Today!</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210155097-9781071566947-megan-trekt-de-heuvels-in/"><u>Megan Trekt De Heuvels In | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-elite-unbeatable-ever-lasting-pricing/"><u>Mondly Elite: Unbeatable, Ever-Lasting Pricing!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unrivaled-language-mastery/"><u>Mondly: Unrivaled Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-vision-realized-educating-the-next-70-million-learners/"><u>Mondly's Vision Realized – Educating the Next 70 Million Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-the-heart-of-transylvania-our-app-guide/"><u>Speak the Heart of Transylvania: Our App Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tender-tongues-the-lore-of-love-in-french/"><u>Tender Tongues: The Lore of Love in French</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-tech-insights-a-deeper-dive-into-hardware/"><u>Tom's Tech Insights: A Deeper Dive Into Hardware</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unpacking-truthgpt-the-groundbreaking-project-by-elon-musk/"><u>Unpacking TruthGPT: The Groundbreaking Project by Elon Musk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-volleyball-international-words-serving-english/"><u>Vocabulary Volleyball: International Words Serving English</u></a></li>
 </ul></div>
 

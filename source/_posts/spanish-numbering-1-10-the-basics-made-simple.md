@@ -1,7 +1,7 @@
 ---
 title: "Spanish Numbering 1-10: The Basics Made Simple"
-date: 2024-09-10T13:26:19.643Z
-updated: 2024-09-11T13:26:19.643Z
+date: 2025-01-15T01:51:20.985Z
+updated: 2025-01-15T19:54:51.910Z
 tags:
   - speak
   - english
@@ -20,19 +20,9 @@ thumbnail: https://thmb.techidaily.com/657c6ed7c4c5009fda7b9debb5d0440f9ba124b99
 
  Learning how to count is crucial if you decide to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Although we may not always acknowledge it, numbers or_números_ (as you’d call them in Spanish) are essential to our day-to-day lives. From shopping to setting up a meeting, telling time, or giving someone your phone number – they really are one of the most basic and important language lessons. So let’s crack the mystery and discover what comes after_uno_ ,_dos,_ and_tres_ . Because Pitbull only gets us so far.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Spanish numbers 1 to 30
 
@@ -50,19 +40,9 @@ thumbnail: https://thmb.techidaily.com/657c6ed7c4c5009fda7b9debb5d0440f9ba124b99
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### Spanish numbers to 40
 
@@ -98,19 +78,9 @@ thumbnail: https://thmb.techidaily.com/657c6ed7c4c5009fda7b9debb5d0440f9ba124b99
 
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Count to 100 in Spanish
 
@@ -141,19 +111,9 @@ thumbnail: https://thmb.techidaily.com/657c6ed7c4c5009fda7b9debb5d0440f9ba124b99
 * 84 –_ochenta y cuatro_
 * 98 –_noventa y ocho_
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Spanish numbers to 1000 and beyond
 
@@ -192,25 +152,9 @@ Here are some more examples:
 
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
  Barcelona, Spain
 
@@ -252,8 +196,6 @@ Here are some more examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -261,16 +203,26 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-broadcast-your-play-obs-studio-techniques/"><u>[New] In 2024, Broadcast Your Play - OBS Studio Techniques</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-microphone-data-review-tips/"><u>[New] In 2024, Microphone Data Review Tips</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-quick-ways-to-preserve-your-video-games/"><u>[New] In 2024, Quick Ways to Preserve Your Video Games</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-professional-tiktok-videos-with-strategic-zoom-use/"><u>[New] Professional TikTok Videos with Strategic Zoom Use</u></a></li>
+<li><a href="https://win-guides.techidaily.com/apple-users-advocate-for-touchscreen-macbooks-inspired-by-the-success-of-microsofts-surface-laptop-studio-insights-on-zdnet/"><u>Apple Users Advocate for Touchscreen MacBooks Inspired by the Success of Microsoft's Surface Laptop Studio - Insights on ZDNet</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/enhance-your-digital-pamphlets-with-unique-typography-using-flipbuilder/"><u>Enhance Your Digital Pamphlets with Unique Typography Using FlipBuilder</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fix-and-fortify-explore-crashes-in-win/"><u>Fix and Fortify: Explore Crashes in Win</u></a></li>
+<li><a href="https://windows11.techidaily.com/fixing-empty-directory-problem-microsofts-0x80070091-error-explained/"><u>Fixing 'Empty Directory' Problem - Microsoft's 0X80070091 Error Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-quest-exciting-classroom-experiences/"><u>Latin Quest: Exciting Classroom Experiences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lundi-a-vendredi-francais/"><u>Lundi À Vendredi Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-daily-urdu-learning-for-language-proficiency/"><u>Quick, Daily Urdu Learning for Language Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seven-triumphant-years-mondly-uniting-the-worlds-learners/"><u>Seven Triumphant Years: Mondly, Uniting the World’s Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stellar-data-recovery-win/"><u>Stellar Data Recovery Win 転送可能な無料データ復元ツール</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tecnicas-oralistas-para-colores-en-espanol/"><u>Técnicas Oralistas Para Colores en Español</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/test-microphone-windows-10-step-by-step/"><u>Test Microphone Windows 10 [Step by Step]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-vital-impact-of-ai-on-teaching-and-linguistic-progress/"><u>The Vital Impact of AI on Teaching and Linguistic Progress</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-12-prominent-oppo-find-x7-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Oppo Find X7 Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-global-opportunities-with-languages-after-forty-why-invest-in-multilingualism/"><u>Unlock Global Opportunities with Languages After Forty – Why Invest in Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-hangul-an-accessible-guide-to-asian-languages/"><u>Unlocking Hangul: An Accessible Guide to Asian Languages</u></a></li>
+</ul></div>
 

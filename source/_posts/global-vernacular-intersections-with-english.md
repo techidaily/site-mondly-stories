@@ -1,7 +1,7 @@
 ---
 title: Global Vernacular Intersections with English
-date: 2025-01-09T16:33:32.779Z
-updated: 2025-01-10T18:06:12.913Z
+date: 2025-01-08T21:11:50.610Z
+updated: 2025-01-15T18:04:46.948Z
 tags:
   - speak
   - english
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where did English Come From?
@@ -41,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
  Early Modern English began in the late 15th century with the Renaissance trend of borrowing Latin and Greek words and roots, which also coincided with the Great Vowel Shift. The era culminated in the King James Bible and the works of William Shakespeare.
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## English Words from Foreign Languages
 
@@ -77,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
 * **Transcription,** which means borrowing words while preserving their original pronunciation in the borrowed language;
@@ -85,16 +93,16 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -147,10 +155,6 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Italian loanwords: English words that are actually Italian
 
 | Zucchini  |
@@ -202,10 +206,6 @@ thumbnail: https://thmb.techidaily.com/6eaa3e36b8ce62866baa3f0397f35b108aa431d0b
 | Diesel       |
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
 
@@ -265,14 +265,14 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/2024-approved-inside-hand-tracking-techniques-and-varieties/"><u>2024 Approved Inside Hand Tracking Techniques & Varieties</u></a></li>
-<li><a href="https://windows11.techidaily.com/batch-folder-generation-in-windows-11-for-efficiency-boost/"><u>Batch Folder Generation in Windows 11 for Efficiency Boost</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/best-gaming-setups-in-small-packages-a-comprehensive-guide/"><u>Best Gaming Setups in Small Packages: A Comprehensive Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expert-guide-to-essential-93-spanish-terms-for-adventurers/"><u>Expert Guide to Essential 93 Spanish Terms for Adventurers</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/exploring-potential-clashes-between-your-antivirus-and-other-programs-guidance-by-yl-computing-specialists/"><u>Exploring Potential Clashes Between Your Antivirus and Other Programs – Guidance by YL Computing Specialists</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-low-saxon-to-modern-dutch-linguistics/"><u>From Low Saxon to Modern Dutch Linguistics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leverage-technology-for-business-excellence-via-apps/"><u>Leverage Technology for Business Excellence via Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580834568-start-conversing-like-a-pro-your-language-lesson-at-5-off/"><u>Start Conversing Like a Pro – Your Language Lesson at 5% Off</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/syncing-your-soundtrack-import-music-into-inshot-for-2024/"><u>Syncing Your Soundtrack Import Music Into InShot for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-inside-the-apeaksoft-revolution-discovering-new-tech-for-2024/"><u>[Updated] Inside the Apeaksoft Revolution Discovering New Tech for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/achieving-maximum-comfort-in-vr-landscape-for-2024/"><u>Achieving Maximum Comfort in VR Landscape for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transforming-rookie-marketers-into-pros-with-these-five-hacks/"><u>In 2024, Transforming Rookie Marketers Into Pros with These Five Hacks</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-intel-raid-drive-support-software-updates-for-windows-111087-users-download-now/"><u>Latest Intel RAID Drive Support Software Updates for Windows 11/10/8/7 Users: Download Now</u></a></li>
+<li><a href="https://techtrends.techidaily.com/leading-visual-voicemail-solutions-for-smartphones-2024-edition/"><u>Leading Visual Voicemail Solutions for Smartphones - 2024 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-wins-chairmans-award-at-2021-witsa-global-ict-excellence-awards/"><u>Mondly Wins Chairman’s Award at 2021 WITSA Global ICT Excellence Awards</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pasos-esenciales-para-lectura-de-tiempo-en-espanol/"><u>Pasos Esenciales Para Lectura De Tiempo en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearson-reimagines-gsl-with-mondly-for-maximum-accuracy/"><u>Pearson Reimagines GSL with Mondly for Maximum Accuracy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/supercharge-your-finnish-with-online-tutoring/"><u>Supercharge Your Finnish with Online Tutoring</u></a></li>
 </ul></div>
 

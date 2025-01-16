@@ -1,7 +1,7 @@
 ---
 title: "Hope Amidst Poverty: Colombia's Danny Fund"
-date: 2024-09-05T04:36:38.590Z
-updated: 2024-09-06T04:36:38.590Z
+date: 2025-01-09T23:01:07.677Z
+updated: 2025-01-16T08:13:22.059Z
 tags:
   - speak
   - english
@@ -14,12 +14,6 @@ keywords: Colombian Charity,Danny Fund Support,Poverty Alleviation Programs,Non-
 thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8653c2cec4d55484854e4b69.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Hope Amidst Poverty: Colombia's Danny Fund
 
  We, at Mondly, strongly believe that education can change the world for the better. This is why we pledged ourselves to give those who need it most the opportunity to learn languages with Mondly Premium for free.
@@ -28,12 +22,6 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
 ![fundacion danny mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/fundacion-danny-mondly-600x450.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 2")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Colombian children attending the Danny Foundation courses.
 
  Fundación Danny or Danny Foundation has been active since 2011 and its goal is to help children and young people from different places in Colombia to develop skills that can ensure a better future for them and their families. The foundation provides multiple courses from language learning to programming and even playing an instrument.
@@ -43,11 +31,9 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
  **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Unlocking the power of social good
 
  When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
@@ -55,17 +41,9 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 ![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Graduation at the Danny Foundation.
 
 > _Learning English in Colombia is not an easy task. Schools do teach English but just once or twice per week and sometimes the teachers themselves are not as competent as they should be. So Mondly is a great opportunity for our students to practice English every day._
@@ -82,11 +60,9 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Learn a new language in just 10 minutes a day
 
  If the story of the Colombian children from the Danny Foundation inspired you to invest in yourself, you can start learning a new language right now with Mondly.
@@ -105,8 +81,6 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -114,8 +88,23 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-cut-to-style-using-inshot-for-elegant-video-transitions-for-2024/"><u>[New] Cut to Style Using Inshot for Elegant Video Transitions for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-simplified-approach-to-crafting-xml-for-podcasts/"><u>[New] In 2024, Simplified Approach to Crafting XML for Podcasts</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-a-deep-dive-into-inshots-editing-proficiency/"><u>[Updated] A Deep Dive Into InShot's Editing Proficiency</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-uncharted-uprisings-decades-best-role-players/"><u>[Updated] Uncharted Uprisings Decade’s Best Role-Players</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-gaps-in-france-with-key-linguistic-tools/"><u>Bridging Gaps in France with Key Linguistic Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childhood-learning-leader-mondly-kids-honored-2017/"><u>Childhood Learning Leader: Mondly Kids Honored 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprehensive-list-of-10-common-spanish-salutations-and-greetings/"><u>Comprehensive List of 10 Common Spanish Salutations And Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/corinthian-chronicles-the-linguistic-odyssey-continues/"><u>Corinthian Chronicles: The Linguistic Odyssey Continues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-10-minute-commitment-to-latvian-mastery/"><u>Daily 10-Minute Commitment to Latvian Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciding-german-versus-french-proficiency-advantages/"><u>Deciding: German Versus French Proficiency Advantages</u></a></li>
+<li><a href="https://network-issues.techidaily.com/disable-blank-window-mode-on-win10/"><u>Disable Blank Window Mode on Win10</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-crucial-techniques-for-documenting-lol-wars/"><u>In 2024, Crucial Techniques for Documenting LOL Wars</u></a></li>
+<li><a href="https://article-files.techidaily.com/projected-expenses-for-bringing-songs-to-life-on-screen-for-2024/"><u>Projected Expenses for Bringing Songs to Life on Screen for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-the-mystery-of-stop-code-0x0000003d-a-comprehensive-guide/"><u>Resolving the Mystery of Stop Code 0X0000003D: A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578762872-triple-threat-education-networks-language-learning-for-all-ages/"><u>Triple Threat Education Networks: Language Learning for All Ages</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/in-or-out-tailoring-your-youtube-viewing-pace-for-2024/"><u>Zoom in or Out? Tailoring Your YouTube Viewing Pace for 2024</u></a></li>
+</ul></div>
 

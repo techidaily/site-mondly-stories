@@ -1,7 +1,7 @@
 ---
 title: "International Morning Chatter: Expressing Good Morning in 10 Languages"
-date: 2024-09-10T13:25:54.554Z
-updated: 2024-09-11T13:25:54.554Z
+date: 2025-01-12T11:26:27.808Z
+updated: 2025-01-15T23:13:28.254Z
 tags:
   - speak
   - english
@@ -31,25 +31,19 @@ thumbnail: https://thmb.techidaily.com/7ac5f26a6db87f846700248f8f73ccc48783db9e1
 
 _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) – one of the most common travel words around the world. Nothing breaks the cultural ice like a respectful greeting in the local language. This is why the ability to say good morning in different languages is a life skill that is well worth learning. Let’s dive in!
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## 1\. Good morning in Spanish:_¡Buenos días!_
 
 **_Buenos días_ literally means “good days”, but it is used to say “good morning” in Spanish.** Suitable for all social contexts, this greeting can be used with both friends and strangers. If you want to mix things up, you can also add_hola_ and say “hola, buenos días” as it is a very standard and friendly salutation. If you want to say goodbye in the morning, you can say “adiós, buenos días” which is a nice way to wish someone a good day.
 
  It is also important to note that in some countries from South America it’s common to say “buen día” which is literally the singular form of “buenos días”. However, if you go to Spain, it’s best to stick with “buenos días”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Good morning in French:_Bon matin !_
 
@@ -59,25 +53,15 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Both “bonjour” and “bon matin” are appropriate in both formal and informal settings and can be used with friends and strangers alike.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Good morning in German:_Guten Morgen!_
 
  To say “good morning” in German, you can use the phrase “Guten Morgen”. This is a common and polite way to greet someone until noon. It can be used with both friends and strangers which makes it appropriate in both formal and informal social contexts.
 
  As you probably know, Germans like to be efficient, so sometimes greetings tend to be kept short. Therefore, in informal situations, you can simply say “Morgen!”.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 4\. Good morning in Italian:_Buongiorno!_
 
@@ -103,45 +87,15 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Additionally, if you want to go the extra mile, it is considered polite to ask about the person’s well-being after greeting them. For example, “как дела?”_(kak dela?)_ which means “how are you?” is often used in conjunction with “доброе утро”_(dobraye utro)_ . This makes the greeting more friendly and personal.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## 7\. Good morning in Chinese:_早上好！_
 
  早上好_(Zǎoshang hǎo)_ is how you normally say “good morning” in Chinese. However, if you want to keep it short and sound more like a native, you can just simply say 早_(zǎo)_ .
 
  The same as the English “good morning”, 早 (zǎo) can be used in most social settings provided it’s morning, of course.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 8\. Good morning in Japanese:_おはようございます！_
 
@@ -151,26 +105,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 !["Good morning in Spanish" by Dawid Zawiła©](https://edge.mondly.com/blog/wp-content/uploads/2023/01/good-morning-in-spanish-960x640.jpg "How To Say Good Morning In 10 Different Languages 2")
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 9\. Good morning in Arabic:_صباح الخير!_
 
  The most common way to say “good morning” in Arabic is_صباح الخير (_ _Sabah alkhayr)_ . The usual response to this is صباح النور_(Sabah an-noor)_ which means “morning of light”. Isn’t that just beautiful?
@@ -179,19 +113,9 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Careful though! As beautiful as they sound, these last examples can only be used with friends or people who are very close to your heart.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## 10\. Good morning in Hindi:_सुप्रभात!_
 
@@ -232,8 +156,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -241,16 +163,19 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-elevate-your-iphone-photography-with-advanced-hdr-methods/"><u>[Updated] 2024 Approved Elevate Your iPhone Photography with Advanced HDR Methods</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-detailed-guide-taking-full-screen-photos-with-android/"><u>[Updated] Detailed Guide Taking Full-Screen Photos with Android</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unraveling-friends-pixels-speed-up-searches-for-2024/"><u>[Updated] Unraveling Friends' Pixels Speed Up Searches for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-revealing-reasons-why-no-videos-pop-up-on-fb-feed/"><u>2024 Approved Revealing Reasons Why No Videos Pop Up on FB Feed?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-install-and-use-chatgpt-plugins/"><u>How to Install and Use ChatGPT Plugins</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-key-french-welcomes-perfect-salut-and-more/"><u>Learn Key French Welcomes: Perfect 'Salut' And More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mandatory-syntax-or-flexible-communication/"><u>Mandatory Syntax or Flexible Communication?</u></a></li>
+<li><a href="https://win-lab.techidaily.com/optimize-your-pcs-speed-by-limiting-background-applications-essential-tips-from-yl-computing/"><u>Optimize Your PC's Speed by Limiting Background Applications - Essential Tips From YL Computing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/perfect-stitching-of-gopro-videos-into-complete-360-imagery/"><u>Perfect Stitching of GoPro Videos Into Complete 360 Imagery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/time-invested-in-language-acquisition-vs-outcomes/"><u>Time Invested in Language Acquisition vs Outcomes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-basic-french-phonetic-patterns-as-beginners/"><u>Understanding Basic French Phonetic Patterns as Beginners</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/vimeo-demystified-for-passionate-creators-and-viewers-for-2024/"><u>Vimeo Demystified For Passionate Creators & Viewers for 2024</u></a></li>
+</ul></div>
 

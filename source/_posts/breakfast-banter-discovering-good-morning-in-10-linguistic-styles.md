@@ -1,7 +1,7 @@
 ---
 title: "Breakfast Banter: Discovering 'Good Morning' In 10 Linguistic Styles"
-date: 2024-09-05T04:37:26.137Z
-updated: 2024-09-06T04:37:26.137Z
+date: 2025-01-11T23:27:41.861Z
+updated: 2025-01-15T19:54:27.603Z
 tags:
   - speak
   - english
@@ -14,12 +14,6 @@ keywords: Breakfast Lingo Variations,Linguistics and Greetings,Morning Phrases A
 thumbnail: https://thmb.techidaily.com/e9e9b7ca60047014bff6bb18f8c482a86a228fe45f3ba370acbb24c0cc43ac69.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Breakfast Banter: Discovering 'Good Morning' In 10 Linguistic Styles
 
  Every day it’s a fresh start. Why not treat it properly? If you’re traveling to many different countries, it can prove useful to know**how to say “good morning” in different languages.** Starting the day with a smile and greeting those around you can boost your mood and the way people relate to you. **Here’s how to say “good morning” in the 10 of the most popular languages on Earth:**
@@ -43,18 +37,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  It is also important to note that in some countries from South America it’s common to say “buen día” which is literally the singular form of “buenos días”. However, if you go to Spain, it’s best to stick with “buenos días”.
 
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Good morning in French:_Bon matin !_
 
  **Remember this: in European French, there is no exact translation for the phrase “good morning”.** Therefore, in France, you should always use [“bonjour”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) instead of “bon matin” if you want to “good morning” in French.
@@ -62,6 +44,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  On the other hand, in Quebec, “bon matin” is the preferred greeting usually until around 10 or 11 a.m.
 
  Both “bonjour” and “bon matin” are appropriate in both formal and informal settings and can be used with friends and strangers alike.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Good morning in German:_Guten Morgen!_
 
@@ -76,11 +62,9 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Literally meaning “good day”, “buongiorno” can safely be used in all kinds of social contexts from morning until after lunch.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Good morning in Portuguese:_Bom dia!_
 
  In Portuguese, “bom dia” is how you say “good morning”. Literally translated as “good day”, this greeting is commonly used between the hours of 5:30 a.m. and 12:00 – 1:00 p.m.
@@ -91,12 +75,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-7421&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7421&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7421)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Good morning in Russian:_Доброе утро!_
 
  To say [“good morning” in Russian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can use the phrase “доброе утро” which is pronounced “Dobroye utro”. This is the most popular way to greet people in the morning.
@@ -106,11 +84,9 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Additionally, if you want to go the extra mile, it is considered polite to ask about the person’s well-being after greeting them. For example, “как дела?”_(kak dela?)_ which means “how are you?” is often used in conjunction with “доброе утро”_(dobraye utro)_ . This makes the greeting more friendly and personal.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. Good morning in Chinese:_早上好！_
 
  早上好_(Zǎoshang hǎo)_ is how you normally say “good morning” in Chinese. However, if you want to keep it short and sound more like a native, you can just simply say 早_(zǎo)_ .
@@ -125,12 +101,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 !["Good morning in Spanish" by Dawid Zawiła©](https://edge.mondly.com/blog/wp-content/uploads/2023/01/good-morning-in-spanish-960x640.jpg "How To Say Good Morning In 10 Different Languages 2")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024338/7443" target="_top" id="2024338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024338" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024338/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. Good morning in Arabic:_صباح الخير!_
 
  The most common way to say “good morning” in Arabic is_صباح الخير (_ _Sabah alkhayr)_ . The usual response to this is صباح النور_(Sabah an-noor)_ which means “morning of light”. Isn’t that just beautiful?
@@ -145,6 +115,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  If you want to ask about the person’s well-being after greeting them, you can add क्या हाल है?_(kya haal hai?)_ which means “how are you?”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus: Good morning in Romanian:_bună dimineața!_
 
  Easy enough! The most straightforward way to say “good morning” in Romanian is “bună dimineața”. While the diacritics may look weird, they are quite easy to pronounce. You will pronounce “ă” like “uh” or the last sound in the word “the”. “Ț”, on the other hand, is similar to the sound you make when you say “ts”.
@@ -157,11 +131,9 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## From “good morning” to conversational fast
 
  Do you want to learn languages fast? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -184,8 +156,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -193,8 +163,26 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-the-comprehensible-guide-to-wincams-bests/"><u>[New] The Comprehensible Guide to WinCams' Bests</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-the-meme-gurus-list-of-the-best-designs-10/"><u>[New] The Meme Guru's List of the Best Designs #10</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-become-a-pro-at-snap-ad-development-hacks-and-strategies/"><u>[Updated] 2024 Approved Become a Pro at Snap Ad Development - Hacks and Strategies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-drone-category-definitions/"><u>[Updated] In 2024, Drone Category Definitions</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-top-5-windows-11-gaming-capture-techniques/"><u>[Updated] In 2024, Top 5 Windows 11 Gaming Capture Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-primer-to-popular-german-witticisms-top-25-selection/"><u>A Primer to Popular German Witticisms - Top 25 Selection</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-lacks-a-reflective-writing-check/"><u>AI Lacks a Reflective Writing Check</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asias-top-3-lingual-heavyweights-filter-and-save/"><u>Asia's Top 3 Lingual Heavyweights: Filter & Save</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-the-gap-understanding-english-contraction-usage/"><u>Bridging the Gap: Understanding English Contraction Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/code-switching-to-success-21st-century-linguistic-skills/"><u>Code-Switching to Success: 21St Century Linguistic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/commemorating-a-decade-at-mondlyback-filter-prowess/"><u>Commemorating a Decade at MondlyBack Filter Prowess</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-steps-to-get-iphone-driver-software-working-in-windows-10/"><u>Easy Steps to Get iPhone Driver Software Working in Windows 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-language-proficiency-with-mondlys-innovations/"><u>Effortless Language Proficiency with Mondly's Innovations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empowerment-through-elite-business-linguistics-education/"><u>Empowerment Through Elite Business Linguistics Education</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-depth-review-of-the-nvidia-shield-tv-pro-a-gamechanger-in-streaming-tech/"><u>In-Depth Review of the Nvidia Shield TV Pro - A Gamechanger in Streaming Tech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579035766-mondly-kids-a-smart-choice-for-young-minds-in-2017/"><u>Mondly Kids - A Smart Choice for Young Minds in 2017!</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210064954-9781250779694-ultimate-energy-using-your-natural-energies-to-balance-body-mind-and-spirit/"><u>Ultimate Energy: Using Your Natural Energies to Balance Body, Mind, and Spirit | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576702976-unlock-world-communication-with-a-95-discount-on-language-learning/"><u>Unlock World Communication with a 95% Discount on Language Learning!</u></a></li>
+</ul></div>
 

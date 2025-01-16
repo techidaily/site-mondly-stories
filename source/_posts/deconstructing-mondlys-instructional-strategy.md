@@ -1,7 +1,7 @@
 ---
 title: Deconstructing Mondly’s Instructional Strategy
-date: 2024-09-10T13:24:26.788Z
-updated: 2024-09-11T13:24:26.788Z
+date: 2025-01-10T20:21:55.435Z
+updated: 2025-01-16T11:20:10.357Z
 tags:
   - speak
   - english
@@ -20,8 +20,6 @@ thumbnail: https://thmb.techidaily.com/dc7051df6e843885a76d4b1888c76803cc85597e1
 
  The answer is simpler than you think. They learn by doing. And that’s the best approach for you too.
 
-
-
  After years of working abroad and learning several languages, the founders of what would soon become Mondly made a decision. They needed to bring this amazing approach to an app. And they did.
 
 ![language learning app](https://edge.mondly.com/blog/wp-content/uploads/2021/01/language-learning-app-960x761.png "The Learning Method Behind Mondly 4")
@@ -32,25 +30,9 @@ thumbnail: https://thmb.techidaily.com/dc7051df6e843885a76d4b1888c76803cc85597e1
 
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Minimum effort, maximum results
 
@@ -64,19 +46,9 @@ thumbnail: https://thmb.techidaily.com/dc7051df6e843885a76d4b1888c76803cc85597e1
 
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Lexical coverage: focus on the most common words
 
@@ -86,19 +58,9 @@ thumbnail: https://thmb.techidaily.com/dc7051df6e843885a76d4b1888c76803cc85597e1
 
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
  Lexical coverage overview
 
@@ -111,25 +73,9 @@ thumbnail: https://thmb.techidaily.com/dc7051df6e843885a76d4b1888c76803cc85597e1
 
 ---
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### Take Mondly for a test drive
 
@@ -147,8 +93,6 @@ thumbnail: https://thmb.techidaily.com/dc7051df6e843885a76d4b1888c76803cc85597e1
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -156,16 +100,26 @@ thumbnail: https://thmb.techidaily.com/dc7051df6e843885a76d4b1888c76803cc85597e1
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-mastering-digital-creation-complete-guide-to-picsart-for-2024/"><u>[New] Mastering Digital Creation Complete Guide to PicsArt for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-discovering-social-medias-top-5-innovations-in-fb/"><u>[Updated] 2024 Approved Discovering Social Media’s Top 5 Innovations in FB</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-effortless-music-playlist-creation-for-youtube-anywhere-webmobile-for-2024/"><u>[Updated] Effortless Music Playlist Creation for YouTube, Anywhere (Web/Mobile) for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-pip-google-chrome-across-devices/"><u>[Updated] Mastering PIP Google Chrome Across Devices</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-best-software-for-live-broadcasting/"><u>2024 Approved Best Software for Live Broadcasting</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ensure-compatibility-update-hp-officejet-pro-6970-drivers-for-windows-users/"><u>Ensure Compatibility: Update HP OfficeJet Pro 6970 Drivers for Windows Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/european-and-brazilian-portuguese-key-features-showdown/"><u>European & Brazilian Portuguese: Key Features Showdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-online-avenues-for-flawless-lithuanian-learning/"><u>Explore Online Avenues for Flawless Lithuanian Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-impressions-count-indonesian-greeting-basics/"><u>First Impressions Count: Indonesian Greeting Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-urdu-key-words-and-phrases-guide/"><u>First Steps in Urdu: Key Words & Phrases Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-expression-excellence-mastering-the-enchante-salute/"><u>French Expression Excellence: Mastering the 'Enchanté' Salute</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fan-to-fluent-korean-lessons-on-squid-game/"><u>From Fan to Fluent: Korean Lessons on Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-thespis-to-twitter-elizabethan-terms-today/"><u>From Thespis to Twitter: Elizabethan Terms Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/galaxy-words-a-deep-dive-into-the-unique-linguistics-of-star-wars/"><u>Galaxy Words: A Deep Dive Into the Unique Linguistics of Star Wars</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-aufrichtige-bedauernsatze-sprechen/"><u>German: Aufrichtige Bedauernsätze Sprechen</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-streamline-your-videography-instantly-upgrade-fb-videos-to-mp4-hd/"><u>In 2024, Streamline Your Videography - Instantly Upgrade FB Videos to MP4 HD</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/layering-yt-music-with-visual-expressions-for-2024/"><u>Layering YT Music with Visual Expressions for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/pro-tips-iphone-in-the-dark-spotlight/"><u>Pro Tips IPhone in the Dark Spotlight</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unbeatable-senior-friendly-phone-contracts-of-2024-you-cant-miss/"><u>Unbeatable Senior-Friendly Phone Contracts of 2024 You Can't Miss!</u></a></li>
+</ul></div>
 

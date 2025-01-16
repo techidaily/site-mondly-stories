@@ -1,7 +1,7 @@
 ---
 title: Becoming a Master of RU Phonetics
-date: 2024-09-10T13:25:32.382Z
-updated: 2024-09-11T13:25:32.382Z
+date: 2025-01-10T02:46:35.743Z
+updated: 2025-01-16T12:37:19.359Z
 tags:
   - speak
   - english
@@ -28,19 +28,9 @@ thumbnail: https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a
 
  Russian has been greatly influenced by Old Church Slavonic and – since the westernizing policies of Tsar Peter I the Great in the 18 century – by the [languages of western Europe](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Then, the 19th-century poet Aleksandr Pushkin determined the further development of the [Russian language we know](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today. His writings, in which he combined the colloquial and Church Slavonic styles, were decisive in establishing the best style for literary use.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### The Cyrillic script
 
@@ -52,35 +42,11 @@ thumbnail: https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a
 
 ![russian letters](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-letters-600x480.jpg "Master The Russian Alphabet Pronunciation 2")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
  “Red Square, Moscow, Russia” by Aurelien Romain©
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Understand how to pronounce the Russian alphabet
 
@@ -98,20 +64,6 @@ thumbnail: https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a
 * **М м** sounds like “m” in “mother” or “mobile”,
 * **О о** sounds like “o” in “bore” or “more” (without the ‘r’ sound),
 * **Т т** sounds like “t” in “top” or “task”.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Russian letters that sound the same as in English (but look different)
 
@@ -144,6 +96,10 @@ thumbnail: https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a
 * **Х х** sounds like “ch” in “loch”,
 * **Ы ы** sounds like “i” in “ill” but with a “rounder” pronunciation (said with your tongue slightly back in your mouth).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Russian letter with no English equivalent
 
 * Ь – this is called the “soft sign” and it is used to modify the pronunciation of the preceding consonant by making it soft (palatalized),
@@ -155,35 +111,15 @@ thumbnail: https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a
 
 ![russian alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-alphabet-pronunciation-1-431x600.jpg "Master The Russian Alphabet Pronunciation 3")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
  Russian alphabet pronunciation
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Russian lesson no. 1: rules
 
@@ -221,8 +157,6 @@ thumbnail: https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -230,16 +164,23 @@ thumbnail: https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-engaging-tactics-for-increased-subscriber-count/"><u>[New] 2024 Approved Engaging Tactics for Increased Subscriber Count</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-spectaculum-of-sight-top-picks-for-professional-8k/"><u>[New] In 2024, Spectaculum of Sight Top Picks for Professional 8K</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-mastering-the-art-of-srt-files-an-all-inclusive-guide-to-subtitles/"><u>[New] Mastering the Art of SRT Files An All-Inclusive Guide to Subtitles</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ideo-enhanced-slideshow-mastery-with-youtube-for-2024/"><u>[New] Video-Enhanced Slideshow Mastery with YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-beauteous-journey-mastering-beauty-on-youtube/"><u>[Updated] The Beauteous Journey Mastering Beauty on YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-pronunciation-fundamentals-in-german/"><u>Exploring Pronunciation Fundamentals in German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-power-of-the-german-tongue-top-25-phrases-guide/"><u>Expressive Power of the German Tongue: Top 25 Phrases Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressoes-de-bencao-em-portugues-diversao-e-conhecimento/"><u>Expressões De Bênção Em Português - Diversão E Conhecimento</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluency-in-a-flash-top-17-quick-pick-spanish-phrases/"><u>Fluency in a Flash: Top 17 Quick-Pick Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-zero-to-ten-in-russian-counting/"><u>From Zero to Ten in Russian Counting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/geographic-span-of-romance-languages/"><u>Geographic Span of Romance Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-gorgeousness-expressive-approaches/"><u>German Gorgeousness: Expressive Approaches</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-oppo-reno-11-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Oppo Reno 11 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/streamline-your-video-workflows-selecting-the-best-players-for-2024/"><u>Streamline Your Video Workflows Selecting the Best Players for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-virtual-camera-tools-enhance-your-livestream-with-manycam-technology/"><u>Top Virtual Camera Tools: Enhance Your Livestream with ManyCam Technology</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/ultimate-selection-budget-friendly-4k-cameras-(1k/"><u>Ultimate Selection Budget-Friendly 4K Cameras <$1K</u></a></li>
+</ul></div>
 

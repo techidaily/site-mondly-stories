@@ -1,7 +1,7 @@
 ---
 title: "Saghe Numeriche in Italiano: Comunicazione E Lettura Intermedia"
-date: 2025-01-05T19:10:36.391Z
-updated: 2025-01-10T19:28:39.322Z
+date: 2025-01-14T02:55:08.810Z
+updated: 2025-01-15T19:54:41.812Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/daa4ddbb9dc17599c8cc745fc4daad052ccf0ddb6
  There’s hardly a day that passes without using [numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . They’re essential to our day-to-day lives. From shopping to giving people your phone number and setting up a meeting at a certain time, numbers are probably one of the first lessons you should take in any language. So, let’s see how easy it is to count from_zero_ to_cento_ in_Italiano_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Count to 10 in Italian
@@ -57,7 +57,7 @@ Here’s how to write and pronounce the Italian numbers 1-10:
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian numbers 11-20
@@ -96,10 +96,6 @@ Let’s see some examples:
 * to say “18 years”, you’ll say_diciotto anni_
 * to say “20 children”, you’ll say_venti bambini_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -113,7 +109,7 @@ Let’s see some examples:
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Count tens in Italian
@@ -150,7 +146,7 @@ Let’s see some examples:
 * 98 – _novant**otto**_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian numbers 100 to 1000 and beyond
@@ -180,6 +176,10 @@ Let’s see some examples:
  And now you also understood where_grazie mille_ comes from. Literally meaning “a thousand thanks” or “a thousand thanks yous”,_grazie mille_ means “thank you very much” in Italian.
 
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “The Amalfi Coast” by Gregory Smirnov©
 
@@ -252,22 +252,22 @@ Let’s see some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-virtual-efficiency-boosted-setting-up-zoom-right/"><u>[New] 2024 Approved Virtual Efficiency Boosted Setting Up Zoom Right</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-best-in-class-business-data-cradle/"><u>[New] In 2024, Best in Class Business Data Cradle</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577615833-ahoy-the-pirate-way-of-speaking/"><u>Ahoy, the Pirate Way of Speaking!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/anatomie-essentielle-decoder-le-corps-humain-en-francais/"><u>Anatomie Essentielle: Décoder Le Corps Humain en Français</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/counting-in-japanese-from-1-to-10000/"><u>Counting in Japanese From 1 to 10000</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/crafting-your-israeli-journey-essential-tips-and-practical-language-skills/"><u>Crafting Your Israeli Journey: Essential Tips & Practical Language Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/danish-cinematic-classics-enhancing-language-skills/"><u>Danish Cinematic Classics Enhancing Language Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/descubre-el-sistema-muscular-completo-un-viaje-interactivo-desde-la-cabeza-a-los-toes-en-espanol/"><u>Descubre El Sistema Muscular Completo: Un Viaje Interactivo Desde La Cabeza A Los Toes En Español</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/discover-the-links-in-the-nyts-july-18-puzzle-teaser-and-solution-explained-403-edition/"><u>Discover the Links in The NYT's July 18 Puzzle: Teaser and Solution Explained (#403 Edition)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/einladung-zu-einer-kulturreise-grusse-in-deutsch-uber-hallo-hinaus/"><u>Einladung Zu Einer Kulturreise: Grüße in Deutsch Über Hallo Hinaus</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1726026580779-gif/"><u>GIF化の技術：初めてのイラスト動画作り手へ</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581505673-hello-in-swedish-all-the-swedish-greetings/"><u>Hello in Swedish: All the Swedish Greetings</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Motorola Edge 2023 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-poco-f5-pro-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Poco F5 Pro 5G to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/laptop-and-mouse-woes-a-guide-to-diagnosing-and-repairing-usb-connectivity-problems/"><u>Laptop and Mouse Woes: A Guide to Diagnosing & Repairing USB Connectivity Problems</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-ergonomic-vertical-mice-find-the-perfect-pick/"><u>Top-Rated Ergonomic Vertical Mice : Find the Perfect Pick</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-easy-guide-start-audio-capture-on-windows-10-for-2024/"><u>[New] Easy Guide Start Audio Capture on Windows 10 for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-jumpstarting-instagram-celebrity-status/"><u>[New] In 2024, Jumpstarting Instagram Celebrity Status</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-securing-premium-image-on-zoom-via-strategic-filters/"><u>[New] Securing Premium Image on Zoom via Strategic Filters</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unleash-potential-the-best-instagram-hashtags-of-the-day-for-2024/"><u>[New] Unleash Potential The Best Instagram Hashtags of the Day for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/conquer-lunapic-elevate-your-photographic-skills-for-2024/"><u>Conquer Lunapic Elevate Your Photographic Skills for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-education-networking-event/"><u>Innovative Education Networking Event</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-the-apex-of-english-with-mondly/"><u>Journey Through the Apex of English with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kid-app-for-the-future-googles-2017-best-pick-mondly-kids-edition/"><u>Kid-App for the Future - Google's 2017 Best Pick: Mondly Kids Edition</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/professional-photography-essentials-discover-the-leading-tripods-on-the-market-2023-edition/"><u>Professional Photography Essentials: Discover the Leading Tripods on the Market - 2023 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-bokmal-mastery-in-daily-sprints/"><u>Rapid Bokmål Mastery in Daily Sprints!</u></a></li>
+<li><a href="https://win-studio.techidaily.com/recovery-tactics-for-file-loss-following-a-complete-system-format-on-windows-11-machines/"><u>Recovery Tactics for File Loss Following a Complete System Format on Windows 11 Machines</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/remedy-for-incessant-pause-windows-errors/"><u>Remedy for Incessant Pause Windows Errors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romantic-language-lessons-hungarys-vernacular-of-love/"><u>Romantic Language Lessons: Hungary's Vernacular of Love</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-study-strategies-for-polish/"><u>Speedy Study Strategies for Polish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sweet-serenades-italys-loverly-charm/"><u>Sweet Serenades: Italy’s Loverly Charm</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-travelers-linguistic-companion-to-vietnam/"><u>The Traveler’s Linguistic Companion to Vietnam</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/thriving-as-a-novice-youtuber-sidestep-these-8-crucial-pitfalls-in-2024/"><u>Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls, In 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Taking Flight in Russian Numeral Recognition
-date: 2025-01-05T17:16:31.914Z
-updated: 2025-01-10T19:38:22.532Z
+date: 2025-01-09T12:56:29.306Z
+updated: 2025-01-16T04:07:54.900Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 
  Whether you need to find out what’s the price for a matryoshka, ask a stranger when is the next bus arriving or give someone your phone number, knowing the Russian numbers is definitely essential. On top of that, they are not even that hard to learn. Once you learn how to count to ten, counting to 100 is a piece of cake.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Russian numbers 1-10
 
  In order to understand the logic behind counting in Russian faster, it’s best to break down the information into multiple sections. As you may expect, the Russian numbers from 1 to 10 are the most important. Not only these are the ones you’ll probably use the most, but they also lay the foundations for the bigger numbers in Russian.
@@ -31,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
  Here are the numbers from 1 to 10 in Russian with their respective pronunciations so you can begin practicing right now:
 
 ![russian numbers 1-10](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-1-10-600x424.jpg "Russian Numbers - Learn How To Count In Russian 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Russian numbers 1-10
 
@@ -50,12 +50,16 @@ If you did manage, good job! You must be a natural.
 
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Russian numbers 11-20
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Russian numbers: 21 and onwards
@@ -65,7 +69,7 @@ If you did manage, good job! You must be a natural.
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian tens
@@ -85,7 +89,7 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian hundreds
@@ -93,10 +97,6 @@ And guess what! It works the same with the hundreds.
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
 
 Not as hard as you’d expect, is it?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Russian ordinal numbers
 
@@ -143,24 +143,19 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-expert-iphone-tips-change-image-dimensions-proficiently-for-2024/"><u>[New] Expert iPhone Tips Change Image Dimensions Proficiently for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-fresh-discussion-ideas-for-podcast-success/"><u>[New] Fresh Discussion Ideas for Podcast Success</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-unleashing-potential-the-easy-path-to-blending-linktree-with-tiktok-bios/"><u>[New] Unleashing Potential The Easy Path to Blending Linktree with TikTok Bios</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-video-posting-made-simple-with-correct-aspect-ratio-for-2024/"><u>[New] Video Posting Made Simple with Correct Aspect Ratio for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/our-visual-impact-journey-begins-with-our-50-free-banners/"><u>[New] Your Visual Impact Journey Begins with Our 50 FREE Banners!</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-leveraging-instagrams-capabilities-for-podcast-promotion/"><u>2024 Approved Leveraging Instagram's Capabilities for Podcast Promotion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/blend-languages-build-bonds-with-virtual-world-faces/"><u>Blend Languages, Build Bonds with Virtual World Faces</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/catalan-conquest-mastery-with-daily-dedication/"><u>Catalan Conquest: Mastery with Daily Dedication</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/elevate-your-photography-getting-acquainted-with-snapseed-for-2024/"><u>Elevate Your Photography Getting Acquainted with Snapseed for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-beginner-friendly-french-literature-with-best-novels/"><u>Explore Beginner-Friendly French Literature with Best Novels</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/high-achievers-guide-to-language-proficiency/"><u>High Achievers' Guide to Language Proficiency</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-lava-blaze-2-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Lava Blaze 2 5G without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-advanced-techniques-for-quality-audio-on-ipads/"><u>In 2024, Advanced Techniques for Quality Audio on iPads</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-mondlys-expanded-interactive-faq-section/"><u>Introducing Mondly’s Expanded Interactive FAQ Section</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-tagalog-online-in-just-10-minutes-a-day/"><u>Learn Tagalog Online In Just 10 Minutes A Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-scales-new-heights-supporting-a-community-of-70plus-million/"><u>Mondly Scales New Heights, Supporting a Community of 70+ Million</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-pirate-jargon-with-ease/"><u>Navigating Pirate Jargon with Ease</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unbeatable-hp-victus-15-gaming-laptop-pricing-at-best-buy-for-just-530-exclusive-insights/"><u>Unbeatable HP Victus 15 Gaming Laptop Pricing at Best Buy for Just $530 | Exclusive Insights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/what-is-most-common-among-israeli-speakers/"><u>What Is Most Common Among Israeli Speakers?</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-key-understanding-of-online-narration-art/"><u>[Updated] Key Understanding of Online Narration Art</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-master-multi-tasking-on-edge-with-picture-in-picture-for-2024/"><u>[Updated] Master Multi-Tasking on Edge with Picture-in-Picture for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-ideal-windows-podcast-software-selections/"><u>2024 Approved Ideal Windows Podcast Software Selections</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722881712723-apple-music-continuous-streaming-learn-how-to-pause-it/"><u>Apple Music Continuous Streaming? Learn How to Pause It</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/eliminating-graphic-swap-errors-in-win11/"><u>Eliminating Graphic Swap Errors in Win11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/embracing-total-environmental-immersion-in-film/"><u>Embracing Total Environmental Immersion in Film</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-advanced-guide-to-online-image-sharpening/"><u>In 2024, Advanced Guide to Online Image Sharpening</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-to-korean-mastery-squid-game-edition/"><u>Journey to Korean Mastery - Squid Game Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-editor-choice-for-enhanced-language-acquisition/"><u>Mondly's Editor Choice for Enhanced Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speech-clarity-100-eng-exerited-tongue-challenges/"><u>Speech Clarity: 100 Eng Exerited Tongue Challenges</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-final-cut-pro-for-free-take-advantage-of-our-90-day-trial/"><u>Updated Final Cut Pro for Free Take Advantage of Our 90-Day Trial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-dialect-is-official-in-israel/"><u>What Dialect Is Official in Israel?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-master-english-for-global-success/"><u>Why Master English for Global Success?</u></a></li>
 </ul></div>
 

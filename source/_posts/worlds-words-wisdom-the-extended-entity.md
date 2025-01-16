@@ -1,7 +1,7 @@
 ---
 title: "World's Words Wisdom: The Extended Entity"
-date: 2024-09-10T13:24:11.270Z
-updated: 2024-09-11T13:24:11.270Z
+date: 2025-01-12T16:07:32.580Z
+updated: 2025-01-16T05:08:34.533Z
 tags:
   - speak
   - english
@@ -48,20 +48,6 @@ thumbnail: https://thmb.techidaily.com/e8268e497efdb6d8ea1a7969a9fa65d609c226672
 
 ![screaming goose](https://edge.mondly.com/blog/wp-content/uploads/2018/10/screaming-goose-960x638.jpg "What Is The Longest Word In The World? 2")
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  “WHAT?” by Hussain Badshah©
 
  Unfortunately for titin, its chemical name hasn’t made it into any of the major dictionaries. So that is why it’s “unofficial”. In fact, many argue that this isn’t even a word.
@@ -96,6 +82,10 @@ Anyway, here’s a glimpse of the little titan’s name:
 
 Good luck posting it on Twitter!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The longest word in English – fake version turned official
 
  This is getting more and more interesting. This next word wasn’t originally mentioned in any major dictionaries. In fact, it was originally invented by the president of the National Puzzlers’ League as a synonym for the disease known as silicosis with the sole purpose of becoming a candidate for the longest word in English.
@@ -106,21 +96,15 @@ Good luck posting it on Twitter!
 
 ![surprised lemur](https://edge.mondly.com/blog/wp-content/uploads/2018/10/surprised-lemur-960x639.jpg "What Is The Longest Word In The World? 3")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
-
-
-
  “I don’t believe you!” by Maik Stahnke©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The longest word in the dictionary – really official version
 
@@ -129,6 +113,10 @@ Enough with the jokes already! This one is for real. Promise.
 **Pseudopseudohypoparathyroidism** is a**30-letter** word [defined by the Oxford Dictionaries](https://en.oxforddictionaries.com/definition/pseudopseudohypoparathyroidism) as “a genetic disorder in which the skeletal abnormalities of pseudohypoparathyroidism are present without the biochemical abnormalities common to hypoparathyroidism and pseudohypoparathyroidism” – in normal human language that roughly translates to “thyroid disorder”. Pseudopseudohypoparathyroidism is**the longest non-coined word to appear in a major dictionary.**
 
 ![long word in the dictionary](https://media.giphy.com/media/3oz8xQQP4ahKiyuxHy/giphy.gif "What Is The Longest Word In The World? 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Unfortunately, our top doesn’t include a non-technical word so far, so we should keep looking.
 
@@ -144,6 +132,10 @@ Enough with the jokes already! This one is for real. Promise.
 * thyroparathyroidectomized – 25 letters
 * otorhinolaryngological – 22 letters
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The debate on the longest non-coined, non-technical word in the dictionary
 
  There’s a great debate regarding this topic. Many say that**“floccinaucinihilipilification” (29-letters)** should be crowned the longest non-coined, non-technical word, but some regard it as coined. However,[Oxford Dictionaries define it](https://en.oxforddictionaries.com/definition/floccinaucinihilipilification) as “the action or habit of estimating something as worthless”. The poor freak originates from Latin_flocci, nauci, nihili, pili_ (words meaning ‘at little value’) + -fication.
@@ -152,61 +144,13 @@ Enough with the jokes already! This one is for real. Promise.
 
 ![longest word in the english language](https://media.giphy.com/media/jkFGHT7XLzpg4/giphy.gif "What Is The Longest Word In The World? 5")
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Finally, the word everybody seems to agree on is [**electroencephalographically (27 letters)**](https://www.merriam-webster.com/dictionary/electroencephalographically) . Fair enough! We heard about that, haven’t we? By the sound of it, I’d say it’s connected to the “electroencephalograph” – a machine used to measure electrical activity in different parts of the brain.
 
  Now that you know all the arguments of this complicated debate, feel free to be the judge and decide which one is the longest word in the dictionary,**the longest word in the English language** or even the longest word in the galaxy!
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Bonus: supercalifragilisticexpialidocious (34 letters)
 
  This is your absolute favorite. You thought this was the longest word, haven’t you? But**supercalifragilisticexpialidocious** is, in fact, a coined word made popular by Marry Poppins. Because you tried to pronounce it countless times, here’s a little help:
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## The longest German word
 
@@ -220,20 +164,6 @@ Enough with the jokes already! This one is for real. Promise.
 
  “Oh my God, really?” by Jamie Haughton©
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## The longest word in Spanish and 11 other languages
 
  Because it is considered a global language and the world’s second-[most spoken native language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , after Mandarin Chinese, I decided I must include**the longest word in Spanish** in our discovery mission.
@@ -243,20 +173,6 @@ Enough with the jokes already! This one is for real. Promise.
 ### The longest word in Afrikaans
 
  **Tweedehandsemotorverkoopsmannevakbondstakingsvergaderingsameroeperstoespraakskrywerspersverklaringuitreikingsmediakonferensieaankondiging (136 letters)** – translates to “issuable media conference’s announcement at a press release regarding the convener’s speech at a secondhand car dealership union’s strike meeting”.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### The longest word in Danish
 
@@ -276,6 +192,10 @@ Enough with the jokes already! This one is for real. Promise.
 
  But even longer words are possible!   **Epäjärjestelmällistyttämättömyydellänsäkäänköhän (48 letters)** is one of them (although it seems like more than one) and translates to “I wonder if – even with his/her quality of not having been made unsystematized”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The longest word in French
 
 **Anticonstitutionnellement (25 letters)** — translates to “contrary to the constitution”. Pretty straightforward, I’d say.
@@ -284,39 +204,15 @@ Enough with the jokes already! This one is for real. Promise.
 
  **Vaðlaheiðarvegavinnuverkfærageymsluskúraútidyralyklakippuhringur (64 letters)** — whoa there, Icelandic. Take it easy. This absolute giant means “a keychain ring for the outdoor key of road workers shed in a moor called Vaðlaheið” in English.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### The longest word in Italian
 
 **Precipitevolissimevolmente (26 letters)** — the superlative form of_precipitevolmente_ (“hastily, precipitously”). The word is used more in jokes than in everyday language. Nevertheless, it is now an official word in the Italian language although it was originally coined by poet Francesco Moneti.
 
 ![italian](https://media.giphy.com/media/135E47VKw6TM6A/giphy.gif "What Is The Longest Word In The World? 8")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### The longest word in Greek
 
@@ -324,25 +220,9 @@ Enough with the jokes already! This one is for real. Promise.
 
  Modern Greek words, on the other hand, are much shorter: **ηλεκτροεγκεφαλογράφημα (ilektroenkefalográfima), is a 22-letter word** that means “electroencephalogram”. Yes, you remember that correctly! It really is connected to the word we mentioned for English (electroencephalographically).
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### The longest word in**Polish**
 
@@ -350,38 +230,10 @@ Enough with the jokes already! This one is for real. Promise.
 
  But one of the longest common Polish words is**dziewięćdziesięciokilkuletniemu (31 letters)** — the dative singular form of “ninety-and-some years old one”.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### The longest word in**Turkish**
 
  As an agglutinative language, Turkish carries the potential for huge words such as **muvaffakiyetsizleştiricileştiriveremeyebileceklerimizdenmişsinizcesine (70 letters)**
  that means “as if you would be from those we can not easily/quickly make a maker of unsuccessful ones”.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### The longest word in**Welsh**
 
@@ -390,6 +242,10 @@ Enough with the jokes already! This one is for real. Promise.
  Because she lived in Llanfairpwllgwyngyllgogerychwyrndrobwllllantysiliogogogoch for a while, actress Naomi Watts is nailing the pronunciation of this place name:
 
 Suddenly “supercalifragilisticexpialidocious” seems waaay shorter and easier to pronounce, doesn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The longest words with one syllable, no vowels and all vowels
 
@@ -427,8 +283,6 @@ Suddenly “supercalifragilisticexpialidocious” seems waaay shorter and easier
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -436,16 +290,26 @@ Suddenly “supercalifragilisticexpialidocious” seems waaay shorter and easier
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-instructions-for-customizing-spiritual-sounds-as-ringtones/"><u>[New] 2024 Approved Instructions for Customizing Spiritual Sounds as Ringtones</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-proven-3-step-framework-for-creating-persuasive-facebook-ad-content/"><u>[New] 2024 Approved Proven 3-Step Framework for Creating Persuasive Facebook Ad Content</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-ultimate-guide-10-superior-vimeo-downloader-apps/"><u>[New] 2024 Approved Ultimate Guide 10 Superior Vimeo Downloader Apps</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-scaling-up-likes-in-tiktok-unboxing-videos/"><u>[New] Scaling up 'Likes' In TikTok Unboxing Videos</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-simplifying-slides-with-vimeo-video-integration-tutorial/"><u>[New] Simplifying Slides with Vimeo Video Integration Tutorial</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-tailored-techniques-for-dynamic-gifs/"><u>2024 Approved Tailored Techniques for Dynamic GIFs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-word-error-primer-100-most-frequently-misused-vocabulary/"><u>English Word Error Primer - 100 Most Frequently Misused Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/erstklassiges-wissen-uber-deutsche-wochenabschnitte/"><u>Erstklassiges Wissen Über Deutsche Wochenabschnitte</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-cultural-integration-through-hindi-discover-8-engaging-advantages-with-mondly/"><u>Experience Cultural Integration Through Hindi - Discover 8 Engaging Advantages with Mondly!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explorando-ofertas-de-boas-vindas-no-portugues/"><u>Explorando Ofertas De Boas-Vindas No Português</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressoes-de-alegria-e-felicidade-em-portugal/"><u>Expressões De Alegria E Felicidade Em Portugal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-beginner-to-master-chef-top-8-techniques-for-skillful-home-kitchens/"><u>From Beginner to Master Chef: Top 8 Techniques for Skillful Home Kitchens</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fusion-of-foreign-fluency/"><u>Fusion of Foreign Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gentlemans-guide-to-spanish-charm-offenses/"><u>Gentleman's Guide to Spanish Charm Offenses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-language-labyrinth-how-hard-is-it/"><u>German Language Labyrinth: How Hard Is It?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Motorola Edge 40? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/proven-winners-the-elite-iphone-range-as-evaluated-by-industry-experts-engadget/"><u>Proven Winners: The Elite iPhone Range as Evaluated by Industry Experts | Engadget</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/seamless-synergy-linux-boosted-by-windows-elements/"><u>Seamless Synergy: Linux Boosted by Windows Elements</u></a></li>
+<li><a href="https://fox-http.techidaily.com/transforming-realities-into-engaging-documentaries-through-scriptwriting/"><u>Transforming Realities Into Engaging Documentaries Through Scriptwriting</u></a></li>
+</ul></div>
 

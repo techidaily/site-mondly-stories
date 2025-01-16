@@ -1,7 +1,7 @@
 ---
 title: The Eloquent Enthusiast's Handbook to French Greeting Expressions
-date: 2025-01-08T20:05:52.724Z
-updated: 2025-01-10T18:06:42.073Z
+date: 2025-01-13T10:08:28.317Z
+updated: 2025-01-16T04:11:50.699Z
 tags:
   - speak
   - english
@@ -48,10 +48,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  The same as the_clasique Bonjour_ ,_Bonsoir_ is a universal greeting suitable for most social contexts. The only restriction is the moment of the day. So once the twilight settles in, it is safe to switch from_Bonjour_ to_Bonsoir_ !
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. “Good night” in French –_Bonne nuit!_
 
  Literally meaning “good night”,_Bonne nuit_ is used more as a “goodbye” than as a “hello”. So if you are spending time with your French friends,_Bonne nuit_ is a great way to let them them know you are retiring.
@@ -60,19 +56,23 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  “French fashion” by Charles 🇵🇭©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Hello? –_Allô?_
 
  Although it is not specific to face to face interactions,_Allô_ is still considered a greeting.
 
  Usually expressed with the raising tone of a question,_Allô_ is what you could say over the phone to check whether the person you are talking to is still on the other end of the line or not:_Allô?_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Excuse me? –_Excusez-moi?_
 
  Looking for a polite way to get someone’s attention in French? Maybe there’s someone blocking your way in the store or maybe you want to get noticed by the office clerk. In these situations, a classic greeting would be a bit redundant. So instead you could use this “question-like”_Excusez-moi?_ that has a double meaning and works as both a greeting and a way to get someone’s attention.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. “How are you” in French –_Comment ça va?_
 
@@ -83,7 +83,7 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  Or you can play it simple, follow the lead of the French speakers and answer directly with_Et toi?_ (“And you?”) since the_Ça va bien_ (“I’m good”) answer is usually implied.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. What’s up? –_Ça va?_
@@ -96,10 +96,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 11\. The cute Bonjour:_Coucou!_
 
 _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It literally means “cuckoo” and it is used the same way we use “hey!” in English.
@@ -109,13 +105,13 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 ![bonjour](https://edge.mondly.com/blog/wp-content/uploads/2019/11/bonjour-scaled-960x641.jpg "How To Say Hello In French: 12 Useful French Greetings 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 12\. How’s it going? –_Ça roule?_
@@ -126,6 +122,10 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Here’s how to learn French in just 10 minutes a day
 
@@ -156,22 +156,21 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/he-analytical-approach-to-youtube-content-performance/"><u>[New] The Analytical Approach to YouTube Content Performance</u></a></li>
-<li><a href="https://some-tips.techidaily.com/amazons-latest-innovations-unveiled-upgraded-alexa-version-20-new-echo-show-model-and-enhanced-fire-tv-features-a-comprehensive-breakdown-by-zdnet/"><u>Amazon's Latest Innovations Unveiled: Upgraded Alexa Version 2.0, New Echo Show Model and Enhanced Fire TV Features - A Comprehensive Breakdown by ZDNet</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/compelling-case-for-continuing-with-windows-10-win10/"><u>Compelling Case for Continuing with Windows 10 (Win10)</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/conversor-de-formatos-en-vivo-convertir-mov-a-mp3-sin-coste-movavi/"><u>Conversor De Formatos en Vivo: Convertir MOV a MP3 Sin Coste - MOVavi</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-your-dialogue-with-these-9-expert-tips/"><u>Elevate Your Dialogue with These 9 Expert Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-analysis-where-is-french-spoken-by-the-majority/"><u>Global Analysis: Where Is French Spoken by the Majority?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-stop-your-pc-from-continuously-restarting-on-win-11-and-win-10/"><u>How to Stop Your PC From Continuously Restarting on Win 11 and Win 10</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-honor-70-lite-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Honor 70 Lite 5G Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-samsung-galaxy-m34-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Samsung Galaxy M34 to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-vivo-y100i-power-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Vivo Y100i Power 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigate-social-scenarios-in-italy-with-essential-salutations/"><u>Navigate Social Scenarios in Italy with Essential Salutations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nombren-los-peculiaridades-de-los-animales-hispanos/"><u>Nombren Los Peculiaridades De Los Animales Hispanos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sweet-talk-spells-in-french-sentiments/"><u>Sweet Talk Spells in French Sentiments</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/troubleshooting-unresponsive-keyboards-with-tips-from-yl-software-professionals/"><u>Troubleshooting Unresponsive Keyboards with Tips From YL Software Professionals</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/us-celebration-spoken-in-many-tongues/"><u>U.S. Celebration Spoken in Many Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unraveling-the-myths-around-language-mastery-duration/"><u>Unraveling the Myths Around Language Mastery Duration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-path-to-fluent-tagalog-daily-practice-matters/"><u>Your Path to Fluent Tagalog - Daily Practice Matters</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-fix-quiet-tweets-with-youtube-links/"><u>[Updated] In 2024, Fix Quiet Tweets with YouTube Links</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/cr2jpg/"><u>免費のオンラインでCR2画像をJPGに簡単変換 - モバヴァイ</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/all-inclusive-expense-exploration-embarking-on-a-podcast/"><u>All-Inclusive Expense Exploration Embarking on a Podcast</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-education-summit-at-mansion-house-2022/"><u>International Education Summit at Mansion House 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-calendrier-francais-la-semaine-mentale/"><u>Le Calendrier Français: La Semaine Mentale</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-bonds-in-romance-culture/"><u>Linguistic Bonds in Romance Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-local-tongue-27-key-french-phrases/"><u>Master the Local Tongue: 27 Key French Phrases</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/master-your-gadgets-with-expert-tips-from-toms-hardware/"><u>Master Your Gadgets with Expert Tips From Tom's Hardware</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-italian-body-language-common-gestures/"><u>Mastering Italian Body Language: Common Gestures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-speech-top-100-english-tongue-twisters/"><u>Mastering Speech: Top 100 English Tongue Twisters</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcome-game-freezing-in-valorant-restart-advise/"><u>Overcome Game Freezing in Valorant: Restart Advise</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/songsyncing-simplified-your-guide-to-turning-tamil-music-into-alerts/"><u>SongSyncing Simplified Your Guide to Turning Tamil Music Into Alerts</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722971838992-sound-drivers-download-and-update-easily/"><u>Sound Drivers Download and Update. Easily!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-language-revolutionizing-mobile-applications-announced/"><u>Top 3 Language Revolutionizing Mobile Applications Announced</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unleash-your-broadcast-potential-discover-manycams-advanced-video-editing-for-streamers/"><u>Unleash Your Broadcast Potential: Discover ManyCam's Advanced Video Editing for Streamers</u></a></li>
 </ul></div>
 

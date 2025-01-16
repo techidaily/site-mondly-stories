@@ -1,7 +1,7 @@
 ---
 title: Macau’s Language Diversity on Display
-date: 2024-09-10T13:26:05.102Z
-updated: 2024-09-11T13:26:05.102Z
+date: 2025-01-11T11:00:58.076Z
+updated: 2025-01-15T19:22:24.509Z
 tags:
   - speak
   - english
@@ -22,26 +22,6 @@ thumbnail: https://thmb.techidaily.com/c29c22f9ff431826e0b45507bb8fd6710d810a2c3
 
  Ready to find our more about the rich linguistic mosaic of Macau? Read on to discover the intriguing history behind this captivating blend of languages.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## The History of Macau
 
  The current linguistic mosaic of Macau began taking shape almost 500 years ago. It all started in 1557, when**the Ming dynasty leased Macau to Portugal** as a trading post. Naturally, this marked the beginning of a significant Portuguese presence in Macau, introducing the Portuguese language and culture to the region.
@@ -55,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/c29c22f9ff431826e0b45507bb8fd6710d810a2c3
  Furthermore, approximately two-thirds of the city’s land area consists of reclaimed land from the sea, making the territory highly urbanized.
 
  Despite its tumultuous history, Macau is the perfect example of a happy ending.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Multilingualism in Macau
 
@@ -70,25 +54,9 @@ thumbnail: https://thmb.techidaily.com/c29c22f9ff431826e0b45507bb8fd6710d810a2c3
 
 ![Cantonese in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/cantonese.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 2")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Macanese: A Distinctive Creole Language of Macau
 
@@ -100,19 +68,9 @@ thumbnail: https://thmb.techidaily.com/c29c22f9ff431826e0b45507bb8fd6710d810a2c3
 
  Even during the time when Macau was Portuguese territory, the usage of Macanese was already declining, and this trend is unlikely to change now that the territory is under Chinese administration. However, speakers of Macanese still hold a deep sense of pride in the fact that Macau has its unique local language.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Portuguese in Macau: A Journey of 11,000 km
 
@@ -122,45 +80,15 @@ thumbnail: https://thmb.techidaily.com/c29c22f9ff431826e0b45507bb8fd6710d810a2c3
 
  The linguistic connection between Macau and Portugal also results in significant movement between the two regions. According to the [2021 Macau Census](https://www.dsec.gov.mo/Censos2021/en-US/) , individuals born in Portugal make up around 0.3% of Macau’s total population, indicating a notable presence of Portuguese-born residents in Macau.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### Official Portuguese Usage in Macau
 
  Despite the relatively small number of Portuguese speakers in Macau, the local government remains committed to promoting the Portuguese language. In public schools, students are taught Chinese, English, and Portuguese, reflecting the importance of these languages in the education system. Additionally, the government offers free programs to facilitate the learning of Portuguese among the general population.
 
  In official government documents, both written Portuguese and written Chinese (traditional) are used. This dual-language approach demonstrates the recognition and value given to both languages in administrative matters. In daily life, it is common to come across signs and displays in Macau that feature written Chinese and written Portuguese. This parallel use of languages is similar to the coexistence of written Chinese and British English in Hong Kong.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Cantonese: The Dominant Language of Macau
 
@@ -169,20 +97,6 @@ thumbnail: https://thmb.techidaily.com/c29c22f9ff431826e0b45507bb8fd6710d810a2c3
  **Despite the city’s historical ties with Portugal, Cantonese firmly dominates the social, commercial, and educational landscapes of Macau.** Over 85% of people in Macau speak Cantonese.
 
 ![multilingualism in Macau](https://edge.mondly.com/blog/wp-content/uploads/2023/06/multilingualism-in-macau.jpg "Exploring Macau’s Linguistic Mosaic: Cantonese, Macanese, And Portuguese Languages 3")
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Cantonese serves as the primary medium of instruction in the majority of schools in Macau. Additionally, there are mandatory classes that focus on Mandarin, ensuring students have exposure to and proficiency in the official language of China.
 
@@ -197,6 +111,10 @@ thumbnail: https://thmb.techidaily.com/c29c22f9ff431826e0b45507bb8fd6710d810a2c3
 ### Is English widely spoken in Macau?
 
  English is not as widely spoken in Macau compared to Cantonese. However, due to Macau’s status as popular gambling destination, English is commonly understood and spoken. Many signs, menus, and information for tourists are also available in English. Additionally, English is taught as a compulsory subject in schools, contributing to a level of English proficiency among the younger generation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Are there any efforts to revitalize endangered languages in Macau?
 
@@ -229,8 +147,6 @@ thumbnail: https://thmb.techidaily.com/c29c22f9ff431826e0b45507bb8fd6710d810a2c3
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -238,16 +154,16 @@ thumbnail: https://thmb.techidaily.com/c29c22f9ff431826e0b45507bb8fd6710d810a2c3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-streamlined-selection-top-10-efficient-vimeo-downloaders/"><u>[New] Streamlined Selection Top 10 Efficient Vimeo Downloaders</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/keeping-your-secrets-safe-with-tailored-chatgpt-systems/"><u>Keeping Your Secrets Safe with Tailored ChatGPT Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kommunikationskultur-deutsches-grazensummen-abseits-von-hallo/"><u>Kommunikationskultur: Deutsches Gräzensummen Abseits Von Hallo</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/movavi-livre-converter-flac-para-m4a-online-de-graca/"><u>Movavi Livre: Converter FLAC Para M4A Online De Graça</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-language-bridge-by-pearson-education/"><u>Online Language Bridge by Pearson Education</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/quick-tutorial-setting-up-your-canon-printing-device/"><u>Quick Tutorial: Setting Up Your Canon Printing Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quickbulgarian-quest-learn-in-bursts/"><u>QuickBulgarian Quest - Learn in Bursts</u></a></li>
+<li><a href="https://win-superb.techidaily.com/streamline-your-typography-workflows-using-emeditors-regex-searchreplace-functionality/"><u>Streamline Your Typography Workflows Using EmEditor's Regex Search/Replace Functionality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-fluency-excellent-ways-to-boost-verbal-abilities/"><u>Unlock Fluency: Excellent Ways to Boost Verbal Abilities</u></a></li>
+</ul></div>
 

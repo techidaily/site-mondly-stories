@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2025-01-09T18:14:13.377Z
-updated: 2025-01-10T18:55:54.526Z
+date: 2025-01-15T02:18:59.748Z
+updated: 2025-01-16T06:47:28.854Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
@@ -61,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -127,20 +127,24 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-voice-logging-devices-scrutiny/"><u>[Updated] 2024 Approved Voice Logging Devices Scrutiny</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-boundless-treasure-tales-of-instagram-flair-for-2024/"><u>[Updated] Boundless Treasure Tales of Instagram Flair for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/australian-vernacular-vocabulary-compendium/"><u>Australian Vernacular Vocabulary Compendium</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decouvrir-la-france-la-semaine-des-jours/"><u>Découvrir La France: La Semaine Des Jours</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embark-on-spanish-numerals-1-10/"><u>Embark on Spanish Numerals 1-10</u></a></li>
-<li><a href="https://win-forum.techidaily.com/1722915261372-explore-the-giants-of-social-networking-facebook-twitter-instagram-and-youtube/"><u>Explore the Giants of Social Networking - Facebook, Twitter, Instagram & Youtube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gratitude-across-cultures-thank-you-phrases-in-30-languages-154/"><u>Gratitude Across Cultures: Thank-You Phrases in 30 Languages (154)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/heartfelt-temptation-italian-courtship-expressions/"><u>Heartfelt Temptation: Italian Courtship Expressions</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/honor-bypass-tools-to-bypass-lock-screen-honor-100-pro-by-drfone-android-unlock-android-unlock/"><u>Honor Bypass Tools to Bypass Lock Screen(Honor 100 Pro)</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-poco-c55-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Poco C55 without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-top-7-best-waterproof-action-camera/"><u>In 2024, Top 7 Best Waterproof Action Camera</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/intercultural-communication-through-turkey-and-korea/"><u>Intercultural Communication Through Turkey and Korea</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-champions-innovation-seizes-award/"><u>Mondly Champions Innovation, Seizes Award</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-convergence-of-imagination-and-technology-how-ai-merges-fiction-with-fact-showcased-by-8-strategies/"><u>The Convergence of Imagination & Technology: How AI Merges Fiction with Fact, Showcased by 8 Strategies</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-impact-of-conversations-on-the-growth-of-chatgpts-knowledge-base/"><u>The Impact of Conversations on the Growth of ChatGPT's Knowledge Base</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-unusual-message-content-finding-myself-online/"><u>[New] 2024 Approved Unusual Message Content Finding Myself Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-charting-a-course-for-youtube-success-viewer-numbers-and-income/"><u>[Updated] Charting a Course for YouTube Success Viewer Numbers and Income</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-downloading-the-latest-tracks-a-guide-to-free-extractors-for-pc-users/"><u>2024 Approved Downloading the Latest Tracks A Guide to Free Extractors for PC Users</u></a></li>
+<li><a href="https://win-able.techidaily.com/dvd-ripper-pro-wonderfox/"><u>DVD Ripper Pro (WonderFox)をインストール済みです。使用をご提供賜り、心より感謝申し上げます。</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-samsung-galaxy-m54-5g-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Samsung Galaxy M54 5G 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/identifying-and-troubleshooting-computer-component-failures-with-yl-tech-solutions/"><u>Identifying and Troubleshooting Computer Component Failures with YL Tech Solutions</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Honor X8b? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-ukrainian-efficiently-with-10-minute-a-day-commitment-106-chars/"><u>Learn Ukrainian Efficiently with 10-Minute a Day Commitment (106 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/masterys-journey-honoring-the-1500th-free-daily-lesson-anniversary/"><u>Mastery's Journey: Honoring the 1500Th Free Daily Lesson Anniversary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-norwegian-understanding-10-daily-moments/"><u>Rapid Norwegian Understanding, 10 Daily Moments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-pro-a-beginners-french-accent-guide/"><u>Speak Like a Pro: A Beginner's French Accent Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-strategies-for-mastering-new-languages/"><u>Speedy Strategies for Mastering New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/survival-russian-the-must-know-phrases-for-visitors/"><u>Survival Russian: The Must-Know Phrases for Visitors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-allure-of-arabic-mastery-top-six-with-mondly-online/"><u>The Allure of Arabic Mastery: Top Six with Mondly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-it-matters-distinguishing-por-que-from-por-que/"><u>Why It Matters: Distinguishing Por Que From Por Qué</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/wi-fi-mesh-cost-vs-connectivity/"><u>Wi-Fi Mesh: Cost Vs. Connectivity?</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/yl-computings-ultimate-tricks-for-viewing-and-transforming-pictures-in-windows-environments-using-yl-tools/"><u>YL Computing's Ultimate Tricks for Viewing and Transforming Pictures in Windows Environments Using YL Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/molofia-eygnwmwn-glwttoprwteyoyntes/"><u>Μολόφια Ευγνώμων Γλωττοπρωτεύουντες</u></a></li>
 </ul></div>
 

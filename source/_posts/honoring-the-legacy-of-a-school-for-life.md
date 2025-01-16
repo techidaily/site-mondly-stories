@@ -1,7 +1,7 @@
 ---
 title: Honoring the Legacy of a School for Life
-date: 2024-09-10T13:28:04.307Z
-updated: 2024-09-11T13:28:04.307Z
+date: 2025-01-12T18:24:38.463Z
+updated: 2025-01-16T11:48:50.615Z
 tags:
   - speak
   - english
@@ -18,43 +18,17 @@ thumbnail: https://thmb.techidaily.com/41c40fc075ec41a6de89c571a5a74900b640b77fd
 
  Today, we are thrilled to announce a new milestone: 1500 free daily lessons in 33 languages! Thank you for being a part of our story! No matter if you have joined Mondly from the beginning or just now.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## 1500 daily lessons – thousands of hours of content
 
  If you never had premium, now would be the perfect time to get it because our new milestone marks thousands of hours of self-study material on over 40 topics such as travel, romance, fun or business. As a premium Mondly user you’ll get full access to all the 1500 daily lessons, 215 weekly quizzes and 50 monthly challenges we created for you since 2015 until now.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## What is a daily lesson?
 
@@ -62,37 +36,17 @@ thumbnail: https://thmb.techidaily.com/41c40fc075ec41a6de89c571a5a74900b640b77fd
 
  To make the learning process more enjoyable for you, each Mondly daily lesson is a gamified experience: you swipe up and down, select the right answer, arrange letters into words and words into sentences, use your voice to repeat the correct pronunciation of certain words and earn points for every completed lesson. If you are motivated by having competition, do all the lessons and let the points decide your place in the national and international leaderboards.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Why are they called “free daily lessons”?
 
  Each daily lesson is only free for one day: the day it becomes available inside the app. After that, it becomes accessible only with a Mondly premium account.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Why Mondly?
 
@@ -126,8 +80,6 @@ So what are you waiting for?
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -135,16 +87,26 @@ So what are you waiting for?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-art-of-duality-mastering-image-turnover-on-social-media-giants/"><u>[New] 2024 Approved The Art of Duality Mastering Image Turnover on Social Media Giants</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-the-ultimate-source-of-high-quality-video-downloaders/"><u>[New] 2024 Approved The Ultimate Source of High-Quality Video Downloaders</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-expert-recommended-screen-capturing-apps-for-mac/"><u>[Updated] In 2024, Expert-Recommended Screen Capturing Apps for Mac</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-how-to-seamlessly-blend-apples-siri-into-your-tiktok-content/"><u>[Updated] In 2024, How to Seamlessly Blend Apple's Siri Into Your TikTok Content</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-break-down-barriers-with-cost-free-vob-player/"><u>2024 Approved Break Down Barriers with Cost-Free VOB Player</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-tecno-spark-20c-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Tecno Spark 20C? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ais-role-in-blurring-reality-lines/"><u>AI's Role in Blurring Reality Lines</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/flight-simulation-at-its-best-the-x-plane-11-analysis-showcases-impressive-graphics-upgrades/"><u>Flight Simulation at Its Best: The X-Plane 11 Analysis Showcases Impressive Graphics Upgrades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-plays-2017-educational-gems-mondly-kids-among-them/"><u>Google Play’s 2017 Educational Gems - Mondly Kids Among Them</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-numbers-as-a-non-native-speaker/"><u>Grasping Numbers as a Non-Native Speaker</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-y02t-phone-without-password-by-drfone-android/"><u>How To Unlock Vivo Y02T Phone Without Password?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-languages-quickly-and-quietly-with-the-best-3-platforms/"><u>Master Multiple Languages Quickly & Quietly With the Best 3 Platforms!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-keywords-the-pathway-to-understanding-russians/"><u>Mastering Keywords: The Pathway to Understanding Russians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/o-olhar-lusitano-expressoes-e-saudacoes-de-qualidade/"><u>O Olhar Lusitano: Expressões E Saudações De Qualidade</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/open-new-doors-in-life-and-career-by-learning-hindi-reveal-top-8-reasons-to-choose-mondlys-platform/"><u>Open New Doors in Life and Career by Learning Hindi: Reveal Top 8 Reasons to Choose Mondly's Platform</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/review-insights-uncover-the-smart-and-sophisticated-world-within-samsung-un6un65ru8000fxza-led-tv/"><u>Review Insights: Uncover the Smart and Sophisticated World Within Samsung UN6#UN65RU8000FXZA LED TV</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-hello-in-over-100-languages/"><u>Saying Hello in Over 100 Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-sounds-of-romance-in-language/"><u>The Sounds of Romance in Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/united-in-happiness-july-4th-revelries/"><u>United in Happiness: July 4Th Revelries</u></a></li>
+</ul></div>
 

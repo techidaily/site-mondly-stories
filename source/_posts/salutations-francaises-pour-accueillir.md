@@ -1,7 +1,7 @@
 ---
 title: Salutations Françaises Pour Accueillir
-date: 2025-01-03T19:48:27.784Z
-updated: 2025-01-10T20:33:04.629Z
+date: 2025-01-08T20:48:26.561Z
+updated: 2025-01-16T10:27:31.847Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  You can use ‘_de rien’_ as an informal response to somebody who has thanked you. You’ll hear this expression used commonly throughout France in a range of situations.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The literal translation of_‘de rien’_
@@ -52,6 +52,10 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
  “Strasbourg, France” by Patrick Robert Doyle©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. The informal “you’re welcome”:_je t’en prie_
 
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
@@ -68,15 +72,15 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
  B:_Je t’en prie !_ (“You’re welcome!”)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. The formal “you’re welcome”:_je vous en prie_
 
  You’ll notice that this particular way to say ‘you’re welcome’ in French is very similar to the previous example. In fact, the phrase is almost identical. The only thing that’s changed is the personal pronoun. Instead of using the informal you –_‘tu’_ – we use the formal counterpart –_‘vous’_ .
 
  This should make_‘je vous en prie’_ nice and easy to remember. Just be careful not to use it with close friends. Using_‘vous’_ will sound unnatural if you are in close company. Likewise, always use this version of you’re welcome in French if you are speaking with somebody you do not know, no matter their level of seniority.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The literal translation of_‘je vous en prie’_
 
@@ -94,15 +98,15 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
 ![you're welcome](https://edge.mondly.com/blog/wp-content/uploads/2021/05/youre-welcome-960x640.jpg "4 Popular Ways To Say You’re Welcome In French 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Southern France, Toulouse” by DAT VO©
 
 ## 4\. The easiest to remember:_pas de problème_
 
  When you’re in the early stages of [learning French](https://travel-lingual.com/how-long-take-to-learn-french/) , sometimes the most sensible thing to do is use what you can remember. The word_‘problème’_ in this particular French expression resembles the English word ‘problem’ and should not be too difficult for you to learn. Be cautious of the [French grave accent](https://travel-lingual.com/french-accent-marks/) on the_‘e’_ as this alters the pronunciation of the word.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The literal translation of_‘pas de problème’_
 
@@ -118,10 +122,6 @@ Example:
 
  A:_Pas de problème. Merci._ (“No problem. Thanks.”)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Bonus: Less common ways to say “you’re welcome” in French
 
  If you want to mix things up a bit, another informal and very casual way of saying you’re welcome in French is_‘il n’y a pas de quoi’_ . This literally means “there is no what”, but an adapted translation would be “there is no reason (to thank me)”. Being a casual expression, it can be used safely in the same contexts as_‘de rien’_ .
@@ -129,7 +129,7 @@ Example:
  Furthermore,_‘avec plaisir’_ is what you should use if you travel to southern France and want to sound like a local. It literally translates to “with pleasure”, but it is the French correspondent of “my pleasure”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Which version of you’re welcome in French should you use and when?
@@ -180,24 +180,22 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-resolve-frozen-youtube-videos-on-androidios/"><u>[New] Resolve Frozen YouTube Videos on Android/iOS</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-revisiting-yesteryears-social-stories-on-fb-device-guide/"><u>[Updated] 2024 Approved Revisiting Yesteryear's Social Stories on FB Device Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-dynamic-and-diverse-10-essential-text-presets-for-adobe-ae-for-2024/"><u>[Updated] Dynamic and Diverse 10 Essential Text Presets for Adobe AE for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-highlighted-14-examples-of-motion-texts/"><u>[Updated] Highlighted 14 Examples of Motion Texts</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unleash-the-potential-a-comprehensively-curated-list-of-nft-creating-engines/"><u>[Updated] Unleash the Potential A Comprehensively Curated List of NFT-Creating Engines</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-asus-rog-phone-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-steps-in-urdu-language-acquisition/"><u>First Steps in Urdu Language Acquisition</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-3-ways-of-how-to-get-someones-apple-id-off-iphone-12-pro-without-password-by-drfone-ios/"><u>In 2024, 3 Ways of How to Get Someones Apple ID Off iPhone 12 Pro without Password</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-oppo-reno-8t-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Oppo Reno 8T Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-crafting-captivating-livestreams-with-zoom-for-youtube-audiences/"><u>In 2024, Crafting Captivating Livestreams with Zoom for YouTube Audiences</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-v27-pro-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo V27 Pro to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/novel-selection-for-newbies-top-french-literature-list/"><u>Novel Selection for Newbies: Top French Literature List</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/silent-understandings-crafting-connection-with-care/"><u>Silent Understandings: Crafting Connection with Care</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speedy-catalan-learning-10-minute-sprints/"><u>Speedy Catalan Learning, 10-Minute Sprints</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-european-linguistic-odyssey-celebrated-on-this-day/"><u>The European Linguistic Odyssey Celebrated on This Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-nordic-tongue-speaking-the-heart-of-vikings/"><u>The Nordic Tongue: Speaking the Heart of Vikings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/turko-korean-codex-of-communications/"><u>Turko-Korean Codex of Communications</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-intriguing-relationship-between-turkish-and-korean-languages/"><u>Unveiling the Intriguing Relationship Between Turkish and Korean Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-wishes-on-american-independence-day/"><u>Worldwide Wishes on American Independence Day</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-playbook-for-parallel-pursuit-of-youtube-videos/"><u>[New] The Playbook for Parallel Pursuit of Youtube Videos</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-the-development-and-application-of-vr-shopping/"><u>[Updated] 2024 Approved The Development and Application of VR Shopping</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-the-secrets-of-youtube-shorts-success/"><u>[Updated] Unveiling the Secrets of YouTube Shorts Success</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-magic-behind-melodies-an-analysis-of-magix-music-maker/"><u>2024 Approved Magic Behind Melodies An Analysis of Magix Music Maker</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/comparing-giants-of-ai-googles-palm-2-vs-openais-gpt-narrative/"><u>Comparing Giants of AI: Google's PaLM 2 Vs. OpenAI's GPT-Narrative</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-educational-revolution-by-mondly/"><u>Global Educational Revolution by Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hustle-and-learn-japanese-numbers-made-easy/"><u>Hustle and Learn: Japanese Numbers Made Easy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-instructors-day-language-diverse-tribute/"><u>International Instructors' Day: Language-Diverse Tribute</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-lexicon-influx-enriching-the-english-language/"><u>International Lexicon Influx: Enriching the English Language</u></a></li>
+<li><a href="https://common-error.techidaily.com/maximize-your-systems-efficiency-how-to-fix-unnecessary-cpu-usage-caused-by-shell-infrastructure/"><u>Maximize Your System’s Efficiency: How to Fix Unnecessary CPU Usage Caused By Shell Infrastructure</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-10-best-2d-animation-software-freepaid/"><u>New 10 Best 2D Animation Software Free/Paid</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/partnerships-and-collaborations/"><u>Partnerships & Collaborations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/professional-advancement-in-a-multilingual-world/"><u>Professional Advancement in a Multilingual World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romantic-revelries-in-rue-saint-michel/"><u>Romantic Revelries in Rue Saint-Michel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-shared-lexicon-ukraine-and-russias-speech/"><u>The Shared Lexicon: Ukraine & Russia's Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/time-honored-tongues-ancient-language-guide/"><u>Time-Honored Tongues: Ancient Language Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unlocking-the-full-potential-of-apods-downloads/"><u>Unlocking the Full Potential of APods Downloads</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: First Steps in Mastering German Linguistics
-date: 2024-09-10T13:24:36.875Z
-updated: 2024-09-11T13:24:36.875Z
+date: 2025-01-10T09:16:13.769Z
+updated: 2025-01-16T03:00:00.342Z
 tags:
   - speak
   - english
@@ -20,51 +20,15 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 
  However, German pronunciation being difficult is just a myth._Oh ja,_ you read that right. German is actually one of the few languages where pronunciation makes sense. Once you know the rules, all you have to do is flex those pronunciation muscles and speak like a true German. It’s really not as hard as you think. Let’s break the myth together.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## The basics of the German alphabet
 
  We’ll naturally start with the basics. Much like English, the German alphabet consists of 26 standard letters. In addition to that, it also features the letter ß – known as the German ligature – and umlauted forms of three vowels: ä, ö and ü. In total,_das Alphabet_ has 8 vowels and 22 consonants.
 
  Considering you’re already familiar with all the other letters, let’s continue by taking a closer look at these four special letters: ß, ä, ö and ü.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### ß also known as ‘sharp S’, ‘eszett’ or ‘scharfes S’
 
@@ -73,20 +37,6 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
  German is the only language that uses ß and if the character is unavailable, it can be replaced with ⟨ss⟩. In fact, in Swiss Standard German (used in Switzerland and Liechtenstein), the letter was completed replaced by ⟨ss⟩ sometime in the 20th century.
 
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### German umlauts: ä, ö, ü
 
@@ -104,39 +54,13 @@ Now round off your lips and start practicing!
 
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
-
-
-
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## German pronunciation guide for single letters
 
@@ -151,6 +75,10 @@ Now round off your lips and start practicing!
 3. **V** – Sounds like the English ‘f’. This is why _Vater_ sounds a lot like ‘father’.
 4. **J** – _Oh ja,_ you already know this one! The German _j_ is pronounced like the English ‘y’.
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## German pronunciation guide for letter combinations
 
@@ -169,19 +97,9 @@ Now round off your lips and start practicing!
 
  Did you recognize_ze rules_ in this example?
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## How to pronounce long German words
 
@@ -220,8 +138,6 @@ _Tschüss!_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -229,16 +145,26 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-macs-visual-excellence-10-list-of-ultimate-screens/"><u>[Updated] 2024 Approved Mac's Visual Excellence #10 List of Ultimate Screens</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-crafting-your-online-identity-a-facebook-tutorial-for-2024/"><u>[Updated] Crafting Your Online Identity A Facebook Tutorial for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/boost-your-day-with-chatgpts-4-time-management-solutions/"><u>Boost Your Day with ChatGPT’s 4 Time Management Solutions</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/come-mettere-a-nuovo-un-disco-solid-state-su-lenovo-thinkpad-yoga-2-pro-il-metodo-piu-efficace/"><u>Come Mettere a Nuovo Un Disco Solid-State Su Lenovo ThinkPad Yoga 2 Pro - Il Metodo Più Efficace</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/endless-learning-opportunity-anniversary-of-1500-no-cost-sessions/"><u>Endless Learning Opportunity: Anniversary of 1500 No-Cost Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-affection-in-magyar-loving-words/"><u>Expressing Affection in Magyar: Loving Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-thanks-universal-language-lessons-156/"><u>Expressing Thanks: Universal Language Lessons (156)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/farsis-intriguing-past-and-linguistic-advantages/"><u>Farsi's Intriguing Past and Linguistic Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fastest-ways-to-learn-a-language-quick-language-learning-techniques/"><u>Fastest Ways To Learn A Language - Quick Language Learning Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-ways-to-profess-love-in-hungarian/"><u>Finding Ways to Profess Love in Hungarian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-fluency-to-mastery-overcoming-the-top-9-hardest-languages/"><u>From Fluency to Mastery: Overcoming the Top 9 Hardest Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-runic-runes-to-oral-tradition-viking-language-unravewed/"><u>From Runic Runes to Oral Tradition: Viking Language Unravewed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/galaxy-tongue-unveiling-star-wars-linguistic-wonders/"><u>Galaxy Tongue: Unveiling Star Wars Linguistic Wonders</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/hd-video-revival-mending-corrupted-files/"><u>HD Video Revival: Mending Corrupted Files</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-itel-a70-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Itel A70 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/premier-call-customization-and-editing-software-for-2024/"><u>Premier Call Customization and Editing Software for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/taming-the-non-empty-directory-error-in-windows-11-and-win11-code-0x80070091/"><u>Taming the Non-Empty Directory Error in Windows 11 & Win11 (Code: 0X80070091)</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-infinix-hot-40i-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Infinix Hot 40i</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-80s-movie-roundup-10-timeless-picks-for-now/"><u>Ultimate '80S Movie Roundup: 10 Timeless Picks for Now</u></a></li>
+</ul></div>
 

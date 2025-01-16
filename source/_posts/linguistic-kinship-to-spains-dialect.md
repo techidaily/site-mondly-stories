@@ -1,7 +1,7 @@
 ---
 title: Linguistic Kinship to Spain’s Dialect
-date: 2025-01-07T17:38:04.954Z
-updated: 2025-01-10T19:23:06.210Z
+date: 2025-01-12T11:57:49.637Z
+updated: 2025-01-16T00:09:59.870Z
 tags:
   - speak
   - english
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
  The beautiful Spanish language has the**second largest number of native speakers** worldwide. While now you have to travel far and wide to discover**all the Spanish-speaking countries in the world,** things were different a few centuries back. From just a dialect in the 9th century, Spanish is now one of the most widespread languages on Earth. So where exactly is Spanish an official language?
 
  Without further ado, let’s dive in and uncover the full list of Spanish-speaking countries. While we’re at it, we’ll also look into the history behind the expansion of the Spanish language and how many people [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How many people speak Spanish?
 
@@ -56,6 +60,10 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
  Now let’s go into a little more detail and split the countries into continents.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Spanish-speaking countries in South America
 
  Since the Americas boast the highest number of Spanish-speaking countries in the world, we figured it’s best to start our exploration in South America. Out of the thirteen countries in the South American continent, nine are Spanish speaking. This means there are more Spanish-speaking countries here than anywhere else in the world.
@@ -72,10 +80,6 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 * Uruguay — 98%
 * Venezuela — 97%
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Spanish-speaking countries in Central America
 
  Out of the seven countries in Central America, only Belize doesn’t have Spanish as its official language. However, the majority of the Belizeans can speak Spanish. Thus, if you’re planning a trip to Central America, speaking Spanish will definitely come in handy.
@@ -89,6 +93,10 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
  \* the number represents the percentage of the population who speak Spanish.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Spanish-speaking countries in North America
 
  Considering that the Spanish language came here from Europe a few centuries back, it’s fascinating that Mexico is the world’s most populous Hispanophone country. In addition to Spanish, the Mexican government recognizes 68 national languages, 63 of which are indigenous. Examples include Nahuatl, Yucatec Maya, Zapotec, Mixtec, Mayo, Yaqui, Tzeltal, Tzotzil, Chol, Totonac, Purépecha and more.
@@ -96,7 +104,7 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 * Mexico — 97% (percentage of the entire population speaking Spanish)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Spanish-speaking countries in the Caribbean
@@ -106,6 +114,10 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 * Cuba — 100% (99,8 to be precise)
 * Dominican Republic — 98%
 * Puerto Rico — 99%
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in Europe
 
@@ -121,10 +133,6 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
 !['Spanish speakers' by Florian Wehde©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/spanish-speakers-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Countries where Spanish is spoken although it’s not an official language
 
  Spanish is spoken in many countries around the world, although it is not an official language in all of them. Naturally, there can be a number of reasons why this happens.
@@ -132,10 +140,6 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
  One reason is that Spain was once a very powerful empire and its influence can still be seen in many parts of the world. Another reason is that many people from Spanish-speaking countries have migrated and brought their language with them. Probably the best example is **the United States where more than 41 million people speak Spanish as a native language.**
 
  Other countries with large minorities of Spanish speakers are Belize, the Philippines (Spanish was an official language here from 1565 to 1973), Gibraltar and Andorra.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## A brief history of the Spanish language
 
@@ -155,10 +159,6 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Speak Spanish like a local fast
 
@@ -191,15 +191,24 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-mambos-in-the-mangroves/"><u>[New] 2024 Approved Mambos in the Mangroves</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-youtube-calendar-events-beyond-vidcon/"><u>[Updated] The Ultimate Youtube Calendar Events Beyond VidCon</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/chatting-with-ai-androids-voice-controlled-gpt-explained/"><u>Cha[t]ting with AI? Android's Voice Controlled GPT Explained</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-the-turko-hanguk-intercultural-enigma/"><u>Deciphering the Turko-Hanguk Intercultural Enigma</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/durch-das-deutsche-wochenjahr-lernen/"><u>Durch Das Deutsche Wochenjahr Lernen</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-installation-secure-your-brother-hl-l2340dw-printer-with-windows-drivers-download/"><u>Easy Installation - Secure Your Brother HL-L2340DW Printer with Windows Drivers Download</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Apple iPhone 6s? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576550079-mondly-is-now-available-on-huawei-appgallery/"><u>Mondly Is Now Available On Huawei AppGallery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581601937-rapid-norwegian-understanding-10-daily-moments/"><u>Rapid Norwegian Understanding, 10 Daily Moments!</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/resolving-low-performance-pcs-overcoming-intel-hd-graphics-issues/"><u>Resolving Low-Performance PCs: Overcoming Intel HD Graphics Issues</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-building-brand-presence-a-guide-to-planning-instagram-videos-for-2024/"><u>[New] Building Brand Presence A Guide to Planning Instagram Videos for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-elevate-your-skills-comprehensive-periscope-tutorial-for-2024/"><u>[Updated] Elevate Your Skills Comprehensive Periscope Tutorial for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-complete-seo-strategy-for-podcast-growth/"><u>[Updated] The Complete Seo Strategy for Podcast Growth</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/data-disappears-in-excel-2023-how-to-get-it-back-by-stellar-guide/"><u>Data Disappears in Excel 2023 - How to get it back</u></a></li>
+<li><a href="https://win-forum.techidaily.com/fixing-task-failed-to-complete-error-in-windows-11-quickly-and-easily/"><u>Fixing 'Task Failed to Complete' Error in Windows 11 Quickly and Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/happiness-transcends-language-on-74/"><u>Happiness Transcends Language on 7/4</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/immediate-frame-grabbers-help-for-2024/"><u>Immediate Frame Grabber's Help for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/lg-smart-tv-streaming-how-to-get-espn-plus-live-and-on-demand/"><u>LG Smart TV Streaming: How To Get ESPN Plus Live and On Demand</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifelong-learning-top-4-benefits-for-multilingual-adults/"><u>Lifelong Learning: Top 4 Benefits for Multilingual Adults</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-french-books-best-novels-for-beginners-outlined/"><u>Mastering French Books: Best Novels For Beginners Outlined</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-secures-title-germanys-best-virtual-linguistic-hub/"><u>Mondly Secures Title: Germany's Best Virtual Linguistic Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/self-taught-french-strategies-unveiled/"><u>Self-Taught French Strategies Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-speaking-filipino-today-with-easy-10-minute-lessons/"><u>Start Speaking Filipino Today with Easy 10-Minute Lessons</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/stop-the-blue-screen-nightmare-overcoming-error-0xc000021a-in-windows-11-and-8-your-complete-fixer/"><u>Stop the Blue Screen Nightmare: Overcoming Error 0xC000021A in Windows 11 and 8 - Your Complete Fixer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/temps-de-la-semaine-en-france/"><u>Temps De La Semaine en France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/terms-and-conditions-updated-clarity/"><u>Terms & Conditions: Updated Clarity</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-breakdown-of-lg-channels-what-you-must-know/"><u>The Ultimate Breakdown of LG Channels - What You Must Know</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/understanding-emeditors-inbuilt-character-encoding-in-version-10/"><u>Understanding EmEditor's Inbuilt Character Encoding in Version 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-languages-at-the-peak/"><u>World Languages at the Peak</u></a></li>
 </ul></div>
 

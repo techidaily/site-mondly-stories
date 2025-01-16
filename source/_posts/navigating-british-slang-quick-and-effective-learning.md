@@ -1,7 +1,7 @@
 ---
 title: "Navigating British Slang: Quick & Effective Learning"
-date: 2025-01-04T20:23:57.530Z
-updated: 2025-01-10T19:41:21.733Z
+date: 2025-01-11T23:21:18.005Z
+updated: 2025-01-16T07:10:24.090Z
 tags:
   - speak
   - english
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/48eff568c35933b40401a65faa40dbe7bb6a58eb4
 
  It’s completely possible that you walk into a British bar and don’t understand more than half of what they are saying. If you don’t want to be this person and you want to be able to converse fluently with your British mates, then we’re here to help you out!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 50+ British Phrases and their Meanings
 
  Have you ever been the odd one out in a group of British mates not getting the joke? Do they all belly laugh while you are left grinning awkwardly alongside them?
@@ -42,24 +38,16 @@ thumbnail: https://thmb.techidaily.com/48eff568c35933b40401a65faa40dbe7bb6a58eb4
 
  In this section, we will look at the phrases that will make you sound more British. Some of them might be those British phrases you always hear on TV shows or movies.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### _Alright?_
 
  Although it may mean “ok” in North America, it’s the equivalent of “how are you?” in British English.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### _I’m knackered_
 
 I’m tired.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Cheeky_
@@ -70,9 +58,17 @@ Mischievous or playful.
 
 This is a very British thing to say meaning very.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### _I’m pissed_
 
  Not meaning the regular “angry”, in British talk it actually means you’re very drunk and is used quite a lot when you are out drinking with friends.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _Mate_
 
@@ -82,17 +78,21 @@ A common one and quite cliché – mate means friend.
 
  It could mean_garbage_ or_nonsense,_ depending on the context.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### _Cockney_
 
 A person native to East London.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### _Blimey_
 
  Similar to the American_wow_ ,_blimey_ is used to describe something that takes you by surprise.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _Bloke_
 
@@ -101,10 +101,6 @@ A person native to East London.
 ### _Bollocks_
 
  One of the more well-known British terms, it actually has a multitude of meanings. It could be used to symbolize disbelief, or to talk about a man’s private parts.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Funny British Sayings
 
@@ -136,7 +132,7 @@ A person native to East London.
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4428&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4428&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4428%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fancy British Words
@@ -184,6 +180,10 @@ A person native to East London.
 * _Innit?_ – An even more contracted form of isn’t it?
 * _Miffed_ – Annoyed
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stereotypical British Phrases
 
 * _Keep calm and carry on_ – A famous British slogan encouraging people to remain level-headed in times of turmoil.
@@ -196,6 +196,10 @@ A person native to East London.
 * _It’s not my cup of tea_ – Expressing a lack of interest or preference for something.
 * _Posh nosh_ – Refers to high-quality or fancy food.
 * _Take the Mickey_ – Making fun of or tease someone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **British Compliments**
 
@@ -228,16 +232,12 @@ A person native to East London.
 
  Having learned some of the most common British words and phrases, let’s move on to some frequently asked questions.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Why do the British say ‘cheers’?
 
  ‘Cheers’ is an informal manner of expressing gratitude, akin to saying ‘thank you’. When combined with the word ‘mate’, it forms the phrase “Cheers, mate”, which carries the same meaning as “Thank you, my friend.”
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Can you be British but not English?
@@ -280,20 +280,22 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ed-cultivating-the-culture-of-creativity-within-youtube-shorts-for-2024/"><u>[Updated] Cultivating the Culture of Creativity Within YouTube Shorts for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-in-depth-analysis-top-car-traffic-cameras/"><u>[Updated] In 2024, In-Depth Analysis Top Car Traffic Cameras</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/7-unforeseen-effects-of-multilingualism-on-personal-growth/"><u>7 Unforeseen Effects of Multilingualism on Personal Growth</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bilingual-wishes-to-celebrate-spring-holiday/"><u>Bilingual Wishes to Celebrate Spring Holiday</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/choosing-the-right-language-to-master-afterward/"><u>Choosing the Right Language to Master Afterward</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-pova-5-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Pova 5</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-vivo-y78plus-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Vivo Y78+ Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivate-conversational-confidence-in-social-vr-realms/"><u>Cultivate Conversational Confidence in Social VR Realms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-a-new-culture-mastering-croatian-here-are-the-top-7-reasons/"><u>Dive Into a New Culture - Mastering Croatian: Here Are The Top 7 Reasons!</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/expert-advice-for-sharing-the-joy-of-gaming-with-steam-gift-cards/"><u>Expert Advice for Sharing the Joy of Gaming with Steam Gift Cards</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-samsung-galaxy-a25-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Samsung Galaxy A25 5G to iPhone Easily | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/intel-releases-battlemage-a-game-changer-with-superior-energy-efficiency-saving-100w-more-than-ice-lake-maintaining-overclocking-prowess-post-raptor-lake-im72/"><u>Intel Releases Battlemage: A Game-Changer with Superior Energy Efficiency Saving 100W More than Ice Lake, Maintaining Overclocking Prowess Post Raptor Lake Improvements</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578294249-kickoff-2023-on-a-high-note-enjoy-free-mondly-pro-for-life/"><u>Kickoff 2023 on a High Note, Enjoy Free Mondly Pro for Life!</u></a></li>
-<li><a href="https://program-issues.techidaily.com/no-more-pausing-in-cyberpunk-2077-fixed-unfreeze-your-game-now/"><u>No More Pausing in Cyberpunk 2077 – Fixed! Unfreeze Your Game Now</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/obs-vs-shadowplay-which-recording-tool-takes-the-prize/"><u>OBS Vs ShadowPlay Which Recording Tool Takes the Prize?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-spectrum-screens-a-new-film-language/"><u>[New] Spectrum Screens A New Film Language</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-virtual-realities-made-tangible-6-metaverse-examples-reviewed-for-2024/"><u>[Updated] Virtual Realities Made Tangible 6 Metaverse Examples Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-where-custom-visuals-for-youtube-live-and-breathe/"><u>[Updated] Where Custom Visuals for YouTube Live and Breathe</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tial-7-dslrs-to-elevate-virtual-presentations-and-broadcasts/"><u>Essential 7 DSLRs to Elevate Virtual Presentations & Broadcasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honteruss-impact-on-the-world/"><u>Honterus's Impact on the World</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-x90s-phone-without-google-account-by-drfone-android/"><u>How to Unlock Vivo X90S Phone without Google Account?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-xiaomi-civi-3-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Xiaomi Civi 3 FRP</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210346829-9782226433992-le-joyau-de-lame/"><u>Le Joyau de l'âme | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/love-unbound-by-language-expressive-valentines-tips/"><u>Love Unbound by Language: Expressive Valentine's Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-writing-a-step-by-step-tutorial/"><u>Mastering Japanese Writing: A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/norwegian-learning-boost-minutes-countdown/"><u>Norwegian Learning Boost, Minutes Countdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pirates-of-yore-talk-guidebook-20-expressions-dropped/"><u>Pirates of Yore Talk Guidebook: 20 Expressions Dropped</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-communication-basics-phrases-and-vocabulary-guide/"><u>Russian Communication Basics: Phrases & Vocabulary Guide</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-indispensable-jaco-smartpro-reviews-a-mini-high-powered-air-compressor-for-tires/"><u>The Indispensable Jaco SmartPro Reviews: A Mini, High-Powered Air Compressor for Tires</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-intellectual-impact-of-multilingualism/"><u>The Intellectual Impact of Multilingualism</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782635-9781594779107-the-shamanic-way-of-the-bee-2nd-ed/"><u>The Shamanic Way of the Bee (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-german-10-impactful-justifications/"><u>Why Learn German? - 10 Impactful Justifications</u></a></li>
 </ul></div>
 

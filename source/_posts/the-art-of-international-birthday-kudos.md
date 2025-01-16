@@ -1,7 +1,7 @@
 ---
 title: The Art of International Birthday Kudos
-date: 2025-01-03T18:07:24.854Z
-updated: 2025-01-10T16:46:50.243Z
+date: 2025-01-09T01:13:34.418Z
+updated: 2025-01-16T09:25:52.438Z
 tags:
   - speak
   - english
@@ -22,12 +22,16 @@ Different people in the world have different trends to celebrate birthdays, but 
 
 Have you ever thought about how people from other cultures sing birthday songs? Do they do it the same way we do it in English? What about gifts and cakes? How do they express emotions on a birthday? Do they use specific words? Let’s learn how other cultures say and commemorate birthdays!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Happy Birthday in Spanish: Feliz Cumpleaños**
 
 **Feliz Cumpleaños** are the [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) for **“Happy Completed Years”** or simply **“Happy Birthday”** since birthdays are considered a big day of celebration in most Spanish countries. “Feliz Cumpleaños amigo” is a commonly used phrase for wishing a happy birthday to your friends. The same as in Mexico, their popular unique birthday song is “Las Mañanitas“ meaning “Little Mornings“. The best and funniest part is that the birthday boy or girl must eat the first bite of the cake without using any utensils or hands. They have no custom of blowing out candles or making a wish. Yet, the party cannot ever finish without the famous piñata!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Happy Birthday in French: Bon Anniversaire**
@@ -35,16 +39,12 @@ Have you ever thought about how people from other cultures sing birthday songs? 
 ![Happy Birthday in French Bon Anniversaire](https://edge.mondly.com/blog/wp-content/uploads/2018/12/Happy-Birthday-in-French-Bon-Anniversaire.png "How To Say &Quot;Happy Birthday&Quot; In Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image source: <http://www.manutention-dauphine.fr>
 
 Joyeux Anniversaire or Bon Anniversaire are the standard ways to wish someone a happy birthday in French. But if you are speaking Canadian French or Quebec, you should say Bonne fête, meaning “Good party/Birthday”. French and English birthdays are often alike. Celebrations include party time, cake, gifts and songs like ‘Joyeux Anniversaire’. Most birthday parties are thrown on Wednesdays as French have their Wednesdays off.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Happy Birthday in Chinese:** **生日快** **乐** **(Shēngrì Kuàilè)**
 
@@ -56,17 +56,21 @@ If you’ll check the literal meaning of Shēngrì Kuàilè, you’ll see that i
 
 ![happy birthday in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-russian.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image source: <https://tops.ua>
 
 If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya”. And if you feel like memorizing a longer phrase, add “pozdravlyayu” in the start and it will transform to “I congratulate you on your birthday”. Russians have a funny tradition of celebrating. The guests pull the celebrated’s ears for a number of times equal to his or her age. The phrase “Grow up – don’t be noodles,” is considered as a sign of good omen for the growth of children. It means the child will grow up strong and healthy. Birthday songs are not common am0ng them, but if the person has survived after a severe accident, that day is celebrated as another birthday.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Happy Birthday in Dutch: Gefeliciteerd Met Je Verjaardag**
 
 “Gefeliciteerd Met Je Verjaardag” means “Congratulations on your birthday!” in the Netherlands. An interesting custom here is that they mark their calendars for everyone’s birthday and keep that calendar by their toilet. It acts as a reminder for birthdays since forgetting one’s birthday is a major offense to your loved ones. The 50th birthday is celebrated with full bliss and cheer because it is thought that at the age of 50, men see Abraham and women see Sarah – the biblical couple who gave birth to a child at a very old age.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Happy Birthday in Swedish: Grattis På Födelsedagen**
 
@@ -75,10 +79,6 @@ If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya
 Image source: <https://trivselkort.com>
 
 “Grattis På Födelsedagen” is translated to “Birthday congratulations!” in Swedish. The Swedish culture has a lot of love for celebrating birthdays. They often surprise the celebrated with birthday gifts and breakfast in bed while singing “Ja, ma du leva” meaning “Yes, may you live”. Their traditional party has a cake coated in green marzipan with gifts wrapped in blue and gold sheets – the colors of the Swedish flag.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Happy Birthday in Hindi: जन्मदिन की शुभकामनाएं (Janmadin Kee Shubhakaamanaen)
 
@@ -121,22 +121,18 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-crafting-fast-fortnite-icons-in-minutes/"><u>[Updated] Crafting Fast Fortnite Icons in Minutes</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-drone-frontier-deconstructing-djis-mavic-pro-masterpiece/"><u>[Updated] In 2024, Drone Frontier - Deconstructing DJI's Mavic Pro Masterpiece</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-record-webcam-video-with-vlc-for-2024/"><u>[Updated] Record Webcam Video with VLC for 2024</u></a></li>
-<li><a href="https://media-tips.techidaily.com/discover-the-best-no-cost-dependable-video-recording-apps-for-pc-and-mac-users/"><u>Discover the Best No-Cost, Dependable Video Recording Apps for PC and Mac Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enriching-life-at-sixty-by-learning-languages/"><u>Enriching Life at Sixty by Learning Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/get-ahead-of-the-game-snag-a-lifetime-savings-deal-with-mondly/"><u>Get Ahead of the Game: Snag a Lifetime Savings Deal with Mondly!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hastening-language-acquisition-a-guide/"><u>Hastening Language Acquisition: A Guide</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-a-streamers-checklist-for-flawless-twitch-live-recordings/"><u>In 2024, A Streamer's Checklist for Flawless Twitch Live Recordings</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-discarding-virtual-gatherings-on-fb-pcsmartphones/"><u>In 2024, Discarding Virtual Gatherings on FB, PC/Smartphones</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-exploring-toolwiz-photosapp-in-depth-review-2023/"><u>In 2024, Exploring Toolwiz PhotosApp In-Depth Review, 2023</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-leverage-the-best-latin-sayings-to-impress-crowds/"><u>Language Leverage: The Best Latin Sayings to Impress Crowds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-social-dynamics-with-these-iconic-50-latin-expressions/"><u>Master Social Dynamics with These Iconic 50 Latin Expressions</u></a></li>
-<li><a href="https://common-error.techidaily.com/quick-fixes-for-the-common-update-failed-error-8007000e-on-windows-systems/"><u>Quick Fixes for the Common 'Update Failed' Error 8007000E on Windows Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/redesigned-sites-legalese-guide/"><u>Redesigned Site's Legalese Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-australian-slang-for-you/"><u>Speak Like a Local: Australian Slang for You</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-history-and-origins-of-the-dutch-language/"><u>The History And Origins Of The Dutch Language</u></a></li>
-<li><a href="https://video-capture.techidaily.com/top-5-efficient-mac-snippers-for-quick-captures/"><u>Top 5 Efficient Mac Snippers for Quick Captures</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-dissecting-dji-inspire-2s-capabilities/"><u>[New] In 2024, Dissecting DJI Inspire 2'S Capabilities</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-achieve-financial-insight-the-simple-three-steps-to-assess-youtube-earning-potential/"><u>[Updated] Achieve Financial Insight The Simple Three Steps To Assess YouTube Earning Potential</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-quicksnapper-simple-recording-on-windows-10/"><u>2024 Approved QuickSnapper Simple Recording on Windows 10</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-the-editors-edge-advanced-tactics-for-youtube-video-spins-guide/"><u>2024 Approved The Editor's Edge Advanced Tactics for YouTube Video Spins (Guide)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-perfection-with-every-dark-series-binge-watch/"><u>German Perfection with Every Dark Series Binge-Watch</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-infinix-smart-8-pro-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Infinix Smart 8 Pro</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-superior-visual-experience-ranking-the-best-12-html5-players/"><u>In 2024, Superior Visual Experience Ranking the Best 12 HTML5 Players</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-without-limits-mondly-integrated-into-oculus-quests-vr-odyssey/"><u>Language without Limits: Mondly Integrated Into Oculus Quest's VR Odyssey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-catalan-online-in-just-10-minutes-a-day/"><u>Learn Catalan Online In Just 10 Minutes A Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mornings-unleashed-the-many-faces-of-good-morning-worldwide/"><u>Mornings Unleashed: The Many Faces of Good Morning Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-essentials-the-top-93-phrases-for-international-excursions/"><u>Spanish Essentials: The Top 93 Phrases for International Excursions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-quick-guide-to-korean-mastery-6-recommended-digital-platforms/"><u>The Quick Guide to Korean Mastery - 6 Recommended Digital Platforms</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-sony-xperia-5-v-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Sony Xperia 5 V Location | Dr.fone</u></a></li>
 </ul></div>
 

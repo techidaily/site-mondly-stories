@@ -1,7 +1,7 @@
 ---
 title: Global Halloween Festivities & Customs
-date: 2025-01-04T16:29:33.996Z
-updated: 2025-01-10T16:49:52.907Z
+date: 2025-01-15T02:36:02.470Z
+updated: 2025-01-15T19:26:32.306Z
 tags:
   - speak
   - english
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
  The leaves have all turned yellow, red and brown. Everywhere in the neighborhood smells like pumpkin pie, roasted chestnuts and mulled wine. Everyone is wearing warmer clothes and brighter smiles. Kids are carrying their heavy schoolbags back home to a delicious lunch and scary jack-o’-lanterns have begun popping up here and there. It’s glaringly obvious:**Halloween is almost here!** Soon enough houses will be covered in black and orange decorations and children will shout excitedly:**“Trick or treat?! Give me something good to eat!”.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Origins of Halloween
 
  Celebrated yearly on October 31, Halloween, Hallowe’en or All Hallows’ Eve is a world-old holiday whose origins date back to the ancient Celtic festival of Samhain that took place on the lands that are now Ireland, the United Kingdom, and northern France. For hundreds – or even thousands – of years, people have celebrated this holiday, but it was never as loved and as notorious as it is today.
@@ -31,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 ## Halloween-like Traditions Worldwide
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Mexico: Día de Muertos (Day of the Dead)
@@ -42,17 +38,9 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Calaveras” by Valeria Almaraz©
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### China: The Hungry Ghost Festival
 
@@ -61,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
  Celebrated yearly during the seventh month in the lunar calendar (September, also known as the Ghost Month) with a peak on the 15th day (also known as Ghost Day), one of the most interesting traditions of the Hungry Ghost Festival is serving meals (often vegetarian) with empty seats for each deceased in the family and treating the deceased as if they are still living.
 
 ![Traditional practices during the Hungry Ghost Festival in China](https://edge.mondly.com/blog/wp-content/uploads/2019/09/9609227445_5a2c7c2f90_o-960x640.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 7")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “The Hungry Ghost Festival” by Matthew Kang©
 
@@ -73,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
@@ -88,11 +80,19 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
  Contrary to what you may believe, pumpkins and asking for candy and gifts are traditions of the past that were popular in many Italian regions before the American Halloween became so notorious.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Romania: Saint Andrew’s Day
 
  Thanks to Dracula, Romania is now one of the most well-known Halloween destinations. Everyone dreams of partying at Dracula’s Castle. In reality, both Catholic and Orthodox churches in Romania discourage Halloween celebrations. Instead, they advocate for the celebrations of the Day of the Dead on 1 November, when special religious ceremonies are held for the souls of the deceased.
 
 ![dracula's castle](https://edge.mondly.com/blog/wp-content/uploads/2019/09/draculas-castle-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 9")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Dracula’s Castle in Romania” by Nomadic Julien©
 
@@ -136,22 +136,22 @@ thumbnail: https://thmb.techidaily.com/3edb5ed0f59ba6116f7a3ed0872c7594498c971b0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-remedy-for-accidental-youself-reappearance-during-fb-chats/"><u>[New] In 2024, Remedy for Accidental 'Youself' Reappearance During FB Chats</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-sony-xperia-xz-bridging-the-gap-to-ultra-hd-phones/"><u>[New] Sony Xperia XZ - Bridging the Gap to Ultra HD Phones</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-compact-5-listing-visuals-with-accompaniment-recorders/"><u>[Updated] In 2024, Compact 5 Listing Visuals with Accompaniment Recorders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/blueprint-for-achieving-new-year-goals/"><u>Blueprint For Achieving New Year Goals</u></a></li>
-<li><a href="https://win11.techidaily.com/boosting-game-loading-times-for-epic-universe/"><u>Boosting Game Loading Times for Epic Universe</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dawn-dictionaries-10-languages-one-sunrise-salutation/"><u>Dawn Dictionaries: 10 Languages, One Sunrise Salutation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engage-anytime-anywhere-mondly-and-huawei/"><u>Engage Anytime, Anywhere - Mondly and Huawei</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-linguistics-for-enhanced-intelligence/"><u>Global Linguistics for Enhanced Intelligence</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-oneplus-12-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove OnePlus 12 Fingerprint Lock</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-from-novice-to-expert-advanced-screencasting-steps/"><u>In 2024, From Novice to Expert Advanced Screencasting Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-learning-lifelines-top-ten-ways-for-a-better-future/"><u>Language Learning Lifelines: Top Ten Ways for a Better Future</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/milestones-in-a-decade-mondlybacks-button-innovations/"><u>Milestones in a Decade: MondlyBack’s Button Innovations</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solving-the-problem-of-an-unresponsive-iphone-tips-and-tricks/"><u>Solving the Problem of an Unresponsive iPhone – Tips & Tricks</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/streamline-conversations-androids-chatgpt-widget-guide/"><u>Streamline Conversations: Android's ChatGPT Widget Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-motivational-force-behind-honterus/"><u>The Motivational Force Behind Honterus</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-redesigned-home-tab-and-feed-structure-on-facebook/"><u>Unveiling The Redesigned Home Tab & Feed Structure on Facebook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/virtual-voyage-speak-a-foreign-language-effortlessly/"><u>Virtual Voyage: Speak a Foreign Language Effortlessly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/por-que-vs-por-que-a-language-conundrum-solved/"><u>'Por Que' Vs 'Por Qué': A Language Conundrum Solved</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-effortless-guide-to-share-your-videos-as-shorts-on-computers-and-phones/"><u>[Updated] 2024 Approved Effortless Guide to Share Your Videos as Shorts on Computers & Phones</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmony-or-hindrance-grammar-in-language-education/"><u>Harmony or Hindrance: Grammar in Language Education?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-merge-audio-files-into-powerpoint-staging/"><u>In 2024, Merge Audio Files Into PowerPoint Staging</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Vivo V27e? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-infinix-smart-7-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Infinix Smart 7 Phone Pattern Lock</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-the-art-of-conversation-with-openais-chatgpt/"><u>Mastering the Art of Conversation with OpenAI's ChatGPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-precision-learn-with-english-twisters/"><u>Pronunciation Precision: Learn with English Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-prowess-engage-in-twisting-words/"><u>Pronunciation Prowess: Engage in Twisting Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swedens-alphabet-in-a-nutshell/"><u>Sweden's Alphabet in a Nutshell</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-fluent-socializing-across-latam-languages/"><u>The Ultimate Guide to Fluent Socializing Across LatAm Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-language-learning-my-experience-using-mondly-top-10/"><u>The Ultimate Guide to Language Learning: My Experience Using Mondly (Top 10)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viking-vernacular-unveiling-the-lost-nordic-dialect/"><u>Viking Vernacular: Unveiling the Lost Nordic Dialect</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-htc-u23-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For HTC U23? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/winxvideo-ai-the-ultimate-solution-for-high-quality-screenshots-webcam-footage-and-audio-capture/"><u>Winxvideo AI: The Ultimate Solution for High-Quality Screenshots, Webcam Footage, and Audio Capture</u></a></li>
 </ul></div>
 

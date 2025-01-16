@@ -1,7 +1,7 @@
 ---
 title: The Essential Dictionary of Casual Speech
-date: 2025-01-04T20:39:10.920Z
-updated: 2025-01-10T20:30:53.205Z
+date: 2025-01-13T11:21:38.181Z
+updated: 2025-01-15T17:09:48.780Z
 tags:
   - speak
   - english
@@ -36,17 +36,9 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
 6. [How to use slang words in conversation](#useslang)
 7. [How to learn English slang words](#learnslang)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **What are English slang words?**
 
  According to Oxford,**“slang”** is **“a type of language consisting of words and phrases that are regarded as very informal, are more common in speech than writing, and are typically restricted to a particular context or group of people”.** For example, the slang words and phrases we are going to talk about today are defining for two generations known as “millennials” and “gen z” – but mostly “gen z” because – let’s face it – today’s teenagers have come up with tons of new slang terms that even I, as a millennial, have trouble understanding. Praised be the mighty internet for slang dictionaries!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why is it important to learn English slang words?
 
@@ -55,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
  But besides being understood only within a particular group, slang can also be general. For instance, almost every native English speaker knows that to be “filthy rich” doesn’t mean to be dirty, but to have a lot of money. In this situation, as [Eric Partridge observes](https://archive.org/details/in.ernet.dli.2015.58766/page/n8) , slang changes its objective of being limited to a certain group to easing social intercourse and to reducing the solemnity, pomposity, and excessive seriousness of a conversation.
 
  **Thus, it’s important to know English slang words because they bring us closer and while also enriching the language.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **History of English slang words**
 
@@ -95,11 +91,19 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
 
 _Dude, the party last night was lit! Where were you?_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Extra
 
  When someone is “extra”, it means they are unnecessarily dramatic, excessive, over the top or a “drama queen”.
 
 _She invited the entire school to her birthday. She’s so extra!_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Salty
 
@@ -113,10 +117,6 @@ _Nick is so salty since his parents took away his car!_
 
 _OMG! Did you hear Cristina ghosted Matt?_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## To flex
 
 Another way of saying someone is showing off.
@@ -128,10 +128,6 @@ _– Andrew’s trying to flex with that new no-name smartphone of his._
 _– Yeah. Like weird flex but OK._
 
 ![flex](https://media.giphy.com/media/mEDj3oXP1t55pE0fCh/giphy-downsized-large.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 4")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Lowkey & highkey
 
@@ -150,7 +146,7 @@ _– Did you see?‌ The new season of Lucifer just landed on Netflix!_
 _– OMG‌ I’m shook! I need to watch it ASAP!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tea
@@ -162,6 +158,10 @@ _What happened at Jessica’s birthday party? Come on, spill the tea!_
 ![english slang](https://edge.mondly.com/blog/wp-content/uploads/2019/11/english-slang-1024x810.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 5")
 
  “Teenagers” by Jed Villejo©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## To clap back
 
@@ -185,6 +185,10 @@ _– Ugh! I wish I was in Bora Bora right now._
 
 _– Mood!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Hangry
 
  When you are so hungry that you are angry! (probably the most relatable slang word Gen Z taught us).
@@ -205,6 +209,10 @@ _Pedro Pascal’s performance in The Last of Us slayed._
 
 ![pedro pascal](https://media.giphy.com/media/xa5PxUklxPjMqK81jc/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Receipts
 
 Proof or evidence of something that happened.
@@ -212,10 +220,6 @@ Proof or evidence of something that happened.
 _– How do you know Jamie is cheating on Sylvie?_
 
 _– Honey, I got all the receipts._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Sus
 
@@ -236,6 +240,10 @@ _– Non-boomer: OK boomer._
 
 _Bro, we have a moral obligation to stay woke. Inform yourself!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Savage
 
 This is used when someone is bold and doesn’t care about consequences.
@@ -253,7 +261,7 @@ _– Whoa, don’t be such a stan._
 ![jon](https://media.giphy.com/media/3o7qE2fiT5seO2lIre/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 7")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  **Other_lit_ mentions:** _gucci_ (good, doing well, feeling fine),_TFW_ (that feeling when),_squad_ (a group of friends),_JOMO_ (Joy Of Missing Out),_fam_ (a group of friends that feels like family),_dank_ (really cool),_basic_ (interested in mainstream or very popular things),_woke_ (being aware of current events).
@@ -270,10 +278,6 @@ _– Whoa, don’t be such a stan._
 * **Spelling:** Spelling can also differ between countries. For instance, Americans spell “color” without a ‘u’, while in the UK, they use the spelling “colour”.
 * **Pronunciation:** Don’t get me started. The differences between [British English and American English](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) are plentiful in this sector.
 * **Culture:** For example, Australian slang is heavily influenced by surfing and beach culture, while American slang has been influenced by hip-hop and African American Vernacular English.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Examples of popular slang words in different regions**
 
@@ -329,7 +333,7 @@ _– Whoa, don’t be such a stan._
 !['English slang words' by RODNAE Productions©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/english-slang-words-960x640.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **How to use slang words in conversation**
@@ -343,10 +347,6 @@ _– Whoa, don’t be such a stan._
 5. **Be yourself:** If using slang terms doesn’t feel natural, maybe they are not for you. Everyone loves a cool mom or dad, but overdoing it can be_cringe_ . Or at least that’s what teenagers believe.
 
  Remember, slang words are meant to be fun and expressive, but using them appropriately and in the right context is very important.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Learning English slang words**
 
@@ -401,18 +401,20 @@ Okay, so what did we learn so far? Let’s recap:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-comprehensive-guide-to-live-streaming-with-obs-and-platforms/"><u>[New] 2024 Approved Comprehensive Guide to Live-Streaming with OBS and Platforms</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-next-morning-analysis-fresh-insights-for-2024/"><u>[Updated] Next Morning Analysis Fresh Insights for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1970-two-mules-for-sister-sara-with-eastwood-as-hogan-a-mercenary-who-is-hired-to-protect-a-mexican-nun-from-bandits-and-revolutionaries-in-mexico-during-th297/"><u>1970 - Two Mules for Sister Sara, with Eastwood as Hogan, a Mercenary Who Is Hired to Protect a Mexican Nun From Bandits and Revolutionaries in Mexico During the French Intervention. The Film Was Based on B. Traven's Novel ''A Wave Across Hell''</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/begin-your-italian-adventure-key-phrases-for-social-interaction/"><u>Begin Your Italian Adventure: Key Phrases for Social Interaction</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-doses-of-urdu-ten-minutes-lifelong-gain/"><u>Daily Doses of Urdu: Ten Minutes, Lifelong Gain</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-words-and-grammar-mondlys-pathway-to-2022-glory/"><u>Discovering Words & Grammar: Mondly’s Pathway to 2022 Glory</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/how-to-get-blessed-gospel-music-as-your-ringtone-for-2024/"><u>How to Get Blessed Gospel Music as Your Ringtone for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-covert-composition-of-private-recordings/"><u>In 2024, Covert Composition of Private Recordings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-multiple-languages-at-once/"><u>Learn Multiple Languages At Once</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/optimizing-video-creation-in-obs-studio/"><u>Optimizing Video Creation in OBS Studio</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-joy-1500-days-free-from-learning-cost/"><u>The Joy: 1,500 Days Free From Learning Cost</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unbeatable-deals-save-on-the-asus-vivobook-pro-with-a-300-discount-now-available-on-amazon-insights-from-zdnet/"><u>Unbeatable Deals: Save on the Asus VivoBook Pro with a $300 Discount Now Available on Amazon - Insights From ZDNet</u></a></li>
-<li><a href="https://driver-install.techidaily.com/updating-sound-drivers-for-enhanced-audibility-on-w10/"><u>Updating Sound Drivers for Enhanced Audibility on W10</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-evade-robotic-ratings-for-real-time-traffic-surge/"><u>[Updated] 2024 Approved Evade Robotic Ratings for Real-Time Traffic Surge</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-dissecting-mr-beasts-fortune-portfolio/"><u>[Updated] In 2024, Dissecting Mr. Beast's Fortune Portfolio</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/exceptional-value-in-depth-review-of-the-motorola-one-the-economical-iphone-clone/"><u>Exceptional Value: In-Depth Review of the Motorola One - The Economical iPhone Clone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/gpu-reboot-simplified-2024s-ddu-methods/"><u>GPU Reboot Simplified - 2024'S DDU Methods</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-obs-and-streamlabs-battle-who-will-triumph-in-live-broadcasts/"><u>In 2024, OBS and Streamlabs Battle Who Will Triumph in Live Broadcasts?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-top-free-template-libraries-for-aspiring-ae-artists/"><u>In 2024, Top FREE Template Libraries for Aspiring AE Artists</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ingenieria-del-lenguaje-identificacion-de-cognados-falsos/"><u>Ingeniería Del Lenguaje: Identificación De Cognados Falsos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-german-a-difficult-target-for-learners/"><u>Is German a Difficult Target for Learners?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/langsam-gehende-abfahrtsprache-fur-deutsche/"><u>Langsam Gehende Abfahrtsprache Für Deutsche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-revolution-mondly-now-on-oculus-quest/"><u>Language Revolution: Mondly Now on Oculus Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastery-over-spanish-sounds-with-diacritical-marks/"><u>Mastery Over Spanish Sounds with Diacritical Marks</u></a></li>
+<li><a href="https://win-able.techidaily.com/pc-players-troubleshoot-fixing-warzone-20-continuous-crashes/"><u>PC Players Troubleshoot: Fixing Warzone 2.0 Continuous Crashes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-portuguese-voice-vowels-variation-study/"><u>The Portuguese Voice Vowels Variation Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-picking-up-a-language-post-fifty-is-wise/"><u>Why Picking Up a Language Post-Fifty Is Wise</u></a></li>
 </ul></div>
 

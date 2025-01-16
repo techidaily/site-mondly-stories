@@ -1,7 +1,7 @@
 ---
 title: "World Wake-Up Calls: Morning Greetings In 10 Diverse Tongues"
-date: 2024-09-05T04:36:04.561Z
-updated: 2024-09-06T04:36:04.561Z
+date: 2025-01-10T11:51:15.074Z
+updated: 2025-01-15T19:09:48.086Z
 tags:
   - speak
   - english
@@ -37,6 +37,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  It is also important to note that in some countries from South America it’s common to say “buen día” which is literally the singular form of “buenos días”. However, if you go to Spain, it’s best to stick with “buenos días”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Good morning in French:_Bon matin !_
 
  **Remember this: in European French, there is no exact translation for the phrase “good morning”.** Therefore, in France, you should always use [“bonjour”](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) instead of “bon matin” if you want to “good morning” in French.
@@ -52,29 +56,15 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  As you probably know, Germans like to be efficient, so sometimes greetings tend to be kept short. Therefore, in informal situations, you can simply say “Morgen!”.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Good morning in Italian:_Buongiorno!_
 
  Everyone is familiar with the Italian “ciao” which means “hi”. It has become so popular, that it is often used between friends in countries all around the world. However, if you want to say “good morning” in Italian, the word you are looking for is “buongiorno”.
 
  Literally meaning “good day”, “buongiorno” can safely be used in all kinds of social contexts from morning until after lunch.
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Good morning in Portuguese:_Bom dia!_
 
  In Portuguese, “bom dia” is how you say “good morning”. Literally translated as “good day”, this greeting is commonly used between the hours of 5:30 a.m. and 12:00 – 1:00 p.m.
@@ -99,6 +89,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  The same as the English “good morning”, 早 (zǎo) can be used in most social settings provided it’s morning, of course.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 8\. Good morning in Japanese:_おはようございます！_
 
  When greeting someone in the morning hours before 10:00 a.m. in Japanese, おはようございます_(Ohayōgozaimasu)_ is the most appropriate choice. It is considered more formal than こんにちは_(Konnichiwa)_ or “hello” and is safe to use with people you are not familiar with or in formal settings such as with your boss or teacher.
@@ -107,24 +101,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 !["Good morning in Spanish" by Dawid Zawiła©](https://edge.mondly.com/blog/wp-content/uploads/2023/01/good-morning-in-spanish-960x640.jpg "How To Say Good Morning In 10 Different Languages 2")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. Good morning in Arabic:_صباح الخير!_
 
  The most common way to say “good morning” in Arabic is_صباح الخير (_ _Sabah alkhayr)_ . The usual response to this is صباح النور_(Sabah an-noor)_ which means “morning of light”. Isn’t that just beautiful?
@@ -133,12 +109,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Careful though! As beautiful as they sound, these last examples can only be used with friends or people who are very close to your heart.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 10\. Good morning in Hindi:_सुप्रभात!_
 
  To say “good morning” in [Hindi](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can use the phrase सुप्रभात_(Suprabhaat) _ . This is a common and polite way to greet someone in the morning and it is appropriate for both formal and informal settings.
@@ -146,11 +116,9 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  If you want to ask about the person’s well-being after greeting them, you can add क्या हाल है?_(kya haal hai?)_ which means “how are you?”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bonus: Good morning in Romanian:_bună dimineața!_
 
  Easy enough! The most straightforward way to say “good morning” in Romanian is “bună dimineața”. While the diacritics may look weird, they are quite easy to pronounce. You will pronounce “ă” like “uh” or the last sound in the word “the”. “Ț”, on the other hand, is similar to the sound you make when you say “ts”.
@@ -163,11 +131,9 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## From “good morning” to conversational fast
 
  Do you want to learn languages fast? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -190,8 +156,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -199,8 +163,26 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/updated-deconstructing-the-viva-video-experience-for-2024/"><u>[Updated] Deconstructing the Viva Video Experience for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-mobile-methods-for-capturing-snapchat-content/"><u>2024 Approved Mobile Methods for Capturing Snapchat Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-premier-online-entrepreneurs/"><u>2024 Approved Premier Online Entrepreneurs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieving-your-nye-dreams-systematically/"><u>Achieving Your NYE Dreams Systematically</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-family-app-of-year-on-google-play-mondly-kids-with-smart-controls/"><u>Best Family App of Year on Google Play: Mondly Kids with Smart Controls!</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783017-9781594775130-cactus-of-mystery/"><u>Cactus of Mystery | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/communication-language-in-croatia/"><u>Communication Language in Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-bangla-for-rapid-acquisition/"><u>Daily Dose of Bangla for Rapid Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/danish-film-compendium-mastering-the-language/"><u>Danish Film Compendium: Mastering the Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578431875-discover-limitless-possibilities-get-free-mondly-pro-for-life-today/"><u>Discover Limitless Possibilities - Get Free Mondly Pro for Life Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-false-beliefs-in-language-mastery/"><u>Discovering False Beliefs in Language Mastery</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/dont-know-which-video-splitter-to-choose-just-check-out-our-list-of-the-5-best-video-software-for-splitting-videos-below-for-2024/"><u>Dont Know Which Video Splitter to Choose? Just Check Out Our List of the 5 Best Video Software for Splitting Videos Below for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-dishes-key-tips-from-world-class-chefs-and-restaurants/"><u>Elevate Your Dishes: Key Tips From World-Class Chefs and Restaurants</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empowering-students-through-mondly-and-apple-synergy/"><u>Empowering Students Through Mondly and Apple Synergy</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-tips-for-handling-the-service-did-not-respond-issue-error-1053/"><u>Expert Tips for Handling 'The Service Did Not Respond' Issue (Error 1053)</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/free-easy-to-use-screen-recording-tools-for-windows-10/"><u>Free, Easy-To-Use Screen Recording Tools For Windows 10</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/full-screen-flash-flipbooks-a-guide-on-viewing-with-flipbuilder/"><u>Full-Screen Flash Flipbooks: A Guide on Viewing with FlipBuilder</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-hp-color-laserjet-pro-m477-driver-software-instantly-for-smooth-printing-performance/"><u>Get Your HP Color LaserJet Pro M477 Driver Software Instantly for Smooth Printing Performance</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-14-plus-with-a-mask-on-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 14 Plus with a Mask On | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Jeringas Lingüísticos en Inglés-Español: Conjunto De 50"
-date: 2025-01-07T19:17:44.583Z
-updated: 2025-01-10T19:56:20.124Z
+date: 2025-01-14T20:13:42.113Z
+updated: 2025-01-15T18:04:36.760Z
 tags:
   - speak
   - english
@@ -42,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  Some of the most popular examples are: _hospital, horrible, actor, artificial, agenda, animal, original, idea, flexible, vulnerable, superficial, reunion_ (_reunión_ in Spanish)_, melon, interminable, inevitable, tropical, experimental, excursion_ (_excursión_ in Spanish)_, capital, chocolate, probable, conclusion_ (_conclusión_ in Spanish) _, doctor, director, festival, general, individual, nostalgia, panorama, television_ (_televisión_ in Spanish)_, perfume, total, similar, terror_ and_verbal._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Near-perfect English-Spanish cognates
 
  Did you know that about 90% of Spanish cognates have the same meaning in English? The rest of them are, obviously, false friends words. This means you have only a 10% chance of saying something embarrassing or awkward. That’s not too bad, isn’t it? Besides, after reading this article the percent will surely drop significantly. Even below 0 if you also start [learning Spanish with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4685&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4685?mother%5Flang=en%5Fus?target%5Flang=es) right now (wink wink).
@@ -61,10 +65,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * erup**tion** and   _erup**ción**_
 * addi**tion** and   _adi**ción**_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Spanish Cognates that change “-nt” to “-nte”
 
 * abunda**nt** and   _abunda**nte**_
@@ -79,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * preside**nt** and   _preside**nte**_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Spanish cognates that change “-ate” to “ar”
@@ -99,10 +99,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  “Mommy, what are cognates?” by Josh Applegate©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Spanish cognates that add an “-o”
 
 * academic and   _académic**o**_
@@ -115,6 +111,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * basic and   _básic**o**_
 * artistic and   _artístic**o**_
 * dynamic and   _dinámic**o**_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish cognates that add an “-ar” or an “-ir”
 
@@ -132,7 +132,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * control and   _control**ar**_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Spanish cognates that change “-ly” to “-mente”
@@ -179,7 +179,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 ![false cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/false-cognates-600x400.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Haha! Gotcha!” by olio creative©
@@ -240,24 +240,24 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-best-10-free-recording-apps-for-slack-chats/"><u>[New] Best 10 Free Recording Apps for Slack Chats</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-perfect-crossfading-techniques-using-audacity-for-2024/"><u>[New] Perfect Crossfading Techniques Using Audacity for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-skyrocket-to-success-mastering-seo-for-youtubers-and-beyond/"><u>[New] Skyrocket to Success Mastering SEO for YouTubers and Beyond</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-how-to-kickstart-your-zoom-webinar-journey/"><u>[Updated] 2024 Approved How to Kickstart Your Zoom Webinar Journey</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-how-to-synchronize-your-drone-and-its-gimbal/"><u>[Updated] How to Synchronize Your Drone and Its Gimbal</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/5-myths-about-language-learning-you-should-definitely-learn-about/"><u>5 Myths About Language Learning You Should Definitely Learn About</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/acontece-em-portugues-as-palavras-mais-usadas-para-se-encontrar/"><u>Acontece Em Português: As Palavras Mais Usadas Para Se Encontrar</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beginners-guide-to-german-numbers-1-100/"><u>Beginner's Guide to German Numbers 1-100</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-of-dawn-greetings-a-multilingual-morning-salutation-list/"><u>Break of Dawn Greetings: A Multilingual Morning Salutation List</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-mondlys-ar-for-multilingual-education/"><u>Bridging Cultures: Mondly's AR for Multilingual Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/countries-observing-the-thanksgiving-tradition/"><u>Countries Observing the Thanksgiving Tradition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dawn-of-arabic-starting-point-explored/"><u>Dawn of Arabic: Starting Point Explored</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/disabling-apple-iphone-7-plus-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling Apple iPhone 7 Plus Parental Restrictions With/Without Password | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/diving-into-digital-success-effective-methods-for-language-study/"><u>Diving Into Digital Success: Effective Methods for Language Study</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-essential-checklist-purging-backdrops-with-affinity-photo/"><u>In 2024, The Essential Checklist Purging Backdrops with Affinity Photo</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/push-boundaries-of-browsing-and-ai-talking-with-these-extensions/"><u>Push Boundaries of Browsing and AI Talking with These Extensions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577209551-rapid-mastery-of-latvian-language-10-minute-sessions/"><u>Rapid Mastery of Latvian Language, 10-Minute Sessions</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-film-synopsis-must-know-points/"><u>Short Film Synopsis Must-Know Points</u></a></li>
-<li><a href="https://article-tips.techidaily.com/visionary-vr-game-engines-transforming-2023s-gaming-landscape/"><u>Visionary VR Game Engines Transforming 2023'S Gaming Landscape</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-youtube-conversion-guide-top-8-picks-for-avi-enthusiasts/"><u>[New] In 2024, YouTube Conversion Guide Top 8 Picks for AVI Enthusiasts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unveiling-pristine-sources-for-high-quality-tamil-ringtone-files/"><u>[New] Unveiling Pristine Sources for High-Quality Tamil Ringtone Files</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-top-3-voice-capturing-ipad-apps-reviewed/"><u>[Updated] 2024 Approved TOP 3 Voice Capturing iPad Apps Reviewed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-free-yourself-from-cash-for-sound-the-best-18-audio-crackers-on-youtube/"><u>2024 Approved Free Yourself From Cash for Sound The Best 18 Audio Crackers on YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/grandiose-photographic-epic-weaver/"><u>Grandiose Photographic Epic Weaver</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immerse-in-languages-unite-cultures-with-mondlys-revolutionary-vr-experience/"><u>Immerse in Languages, Unite Cultures with Mondly's Revolutionary VR Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-easter-wishes-translated/"><u>International Easter Wishes Translated</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-dominates-germanys-choice-for-language-mastery/"><u>Mondly Dominates: Germany's Choice for Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-named-app-of-the-day-by-apple-in-157-countries/"><u>Mondly Named App Of The Day By Apple In 157 Countries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-a-language-learning-revolution-backed-by-googles-choice/"><u>Mondly: A Language Learning Revolution, Backed by Google's Choice</u></a></li>
+<li><a href="https://windows11.techidaily.com/peering-into-microsofts-updating-mechanics-for-os/"><u>Peering Into Microsoft's Updating Mechanics for OS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-your-pronunciation-with-these-100-english-tongue-twistersback-buttonfilter-button/"><u>Perfect Your Pronunciation With These 100 English Tongue TwistersBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/phi-beta-jove-from-classical-to-modern-greek/"><u>Phi Beta Jove: From Classical to Modern Greek</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-pro-the-top-6-digital-tools-for-learning-korean/"><u>Speak Like a Pro: The Top 6 Digital Tools for Learning Korean</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210363910-9781956634037-stay-in-the-boat-devotional-book/"><u>Stay in the Boat Devotional Book | Free Book</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/top-free-mp3-download-sites-essential-resources-every-music-lover-needs/"><u>Top Free MP3 Download Sites: Essential Resources Every Music Lover Needs</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-rated-best-buy-offers-in-june-2024-featured-on-zdnet/"><u>Top-Rated Best Buy Offers in June 2024 - Featured on ZDNet</u></a></li>
+<li><a href="https://blog-min.techidaily.com/transforming-your-mac-a-step-by-step-guide-to-using-windows-compatible-keyboards-mice-and-trackballs/"><u>Transforming Your Mac: A Step-by-Step Guide to Using Windows-Compatible Keyboards, Mice, and Trackballs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unearthing-the-roots-of-human-verbal-expression/"><u>Unearthing the Roots of Human Verbal Expression</u></a></li>
 </ul></div>
 

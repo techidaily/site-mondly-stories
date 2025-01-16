@@ -1,7 +1,7 @@
 ---
 title: "Indonesian Greetings Unveiled: An Introduction"
-date: 2025-01-08T16:35:15.720Z
-updated: 2025-01-10T17:26:28.215Z
+date: 2025-01-12T23:54:18.452Z
+updated: 2025-01-15T21:38:54.227Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
 
  Besides, you’ll love [learning Indonesian words](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6912&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id) as some of them sound very cute to English speakers. Known as_Bahasa Indonesia_ to Indonesians, Indonesian calls the dolphin_lumba-lumba_ and the teeth_gigi_ . Cute. Told ‘ya!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## When and how should you say hello in Indonesia
 
  Unlike other Asian countries that place a big emphasis on the culture of respect, Indonesia doesn’t necessarily use honorifics. Besides, just like in English, Indonesian greetings don’t have formal variations for elders or those of a higher social status.
@@ -32,10 +36,6 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -44,15 +44,15 @@ thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a3
 
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
 
@@ -67,7 +67,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -77,7 +77,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say goodbye
@@ -92,7 +92,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Start learning Indonesian today
@@ -126,20 +126,20 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-essential-six-hubs-where-companies-thrive-socially-and-professionally/"><u>[New] In 2024, Essential Six Hubs Where Companies Thrive Socially & Professionally</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/uick-and-easy-guide-to-turn-videos-into-animated-gif-delights/"><u>[New] Quick & Easy Guide to Turn Videos Into Animated GIF Delights</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-instavideo-magic-crafting-a-plan-to-capture-your-audiences-attention/"><u>[Updated] 2024 Approved InstaVideo Magic Crafting a Plan to Capture Your Audience's Attention</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-mastering-screen-capture-for-google-meet-talks/"><u>2024 Approved Mastering Screen Capture for GooGle Meet Talks</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/enhancing-virtual-meetings-with-ai-the-role-of-chatgpt-in-team-engagement/"><u>Enhancing Virtual Meetings with AI: The Role of ChatGPT in Team Engagement</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/frequently-studied-international-languages-usa-focus/"><u>Frequently Studied International Languages: USA Focus</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-newest-version-of-hp-officejet-4500-driver-compatible-with-2024-updates/"><u>Get the Newest Version of HP Officejet 4500 Driver - Compatible with 2024 Updates</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Oppo Reno 8T | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mornings-spoken-worldwide-exploring-greetings-from-different-cultures/"><u>Mornings Spoken Worldwide: Exploring Greetings From Different Cultures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nautical-nobilitys-verbiage-top-20-sea-terms/"><u>Nautical Nobility's Verbiage: Top 20 Sea Terms</u></a></li>
-<li><a href="https://windows11.techidaily.com/navigating-through-the-admin-labyrinth-of-windows/"><u>Navigating Through the Admin Labyrinth of Windows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/playful-poetry-prose-for-pursuit-in-spanish-flirting/"><u>Playful Poetry: Prose for Pursuit in Spanish Flirting</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romantic-prose-crafting-conversations-in-rome/"><u>Romantic Prose: Crafting Conversations in Rome</u></a></li>
-<li><a href="https://change-location.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/world-wake-up-calls-morning-greetings-in-10-diverse-tongues/"><u>World Wake-Up Calls: Morning Greetings In 10 Diverse Tongues</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-youtube-earnings-unveiled-average-adsense-payments-per-thousand-views/"><u>[New] 2024 Approved Youtube Earnings Unveiled Average AdSense Payments Per Thousand Views</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-chucklebox-top-meme-generator-for-2024/"><u>[New] ChuckleBox - Top Meme Generator for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-critical-analysis-facebooks-top-10-video-plays-for-2024/"><u>[New] Critical Analysis Facebook's Top 10 Video Plays for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-premier-windows-11-webcam-capture-models/"><u>2024 Approved Premier Windows 11 Webcam Capture Models</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/clon-sector-a-sector-explicado-pasos-esenciales-y-beneficios-para-la-optimizacion-del-negocio/"><u>Clon Sector a Sector Explicado: Pasos Esenciales Y Beneficios Para La Optimización Del Negocio</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/comparing-two-process-mining-methods-in-the-latest-whitepaper-by-abbyy/"><u>Comparing Two Process Mining Methods in the Latest Whitepaper by ABBYY</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/growing-older-doesnt-stop-learning-4-strong-reasons-to-learn-a-language-after-40/"><u>Growing Older Doesn't Stop Learning – 4 Strong Reasons to Learn a Language After 40</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-small-screen-big-impact-effortless-businesspersonal-youtube-channel-setup/"><u>In 2024, The Small Screen, Big Impact Effortless Business/Personal YouTube Channel Setup</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-platform-showdown-twitch-meets-youtube/"><u>In 2024, The Ultimate Platform Showdown Twitch Meets YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-legends-the-most-prestigious-50-phrases-to-use/"><u>Latin Legends: The Most Prestigious 50 Phrases to Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-languages-from-tv-shows-and-movies/"><u>Learn Languages From TV Shows and Movies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-expedition-unraveling-ks-in-squid-game/"><u>Linguistic Expedition - Unraveling KS in Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcend-boundaries-with-multilingual-mastery/"><u>Transcend Boundaries with Multilingual Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voyage-with-confidence-top-93-indispensable-spanish-phrases/"><u>Voyage with Confidence: Top 93 Indispensable Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/waking-up-the-world-good-morning-in-10-multilingual-forms/"><u>Waking Up the World: Good Morning In 10 Multilingual Forms</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Grammar's Presence in the Quest for Fluency
-date: 2025-01-05T16:20:09.666Z
-updated: 2025-01-10T17:06:03.944Z
+date: 2025-01-15T07:10:59.385Z
+updated: 2025-01-16T00:16:37.676Z
 tags:
   - speak
   - english
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/8852f9f0dff99dd98034c53ca9e7b84a75b979ac3
 
 Language learning is one of the best ways to broaden your horizons and better yourself as a person. It can also be intimidating. Many people would like to learn a foreign language, but they feel the task would be too hard. This is unfortunate because with a little effort and a commitment to the goal, learning a language can happen sooner than most people think.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **The Old Methods: Do They Make It More Difficult to Learn a Foreign Language
 
 Chances are that you probably took language classes at some point in your educational history. Anywhere you live, school curriculums include the study of foreign languages, but the average high-school student does not graduate with fluency in another language.
@@ -35,7 +31,7 @@ One of the best ways to learn a language is to practice both writing the languag
 This is why a focus on grammar is the wrong way to teach and learn a language. Grammar is the art of perfecting the use of a language you already know. When learning a language, it can hold students back in a variety of ways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **1\. Complexity**
@@ -48,12 +44,16 @@ Grammar rules are generally about perfecting the written language. This isn’t 
 
 The goal for a language student is to become fluent as quickly as possible. Fluency with the spoken word will transfer to an understanding of the written word as well. The old models of teaching do not place importance on becoming fluent as quickly as possible, and it seems this is a huge part of the problem.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **3\. A Lack of Conversational Aspects**
 
 Most of us don’t speak in the exact same way that we write. We choose different words, use slang and sometimes even say things in a different order than we would when writing them down. How many people do you know who speak using perfect grammar? Sure, some might exist, but it isn’t very common regardless what language we are discussing. For this reason, if you insist on studying grammar first and conversational language second, you might struggle to understand people as they speak. Luckily, nowadays, there are [modern solutions available that immerse you in conversations](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1\.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **4\. A Major Lack of Fun**
@@ -63,7 +63,11 @@ This might seem like a crazy concept to some, but learning a language should be 
 ![Learn grammar with Mondly: French grammar, German Grammar, Spanish Grammar and more](https://edge.mondly.com/blog/wp-content/uploads/2017/10/Webp.net-compress-image-1.jpg "Is Grammar Holding You Back From Learning A Language? 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Returning to Our Roots: Learning with the Mind of a Child**
@@ -77,10 +81,6 @@ If worrying about grammar has been holding you back in language learning, allow 
 Do you feel that grammar holds you back from learning a language? Share your story in a comment below.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Speak a new language in just 10 minutes a day
 
@@ -107,24 +107,16 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-tech-tip-saving-google-meets-on-phone-devices/"><u>[Updated] Tech Tip Saving Google Meets on Phone Devices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578903374-accelerated-norsk-knowledge-daily-dash/"><u>Accelerated Norsk Knowledge - Daily Dash!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/adjusted-terms-and-conditions-notice/"><u>Adjusted Terms & Conditions Notice</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/americas-most-popular-second-language-initiatives/"><u>America's Most Popular Second Language Initiatives</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/android-and-pc-users-choice-top-10-video-editing-software/"><u>Android & PC Users' Choice Top 10 Video Editing Software</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/artificial-intelligence-boosting-computer-performance-next-gen-spec-leap/"><u>Artificial Intelligence Boosting Computer Performance: Next-Gen Spec Leap</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/augment-your-vocabulary-mondlys-ar-learning-method/"><u>Augment Your Vocabulary: Mondly’s AR Learning Method</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/battles-and-ballads-decoding-the-language-of-viking-bards/"><u>Battles & Ballads: Decoding the Language of Viking Bards</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/beyond-the-basics-excellent-replacements-for-windows-11-defaults/"><u>Beyond the Basics: Excellent Replacements for Windows 11 Defaults</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dialekte-und-formeln-im-deutschsprachigen-vergeben/"><u>Dialekte Und Formeln Im Deutschsprachigen Vergeben</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579212463-dive-into-hindi-mastery-with-8-compelling-mondly-advantages/"><u>Dive Into Hindi Mastery with 8 Compelling Mondly Advantages!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-italy-100plus-expressions-to-speak-like-a-local/"><u>Embrace Italy: 100+ Expressions to Speak Like a Local</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Motorola G54 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580846789-in-a-flash-japanese-numbers-unlocked/"><u>In a Flash: Japanese Numbers Unlocked!</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/sales-halt-for-newest-apple-watches-series-9-and-ultra-drop-from-web-stores-repair-services-hit-insights-on-zdnet/"><u>Sales Halt for Newest Apple Watches: Series 9 and Ultra Drop From Web Stores, Repair Services Hit | Insights on ZDNET</u></a></li>
-<li><a href="https://media-tips.techidaily.com/transforming-m4v-files-a-step-by-step-guide-to-converting-to-mp4-or-mpeg-4/"><u>Transforming M4V Files: A Step-by-Step Guide to Converting to MP4 or MPEG-4</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/ultimate-guide-to-tcl-50s425-the-201/"><u>Ultimate Guide to TCL 50S425 - The 201</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/unlocking-viral-potential-creating-captivating-instagram-puzzles/"><u>Unlocking Viral Potential Creating Captivating Instagram Puzzles</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-become-a-videographer-essentials-of-recording-with-logitech/"><u>2024 Approved Become a Videographer Essentials of Recording with Logitech</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-in-depth-review-picsart-features-and-use/"><u>2024 Approved In-Depth Review PicsArt Features and Use</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-itel-a60s-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Itel A60s to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Infinix Smart 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-greetings-101/"><u>International Greetings 101</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kinder-to-grade-school-in-spanish-a-kids-journey/"><u>Kinder to Grade School in Spanish: A Kid's Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlyar-vr-bridging-linguistic-gaps-in-virtual-space/"><u>MondlyAR VR: Bridging Linguistic Gaps in Virtual Space</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/egies-to-increase-views-via-thumbnails-for-2024/"><u>Strategies to Increase Views via Thumbnails for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-linguistic-skills-through-dark-on-streaming/"><u>Transform Your Linguistic Skills Through Dark on Streaming</u></a></li>
+<li><a href="https://win-studio.techidaily.com/transforming-digital-beats-into-physical-tunes-a-guide-on-how-to-create-audio-cds-from-mp3-tracks/"><u>Transforming Digital Beats Into Physical Tunes: A Guide on How to Create Audio CDs From MP3 Tracks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-simplified-han-characters/"><u>Understanding Simplified Han Characters</u></a></li>
 </ul></div>
 

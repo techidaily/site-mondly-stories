@@ -1,7 +1,7 @@
 ---
 title: Mondly's Journey Into AR-Powered Linguistics
-date: 2024-09-05T04:37:52.147Z
-updated: 2024-09-06T04:37:52.147Z
+date: 2025-01-11T22:26:58.604Z
+updated: 2025-01-15T21:53:11.558Z
 tags:
   - speak
   - english
@@ -14,12 +14,6 @@ keywords: AR in Language Learning,Augmented Reality Tutors,AR Linguistics Experi
 thumbnail: https://thmb.techidaily.com/5d77ad3cc3ffb76dec378c0365a6d9c3d6e615b3b95a196e8f26206ebb83676d.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mondly's Journey Into AR-Powered Linguistics
 
 **September 7, 2017, Brasov Romania** –  ATi Studios, creators of [Mondly](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-710&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-710%26utm%5Fsource%3Dblog-post-id-710&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-710%26utm%5Fsource%3Dblog-post-id-710&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-710%26utm%5Fsource%3Dblog-post-id-710&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-710%26mt%3D8) , the language app with over 20 million downloads and recently crowned 2017 Facebook “App of the Year” in EMEA, launches Mondly VR, a first-of-its-kind language experience for Google’s Virtual Reality platforms Daydream and Cardboard.
@@ -37,39 +31,17 @@ Alex continues   _“From our experience, the biggest things that keep people fr
 ![MondlyVR for Daydream Learn languages in Virtual Reality 1 2](https://edge.mondly.com/blog/wp-content/uploads/2017/10/MondlyVR-for-Daydream-Learn-languages-in-Virtual-Reality-1_2.gif "Mondly Launches The First Vr Language App With Speech Recognition On Daydream 2")
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## Experts agree that IMMERSION is the best way to learn a new language
 
 In one [study](http://www.nytimes.com/2012/04/03/science/how-immersion-helps-to-learn-a-new-language.html?mcubz=1)  , featured in the New York Times by Michael Ullman, a neuroscientist at Georgetown University Medical Center, language learning subjects were split into two groups. One group studied language in a formal classroom setting, while the other was taught through immersion. After five months, both groups retained the language. However, the group that learned a new language through immersion displayed the full brain patterns of a native speaker.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Reasons to Pay Attention to Mondly VR
 
 * **FIRST & only app to combine VR, Voice Chatbot & Speech Recognition on Google Daydream**
@@ -118,8 +90,6 @@ In one [study](http://www.nytimes.com/2012/04/03/science/how-immersion-helps-to-
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -127,8 +97,24 @@ In one [study](http://www.nytimes.com/2012/04/03/science/how-immersion-helps-to-
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-earning-streaming-strategies-8-beginners-tips/"><u>[New] In 2024, Earning Streaming Strategies - 8 Beginners' Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/104plus-vital-croatian-expressions-for-effortless-interaction-in-croatia/"><u>104+ Vital Croatian Expressions for Effortless Interaction in Croatia</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-essential-steps-to-producing-a-youtube-hit-music-reaction-video-guide/"><u>2024 Approved Essential Steps to Producing a YouTube Hit Music Reaction Video Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-treat-tracks-review-exhaustive-guide-on-frozen-food-filming/"><u>2024 Approved Treat Tracks Review Exhaustive Guide on Frozen Food Filming</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accurate-russian-alphabet-articulation-techniques/"><u>Accurate Russian Alphabet Articulation Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingual-brain-boost/"><u>Bilingual Brain Boost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/borrowed-words-in-the-anglophone-world/"><u>Borrowed Words in the Anglophone World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brisk-approaches-to-gaining-linguistic-skills/"><u>Brisk Approaches to Gaining Linguistic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/carnal-communication-eloquence-in-spanish-conversation/"><u>Carnal Communication: Eloquence in Spanish Conversation</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/dicas-de-2023-as-melhores-tecnicas-para-clonar-filmes-do-dvd-no-pc-e-mac/"><u>Dicas De 2023: As Melhores Técnicas Para Clonar Filmes Do DVD No PC E Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ease-into-new-languages-top-3-language-learning-platforms-reviewed/"><u>Ease Into New Languages: Top 3 Language Learning Platforms Reviewed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/easiest-tongue-journey-top-10-simplified-languages-compendium/"><u>Easiest Tongue Journey: Top 10 Simplified Languages Compendium</u></a></li>
+<li><a href="https://driver-install.techidaily.com/how-to-update-dell-realtek-audio-driver/"><u>How To Update Dell Realtek Audio Driver</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-huawei-nova-y91-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Huawei Nova Y91 Fingerprint Lock</u></a></li>
+<li><a href="https://win11.techidaily.com/undo-customized-search-a-windows-11-directives-manual/"><u>Undo Customized Search: A Windows 11 Directives Manual</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-premiere-or-after-effects-choosing-the-right-tool-for-your-video-project/"><u>Updated In 2024, Premiere or After Effects Choosing the Right Tool for Your Video Project</u></a></li>
+</ul></div>
 

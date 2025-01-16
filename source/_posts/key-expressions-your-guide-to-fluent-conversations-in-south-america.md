@@ -1,7 +1,7 @@
 ---
 title: "Key Expressions: Your Guide to Fluent Conversations in South America"
-date: 2024-09-10T13:28:11.876Z
-updated: 2024-09-11T13:28:11.876Z
+date: 2025-01-14T18:57:43.714Z
+updated: 2025-01-15T19:28:36.276Z
 tags:
   - speak
   - english
@@ -38,19 +38,9 @@ thumbnail: https://thmb.techidaily.com/91d5be9a6861c4c9aa999253b8784315fe4d3aae2
 
  If we’re being honest,**здравствуйте** and **Привет** are everything you need when it comes to Russian greetings. If you don’t want to overcrowd your mind, you can stop right here and come back later when you’re ready for more. If you want the full picture of Russian greetings now, let’s continue to discover how Russians say hello to each other.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## 2\. Time-specific Russian greetings
 
@@ -66,20 +56,6 @@ Good job, you!
  These phrases are universal and can be used in both formal and informal situations.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Russian Greetings: Common Phrases And Basic Words 2")
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ##### Learn Russian today
 
@@ -99,25 +75,9 @@ Good job, you!
 
 ![hi in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hi-in-russian.jpg "Russian Greetings: Common Phrases And Basic Words 3")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## 4\. Russian farewells
 
@@ -149,35 +109,11 @@ Good job, you!
 
 ![hello in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hello-in-russian-960x640.jpg "Russian Greetings: Common Phrases And Basic Words 4")
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Found this interesting? You might want to learn about the [Russian alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [Russian numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) too.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Cultural insights on Russian greetings
 
@@ -196,37 +132,17 @@ Good job, you!
 
  Use transliteration. It can be tricky to get the hang of Russian words using the Cyrillic alphabet, so resources that use transliteration will always come in handy.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### How do Russians say “hello” and “goodbye”?
 
  Здравствуйте (Zdravstvuyte) is generally used for slightly formal hellos, while Привет (Privyet) is more suitable for casuals settings. The most common way to say “goodbye” in Russian is До свидания (Do svidaniya).
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### How can I greet someone respectfully in Russian if I don’t know their name?
 
@@ -257,8 +173,6 @@ Good job, you!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -266,16 +180,26 @@ Good job, you!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-free-toolkit-for-unrestricted-story-archiving/"><u>[New] In 2024, FREE Toolkit for Unrestricted Story Archiving</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlocking-potential-with-efficient-audio-submission/"><u>[New] Unlocking Potential with Efficient Audio Submission</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-disc-replay-a-look-at-the-goofy-giggle-fest-for-2024/"><u>[Updated] Disc Replay A Look at 'The Goofy Giggle-Fest' For 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-from-clicks-to-cash-the-systematic-triple-pathway-for-youtube-revenue-tracking-for-2024/"><u>[Updated] From Clicks to Cash The Systematic Triple Pathway for YouTube Revenue Tracking for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-restore-windows-photo-viewer-in-windows-10/"><u>2024 Approved How to Restore Windows Photo Viewer in Windows 10</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-lut-basics-for-enhanced-visual-effects-in-ae/"><u>2024 Approved LUT Basics for Enhanced Visual Effects in AE</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-the-ultimate-blueprint-to-broadcast-videos-on-discord-platform/"><u>2024 Approved The Ultimate Blueprint to Broadcast Videos on Discord Platform</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-access-to-hp-laserjet-pro-m127fn-printer-drivers-secure-and-updated-downloads-here/"><u>Easy Access to HP Laserjet Pro M127FN Printer Drivers – Secure & Updated Downloads Here!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honterus-a-man-of-purpose-and-passion/"><u>Honterus: A Man of Purpose and Passion</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-lava-yuva-3-pro-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Lava Yuva 3 Pro to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-that-shape-macaus-identity/"><u>Languages That Shape Macau’s Identity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-integrates-with-pearson-education-hub/"><u>Mondly Integrates with Pearson Education Hub</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-unlock-fcps-full-potential-top-5-editing-secrets-revealed/"><u>New Unlock FCPs Full Potential Top 5 Editing Secrets Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-bangla-mastery-online-course/"><u>Quick Bangla Mastery Online Course</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reconhecidos-gritos-de-alegria-em-portugal-todas-as-variedades/"><u>Reconhecidos Gritos De Alegria Em Portugal - Todas as Variedades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/serenades-of-solitude-intimate-italian-invitations/"><u>Serenades of Solitude: Intimate Italian Invitations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/this-is-the-best-way-to-learn-finnish-online/"><u>This Is the Best Way to Learn Finnish Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcending-tongues-the-key-to-romantic-success/"><u>Transcending Tongues: The Key to Romantic Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-truths-how-to-successfully-learn-new-languages/"><u>Unveiling Truths: How to Successfully Learn New Languages</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Expressive Guide: Top 108 Crucial Croatian Linguistic Tools"
-date: 2024-09-10T13:24:00.845Z
-updated: 2024-09-11T13:24:00.845Z
+date: 2025-01-13T03:11:02.822Z
+updated: 2025-01-15T16:35:33.800Z
 tags:
   - speak
   - english
@@ -28,26 +28,6 @@ thumbnail: https://thmb.techidaily.com/af956098d5b96a801357a76a13d56b662de68774c
 6. [Croatian phrases about love](#croatian-love)
 7. [Learn Croatian for your shopping sprees](#croatian-shopping)
 8. [Days of the week and numbers in Croatian](#numbers-in-croatian)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 1\. Hello in Croatian and other useful greetings
 
@@ -82,19 +62,9 @@ thumbnail: https://thmb.techidaily.com/af956098d5b96a801357a76a13d56b662de68774c
 
 ![croatian phrasebook](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-phrasebook-1024x683.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 2")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
  “Plitvice Lakes National Park” by Jonatan Pie©
 
@@ -117,11 +87,19 @@ thumbnail: https://thmb.techidaily.com/af956098d5b96a801357a76a13d56b662de68774c
 * Please wait a moment. –_Pričekajte trenutak, molim Vas._
 * I’ll be back immediately. –_Odmah se vraćam._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Croatian phrases for food lovers
 
  Food is all that some of us can think about. Yep. We all know that one friend who has to try every new food when visiting a new country. We sometimes are that friend. But who can blame the gourmand? Food is soooo good! And Croatia is nothing short of delightful food. You’ll absolutely need to try Peka (baking meat, seafood, and veggies), Brudet (fish stew), Stuffed peppers, Zagreb Schnitzel and the addictive Fritule dessert. So here’s**how to order drinks or food in Croatian restaurants:**
 
 ![croatian translation](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-translation-1024x694.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Delicious” by Cel Lisboa©
 
@@ -138,25 +116,9 @@ thumbnail: https://thmb.techidaily.com/af956098d5b96a801357a76a13d56b662de68774c
 * I would like a coffee. –_Rado bih kavu._
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## 4\. Basic Croatian for travelers who need a place to spend the night
 
@@ -170,20 +132,6 @@ thumbnail: https://thmb.techidaily.com/af956098d5b96a801357a76a13d56b662de68774c
 * How was your stay with us? –_Kakav je bio Vaš boravak kod nas?_
 * Very pleasant, thank you. –_Vrlo ugodan, hvala Vam._
 * Here is your bill, please look it over. –_Izvolite Vas Racun, molimo pregledajte ga._
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 5\. Croatian to English for tourists who want to have fun
 
@@ -201,26 +149,6 @@ thumbnail: https://thmb.techidaily.com/af956098d5b96a801357a76a13d56b662de68774c
 * How much does a ticket cost? –_Kolika je cijena karte?_
 * One ticket, please. –_Jednu kartu bih Vas molio._
 * Are there seats available? –_Ima li slobodnih mjesta?_
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 6\. Croatian phrases about love
 
@@ -243,27 +171,11 @@ thumbnail: https://thmb.techidaily.com/af956098d5b96a801357a76a13d56b662de68774c
 
 ![croatian words](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-words-1024x682.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 5")
 
- “Primošten, Croatia” by Hrvoje Klaric©
-
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
-
-
+ “Primošten, Croatia” by Hrvoje Klaric©
 
 ## 7\. Learn Croatian for your shopping sprees
 
@@ -335,8 +247,6 @@ thumbnail: https://thmb.techidaily.com/af956098d5b96a801357a76a13d56b662de68774c
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -344,16 +254,22 @@ thumbnail: https://thmb.techidaily.com/af956098d5b96a801357a76a13d56b662de68774c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-efficient-consumption-of-facebook-live-events-and-videos/"><u>[Updated] 2024 Approved Efficient Consumption of Facebook Live Events & Videos</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-masterpiece-selection-worldwide-stream-plus-local-channel-aggregation/"><u>[Updated] 2024 Approved Masterpiece Selection Worldwide Stream + Local Channel Aggregation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-top-11-brain-boosting-trivia-shows-for-24/"><u>2024 Approved Top 11 Brain-Boosting Trivia Shows for '24</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/deciphering-a-silent-startup-expert-tips-to-restore-visual-output-on-your-device/"><u>Deciphering a Silent Startup: Expert Tips to Restore Visual Output on Your Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enrich-team-interactions-choosing-superior-linguistic-software/"><u>Enrich Team Interactions: Choosing Superior Linguistic Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploracion-exhaustiva-del-cuerpo-humano-en-espanol-desde-la-piel-al-rinon/"><u>Exploración Exhaustiva Del Cuerpo Humano en Español: Desde La Piel Al Riñón</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/featured-by-apple-mondly-is-in-top-10-education-apps-worldwide/"><u>Featured by Apple: Mondly Is in Top 10 Education Apps Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/five-motivational-reasons-for-late-life-linguists/"><u>Five Motivational Reasons for Late-Life Linguists</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forties-fluency-the-joy-and-wisdom-found-in-multilingualism/"><u>Forties Fluency: The Joy and Wisdom Found in Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-pronunciation-quick-guide-to-colors/"><u>French Pronunciation Quick Guide to Colors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fundamentos-de-la-hora-en-espanol-para-iniciados/"><u>Fundamentos De La Hora en Español Para Iniciados</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-infinix-smart-8-pro-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Infinix Smart 8 Pro Through Google Earth?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-magic-6-lite-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Honor Magic 6 Lite Phone without Google Account?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/precision-techniques-for-capturing-the-essence-of-moments-with-gopro/"><u>Precision Techniques for Capturing the Essence of Moments with GoPro</u></a></li>
+</ul></div>
 

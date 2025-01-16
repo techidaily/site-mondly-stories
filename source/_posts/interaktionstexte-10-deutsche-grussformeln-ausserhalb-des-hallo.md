@@ -1,7 +1,7 @@
 ---
 title: "Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'"
-date: 2025-01-06T17:10:09.105Z
-updated: 2025-01-10T19:11:53.712Z
+date: 2025-01-11T10:13:24.818Z
+updated: 2025-01-16T11:17:35.679Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ _Hallo!_ It’s nice to be properly greeted, isn’t it? Everywhere in the world
 
  Meanwhile, don’t forget that ‘hello’ is probably the simplest way to sound fluent. Throw in a smile and you’ll also look like one!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Hallo – the universal ‘hello’ in German
 
 _Hallo_ is the simplest and most straightforward way to say ‘hello’ in German. It’s short, sweet, and common across the entire German-speaking world. Besides, it’s friendly and can be used successfully in any social situation – either formal or informal.
@@ -29,7 +33,7 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  First, some good news! As it turns out, Germans use_hi_ too. Careful though: as you already know,_hi_ is more informal than_hallo_ so you should keep this one between friends.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Hallöchen – ‘Hello’ (lit. ‘little hello’)
@@ -56,6 +60,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -63,10 +71,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Literally meaning “how does it go to you?”,_wie geht es dir?_ is an informal way of asking your friend how are things going. If you want to move up the formality scale, you can use the formal_wie geht es Ihnen_ ._Dir_ and_Ihnen_ both mean ‘you’, but unlike English, German uses formal and informal pronouns.
 
  If you want to be as word-efficient as a native, you can also just say the shortened_wie geht’s?_ version.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Alles klar? – “Everything alright?”
 
@@ -104,7 +108,7 @@ _– Na._ (“Fine. Thanks!”)
 **Localization:** mostly northern Germany.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Moin moin – “Hi”
@@ -115,10 +119,6 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** northern Germany, especially in and around Hamburg.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Grüezi – “Hello”
 
 _Grüezi_ is a greeting you can use in formal situations, such as speaking with people you don’t know.
@@ -126,7 +126,7 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
 **Localization:** Switzerland.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Grüß Gott – “God bless you”
@@ -185,24 +185,20 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-appreciative-adjacencies-templates-for-any-spend-plan/"><u>[New] In 2024, Appreciative Adjacencies Templates for Any Spend Plan</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-from-last-minute-to-first-impression-how-to-rewind-video-on-instagram/"><u>[Updated] In 2024, From Last Minute to First Impression How to Rewind Video on Instagram</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-snapchat-spotlight-unveiled-usage-explained/"><u>2024 Approved Snapchat Spotlight Unveiled Usage Explained</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-realme-c67-4g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Realme C67 4G to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/becoming-an-audience-star-with-top-language-test-preparation/"><u>Becoming an Audience Star with Top Language Test Preparation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/charms-of-chic-french-lingo-for-love/"><u>Charms of Chic: French Lingo for Love</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-interlingual-secrets-turkey-and-korea/"><u>Deciphering Interlingual Secrets: Turkey and Korea</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/fix-your-pc-a-step-by-step-guide-for-d3dx925dll-not-found-errors/"><u>Fix Your PC! A Step-by-Step Guide for 'd3dx9_25.dll' Not Found Errors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578795871-german-vs-french-which-language-is-more-useful-to-learn/"><u>German vs French: Which Language Is More Useful to Learn</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/get-the-most-out-of-culinary-classes-with-these-essential-study-tips/"><u>Get the Most Out of Culinary Classes with These Essential Study Tips</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/how-to-boost-your-youtube-revenue-from-mobile-a-comprehensive-guide/"><u>How to Boost Your YouTube Revenue From Mobile - A Comprehensive Guide</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-huawei-nova-y71-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Huawei Nova Y71</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-dawns-good-morning-versions-from-10-different-cultures/"><u>International Dawns: Good Morning Versions From 10 Different Cultures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-transforming-the-way-we-learn-languages/"><u>Mondly: Transforming the Way We Learn Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-year-new-verbal-horizon/"><u>New Year, New Verbal Horizon</u></a></li>
-<li><a href="https://driver-download.techidaily.com/quick-and-easy-guide-downloading-and-installing-nvidia-gtx-460-drivers-on-windows/"><u>Quick and Easy Guide: Downloading & Installing NVIDIA GTX 460 Drivers on Windows</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/secure-a-steal-with-bandh-exclusive-deal-on-apple-macbook-pro-16-inch-m1-max-detailed-breakdown-and-comparison-from-zdnet/"><u>Secure a Steal with B&H: Exclusive Deal on Apple MacBook Pro 16-Inch M1 Max - Detailed Breakdown & Comparison From ZDNet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/skyrocket-your-portuguese-proficiency-with-these-six-steps/"><u>Skyrocket Your Portuguese Proficiency with These Six Steps</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/transforming-tech-ai-for-programmers/"><u>Transforming Tech: AI for Programmers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-balancing-dynamics-with-controlled-decays/"><u>[New] Balancing Dynamics with Controlled Decays</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-top-picks-best-free-cross-platform-video-communication-tools-for-2024/"><u>[Updated] Top Picks Best Free Cross-Platform Video Communication Tools for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/a-comprehensive-look-at-djis-quadcopter-standard-flight-for-2024/"><u>A Comprehensive Look at DJI's Quadcopter Standard Flight for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/essential-steps-for-embedding-social-network-live-videos/"><u>Essential Steps for Embedding Social Network Live Videos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-vivo-v27-pro-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Vivo V27 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/little-linguists-from-playing-with-puppies-to-elementary-spanish/"><u>Little Linguists: From Playing with Puppies To Elementary Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/savor-the-language-uncover-germanys-top-25-idioms/"><u>Savor the Language: Uncover Germany's Top 25 Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-counting-1-10-for-starters/"><u>Spanish Counting 1-10 For Starters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-pronunciation-practice-for-beginners-in-germany/"><u>Step-by-Step Pronunciation Practice for Beginners in Germany</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/testing-new-advertising-features-microsofts-integration-of-ads-into-windows-11-start-menu/"><u>Testing New Advertising Features: Microsoft's Integration of Ads Into Windows 11 Start Menu</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-16-german-phrases-perfect-for-showing-appreciation/"><u>Top 16 German Phrases Perfect for Showing Appreciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/united-learners-unstoppable-mondly/"><u>United Learners, Unstoppable Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-the-mysteries-of-russian-phonology/"><u>Unraveling the Mysteries of Russian Phonology</u></a></li>
+<li><a href="https://change-location.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-vivo-v27e-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Vivo V27e? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/windows-update-error-0x80240017-fixed/"><u>Windows Update Error 0X80240017 [Fixed]</u></a></li>
 </ul></div>
 

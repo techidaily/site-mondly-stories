@@ -1,7 +1,7 @@
 ---
 title: Spelling Missteps in English Uncovered - Top 100 List
-date: 2024-09-05T04:36:59.994Z
-updated: 2024-09-06T04:36:59.994Z
+date: 2025-01-12T06:19:17.623Z
+updated: 2025-01-16T02:15:57.431Z
 tags:
   - speak
   - english
@@ -25,47 +25,25 @@ thumbnail: https://thmb.techidaily.com/5f475d0a004509c4a79784030951fa61283b44848
  Whether we’re talking about fancy words or downright common ones like “license” (not “lisence”), misspellings are like Thanos: inevitable. But even Thanos was finally defeated, so you, too, can vanquish misspelled words. The first step is to acknowledge them, so let’s do it. We’ll begin with a small but condensed list of the most misspelled words ever and continue with a complete list of the top 100 commonly misspelled words in English. Ready, steady, go!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Top 10 Most Commonly Misspelled Words in English
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Awkward not akward
 
  This one will haunt some of us for the rest of our days because it also describes how we feel when we realize we’ve just misspelled a word.
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Believe not belive
 
  There’s a famous rhyme in English that says I before E, except after C. The exact same rule applies to “believe”, so it’s advisable to use this mnemonic when in doubt.
 
 Careful, though – there are some exceptions to it.
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Embarrassed not embarassed
 
 Also commonly misspelled as: embarrased
@@ -78,18 +56,6 @@ Also commonly misspelled as: entrepeneur , entreprenur , entreperneur
 
  We honestly can’t blame whoever misspells this one. It’s not only hard to spell but also [hard to pronounce](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . The reason? It’s a French word coming from the root entreprendre (‘undertake’).
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. Liaison not liasion
 
  There’s a reason why you’re never sure how to spell “liaison”, “bureaucracy”, “manoeuvre”, “questionnaire”, and “connoisseur”. They do not follow the same patterns because they are all [French words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -97,11 +63,9 @@ Also commonly misspelled as: entrepeneur , entreprenur , entreperneur
 Your best bet is to just remember the correct spelling.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030373/7443" target="_top" id="2030373">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030373" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030373/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 6\. License not lisence
 
  This is a special situation. In American English, it’s always spelled “license” – no matter what. On the other hand, in British English, it’s spelled “license” when it’s a verb and “licence” when it’s a noun.
@@ -109,32 +73,22 @@ Your best bet is to just remember the correct spelling.
  Basically, the only wrong spelling is “lisense”. However, once you decide which spelling you’re going to use – American or British – it’s best to go forward with that one don’t combine both.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 7\. Receive not recieve
 
  Remember the “I before E, except after C” rule? This is the kind of word where the rule applies. It also applies to “niece” and “siege”, but it doesn’t apply to “weird” or “seize”. So trust the rule, but keep in mind it has some exceptions.
 
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 8\. Successful not successfull
 
 Also commonly misspelled as: succesful, sucessful
 
  There are so many double consonants in English that it becomes tempting to double them all sometimes. But for the love of English, don’t do that to “successful”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\. Thorough not thourough
 
@@ -145,6 +99,10 @@ Also commonly misspelled as: succesful, sucessful
  This one is somehow similar to the “successful” situation, but not entirely. As a matter of fact, “until” was spelled with two Ls in the Middle Ages. If it helps you remember, you can think it just lost some weight but getting rid of the last L (unlike “still”).
 
 !["Hard words to spell" by Julia M Cameron©](https://edge.mondly.com/blog/wp-content/uploads/2022/12/hard-words-to-spell-960x641.jpg "Top 100 Most Misspelled Words In English 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Spelling Matters
 
@@ -173,18 +131,6 @@ Coming Soon
 * **You respect your readers:** Regardless of how many people will read your work, good spelling shows that you value the time they take to do it.
 * **You have a strong educational background:** Proficiency in spelling often indicates a good grasp of the language. It suggests that you had the opportunity to learn and practice language skills extensively.
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Commonly Misspelled Words Table (Top 100)
 
  Search:
@@ -294,12 +240,6 @@ Coming Soon
 
  Showing 1 to 100 of 100 entries
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tips for Improving Your Spelling
 
  How do you avoid misspellings? One obvious answer would be spell-checkers. Alas, spell-checkers won’t actually help you to improve your spelling. You will continue to misspell words and they’ll continue to correct them like the good friends they are. This process won’t stimulate you to learn the correct spelling because somebody else already does the job for you. However, if you do want a very good spell-checker to keep you in check, we recommend Grammarly.
@@ -331,11 +271,9 @@ English words can be tricky to spell for several reasons:
  Before you leave, make sure to bookmark this article for future reference and check out these FAQs.👇
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### What Is the Most Commonly Misspelled Word?
 
  The most commonly misspelled words are “receive”, “accommodate”, “separate”, and “definitely”. These are often cited as commonly misspelled due to reasons like silent letters, double letters, and common phonetic errors.
@@ -375,8 +313,6 @@ English words can be tricky to spell for several reasons:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -384,8 +320,21 @@ English words can be tricky to spell for several reasons:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-perfect-your-yt-content-mastery-of-windows-movie-maker/"><u>[New] 2024 Approved Perfect Your YT Content Mastery of Windows Movie Maker</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-assessing-streaming-quality-vlc-versus-mx/"><u>2024 Approved Assessing Streaming Quality VLC versus MX</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-step-by-step-scripture-melodies-on-your-phone/"><u>2024 Approved Step-by-Step Scripture Melodies on Your Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581577843-bangladesh-by-ten-minutes-a-day/"><u>Bangladesh by Ten Minutes a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparacion-de-ingles-espanol-cognados-verdaderos-e-ilusorios/"><u>Comparación De Inglés-Español: Cognados Verdaderos E Ilusorios</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparing-two-anglocentric-languages/"><u>Comparing Two Anglocentric Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-communication-with-unbeatable-linguistic-savings-this-year/"><u>Conquer Communication with Unbeatable Linguistic Savings This Year</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-high-quality-hd-movies-in-full-1080p-free-downloads-and-watching-guide/"><u>Download High-Quality HD Movies in Full 1080P - Free Downloads & Watching Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dubai-lingualab-2020-the-crucible-of-communication/"><u>Dubai LinguaLab 2020: The Crucible of Communication</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/guided-steps-to-decrease-audio-intensity-using-lumafusion-for-2024/"><u>Guided Steps to Decrease Audio Intensity Using Lumafusion for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-honor-100-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Honor 100 Pro to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209924360-9781734446142-the-holy-spirit/"><u>The Holy Spirit | Free Book</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/transform-your-smartphone-photography-with-iphones-hdr/"><u>Transform Your Smartphone Photography with iPhone’s HDR</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-pictures-from-itel-a70-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from Itel A70.</u></a></li>
+</ul></div>
 

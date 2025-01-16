@@ -1,7 +1,7 @@
 ---
 title: The Emergence of Neerlandish Language
-date: 2025-01-09T18:49:33.744Z
-updated: 2025-01-10T20:29:11.672Z
+date: 2025-01-11T18:23:44.516Z
+updated: 2025-01-15T18:41:02.545Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/8224c2eaffde473b7b29c4172387e354997fe7d2a
 
  It’s true that Dutch and_Deutsch_ look and sound somehow similar and there \*was\* a connection there. But not anymore. So let’s settle this out once and for all.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Where are Dutch people from?
 
  It’s pretty obvious why this confusion still exists. There’s no surprise that even the reverse of this question (“what are people from the Netherlands called?”) is also a very popular Google inquiry. So what is the answer after all?
@@ -28,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/8224c2eaffde473b7b29c4172387e354997fe7d2a
 
 **The Dutch people are from the Netherlands.** As unrelated as that may seem, there is a whole history to it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Why are Dutch people called Dutch?
 
  It seems that the confusion stems from the English-speaking people and the reason can be found by studying **the [etymology](https://www.etymonline.com/word/dutch) of the word ‘dutch’** . I won’t bore you with all the details, but the bottom line is that in the late 14th century the word referred to ‘a German language’ or to ‘German, non-Scandinavian continental Germanic’. Additionally, the word corresponds to the Old English adjective_þeodisc_ (‘belonging to the people’) which was used to refer to the common language of Germanic people (as opposed to Latin).
@@ -39,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/8224c2eaffde473b7b29c4172387e354997fe7d2a
  As a consequence, over time, **English-speaking people used the word ‘Dutch’ to refer to both people from Netherlands and Germany.** ‘High Dutch’ referred to people living in the mountainous region (now southern Germany). ‘Low Dutch’ referred to people from the flatlands (now the Netherlands).
 
  And this is not everything. Within the Holy Roman Empire, the word ‘Netherlands’ was widely used to indicate people from the low-lying (‘nether’) region (‘land’). That’s how ‘the Kingdom of the Netherlands’ got its name when it became a formal, separate country in 1815.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Where is the Netherlands?
 
@@ -55,7 +59,7 @@ Okay, bare with me. There’s more.
 ![netherlands vs holland](https://edge.mondly.com/blog/wp-content/uploads/2022/02/netherlands-vs-holland.png "Where Are Dutch People From? Discover The Dutch Language 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The Netherlands vs Holland
@@ -63,6 +67,10 @@ Okay, bare with me. There’s more.
  It all goes back (again) to Old English. Originally referring to the people from the northern region of the Netherlands, ‘Holland’ literally meant ‘wood-land’. But over time, English speakers began to mistakenly associate it with the entire country.
 
  Formerly the County of Holland (the most important county in the Low Countries region), Holland now consists of North and South Holland. These are two of the nation’s twelve provinces.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What language do they speak in the Netherlands?
 
@@ -80,10 +88,6 @@ Okay, bare with me. There’s more.
 
  ‘Tulip fields in the Netherlands’ by redcharlie©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### What other countries speak Dutch?
 
  Having over 24 million speakers worldwide, Dutch is the official language of the Netherlands and, together with French and German, one of the three official languages of Belgium.
@@ -93,7 +97,7 @@ Okay, bare with me. There’s more.
  If you travel to South Africa, you may think people speak Dutch, but they actually speak [Afrikaans](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , a language that evolved from Dutch.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is German Dutch?
@@ -108,10 +112,6 @@ Okay, bare with me. There’s more.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Start learning Dutch today
 
@@ -142,18 +142,20 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-gain-popularity-power-secrets-to-staff-picked-videos-on-vimeo-for-2024/"><u>[New] Gain Popularity Power Secrets to Staff-Picked Videos on Vimeo for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mobile-media-upload-share-videos-on-twitter-without-retweeting/"><u>[New] In 2024, Mobile Media Upload Share Videos on Twitter Without Retweeting</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-the-ultimate-android-video-editor-app-roundup/"><u>[New] In 2024, The Ultimate Android Video Editor App Roundup</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-low-cost-recorders-guide-to-webcasting-wisdom/"><u>2024 Approved Low-Cost Recorder's Guide to Webcasting Wisdom</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/6-unique-advantages-to-bilingual-competence/"><u>6 Unique Advantages to Bilingual Competence</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/eliminating-impossible-roblox-app-failures/"><u>Eliminating Impossible Roblox App Failures</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/enigmatic-slow-motion-documentary/"><u>Enigmatic Slow-Motion Documentary</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-numerical-fluency-spanish-numbers/"><u>From Novice to Numerical Fluency: Spanish Numbers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-french-speakers-distribution-and-leading-nations/"><u>Global French Speakers: Distribution & Leading Nations</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/high-ranking-mac-tools-to-replace-standard-bandicam-for-2024/"><u>High-Ranking Mac Tools to Replace Standard Bandicam for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/integrate-xp-moviemaker-from-digital-software-suite/"><u>Integrate XP Moviemaker From Digital Software Suite</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-ladder-leap-worlds-simplest-languages-ranked/"><u>Linguistic Ladder Leap: World's Simplest Languages Ranked</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-destiny-2-startup-glitch-initialization-error-solutions/"><u>Overcoming Destiny 2 Startup Glitch: Initialization Error Solutions</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-adding-beats-to-your-instagram-media-a-step-by-step-guide/"><u>[New] Adding Beats to Your Instagram Media A Step-by-Step Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-tutorial-extracting-audio-from-vimeo-video/"><u>[Updated] In 2024, Tutorial Extracting Audio From Vimeo Video</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-top-rated-totobay-wake-up-light-affordable-alarm-clock-with-gentle-sunrise-simulation/"><u>Discover the Top Rated Totobay Wake-Up Light - Affordable Alarm Clock with Gentle Sunrise Simulation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-thanksgiving-a-comparative-study/"><u>Global Thanksgiving: A Comparative Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-immerse-yourself-in-a-language-6-helpful-tips/"><u>How to Immerse Yourself in a Language: 6 Helpful Tips</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-srt-revelation-transforming-computer-performance/"><u>In 2024, SRT Revelation Transforming Computer Performance</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-ultimate-checklist-tracking-igtv-analytics/"><u>In 2024, The Ultimate Checklist Tracking IGTV Analytics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-to-proper-spanish-accent-usage-in-writing/"><u>Key to Proper Spanish Accent Usage in Writing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-russian-letters-pronunciation-techniques/"><u>Learning Russian Letters Pronunciation Techniques</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/lessons-in-motion-mastering-classroom-editing/"><u>Lessons in Motion Mastering Classroom Editing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-utility-evaluation-german-vs-french-comparison/"><u>Linguistic Utility Evaluation: German Vs French Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-language-without-spending-money/"><u>Mastering Japanese Language Without Spending Money</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/movavi-transformar-musica-dts-em-segundos-acesso-gratuito-e-versao-online-do-converteador/"><u>Movavi - Transformar Música DTS Em Segundos, Acesso Gratuito E Versão Online Do Converteador!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swedish-alphabet-and-pronunciation-a-quick-guide/"><u>Swedish Alphabet And Pronunciation: A Quick Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-of-vogue-establishing-your-channel-in-the-cosmetic-world-for-2024/"><u>Voice of Vogue Establishing Your Channel in the Cosmetic World for 2024</u></a></li>
 </ul></div>
 

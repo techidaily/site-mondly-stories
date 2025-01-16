@@ -1,7 +1,7 @@
 ---
 title: "Myth and Mouth Movement: The Language of Vikings"
-date: 2025-01-09T16:55:22.781Z
-updated: 2025-01-10T17:50:15.263Z
+date: 2025-01-12T00:33:38.909Z
+updated: 2025-01-16T10:19:27.832Z
 tags:
   - speak
   - english
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 ![viking ragnar](https://media.giphy.com/media/rR6m3deXOpHP2/giphy.gif "What Language Did Vikings Speak? 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Did Vikings speak Old English?
@@ -36,7 +36,15 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 
 ![Vikings english](https://media.giphy.com/media/V5474zfp6NveE/giphy.gif "What Language Did Vikings Speak? 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To tell you the truth, Vikings did not typically speak Old English. Old English was spoken by the Anglo-Saxons, who lived in England at the same time as the Vikings. However, **it is possible that some Vikings who settled in England may have learned to speak Old English.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What language did Vikings speak?
 
@@ -47,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
  Because Vikings were travelers, it is safe to assume they were multilingual. In some instances, Vikings spoke both Old Norse and the language of their relocated territory. Everywhere they went, Vikings brought their language with them. This is how, over generations, Old Norse influenced and blended with local languages. Place names in Britain and numerous other words stand proof of this.
 
  In spite of everything,**Old Norse is still considered the primary Viking language.** If you watched_The Northman_ , you must have heard it in songs and ritual settings. Apparently, they didn’t have the budget to make the entire movie in Old Norse. It does sound fittingly Viking, doesn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Old Norse: the Viking language
 
@@ -63,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 !['Viking language' by Hannah Grapp©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/viking-language-960x640.jpg "What Language Did Vikings Speak? 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What language today is closest to Old Norse?
@@ -72,10 +84,6 @@ thumbnail: https://thmb.techidaily.com/c67ae945d13a65a17a2d97a04bd087435fddfcab7
 
 So yeah, you can learn Old Norse if you want to.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Is Old Norse still spoken?
 
  Old Norse is not spoken as a living language today. However, there are people who study Old Norse and speak it fluently.
@@ -83,10 +91,6 @@ So yeah, you can learn Old Norse if you want to.
  As noted previously, modern Icelandic is the most similar modern language to Old Norse. For this reason, it is considered that spending time with Icelanders can offer a glimpse into this ancient language’s contemporary iteration.
 
  Furthermore, Old Norse is still with us through the multitude of words that were borrowed into English. Some examples of Old Norse words in English are gift (_gift_), husband (_húsbóndi_), cake (_kaka_), egg (_egg_), anger (_angr_), arm (_armr_). And these are just a few. The list could go on for a while.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What language did Vikings write in?
 
@@ -100,10 +104,6 @@ So yeah, you can learn Old Norse if you want to.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Learn the Scandinavian languages fast
 
@@ -136,17 +136,21 @@ So yeah, you can learn Old Norse if you want to.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snap-sharing-made-simple-camera-roll-to-social-now/"><u>[Updated] In 2024, Snap Sharing Made Simple Camera Roll to Social Now</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-increasing-your-youtube-traffic-with-100kplus-view-goals/"><u>2024 Approved Increasing Your YouTube Traffic with 100K+ View Goals</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/el-arte-de-comprender-el-corazon-humano-en-espanol-desde-el-ojo-a-las-unas/"><u>El Arte De Comprender El Corazón Humano en Español: Desde El Ojo A Las Uñas</u></a></li>
-<li><a href="https://techtrends.techidaily.com/formato-de-video-ts-gratuito-para-la-conversion-online-utiliza-movavi-para-mayor-comodidad/"><u>Formato De Video .TS Gratuito Para La Conversión Online: Utiliza Movavi Para Mayor Comodidad</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-htc-u23-pro-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on HTC U23 Pro Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-samsung-galaxy-f34-5g-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Samsung Galaxy F34 5G Device</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-x-flip-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo X Flip Phone FRP Lock</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-made-easy-with-mondlyar/"><u>Multilingual Mastery Made Easy with MondlyAR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/portuguese-parallelism-brazilians-vs-europeans/"><u>Portuguese Parallelism: Brazilians Vs. Europeans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/redefining-fluency-tomorrows-techniques-for-todays-students/"><u>Redefining Fluency: Tomorrow's Techniques for Today's Students</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/tips-for-confirming-text-message-reception-by-the-recipient/"><u>Tips for Confirming Text Message Reception by the Recipient</u></a></li>
-<li><a href="https://win-trending.techidaily.com/understanding-four-output-modes-for-your-projects-html-zip-file-executable-and-burn-to-disk-with-flipbuilder/"><u>Understanding Four Output Modes for Your Projects: HTML, ZIP File, Executable, and Burn to Disk with FlipBuilder</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-extensive-circular-camera-assessment/"><u>[New] In 2024, Extensive Circular Camera Assessment</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-prime-fb-downloader-pack-for-ff-browsing-enthusiasts/"><u>[New] Prime FB Downloader Pack for FF Browsing Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-who-takes-the-crown-av1-or-vp9/"><u>[Updated] 2024 Approved Who Takes The Crown? AV1 or VP9?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-high-speed-media-manipulation-a-practical-approach/"><u>[Updated] High-Speed Media Manipulation A Practical Approach</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-how-to-embed-a-youtube-playlist-on-a-website/"><u>2024 Approved How to Embed A YouTube Playlist On a Website</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-inicial-a-la-comprehension-del-tiempo-en-espanol/"><u>Guía Inicial a La Comprehensión Del Tiempo en Español</u></a></li>
+<li><a href="https://win-blog.techidaily.com/insights-into-the-ascent-understanding-its-postponement-from-initial-release-date/"><u>Insights Into 'The Ascent': Understanding Its Postponement From Initial Release Date</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-inspiration-and-leadership-icon/"><u>Johannes Honterus: Inspiration & Leadership Icon</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multi-language-voice-commands-now-available-on-oculus-quest-via-mondly/"><u>Multi-Language Voice Commands Now Available on Oculus Quest via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-in-rhetoric-selecting-the-best-flirting-lines/"><u>Romance in Rhetoric: Selecting the Best Flirting Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sound-easy-essential-17-relatable-spanish-sayings/"><u>Sound Easy: Essential 17 Relatable Spanish Sayings</u></a></li>
+<li><a href="https://discover-data.techidaily.com/step-by-step-guide-streaming-high-quality-audio-with-flac-files-on-your-iphone/"><u>Step-by-Step Guide: Streaming High-Quality Audio with FLAC Files on Your iPhone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95775814-9781946764010-the-nest-in-the-stream/"><u>The Nest in the Stream | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-timeless-quest-for-language-mastery/"><u>The Timeless Quest for Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/yearly-commitments-successful-realization-techniques/"><u>Yearly Commitments: Successful Realization Techniques</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Svenska Hjärtefär: Ditt Avstånd"
-date: 2025-01-04T17:15:05.567Z
-updated: 2025-01-10T19:22:12.864Z
+date: 2025-01-08T22:40:59.565Z
+updated: 2025-01-15T23:41:48.776Z
 tags:
   - speak
   - english
@@ -27,16 +27,12 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
  If you’re visiting and want to get a coffee, the simplest way to sound and look like a local is to throw in a smile and a **“Hej!”** (pronounced just like _Hey!_). This one is the perfect greeting, regardless of the time of day or to whom you address it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Hello!” in Swedish
 
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to answer the phone in Swedish
 
@@ -47,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Good evening!” in Swedish
@@ -55,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Goodnight!” in Swedish
@@ -63,12 +59,16 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
 
@@ -98,16 +98,24 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-journey-to-perfect-audio-ultimate-iphone-podcast-downloading-techniques/"><u>[New] 2024 Approved Journey to Perfect Audio Ultimate iPhone Podcast Downloading Techniques</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-no-cost-guide-to-capturing-your-favorite-shows/"><u>[New] In 2024, The No-Cost Guide to Capturing Your Favorite Shows</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-hero5-black-in-action-essential-shooting-advice-for-amazing-results/"><u>[Updated] Hero5 Black in Action Essential Shooting Advice for Amazing Results</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerated-learning-speedy-linguistic-journey/"><u>Accelerated Learning: Speedy Linguistic Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquering-hangul-your-pathway-to-language-excellence/"><u>Conquering Hangul: Your Pathway to Language Excellence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/delving-into-our-linguistic-prehistory/"><u>Delving Into Our Linguistic Prehistory</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-exclusive-language-apps-for-corporate-growth/"><u>Discover Exclusive Language Apps for Corporate Growth</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/dynamic-moving-notes-hd-live-wallpaper-and-app-for-mobile-devices-developed-by-yl-computing/"><u>Dynamic Moving Notes HD Live Wallpaper & App for Mobile Devices - Developed by YL Computing</u></a></li>
-<li><a href="https://win-info.techidaily.com/enhancing-your-computers-performance-boosting-cpu-and-ram-capabilities-expert-tips-from-yl-software/"><u>Enhancing Your Computer's Performance: Boosting CPU & RAM Capabilities - Expert Tips From YL Software</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/mastering-the-installation-process-for-idt-hd-audio-driver-on-new-windows-11-platforms/"><u>Mastering the Installation Process for IDT HD Audio Driver on New Windows 11 Platforms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-future-language-that-will-define-my-growth/"><u>Unveiling The Future Language That Will Define My Growth</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-essential-blueprint-for-inspiring-valorant-video-thumbnails/"><u>[New] The Essential Blueprint for Inspiring Valorant Video Thumbnails</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-cinematic-hope-the-top-10-inspirational-films/"><u>[Updated] In 2024, Cinematic Hope The Top 10 Inspirational Films</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/creativity-unleashed-discover-the-stunning-features-and-capabilities-of-crealitys-new-k1c-3d-printer/"><u>Creativity Unleashed! Discover the Stunning Features and Capabilities of Creality's New K1C 3D Printer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-diez-dias-del-mundo-el-espanol-para-cada-jornada/"><u>Los Diez Días Del Mundo: El Español Para Cada Jornada</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/major-asian-dialects-ranking-triad/"><u>Major Asian Dialects: Ranking Triad</u></a></li>
+<li><a href="https://article-files.techidaily.com/master-your-search-securing-cool-images-at-pexels-for-2024/"><u>Master Your Search Securing Cool Images at Pexels for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-celebrated-for-ict-accomplishment/"><u>Mondly Celebrated for ICT Accomplishment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-empowers-learning-for-everyone-reaching-70-million-globally/"><u>Mondly Empowers Learning for Everyone, Reaching 70 Million Globally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-milestone-in-7-years-of-language-acquisition/"><u>Mondly's Milestone in 7 Years of Language Acquisition</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/personalize-windows-email-and-scheduling-with-top-pics/"><u>Personalize Window's Email & Scheduling with Top Pics</u></a></li>
+<li><a href="https://some-tips.techidaily.com/raspberry-pis-on-high-demand-unveiling-reasons-behind-supply-issues-and-how-to-secure-yours-zdnet/"><u>Raspberry Pis on High Demand: Unveiling Reasons Behind Supply Issues and How to Secure Yours | ZDNet</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-photos-during-transfer-from-iphone-14-pro-to-pc-or-mac-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Recover Lost Photos during Transfer from iPhone 14 Pro to PC or Mac | Stellar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saudade-de-portugal-conhecimento-das-melhores-expressoes/"><u>Saudade De Portugal! - Conhecimento Das Melhores Expressões</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/simple-techniques-to-efficiently-take-photos-of-your-laptop-display/"><u>Simple Techniques to Efficiently Take Photos of Your Laptop Display</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-spectrum-of-worldwide-halloween/"><u>The Spectrum of Worldwide Halloween</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-tips-for-removing-dust-and-fingerprints-from-modern-television-screens-safely/"><u>Top Tips for Removing Dust and Fingerprints From Modern Television Screens Safely</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/trim-tongue-training-the-three-mental-agility-steps/"><u>Trim Tongue Training: The Three Mental Agility Steps</u></a></li>
+<li><a href="https://driver-error.techidaily.com/troubleshoot-and-solve-your-gtx-950-with-error-code-43-in-win11/"><u>Troubleshoot and Solve Your GTX 950 with Error Code 43 in Win11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-english-top-reasons-and-benefits/"><u>Why Learn English: Top Reasons and Benefits</u></a></li>
 </ul></div>
 

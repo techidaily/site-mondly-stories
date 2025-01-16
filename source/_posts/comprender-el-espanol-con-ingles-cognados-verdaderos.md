@@ -1,7 +1,7 @@
 ---
 title: Comprender El Español Con Inglés Cognados Verdaderos
-date: 2024-09-10T13:25:36.417Z
-updated: 2024-09-11T13:25:36.417Z
+date: 2025-01-11T23:11:15.763Z
+updated: 2025-01-15T16:17:45.037Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee293185
 
  Luckily, we are coming to your aid with a comprehensive list of some of the most common English-Spanish cognates and false Spanish cognates. Read on to understand the differences and choose the correct words for your next conversation in Spanish.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What are cognates, false cognates and false friends?
 
  In linguistics,**cognates** are known as words from different languages that have the same root or origin and share the same meaning. For example, when it comes to English-Spanish cognates, the common root comes from Latin and/or Greek.
@@ -29,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee293185
  Not to be confused with false friends,**false cognates** are words that sound and look similar but do not come from a common root. For example, the English “much” and the Spanish “mucho” are phonetically and semantically similar but came from completely different Proto-Indo-European roots.
 
 ![false friends words](https://edge.mondly.com/blog/wp-content/uploads/2020/04/false-friends-words-600x399.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “We are not false friends!” by Alvan Nee©
 
@@ -41,26 +49,6 @@ thumbnail: https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee293185
  The easiest Spanish cognates are those with no spelling changes. These are called “perfect cognates” because they are written the same in both English and Spanish. Nevertheless, as you might guess, the Spanish pronunciation is different.
 
  Some of the most popular examples are: _hospital, horrible, actor, artificial, agenda, animal, original, idea, flexible, vulnerable, superficial, reunion_ (_reunión_ in Spanish)_, melon, interminable, inevitable, tropical, experimental, excursion_ (_excursión_ in Spanish)_, capital, chocolate, probable, conclusion_ (_conclusión_ in Spanish) _, doctor, director, festival, general, individual, nostalgia, panorama, television_ (_televisión_ in Spanish)_, perfume, total, similar, terror_ and_verbal._
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Near-perfect English-Spanish cognates
 
@@ -81,20 +69,6 @@ thumbnail: https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee293185
 * erup**tion** and   _erup**ción**_
 * addi**tion** and   _adi**ción**_
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Spanish Cognates that change “-nt” to “-nte”
 
 * abunda**nt** and   _abunda**nte**_
@@ -107,26 +81,6 @@ thumbnail: https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee293185
 * ignora**nt** and   _ignora**nte**_
 * evide**nt** and   _evide**nte**_
 * preside**nt** and   _preside**nte**_
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Spanish cognates that change “-ate” to “ar”
 
@@ -143,21 +97,11 @@ thumbnail: https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee293185
 
 ![english spanish cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-spanigh-cognates-600x399.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 3")
 
-
-
-
+ “Mommy, what are cognates?” by Josh Applegate©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
-
- “Mommy, what are cognates?” by Josh Applegate©
 
 ### Spanish cognates that add an “-o”
 
@@ -187,19 +131,9 @@ thumbnail: https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee293185
 * calm and   _calm**ar**_
 * control and   _control**ar**_
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### Spanish cognates that change “-ly” to “-mente”
 
@@ -214,19 +148,9 @@ thumbnail: https://thmb.techidaily.com/6d037ed02bb78c8d6ffd1b34444df7b04ee293185
 * complete**ly** and   _completa**mente**_
 * exact**ly** and   _exacta**mente**_
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Spanish-English False Friend Words
 
@@ -289,20 +213,6 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Speak Spanish in just 10 minutes a day
 
  All these funny little examples convinced you it’s high time you learned Spanish, didn’t they? Lucky for you, we have the perfect tool for learning Spanish: Mondly, the award-winning language learning app that makes language learning fun, fast and easy.
@@ -321,8 +231,6 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -330,16 +238,18 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-making-sense-of-creative-commons-licensing-and-usage/"><u>[Updated] 2024 Approved Making Sense of Creative Commons Licensing & Usage</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-growth-acceleration-on-youtube-expert-tips-for-video-partnerships/"><u>[Updated] In 2024, Growth Acceleration on YouTube Expert Tips for Video Partnerships</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-understanding-split-screen-techniques-in-facebook-lives-for-2024/"><u>[Updated] Understanding Split Screen Techniques in Facebook Lives for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beantech-bitwatch-s1-plus-smartwatch-assessed-an-engaging-and-economical-wearable-experience/"><u>Beantéch Bitwatch S1 Plus Smartwatch Assessed: An Engaging and Economical Wearable Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/europes-romantic-rivals-a-deep-dive-into-spanish-and-portuguese/"><u>Europe’s Romantic Rivals: A Deep Dive Into Spanish and Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/excellence-in-workplace-expression-a-comprerancial-journey/"><u>Excellence in Workplace Expression: A Comprerancial Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-squid-games-roots-in-korean-vocabulary/"><u>Explore Squid Game's Roots in Korean Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-films-to-inspire-you-to-learn-the-language-of-love/"><u>French Films To Inspire You To Learn The Language Of Love</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gallant-glossary-the-eloquence-in-spanish-flirting/"><u>Gallant Glossary: The Eloquence in Spanish Flirting</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-honor-x50-gt-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Honor X50 GT Location by Number | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/leading-soundstage-viewing-for-2024/"><u>Leading Soundstage Viewing for 2024</u></a></li>
+</ul></div>
 

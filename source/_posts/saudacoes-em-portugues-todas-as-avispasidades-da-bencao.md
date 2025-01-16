@@ -1,7 +1,7 @@
 ---
 title: "Saudações Em Português: Todas as Avispasidades Da Bênção"
-date: 2025-01-05T20:05:09.837Z
-updated: 2025-01-10T18:10:54.575Z
+date: 2025-01-13T00:42:59.833Z
+updated: 2025-01-15T20:26:24.983Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/85ea88a283ba15f13d63e8eaf5823127ecc1dabd5
  So next time you go on an adventure to one of the 7 countries where Portuguese is the only official language (Portugal, Brazil, Mozambique, Angola, Cape Verde, Guinea-Bissau, São Tomé and Príncipe), try the following**Portuguese greetings** and see how easy it is to connect with someone even if you don’t speak the same language.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. How to say “hello” in Portuguese
@@ -42,6 +42,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  “Lisbon, Portugal” by Diego García©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### “How are you” in Portuguese – Tudo bem?
 
  Asking someone how they are doing is probably just as important as saying “hello”. Sometimes you don’t even expect an answer. This is just an even nicer way to greet someone. So let’s see the many ways Portuguese-speaking people ask someone how they are doing depending on the context.
@@ -57,17 +61,9 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
@@ -78,6 +74,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  **Good night in Portuguese –_Boa noite!_**  – The Portuguese language does not make any difference between evening and night. Thus, “goodnight” and “good evening” have the same translation in Portuguese. While in Brazil you will say “boa NOEE-tsh”, in Portugal you will say “boa NOEE-t”.
 
  All three of these are safe to use in any kind of interaction (formal or informal).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
 
@@ -96,7 +96,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
@@ -124,7 +124,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
@@ -165,15 +165,18 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-audio-capture-and-critical-examination/"><u>[New] 2024 Approved Audio Capture & Critical Examination</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-ghostly-witness-to-fb-vignettes/"><u>[New] Ghostly Witness to Fb Vignettes</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-ultimate-instructions-for-prolonged-iphone-shots/"><u>[New] In 2024, The Ultimate Instructions for Prolonged iPhone Shots</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-in-search-of-greatness-top-15-timeless-stop-motion-films/"><u>[Updated] 2024 Approved In Search of Greatness Top 15 Timeless Stop Motion Films</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-finding-the-right-free-srt-translation-for-you-our-8-picks/"><u>[Updated] In 2024, Finding the Right FREE SRT Translation for You – Our #8 Picks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/acquiring-a-new-language-speed-vs-patience/"><u>Acquiring a New Language: Speed Vs. Patience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/age-no-barrier-to-multilingual-mastery/"><u>Age-No Barrier to Multilingual Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/clear-speech-path-hone-your-pronunciation-with-twisters/"><u>Clear Speech Path: Hone Your Pronunciation with Twisters</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/customizing-access-controls-for-standard-windows-users/"><u>Customizing Access Controls for Standard Windows Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressing-affection-in-diverse-languages/"><u>Expressing Affection in Diverse Languages</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-maximize-screen-size-for-youtube-videos/"><u>[Updated] Maximize Screen Size for YouTube Videos</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-step-by-step-guide-to-perfecting-iphones-hdr-shots-for-2024/"><u>[Updated] Step-by-Step Guide to Perfecting iPhone's HDR Shots for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-instant-image-clarity-picart-background-cleansing-hacks/"><u>2024 Approved Instant Image Clarity PicArt Background Cleansing Hacks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/blending-past-memories-with-instagrams-vivid-filters/"><u>Blending Past Memories with Instagram's Vivid Filters</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-xiaomi-civi-3-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Xiaomi Civi 3 Phone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Vivo Y17s? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-samsung-galaxy-a15-4g-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Samsung Galaxy A15 4G Data? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inbordes-valkomma-sveriges-hjartefar/"><u>Inbördes Välkomma: Sverige's Hjärtefär</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-path-to-latvian-proficiency-10-minutes-daily/"><u>Quick Path to Latvian Proficiency, 10 Minutes Daily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/simplified-hangul-learning-your-guide-to-seamless-script-acquisition/"><u>Simplified Hangul Learning: Your Guide to Seamless Script Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tailored-for-success-customizing-language-training-goals-to-fit-your-corporate-culture/"><u>Tailored for Success: Customizing Language Training Goals to Fit Your Corporate Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-premium-three-your-key-to-speedier-happier-learning/"><u>The Premium Three: Your Key to Speedier, Happier Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turbocharged-introduction-to-turkish-letters-and-sounds/"><u>Turbocharged Introduction to Turkish Letters and Sounds</u></a></li>
 </ul></div>
 

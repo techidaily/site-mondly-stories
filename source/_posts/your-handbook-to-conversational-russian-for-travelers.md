@@ -1,7 +1,7 @@
 ---
 title: Your Handbook to Conversational Russian for Travelers
-date: 2025-01-09T17:55:07.771Z
-updated: 2025-01-10T18:37:21.893Z
+date: 2025-01-13T19:30:13.141Z
+updated: 2025-01-15T19:27:29.973Z
 tags:
   - speak
   - english
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 9. [Bonus basic Russian phrases for FIFA World Cup 2018](#russian-phrases-world-cup)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Greetings and other useful Russian words
@@ -56,10 +56,6 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * Nice to meet you. –_Рада познакомиться. – Radа poznakomitsya._
 
 ![english to russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/english-to-russian-1024x720.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Photo by Pablo Gentile
 
@@ -88,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 
 ![useful russian phrases scaled](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-phrases-scaled-640x960.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Photo by Tom Barrett
 
 * Is the flight delayed? –_Рейс откладывается? – Reys otkladyvayetsya?_
@@ -96,10 +96,6 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * We need help boarding the plane. – _Вы не могли бы помочь нам при посадке? – Vy ne mogli by pomoch nam pri posadke?_
 * Is this seat taken? –_Это место свободно? – Eto mesto svobodno?_
 * I would like to change my seat. –_Я хотел бы пересесть. – Ya hotel by peresest._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Common Russian phrases for travelers who need help
 
@@ -120,7 +116,7 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 ![learn russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/learn-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Photo by A.L.
@@ -135,6 +131,10 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * Please wait a moment. – _Пожалуйста, подождите чуть-чуть. – Pozhaluysta, podozhdite chut-chut._
 * I’ll be back immediately. –_Я скоро вернусь. – Ya skoro vernus._
 * Drive me to this address. –_Отвезите меня по этому адресу. – Otvezite menya po etomu adresu_ .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Advanced Russian phrases for different hotel situations
 
@@ -179,6 +179,10 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 
 ![useful-russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-words-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Photo by Henrique Félix
 
 * I would like a dessert. –_Я хотел бы десерт. Ya hotel by desert._
@@ -211,10 +215,6 @@ Just joking. Still is an amazing drink, though!
 * Let’s have some fun. –_Повеселимся! – Poveselimsya!_
 * Are there seats available? –_Ещё остались свободные места? – Yeshcho ostalis svobodnyye mesta?_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. Basic Russian phrases for shopping sprees
 
  This is the cruelest drudgery our loved ones from home put us through while on holiday. _Should I buy a matryoshka doll? Or some vodka? Maybe a refrigerator magnet? But when? What if I don’t buy anything? Will they hate me for life?_ Funny or not, these are all questions that haunt us while on holiday. The best solution? Schedule two hours tops and just get it over with. The same way you would do with a bandage.
@@ -230,10 +230,6 @@ Just joking. Still is an amazing drink, though!
 * Can I have a receipt? –_Дайте мне, пожалуйста, чек. – Dayte mne, pozhaluysta, chek._
 * What would you like? –_Что вы предпочитаете? – Chto vy predpochitayete?_
 * Can I have some ice cream? –_Можно мне мороженого? – Mozhno mne morozhenogo?_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 8\. Russia Travel Guide – how to say that you have fallen in love?
 
@@ -264,6 +260,10 @@ Just joking. Still is an amazing drink, though!
 ## Bonus: Basic Russian phrases for football lovers
 
 ![russian-phrases-world-cup](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-phrases-world-cup-1024x576.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 11")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Photo by Fauzan Saari
 
@@ -303,20 +303,20 @@ Just joking. Still is an amazing drink, though!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-kid-friendly-quadcopters-top-5-selection-guide/"><u>[New] In 2024, Kid-Friendly Quadcopters Top 5 Selection Guide</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-combine-photos-for-captivating-instagram-stories/"><u>[Updated] How to Combine Photos for Captivating Instagram Stories</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/10-easy-to-learn-italian-gestures-for-beginners/"><u>10 Easy-to-Learn Italian Gestures for Beginners</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-metaverse-reflections-a-pioneering-collection-of-thoughts/"><u>2024 Approved Metaverse Reflections A Pioneering Collection of Thoughts</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-vivo-y78t-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Vivo Y78t Without Power Button | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/achieve-expertise-in-english-via-mondly-tactics/"><u>Achieve Expertise in English via Mondly Tactics</u></a></li>
-<li><a href="https://win-hot.techidaily.com/budget-friendly-solutions-best-5-no-cost-backup-tools-for-windows-11-users/"><u>Budget-Friendly Solutions: Best 5 No-Cost Backup Tools for Windows 11 Users</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/counteracting-vanishing-chatgpt-logs/"><u>Counteracting Vanishing ChatGPT Logs</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1722988506423-cyberpunk-2077-overheating-issues-heres-the-solution-for-lowering-cpu-load/"><u>Cyberpunk 2077 Overheating Issues? Here’s the Solution for Lowering CPU Load</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/english-as-a-foreign-language-curriculum-design/"><u>English as a Foreign Language Curriculum Design</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-the-power-of-voice-and-text-on-huawei/"><u>Explore the Power of Voice & Text on Huawei</u></a></li>
-<li><a href="https://games-able.techidaily.com/guide-to-remove-unwanted-game-data-on-ps5/"><u>Guide to Remove Unwanted Game Data on PS5</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ing-interest-customized-anime-style-subscribers-on-your-youtube-channel-filmora/"><u>Sparking Interest Customized, Anime-Style Subscribers on Your YouTube Channel (Filmora)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essential-repertoire-of-italian-gesture-language/"><u>The Essential Repertoire of Italian Gesture Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-first-encounter-with-german-linguistics-phonetics-and-alphabet-guide/"><u>Your First Encounter with German Linguistics: Phonetics & Alphabet Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-synchronized-screenscapes-youtube-clips-in-tv-loops/"><u>[New] In 2024, Synchronized Screenscapes YouTube Clips in TV Loops</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-downloading-audio-made-simple-with-these-19-top-quality-free-rippers-from-youtube/"><u>2024 Approved Downloading Audio Made Simple with These 19 Top-Quality Free Rippers From YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/glad-attack-grev-for-sverige/"><u>Glad Attack: Grev För Sverige</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/groundbreaking-ai-powered-ar-speaker/"><u>Groundbreaking AI-Powered AR Speaker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonious-easter-wishes-in-multiple-languages/"><u>Harmonious Easter Wishes in Multiple Languages</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-scrutinizing-the-functionality-of-pixelrecorder-12/"><u>In 2024, Scrutinizing the Functionality of PixelRecorder 12</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-top-8-best-apps-to-get-likes-on-facebook-android-and-iphone/"><u>In 2024, Top 8 Best Apps to Get Likes on Facebook (Android and iPhone)</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Tecno Camon 20? | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/leading-mini-desktops-optimized-for-efficient-gaming-performance/"><u>Leading Mini Desktops Optimized for Efficient Gaming Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-true-blue-speak-with-100plus-aussie-terms/"><u>Learn True Blue Speak with 100+ Aussie Terms</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-video-editing-on-the-go-top-5-iphone-apps/"><u>New 2024 Approved Video Editing on the Go Top 5 iPhone Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/porque-y-por-que-unveiling-the-variance/"><u>Porque Y Por Que: Unveiling the Variance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-latvian-fast-10-minute-daily-routine/"><u>Speak Latvian Fast: 10-Minute Daily Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speech-refinement-through-targeted-twister-training/"><u>Speech Refinement Through Targeted Twister Training</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-art-of-verse-integrating-chatgpt-in-book-writing/"><u>The Art of Verse: Integrating ChatGPT in Book Writing</u></a></li>
 </ul></div>
 

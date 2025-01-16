@@ -1,7 +1,7 @@
 ---
 title: A Closer Look at Mondly’s Educational Model
-date: 2024-09-05T04:37:19.598Z
-updated: 2024-09-06T04:37:19.598Z
+date: 2025-01-14T05:47:31.849Z
+updated: 2025-01-16T01:33:40.577Z
 tags:
   - speak
   - english
@@ -14,36 +14,16 @@ keywords: Mondly's Education Approach,Interactive Language Learning Platform,Ada
 thumbnail: https://thmb.techidaily.com/831f2f90478586ac086abfd43f6d32639656f49a2d8163ca6c49196e0614246e.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## A Closer Look at Mondly’s Educational Model
 
  How do [children learn languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) so easily? Biologically, a child’s brain is prepared for learning, but you never see kids study conjugations, do you? So how can this be possible?
 
  The answer is simpler than you think. They learn by doing. And that’s the best approach for you too.
 
-
-
  After years of working abroad and learning several languages, the founders of what would soon become Mondly made a decision. They needed to bring this amazing approach to an app. And they did.
 
 ![language learning app](https://edge.mondly.com/blog/wp-content/uploads/2021/01/language-learning-app-960x761.png "The Learning Method Behind Mondly 4")
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Practice daily with Mondly
 
  **Mondly is based on the inductive method: learn by doing, context and example, and extrapolate to rules.** In other words, start thinking in the language that you’d like to learn rather than construct a phrase in your native language, apply the rules and only then translate it accordingly.
@@ -51,11 +31,9 @@ thumbnail: https://thmb.techidaily.com/831f2f90478586ac086abfd43f6d32639656f49a2
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Minimum effort, maximum results
 
  Think about those endless pages of rules you had to memorize in high school. That was no easy task. But once in a while, there was a teacher that really enjoyed the job and took the time to properly explain all the thinking behind them. Only then the rules would stick.
@@ -69,17 +47,9 @@ thumbnail: https://thmb.techidaily.com/831f2f90478586ac086abfd43f6d32639656f49a2
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
@@ -89,11 +59,9 @@ thumbnail: https://thmb.techidaily.com/831f2f90478586ac086abfd43f6d32639656f49a2
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lexical coverage overview
 
  By focusing its curriculum on these**high-frequency, high-value words,** Mondly makes sure you’ll work smarter, not harder. In other words, you’ll only focus on the words that truly matter. That’s how millions worldwide get fluent so fast with this amazing app.
@@ -106,11 +74,9 @@ thumbnail: https://thmb.techidaily.com/831f2f90478586ac086abfd43f6d32639656f49a2
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030373/7443" target="_top" id="2030373">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030373" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030373/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Take Mondly for a test drive
 
  Take your language learning experience to the next level. With Mondly, you’ll learn by doing.
@@ -127,8 +93,6 @@ thumbnail: https://thmb.techidaily.com/831f2f90478586ac086abfd43f6d32639656f49a2
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -136,8 +100,24 @@ thumbnail: https://thmb.techidaily.com/831f2f90478586ac086abfd43f6d32639656f49a2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-breaking-down-the-free-fcp-puzzle/"><u>[New] Breaking Down The Free FCP Puzzle</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-creating-a-personal-brand-on-facebook/"><u>[Updated] In 2024, Creating a Personal Brand on Facebook</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-segmentscreen-examination/"><u>[Updated] SegmentScreen Examination</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/101-words-and-phrases-to-sound-like-an-aussie/"><u>101 Words and Phrases to Sound Like an Aussie</u></a></li>
+<li><a href="https://windows11.techidaily.com/12-top-changes-to-expect-with-windows-11s-latest-release/"><u>12 Top Changes to Expect with Windows 11'S Latest Release</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-comprehensive-look-at-spanish-accented-letters-and-symbols/"><u>A Comprehensive Look at Spanish Accented Letters & Symbols</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-lifetime-of-learning-why-add-a-second-or-third-language-to-your-skill-set-after-40/"><u>A Lifetime of Learning: Why Add a Second (or Third) Language to Your Skill Set After 40</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-borders-optimal-language-learning-for-companies/"><u>Bridging Borders: Optimal Language Learning for Companies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/culinary-connections-decoding-chocolate-across-cultures/"><u>Culinary Connections: Decoding 'Chocolate' Across Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decode-hard-linguistics-strategies-for-accurate-pronunciation/"><u>Decode Hard Linguistics: Strategies for Accurate Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-impact-of-ai-on-language-education/"><u>Decoding the Impact of AI on Language Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dulcet-dialogues-the-art-of-francophone-film/"><u>Dulcet Dialogues: The Art of Francophone Film</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/fixing-the-crash-ultimate-guide-to-resolving-error-code-0xc000021a-bsod-in-windows-10-and-8/"><u>Fixing the Crash: Ultimate Guide to Resolving Error Code 0xC000021A (BSoD) in Windows 10 & 8</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Vivo V27e? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-instagrams-updated-strategy-and-its-effects/"><u>In 2024, Instagram’s Updated Strategy and Its Effects</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ios-meets-android-an-in-depth-look-at-facial-tech-for-2024/"><u>IOS Meets Android An In-Depth Look at Facial Tech for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/win-gaming-mastering-intel-graphics-for-live-streams/"><u>Win Gaming: Mastering Intel Graphics for Live Streams</u></a></li>
+</ul></div>
 

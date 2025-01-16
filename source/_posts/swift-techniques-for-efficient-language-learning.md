@@ -1,7 +1,7 @@
 ---
 title: Swift Techniques for Efficient Language Learning
-date: 2025-01-03T16:42:37.454Z
-updated: 2025-01-10T19:08:34.463Z
+date: 2025-01-14T06:47:22.027Z
+updated: 2025-01-16T06:21:39.480Z
 tags:
   - speak
   - english
@@ -38,10 +38,6 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
 ![learn a new language](https://edge.mondly.com/blog/wp-content/uploads/2018/04/learn-a-new-language-960x761.png "Tips And Techniques For Fast And Effective Language Learning 6")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The reason behind this “trick” is that the**most common 1000 words account for 75% of all spoken communication** , while the**most common 3000 words account for 85% of it** . If this doesn’t feel real, just ask yourself if you know and use all the words in your mother tongue. You will soon realize that the answer is “no”.
 
 ### 2\. Use mnemonics
@@ -53,7 +49,7 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
  For example, when I was in college and I had to memorize a long list of words, I always tried to come up with funny sentences or songs using them. I strongly recommend trying this or other types of mnemonics to improve your learning rhythm.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Identify your learning style
@@ -80,10 +76,6 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  Therefore, it’s always necessary to train your speech muscles and ears. Any foreign language may sound weird in the beginning. The secret is to hold on to it and exercise with common sounds until it becomes familiar.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Study pronunciation rules and practice
 
  Everyone knows grammar can be overwhelming in any language. When learning a new language, we become so obsessed with grammar that we forget to study what matters most: pronunciation rules.
@@ -93,6 +85,10 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
  Besides, if you master pronunciation, you can start speaking faster. It’s a win-win situation.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Tips And Techniques For Fast And Effective Language Learning 7")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Best way to learn a language?
 
@@ -106,6 +102,10 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  People often claim that speaking in another language changes your personality. The process resembles the idea of having an alter ego. If this works the same for you, let your foreign language alter ego speak. It may be frustrating in the beginning, but it’s super-efficient.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. Enjoy local movies and music
 
  Help your [brain understand that learning a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is not something you do because you have to but because it’s fun. Find something you enjoy doing – like watching a film or listening to music – and try to associate this action with the language you want to learn.
@@ -113,7 +113,7 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 !['How to learn a new language' by Mollie Sivaram©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/how-to-learn-a-new-language-960x640.jpg "Tips And Techniques For Fast And Effective Language Learning 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  As a cinephile, I really enjoy watching films and television series, and last year, I did some research to find the best [movies from Denmark](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Today, my brain associates Danish lessons with something that I enjoy doing and information retention is much easier. Our brain opens just like a flower when we like what we are learning.
@@ -128,15 +128,15 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  And it doesn’t necessarily have to be books. You can also read articles, poetry or whatever interests you more. Are you a Harry Potter fan? Great, read that. Considering its reading level (middle grade), Harry Potter is a good choice. Sure, it contains a lot of made-up terms as it’s a book about wizards, but that shouldn’t stop you from learning new and useful words. It’s not all magic and spells, after all.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9\. Try comprehensible input
 
  Comprehensible input is highly connected to what we mentioned earlier about consuming content in the language you want to learn. Basically, comprehensible input refers to language material that is at or slightly above your current proficiency level, allowing you to understand and learn from it.
 
  This method involves consuming content such as reading material, podcasts, videos, and conversations in your target language that you can comprehend with some effort but which still challenges you to learn new vocabulary and grammar concepts. This approach helps you learn a language quickly and more naturally, similar to how you learned your first language. Just remember to choose materials that interest you and keep you engaged, so you can learn at your own pace and make progress.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 10\. Immerse yourself in the language
 
@@ -175,7 +175,7 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### From 0 to conversational fast
@@ -209,17 +209,17 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-leverage-free-luts-to-upgrade-your-obs-video-production-quality-for-2024/"><u>[New] Leverage Free LUTs to Upgrade Your OBS Video Production Quality for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-hdr-review-luminances-creation-capability/"><u>[Updated] HDR Review Luminance's Creation Capability</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ausdruckskunst-in-der-deutschen-sprache-grusse-ausserhalb-von-hallo/"><u>Ausdruckskunst in Der Deutschen Sprache: Grüße Außerhalb Von Hallo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/connect-and-learn-pearsons-interactive-classroom/"><u>Connect and Learn: Pearson's Interactive Classroom</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-the-nuances-of-english-contraction-forms/"><u>Deciphering the Nuances of English Contraction Forms</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-tecno-camon-30-pro-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Tecno Camon 30 Pro 5G Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-advanced-interactive-qanda-for-enhanced-support/"><u>Introducing Advanced Interactive Q&A for Enhanced Support</u></a></li>
-<li><a href="https://article-tips.techidaily.com/nexus-core-systems-single-screen-high-definition-touch/"><u>Nexus Core Systems Single Screen, High Definition Touch</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-the-icue-no-device-found-error-with-easy-troubleshooting-steps/"><u>Resolving the 'ICUE - No Device Found' Error with Easy Troubleshooting Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581262422-spanish-vs-english-grammar-understanding-por-que-and-why/"><u>Spanish Vs. English Grammar: Understanding 'Por Que' And 'Why'</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-soundsmiths-scripture-on-crossfading-in-logic/"><u>The Soundsmith's Scripture on Crossfading in Logic</u></a></li>
-<li><a href="https://fox-making.techidaily.com/xml-attribute-modification-tool-a-comprehensive-guide/"><u>XML Attribute Modification Tool: A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-high-quality-1-ranked-4k-laptops-for-gaming-for-2024/"><u>[Updated] High-Quality #1 Ranked 4K Laptops for Gaming for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-music-from-oppo-k11-5g-by-fonelab-android-recover-music/"><u>Best Android Data Recovery - Undelete Lost Music from Oppo K11 5G</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/expert-insight-on-why-the-new-apple-ipad-air-2019-is-a-game-changer-in-digital-entertainment/"><u>Expert Insight on Why the New Apple iPad Air (2019) Is a Game-Changer in Digital Entertainment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-play-honors-mondly-kids-for-ease-of-use/"><u>Google Play Honors Mondly Kids for Ease of Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hace-un-mes-hace-un-dia-un-curso-semanal-en-espanol/"><u>Hace Un Mes, Hace Un Dia: Un Curso Semanal en Español</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-reveal-taskbar-behind-maximized-window-titles/"><u>How to Reveal Taskbar Behind Maximized Window Titles</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-art-of-space-arrangement-in-fostering-a-high-performing-team/"><u>In 2024, The Art of Space Arrangement in Fostering a High-Performing Team</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/is-it-really-zoom-lagging-or-is-something-else-affecting-your-call-quality/"><u>Is It Really Zoom Lagging, or Is Something Else Affecting Your Call Quality?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-indonesian-salutations-quickly/"><u>Mastering Indonesian Salutations Quickly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prominent-non-english-languages-in-american-institutions/"><u>Prominent Non-English Languages in American Institutions</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209857490-9781780359908-red-moon/"><u>Red Moon | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-mondlys-power-for-peak-performance/"><u>Unleash Mondly's Power for Peak Performance</u></a></li>
 </ul></div>
 

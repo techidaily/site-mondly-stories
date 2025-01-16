@@ -1,7 +1,7 @@
 ---
 title: New Year, New Linguistic Skills!
-date: 2025-01-08T17:29:16.162Z
-updated: 2025-01-10T19:12:22.628Z
+date: 2025-01-11T23:19:29.411Z
+updated: 2025-01-15T17:15:52.022Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
  Many of us give up early on our New Year’s resolutions because we’re busy and demoralized. We’re only humans, after all. Still, this can change. So, let’s see how you can take up language learning in the new year and keep doing it until December.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Are New Year’s Resolutions?
 
  **New Year’s resolutions are personal promises or goals people set for themselves as they embark on a new year.** These resolutions often focus on self-improvement, lifestyle changes, or achieving specific objectives. The tradition of making New Year’s resolutions dates back centuries and is a common practice in many cultures around the world. Many take advantage of the clean slate – meaning the new year – to quit bad habits or maybe learn something new.
@@ -33,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
  The success of New Year’s resolutions varies greatly. For some, they serve as a beneficial source of motivation for instigating positive transformations, while others may encounter difficulties maintaining their resolutions over the long term. The key to successful New Year’s resolutions often lies in setting realistic, specific, and achievable goals, accompanied by a well-structured plan to follow through on them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## SMART Goals for Language Learning
@@ -45,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
  But wait! Now, instead of imagining how accomplished you are going to feel when you reach that certain goal, you should envision the process towards it and enjoy every second of it. Otherwise, you will just end up procrastinating.
 
 ![language learning 2024](https://edge.mondly.com/blog/wp-content/uploads/2019/01/language-learning-2024-600x600.png "New Year, New Language: Your New Year Aspirations 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### A SMART Goal is
 
@@ -60,15 +60,15 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
  Why should learning a new language be included in your New Year’s resolutions list? Because language learning is [good for your brain](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . According to multiple studies, the benefits for your cognitive health and well-being are undeniable.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Cognitive Benefits
 
  Your brain is like a muscle: train it now, and you will enjoy the health benefits later. And learning a second or a third language is a great way of training your brain – especially if you are not a student anymore and the information flow is not as good as it used to be. More precisely, various studies have shown that learning a new language is directly linked to a slower rate of mental decline in patients with [Alzheimer’s](https://www.dailymail.co.uk/health/article-5363123/Learning-language-protect-ALZHEIMERS.html) disease and [dementia prevention](https://www.telegraph.co.uk/news/science/science-news/12156709/Students-should-learn-second-language-to-prevent-dementia-in-later-life.html) .
 
  Moreover, language learning will give a great boost to your memory. In fact, it can increase the size of your brain! This is what [Swedish scientists discovered](https://www.theguardian.com/education/2014/sep/04/what-happens-to-the-brain-language-learning) when they used brain scans to monitor what happens when someone learns a second language.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Mental Well-Being Benefits
 
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "New Year, New Language: Your New Year Aspirations 6")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Start 2024 with a bang 🎆
@@ -96,10 +96,6 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 * **Easier business travel:** Language proficiency enables professionals to communicate effectively and build stronger relationships with their local partners and clients and better navigate unfamiliar environments.
 
 ![personal growth](https://edge.mondly.com/blog/wp-content/uploads/2019/01/personal-growth-960x704.jpg "New Year, New Language: Your New Year Aspirations 7")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Top 5 To-Do’s for Learning a New Language
 
@@ -121,6 +117,10 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## New Year, New Language
 
@@ -152,18 +152,17 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-curating-background-beats-for-video-releases/"><u>[Updated] 2024 Approved Curating Background Beats for Video Releases</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-proven-tactics-for-unblemished-image-sourcing/"><u>[Updated] 2024 Approved Proven Tactics for Unblemished Image Sourcing</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/comprendre-et-resoudre-lopen-random-de-powershell-windows-foires-et-remedes/"><u>Comprendre Et Résoudre L'Open Random De PowerShell Windows: Foires Et Remèdes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dialect-dynamics-portuguese-of-the-two-hemispheres/"><u>Dialect Dynamics: Portuguese of the Two Hemispheres</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gsl-transformation-pearson-and-mondly-join-forces/"><u>GSL Transformation - Pearson & Mondly Join Forces</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-effortlessly-resolve-your-pc-cannot-connect-to-external-display-error-in-windows-108/"><u>How to Effortlessly Resolve Your PC Cannot Connect To External Display Error in Windows 10/8</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-repair-microphone-functionality-issues-in-sea-of-thieves-pc-version/"><u>How to Repair Microphone Functionality Issues in 'Sea of Thieves' (PC Version)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-czech-with-online-simplicity-techniques/"><u>Mastering Czech with Online Simplicity Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oculus-event-practice-your-spanish-and-socialize-in-mondly-vr-multiplayer/"><u>Oculus Event: Practice Your Spanish and Socialize in Mondly VR Multiplayer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfect-pronunciation-powered-by-100-dynamic-twisters/"><u>Perfect Pronunciation Powered by 100 Dynamic Twisters</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/privacy-in-digital-dialogues-top-3-bot-safety-risks/"><u>Privacy in Digital Dialogues: Top 3 Bot Safety Risks</u></a></li>
-<li><a href="https://win11.techidaily.com/tackling-disconnections-head-on-maintaining-a-secure-ps4-link-to-pc/"><u>Tackling Disconnections Head-On: Maintaining a Secure PS4 Link to PC</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unraveling-the-mystery-of-cc-setup-issues-in-windows-11/"><u>Unraveling the Mystery of CC Setup Issues in Windows 11</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-overcoming-handheld-vibration-secure-your-gopro-movies/"><u>[New] Overcoming Handheld Vibration Secure Your GoPro Movies</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-skincare-and-sensational-looks-for-2024/"><u>[New] Skincare and Sensational Looks for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-unlocking-the-potential-in-depth-skype-call-recordings-for-2024/"><u>[New] Unlocking the Potential In-Depth Skype Call Recordings for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-crafting-visual-magic-the-power-of-luts-in-ar-environments/"><u>[Updated] Crafting Visual Magic The Power of LUTs in AR Environments</u></a></li>
+<li><a href="https://techidaily.com/guide-on-how-to-erase-apple-iphone-11-pro-max-devices-entirely-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Erase Apple iPhone 11 Pro Max Devices Entirely | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-fb-rights-instant-video-ownership-takedown-questions/"><u>In 2024, FB Rights Instant Video Ownership Takedown Questions</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Vivo G2? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-pronunciation-via-intense-tongue-twisters/"><u>Mastering English Pronunciation via Intense Tongue Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-language-exams-top-certifications-and-exam-preparation-guide/"><u>Mastering Language Exams: Top Certifications And Exam Preparation Guide</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-pc-input-devices-on-sonys-playstation/"><u>Mastering PC Input Devices on Sony's PlayStation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/superior-systems-enhancing-vocab-learning/"><u>Superior Systems Enhancing Vocab Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transformative-experience-with-mondly-mastery/"><u>Transformative Experience with Mondly Mastery</u></a></li>
 </ul></div>
 

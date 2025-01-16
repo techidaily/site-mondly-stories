@@ -1,7 +1,7 @@
 ---
 title: Aussteigende Verabschiedungssprünge Im Deutschen
-date: 2024-09-05T04:36:13.477Z
-updated: 2024-09-06T04:36:13.477Z
+date: 2025-01-10T22:00:15.078Z
+updated: 2025-01-15T21:55:26.486Z
 tags:
   - speak
   - english
@@ -20,18 +20,6 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
 
  Here are 15 different ways to say goodbye in German – from the well-known_Auf Wiedersehen_ to different variations of “see you later”. They will all come in handy sooner or later if you want to [learn German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and speak it like a native.
 
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Auf Wiedersehen – ‘Goodbye’ in German
 
 **_Auf Wiedersehen_ is the most popular way to say goodbye in German.** It’s standard and neutral, so it can be used safely in all formal social contexts or whenever you feel you shouldn’t use a casual goodbye.
@@ -39,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
  While Germans use it to say “goodbye”, it literally translates to “see you again”.
 
  Similarly,_Auf Wiederhören_ can be used at the end of a conversation that took place over the phone. It means “until we hear each other again”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Tschüss – ‘Bye’ in German
 
@@ -48,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
 
  Press play to hear_Tschüss_ in action in a basic conversation in German:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Schönen Tag (noch) – ‘Have a good day’
 
  Now that you know the most popular ways of saying goodbye in German, it’s time to move on to some variations. These are perfect for those times when you feel like switching from “goodbye” to “see you later” or “have a good day”.
@@ -56,28 +52,14 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
 
  In the same manner, you’ll say_Schönes Wochenende_ to wish someone a good weekend.
 
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Einen schönen Tag noch – ‘Have a nice day’
 
  The more polite version of_Schönen Tag noch_ is_Einen schönen Tag noch_ . It means the same thing, but it is used by someone who wants to sound more formal and respectful.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Ciao – ‘Bye’
 
  The same as the rest of Europe, Germans borrowed [_Ciao_](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from the Italians. It’s a nice, friendly and very international way of parting ways with a friend.
@@ -88,22 +70,14 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
 
  When you didn’t plan a next meeting or get-together and you’re not sure when you are going to see the other person, you can simply say_Man sieht sich_ , which means “see you”.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Bis bald – ‘See you soon’ in German
 
  However, it’s way more common to take your leave by saying_Bis bald_ , which means “see you soon” in German. For the next three goodbyes, it will be useful to know that_bis_ is the German equivalent of “till”.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8\. Bis später – ‘See you later’
 
  If you enjoy getting creative with your goodbyes in German,_Bis später_ is another great option for a casual farewell.
@@ -124,22 +98,10 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
 * _Bis Samstag_ – “Until Saturday”
 * _Bis Sonntag_ – “Until Sunday”
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## basic german words
 
 ![basic german words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/basic-german-words-960x960.png "15 Ways To Say Goodbye In German 2")
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 10\. Gute Nacht – ‘Good night’ in German
 
  Naturally,_Gute Nacht_ (“good night”) is another great way to say goodbye if you’re retiring for the night. Although we use_Guten Morgen_ (“good morning”) as a greeting,_Gute Nacht_ only works as a farewell.
@@ -149,27 +111,17 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
  If you want to say goodbye to someone you regularly see, like a coworker or a classmate,_Bis zum nächsten Mal_ is the most suitable choice.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 12\. Wir sehen uns dann – ‘See you then’
 
 _Wir sehen uns_ is another nice way to say “see ya later” if you are making plans with someone. Add_dann_ to that and it will mean something more along the lines of “see you then”.
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 13\. Viel Spaß – ‘Have fun’ in German
 
  Supposing that the other person is going to a party or a similar activity, you can say_Viel Spaß_ , which means “enjoy” or “have fun”.
@@ -211,8 +163,6 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -220,8 +170,26 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-ultimate-tutorial-on-precise-audioshifting/"><u>[New] Ultimate Tutorial on Precise Audioshifting</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unveiling-top-tiktok-edit-techniques-for-max-impact-for-2024/"><u>[New] Unveiling Top TikTok Edit Techniques for Max Impact for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-unveiling-the-most-effective-honestly-approved-promotion-strategies-for-2024/"><u>[Updated] Unveiling the Most Effective, Honestly-Approved Promotion Strategies for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-rapid-guide-to-understanding-turkeys-alphabet-and-phonetics/"><u>A Rapid Guide to Understanding Turkey's Alphabet & Phonetics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-step-by-step-primer-for-english-contraction-mastery/"><u>A Step-by-Step Primer for English Contraction Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/animals-in-spanish-60-animal-names-you-need-to-learn/"><u>Animals In Spanish: 60 Animal Names You Need To Learn</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-friday-transform-your-communication-skills-effortlessly/"><u>Black Friday: Transform Your Communication Skills, Effortlessly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-100-years-of-eu-languages-unite-diverge/"><u>Celebrating 100 Years of EU - Languages Unite, Diverge</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-your-channel-studio-or-beta-innovation-comparison/"><u>Craft Your Channel Studio or Beta Innovation Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crafting-clear-effective-verbal-communication/"><u>Crafting Clear, Effective Verbal Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/demystifying-language-learning-with-mondly-my-top-10-experience-highlights/"><u>Demystifying Language Learning with Mondly – My Top 10 Experience Highlights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diverse-expressions-of-hello/"><u>Diverse Expressions of Hello</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/free-online-rhythm-analysis-boost-your-dj-skills-efficiently-for-2024/"><u>Free Online Rhythm Analysis Boost Your DJ Skills Efficiently for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/free-easy-to-use-online-tools-for-converting-flv-files-into-high-quality-mjpeg-format-with-movavis-assistance/"><u>Free, Easy-to-Use Online Tools for Converting FLV Files Into High-Quality MJPEG Format with Movavi's Assistance</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/introducing-the-essence-of-motion-blur-techniques-on-iphone/"><u>Introducing the Essence of Motion-Blur Techniques on iPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579057583-open-new-doors-in-life-and-career-by-learning-hindi-reveal-top-8-reasons-to-choose-mondlys-platform/"><u>Open New Doors in Life and Career by Learning Hindi: Reveal Top 8 Reasons to Choose Mondly's Platform!</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/pro-converter-mp4-videos-for-social-media-fb-focus-for-2024/"><u>Pro Converter MP4 Videos for Social Media (FB Focus) for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-7-critical-issues-with-adopting-generative-ai-for-text-based-communications/"><u>The 7 Critical Issues with Adopting Generative AI for Text-Based Communications</u></a></li>
+</ul></div>
 

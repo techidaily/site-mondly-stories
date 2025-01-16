@@ -1,7 +1,7 @@
 ---
 title: "Effortless Polyglots' Playlist: Top 10 Simple Tongues"
-date: 2024-09-05T04:36:28.762Z
-updated: 2024-09-06T04:36:28.762Z
+date: 2025-01-15T01:29:42.177Z
+updated: 2025-01-15T17:24:57.665Z
 tags:
   - speak
   - english
@@ -34,52 +34,26 @@ As [the FSI confirms](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFF
 
 Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) !
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Swedish
 
  Spoken by 10 million people in both Sweden and Finland, the [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) language is known to be mutually intelligible with Norwegian and Danish (to some extent). Good news, right?
 
  An important characteristic of Swedish grammar that makes it different from English is the placement of the definite article after the noun. However, its vocabulary contains many loanwords from German, French, and English. That means you’ll have a better chance at mastering it faster if you already know the above-mentioned languages. Everywhere you look in the world of languages, there’s a connection that can help you learn faster. Make the most of it!
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Norwegian
 
 ![norwegian landscape](https://edge.mondly.com/blog/wp-content/uploads/2019/06/norwegian-landscape-960x720.jpg "Top 10 Easiest Languages To Learn 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  “Lofoten Islands, Svolvær, Norway” by John O’Nolan©
 
  With around 5 million native speakers,[Norwegian has an interesting story](https://www.britannica.com/topic/Norwegian-language) behind its two distinct norms: Bokmål (also known as Dano-Norwegian or Riksmål) and New Norwegian (also known as Nynorsk).
 
  The story started back in the 15th century after the union of Norway with Denmark. That’s when Old Norwegian writing traditions gradually began to die out, and Dano-Norwegian took over. Then, in 1814, Norway became independent, and although the linguistic union with Danish persisted, the people felt they needed a language of their own. That’s when the New Norwegian norm began to be used. Today, the people of Norway learn to read and write in New Norwegian, but only about 20% of them use it as their language of choice in writing.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Afrikaans – the easiest language to learn for both English and Dutch speakers
 
  Afrikaans, the same as English, Dutch, Danish, Norwegian and Swedish, is a Germanic language. This is what makes it obviously easier to learn by a native English speaker. These languages use the same alphabet as English, have comparable stress and intonation patterns, and sometimes even share some vocabulary words.
@@ -88,12 +62,6 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
  Thus, if you are a language nerd that also wants to become a [polyglot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , with Dutch you can kill one and three-quarters of a bird with one stone because you’ll also understand a big part of the Afrikaans language. If simplicity isn’t enough for you, here are [7 more reasons to learn Afrikaans!](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Dutch
 
  As we already mentioned, Dutch can be considered Afrikaans’ oldest sibling since they share almost the same vocabulary (90-95%). With around 24 million speakers, Dutch is the third most widely spoken Germanic language – the first two being English and German – and the official language of the Netherlands and [Belgium](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) (together with French and German).
@@ -104,21 +72,23 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
  For a native (or not) English speaker such as yourself, French, Italian, Portuguese, Romanian, and Spanish are practically just as easy to learn for you as the Germanic languages. To achieve a professional working proficiency level in any of these languages, you’ll need about 600 hours or 24 weeks of study. That’s only an extra week! So, let’s find out more about the top easiest [R omance languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to learn for English speakers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## French
 
 ![french city](https://edge.mondly.com/blog/wp-content/uploads/2019/06/french-city-960x540.jpg "Top 10 Easiest Languages To Learn 3")
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ‘Strasbourg, France’ by Patrick Robert Doyle©
 
  A favorite among Romance language learners, French has a massive amount of shared vocabulary with English, due to both linguistic roots, but also territorial conflicts. We agree, that [French pronunciation](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  is no picnic at first, but pop culture is a real help in perfecting your skills.
 
  We must also mention some differences: 17 verb forms as opposed to 12 in English, gendered nouns, and some tricky accents. But given the cultural and even professional opportunities it presents, it’s really worthwhile to [learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) !
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Italian
 
@@ -126,23 +96,15 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
  Seriously now, Italian is also highly readable, with a shorter alphabet than English: 21 letters instead of 26.
 
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Spanish
 
  Since we talked about Italian, Spanish couldn’t be far behind, right? The same advantages as with Italian apply here as well, the many [cognates](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) making the learning experience a lot easier.
 
  When it comes to pronunciation, things are also pretty straightforward, as it’s a phonetic language through and through. But keep in mind that, same as with French, grammar could be a little bewildering at first: we’re talking about different verb tenses, grammar rules, and exceptions. What more incentive do you need to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , aside from the fact that it is the second most spoken language in the world?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Romanian
 
@@ -152,14 +114,12 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
 
 ![romanian castle](https://edge.mondly.com/blog/wp-content/uploads/2019/06/romanian-castle-960x641.jpg "Top 10 Easiest Languages To Learn 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  ‘Peleș Castle, România’ by Majkl Velner©
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Portuguese
 
  Spoken both in Brazil and Portugal, this member of the Romance language family is very similar to Spanish and Romanian and shares a large number of vocabulary with English. There are however some false cognates as well, so one should be careful when [learning Portuguese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -192,8 +152,6 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -201,8 +159,26 @@ Check out t h e [6 best Danish films to learn Danish](https://shop.mondly.com/af
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-ultimate-list-5-social-networks-like-twitter-for-2024/"><u>[New] Ultimate List 5 Social Networks Like Twitter for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unveiling-yuneecs-typhoon-h-an-aerial-powerhouse-review-for-2024/"><u>[Updated] Unveiling Yuneec’s Typhoon H An Aerial Powerhouse Review for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-min-dailies-easy-online-urdu-lessons/"><u>10-Min Dailies: Easy Online Urdu Lessons</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-step-by-step-incorporating-music-into-your-canva-projects/"><u>2024 Approved Step-by-Step Incorporating Music Into Your Canva Projects</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-from-iphone-8-plusipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock from iPhone 8 Plus/iPad/iPod</u></a></li>
+<li><a href="https://win-best.techidaily.com/boosting-computer-speed-in-windows-11-expert-advice-and-tweaks-by-yl-software/"><u>Boosting Computer Speed in Windows 11: Expert Advice and Tweaks by YL Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-the-divide-essential-strategies-for-global-communication/"><u>Bridging the Divide: Essential Strategies for Global Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-vs-american-vocabulary-gaps/"><u>British vs American Vocabulary Gaps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/clasificacion-de-colores-por-dificultad/"><u>Clasificación De Colores Por Dificultad</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connect-across-continents-with-new-tongues/"><u>Connect Across Continents with New Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-life-in-korea-understanding-each-day/"><u>Daily Life in Korea: Understanding Each Day</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/effortless-methods-to-erase-ringtones-from-an-ios-device/"><u>Effortless Methods to Erase Ringtones From an iOS Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-garmin-vivomove-hr-the-trendy-smartwatch-tailored-for-health-conscious-enthusiasts/"><u>Exploring the Garmin Vivomove HR: The Trendy Smartwatch Tailored for Health-Conscious Enthusiasts</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-elevate-your-video-call-experience-with-the-best-live-recording-gadgets/"><u>In 2024, Elevate Your Video Call Experience with The Best Live Recording Gadgets</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581410048-master-hindi-effortlessly-mondlys-top-8-learning-incentives/"><u>Master Hindi Effortlessly: Mondly's Top 8 Learning Incentives!</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/sony-a6400-why-is-my-video-playback-failed-for-2024/"><u>Sony A6400 Why Is My Video Playback Failed for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578037063-unlock-endless-learning-opportunities-for-free-with-mondly-pros-discount-offer/"><u>Unlock Endless Learning Opportunities for Free with Mondly Pro's Discount Offer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581145000-unlock-the-world-with-a-linguistic-95-off-offer-this-year/"><u>Unlock the World with a Linguistic 95% Off Offer This Year</u></a></li>
+</ul></div>
 

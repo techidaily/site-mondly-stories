@@ -1,7 +1,7 @@
 ---
 title: "Basic Anatomy: The Parts Of The Body In French"
-date: 2024-09-10T13:27:42.682Z
-updated: 2024-09-11T13:27:42.682Z
+date: 2025-01-12T17:51:16.617Z
+updated: 2025-01-16T09:24:50.909Z
 tags:
   - speak
   - english
@@ -18,53 +18,19 @@ thumbnail: https://thmb.techidaily.com/fea69578f265b77158961ce9649233eee0ace50ab
 
  One of the most rewarding aspects of learning French is the ability to communicate effectively with fluent French speakers. This includes discussing various subjects, and one area that is particularly valuable in this sense is the human body. Knowing the names of**the parts of the body in French** is useful not only for shopping sprees or for a doctor’s consult. French is widely considered one of the most romantic languages ever, so giving compliments in French will also have much to do with_**le corps**_ (“the body”). Are you a romantic? Then you have all the more reasons to learn some basic anatomy in French.
 
-
-
  Whether you’re planning a trip to a [French-speaking country](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or you’re just building your basic vocabulary in French, learning to name the body parts will always be a … handy skill. Make sure you read until the end so you don’t miss the example sentences that will help you start practicing right away.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Why learn the body parts in French?
 
  Whether you’re a student, a traveler, or simply someone who enjoys learning new languages, knowing the names of body parts in French can be quite helpful. This knowledge enables you to discuss health issues, describe injuries, or simply engage in everyday conversation. Additionally, knowing these basic anatomy words can be beneficial when visiting a doctor, engaging in sports or physical activities, or even shopping for clothes in a French-speaking country. After all, Paris is known as the fashion capital of the world.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## The main parts of the body in French
 
@@ -83,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/fea69578f265b77158961ce9649233eee0ace50ab
 * (the) knee —_(le) genou_
 
  Are you all ears? Great! Let’s learn how to pronounce some of these main body parts in French:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Face parts in French
 
@@ -103,43 +73,13 @@ thumbnail: https://thmb.techidaily.com/fea69578f265b77158961ce9649233eee0ace50ab
 * (the) teeth —_(les) dents_
 * (the) chin —_(le) menton_
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Other parts of the body in French
 
  Do you want to learn more? We’ve got your back. We’ve covered the main body parts, but there are still some left that could be handy in everyday conversations. Here are some of the most important upper and lower body parts.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Upper body
 
@@ -155,19 +95,9 @@ thumbnail: https://thmb.techidaily.com/fea69578f265b77158961ce9649233eee0ace50ab
 | (the) palm         | _(la) paume_    |
 | (the) fingernail   | _l’ongle_       |
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ### Lower body
 
@@ -178,20 +108,6 @@ thumbnail: https://thmb.techidaily.com/fea69578f265b77158961ce9649233eee0ace50ab
 | (the) toes  | _(les) orteils_ |
 | (the) heel  | _(le) talon_    |
 | (the) hip   | _(la) hanche_   |
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Talking about the body in French
 
@@ -241,8 +157,6 @@ thumbnail: https://thmb.techidaily.com/fea69578f265b77158961ce9649233eee0ace50ab
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -250,16 +164,16 @@ thumbnail: https://thmb.techidaily.com/fea69578f265b77158961ce9649233eee0ace50ab
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-ballot-box-bonanza-topping-politic-simulations/"><u>[New] In 2024, Ballot Box Bonanza Topping Politic Simulations</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-school-based-videography-crafting-quality-content/"><u>[New] In 2024, School-Based Videography Crafting Quality Content</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-first-step-to-aerial-adventure-best-beginner-drones/"><u>[Updated] 2024 Approved First Step to Aerial Adventure Best Beginner Drones</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-legal-footprints-in-the-digital-age-photowatermarking-for-instagram/"><u>[Updated] Legal Footprints in the Digital Age Photowatermarking for Instagram</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-photo-editing-inserting-dates-in-images/"><u>2024 Approved Mastering Photo Editing Inserting Dates in Images</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-intricacies-of-grammar-in-learning-languages/"><u>The Intricacies of Grammar in Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-language-test-mastering-the-most-difficult-ones/"><u>The Ultimate Language Test: Mastering the Most Difficult Ones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verbal-virtuosos-pinnacle-language-programs-await/"><u>Verbal Virtuosos: Pinnacle Language Programs Await</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-language-is-widely-used-by-israelis/"><u>Which Language Is Widely Used by Israelis?</u></a></li>
+</ul></div>
 

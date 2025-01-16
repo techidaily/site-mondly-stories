@@ -1,7 +1,7 @@
 ---
 title: "The Heart of Indonesia: Greetings and More"
-date: 2025-01-07T17:45:07.576Z
-updated: 2025-01-10T16:44:43.581Z
+date: 2025-01-12T11:39:11.813Z
+updated: 2025-01-16T09:20:05.818Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
  Besides, you’ll love [learning Indonesian words](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6912&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id) as some of them sound very cute to English speakers. Known as_Bahasa Indonesia_ to Indonesians, Indonesian calls the dolphin_lumba-lumba_ and the teeth_gigi_ . Cute. Told ‘ya!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When and how should you say hello in Indonesia
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say ‘hello’ in Indonesian
@@ -48,15 +48,15 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
 
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
 
@@ -71,7 +71,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -81,7 +81,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say goodbye
@@ -126,18 +126,18 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-imagery-inspiration-skillful-grading-techniques/"><u>[New] Imagery Inspiration Skillful Grading Techniques</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-understanding-youtubes-legal-framework-vs-cc/"><u>[New] In 2024, Understanding YouTube's Legal Framework Vs. CC</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-efficient-use-of-vlc-for-media-creation/"><u>[Updated] 2024 Approved Efficient Use of VLC for Media Creation</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-building-a-custom-link-for-youtubes-auto-subscribe/"><u>2024 Approved Building a Custom Link for YouTube's Auto-Subscribe</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-building-blocks-for-movie-making-youtubes-framework-and-more/"><u>2024 Approved Building Blocks for Movie Making YouTube's Framework & More</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-beginners-voyage-through-german-language-soundscapes/"><u>A Beginner's Voyage Through German Language Soundscapes</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/amazon-prime-and-tweet-fandom-most-appreciated-videos-2023/"><u>Amazon Prime and Tweet Fandom - Most Appreciated Videos, 2023</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interactive-steps-towards-fluency-in-spanish/"><u>Interactive Steps Towards Fluency in Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/screen-based-linguistic-strategies-unveiled/"><u>Screen-Based Linguistic Strategies Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/second-languages-focusing-on-english/"><u>Second Languages: Focusing on English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581354118-start-the-year-smart-savings-alert-on-mondly-premium-up-to-96-off/"><u>Start the Year Smart - Savings Alert on Mondly Premium, Up to 96% Off</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-ultimate-guide-to-disinfecting-airpods-effectively-tips-and-importance/"><u>The Ultimate Guide to Disinfecting AirPods Effectively – Tips & Importance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voices-in-multitude-the-african-languages-guidebook/"><u>Voices in Multitude: The African Languages Guidebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-expert-8-download-for-fb-movies/"><u>[New] 2024 Approved Expert 8 Download for FB Movies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-transform-your-videography-youtubes-secret-to-stunning-greenscreens/"><u>[New] 2024 Approved Transform Your Videography YouTube's Secret to Stunning Greenscreens</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-win10-screen-grabbing-top-quality-captures/"><u>[New] In 2024, Win10 Screen Grabbing - Top Quality Captures</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-keep-your-hp-laserjet-1320-running-smoothly-with-fresh-windows-driver-downloads/"><u>How to Keep Your HP LaserJet 1320 Running Smoothly with Fresh Windows Driver Downloads</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-infinix-zero-30-5g-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Infinix Zero 30 5G Phone Screen?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Methods to Change GPS Location On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-fundamentos-del-sistema-de-colores/"><u>Los Fundamentos Del Sistema De Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-gratis-ukrainian-lessons-galore/"><u>Mondly: Gratis Ukrainian Lessons Galore</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-systems-empowering-grammar-enhancement/"><u>Premier Systems Empowering Grammar Enhancement</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-how-to-fix-continuous-reboot-loop-on-windows-11-and-windows-10/"><u>Resolved: How to Fix Continuous Reboot Loop on Windows 11 & Windows 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-new-e-learning-standard-mondlys-german-linguistic-sovereignty/"><u>The New E-Learning Standard: Mondly’s German Linguistic Sovereignty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/two-years-one-bold-dream-mondlylanguages-story/"><u>Two Years, One Bold Dream - MondlyLanguages Story</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleashing-your-full-potential-in-english-via-mondly/"><u>Unleashing Your Full Potential in English via Mondly</u></a></li>
 </ul></div>
 

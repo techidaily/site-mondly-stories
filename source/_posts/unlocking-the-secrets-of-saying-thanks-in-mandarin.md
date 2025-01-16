@@ -1,7 +1,7 @@
 ---
 title: Unlocking the Secrets of Saying Thanks in Mandarin
-date: 2024-09-10T13:25:16.704Z
-updated: 2024-09-11T13:25:16.704Z
+date: 2025-01-11T20:06:14.474Z
+updated: 2025-01-16T11:15:28.217Z
 tags:
   - speak
   - english
@@ -22,20 +22,6 @@ thumbnail: https://thmb.techidaily.com/800871781dded7ace3211c5534653c24a5267e768
 
  **So here are 12 of the most important ways to say thank you in Chinese.**
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 1\. Xièxiè – the most common Chinese thanks
 
  As already mentioned, **the most common way to say “thanks” or “thank you” in Chinese is_xièxiè_ (谢谢) or_xièxie._**  A rough [Chinese pronunciation](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) of that is_syeh-syeh,_ but while it sounds like the same words repeated twice, there is actually a very subtle difference between the two. Because the first syllable is a fourth tone and the second is a neutral, you should start the pronunciation high with the first syllable and then say the second one more lightly and without any emphasis.
@@ -52,21 +38,15 @@ thumbnail: https://thmb.techidaily.com/800871781dded7ace3211c5534653c24a5267e768
 
 ![thanks in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/thanks-in-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 2")
 
- “Xiangxi, China” by Theodor Lundqvist©
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
+ “Xiangxi, China” by Theodor Lundqvist©
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Thank you very much in Chinese
 
@@ -85,19 +65,9 @@ Other variations include:
 * (I’m) really grateful! – 非常感谢你!_Fēi cháng gǎn xiè nǐ!_ (slightly more formal than the previous)
 * Thank you SO much! – 太谢谢你了! –_Tài xiè xiè nǐ le!_
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## 3\. Thank you for… in Chinese
 
@@ -114,41 +84,21 @@ Other variations include:
 
 ![xiexie chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/xiexie-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 3")
 
- “Jiaxing, China” by Jay©
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
+ “Jiaxing, China” by Jay©
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Other ways to express your gratitude in Chinese
 
  Depending on the social context, in some cases, you might want to vary your answers. For example, when someone compliments you, instead of saying 谢谢_xièxiè_ – which may sound a little arrogant, you could say 哪里哪里_nǎlǐ nǎlǐ_ . In English, that translates to “no, no” or “where, where” as in “you’re flattering me” or “you’re too kind”.
 
  In fact, Chinese culture is known for its preference for modesty and humility. Deflecting a compliment rather than accepting it with a plain “thank you” is much more appreciated. Thus, another way to deflect a compliment (while secretly enjoying it) is to say 没有没有_méiyǒu méiyǒu_ – meaning “no, no, that’s nonsense”.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## BONUS: You’re welcome in Chinese
 
@@ -162,20 +112,6 @@ Other variations include:
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Here’s how to speak Chinese in just 10 minutes a day
 
@@ -195,8 +131,6 @@ Other variations include:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -204,16 +138,21 @@ Other variations include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-filmmakers-guide-to-distorting-space-and-time/"><u>[New] In 2024, The Filmmaker's Guide to Distorting Space & Time</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-enhancing-visual-storytelling-with-windows-11s-video-capabilities/"><u>[Updated] In 2024, Enhancing Visual Storytelling with Windows 11'S Video Capabilities</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/airpods-mic-not-working-on-a-laptop-heres-how-to-get-it-back-up-and-running-in-windows-10-environment/"><u>AirPods Mic Not Working on a Laptop? Here's How to Get It Back Up and Running in Windows 10 Environment</u></a></li>
+<li><a href="https://win-able.techidaily.com/choosing-the-optimal-video-codec-a-comprehensive-overview-of-technical-specifications/"><u>Choosing the Optimal Video Codec: A Comprehensive Overview of Technical Specifications</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/crafting-the-ideal-drive-with-ai-suggestions/"><u>Crafting the Ideal Drive with AI Suggestions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easy-guide-to-uploading-videos-from-your-computer-to-youtube-using-a-free-converter/"><u>Easy Guide to Uploading Videos From Your Computer to YouTube Using a Free Converter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enchanting-eloquence-italys-romantic-phrases/"><u>Enchanting Eloquence: Italy's Romantic Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/entender-las-fechas-en-espanol-lunes-a-domingo/"><u>Entender Las Fechas en Español, Lunes a Domingo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/farsis-story-from-antiquity-to-future-prospects/"><u>Farsi’s Story From Antiquity to Future Prospects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-formation-master-twisters-for-pronunciation/"><u>Fluent Formation: Master Twisters for Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/foundations-of-urdu-for-language-enthusiasts/"><u>Foundations of Urdu for Language Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/galactic-lexicon-glossary-unraveling-star-wars-word-meanings/"><u>Galactic Lexicon Glossary: Unraveling Star Wars Word Meanings</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-on-iphone-11-pro-max-by-drfone-ios/"><u>How To Remove the Two Factor Authentication On iPhone 11 Pro Max</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/update-your-connection-speed-with-newly-released-intel-usb-30-windows-10-drivers/"><u>Update Your Connection Speed with Newly-Released Intel USB 3.0 Windows 10 Drivers!</u></a></li>
+</ul></div>
 

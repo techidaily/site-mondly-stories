@@ -1,7 +1,7 @@
 ---
 title: Italian Numbers Made Easy – Count to 1000 and Beyond in Italian
-date: 2024-09-10T13:26:34.198Z
-updated: 2024-09-11T13:26:34.198Z
+date: 2025-01-10T07:03:45.458Z
+updated: 2025-01-15T20:02:23.283Z
 tags:
   - speak
   - english
@@ -20,25 +20,9 @@ thumbnail: https://thmb.techidaily.com/3681ab3fb1278f9c5e283b2684cc0a6da110630db
 
  There’s hardly a day that passes without using [numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . They’re essential to our day-to-day lives. From shopping to giving people your phone number and setting up a meeting at a certain time, numbers are probably one of the first lessons you should take in any language. So, let’s see how easy it is to count from_zero_ to_cento_ in_Italiano_ .
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Count to 10 in Italian
 
@@ -72,25 +56,9 @@ Here’s how to write and pronounce the Italian numbers 1-10:
 
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Italian numbers 11-20
 
@@ -128,25 +96,9 @@ Let’s see some examples:
 * to say “18 years”, you’ll say_diciotto anni_
 * to say “20 children”, you’ll say_venti bambini_
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Italian numbers to 30 and beyond
 
@@ -159,26 +111,6 @@ Let’s see some examples:
  Italian numbers to 30
 
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Count tens in Italian
 
@@ -213,19 +145,9 @@ Let’s see some examples:
 * 84 – _ottanta**quattro**_
 * 98 – _novant**otto**_
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Italian numbers 100 to 1000 and beyond
 
@@ -255,19 +177,9 @@ Let’s see some examples:
 
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
  “The Amalfi Coast” by Gregory Smirnov©
 
@@ -331,8 +243,6 @@ Let’s see some examples:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -340,16 +250,26 @@ Let’s see some examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-mastering-video-capture-on-periscope-a-comprehensive-manual/"><u>[New] 2024 Approved Mastering Video Capture on Periscope A Comprehensive Manual</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-transition-from-mobile-screen-to-big-tv-with-fb-videos/"><u>[New] 2024 Approved Transition From Mobile Screen to Big TV with FB Videos</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-sonic-shadows-the-art-of-sound-and-image-blending-for-2024/"><u>[New] Sonic Shadows The Art of Sound and Image Blending for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-tips-for-engaging-video-blog-storytelling/"><u>[New] Tips for Engaging Video Blog Storytelling</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-updated-comprehensive-bd-review-s3700-for-2024/"><u>[Updated] The Updated Comprehensive BD Review S3700 for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-xiaomi-redmi-note-13-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Xiaomi Redmi Note 13 5G? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lovemaking-selecting-subtle-pickup-lines/"><u>Linguistic Lovemaking: Selecting Subtle Pickup Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-initiative-groundbreaking-ukraine-language-learning-without-cost/"><u>Mondly's Initiative: Groundbreaking Ukraine Language Learning Without Cost</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/nostalgic-tech-alert-why-these-8-classic-smartphone-features-deserve-a-comeback/"><u>Nostalgic Tech Alert: Why These 8 Classic Smartphone Features Deserve a Comeback</u></a></li>
+<li><a href="https://driver-install.techidaily.com/optimized-driver-processing-on-lenovos-u310/"><u>Optimized Driver Processing on Lenovo's U310</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/precision-in-speech-french-pronunciation-for-newcomers/"><u>Precision in Speech: French Pronunciation for Newcomers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pumpkin-carving-rituals-from-everywhere/"><u>Pumpkin Carving Rituals From Everywhere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romanians-speak-perfecting-the-language/"><u>Romanians Speak: Perfecting the Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/solved-overcoming-challenges-when-using-older-usb-composite-device-models/"><u>Solved: Overcoming Challenges When Using Older USB Composite Device Models</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sonic-synchronicity-100-tongue-twister-triumphs/"><u>Sonic Synchronicity: 100 Tongue Twister Triumphs</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/subscribe-for-endless-music-parties-discover-fresh-tracks-from-new-party-tymes-2018-karaoke-set/"><u>Subscribe for Endless Music Parties! Discover Fresh Tracks From New Party Tyme's 2018 Karaoke Set</u></a></li>
+<li><a href="https://techtrends.techidaily.com/tecnicas-experto-para-hacer-de-windows-10-tu-plataforma-ideal-de-juego-guia-completa/"><u>Técnicas Experto Para Hacer De Windows 10 Tu Plataforma Ideal De Juego [Guía Completa]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-5-solutions-for-resolving-zoom-cant-begin-video-streaming/"><u>Top 5 Solutions for Resolving 'Zoom Can't Begin Video Streaming'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valkomman-swedens-hjartlig-visa/"><u>Välkomman: Sweden's Hjärtlig Visa</u></a></li>
+</ul></div>
 

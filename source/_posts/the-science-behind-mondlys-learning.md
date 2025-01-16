@@ -1,7 +1,7 @@
 ---
 title: The Science Behind Mondly's Learning
-date: 2025-01-07T19:17:49.173Z
-updated: 2025-01-10T16:03:39.658Z
+date: 2025-01-10T01:06:23.989Z
+updated: 2025-01-16T02:22:47.223Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -102,24 +102,14 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-movavi-plus-unveiled-the-latest-edition/"><u>[New] Movavi Plus Unveiled – The Latest Edition</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-honor-v-purse-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Honor V Purse without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/1728478031101-aomei-backupper/"><u>解决方案：如何从AOMEI Backupper中移除不需要的文件和文件夹</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/anniversary-1500-free-daily-knowledge-shares/"><u>Anniversary: 1,500 Free Daily Knowledge Shares</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aussie-language-sayings-and-slang-for-daily-chit-chat/"><u>Aussie Language: Sayings & Slang for Daily Chit-Chat</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/efficient-path-japans-numeral-system-in-minutes/"><u>Efficient Path: Japan's Numeral System in Minutes</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-nokia-xr21-drfone-by-drfone-android/"><u>How to Screen Mirroring Nokia XR21? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-chinese-logograms-an-overview/"><u>Learning Chinese Logograms: An Overview</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/making-languid-latin-lessons-a-blast/"><u>Making Languid Latin Lessons a Blast</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-windows-11-search-configurations-reset/"><u>Mastering Windows 11 Search Configurations Reset</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/navigate-past-edgenuity-stealthy-study-strategies-for-2024/"><u>Navigate Past Edgenuity Stealthy Study Strategies for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-tecno-spark-10-5g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Tecno Spark 10 5G Phone Now with These Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pronunciation-patchwork-british-irish-and-american-accent-tapestry/"><u>Pronunciation Patchwork: British, Irish, and American Accent Tapestry</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/step-into-mastery-preparing-for-prestigious-language-certifications/"><u>Step Into Mastery: Preparing for Prestigious Language Certifications</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-vivo-v29e-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Vivo V29e Phone Hassle-Free</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-tips-for-unfreezing-your-path-of-exile-adventure/"><u>Troubleshooting Tips for Unfreezing Your Path of Exile Adventure</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/viking-language-what-language-did-vikings-speak/"><u>Viking Language: What Language Did Vikings Speak?</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-your-xiaomi-redmi-note-12t-pro-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Xiaomi Redmi Note 12T Pro Auto Does Not Work | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581479128-why-learn-german-10-reasons-to-learn-german/"><u>Why Learn German? 10 Reasons To Learn German</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-maximizing-roi-with-targeted-market-research-strategies/"><u>[New] In 2024, Maximizing ROI with Targeted Market Research Strategies</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-easy-broadcast-obs-plus-streamlabs-tutorial-for-mac-users-for-2024/"><u>[Updated] Easy Broadcast OBS + Streamlabs Tutorial for Mac Users for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-from-buffer-to-broadcast-learn-how-to-convert-your-youtube-viewing-into-a-screenshot-for-free/"><u>2024 Approved From Buffer to Broadcast Learn How to Convert Your YouTube Viewing Into a Screenshot for Free.</u></a></li>
+<li><a href="https://techtrends.techidaily.com/free-up-your-iphones-storage-by-easily-deleting-heic-image-files-what-you-need-to-know/"><u>Free Up Your iPhone's Storage by Easily Deleting HEIC Image Files - What You Need to Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-simplified-mondlys-victory-2022-edition/"><u>Language Learning Simplified: Mondly's Victory, 2022 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-croatian-why-and-how-discover-the-7-key-advantages/"><u>Learn Croatian: Why and How – Discover the 7 Key Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-happily-ever-after-in-hungarian-dialects/"><u>Speaking Happily Ever After in Hungarian Dialects</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/tackling-the-issue-of-excessive-cpu-use-by-svchostexe-in-windows-11-solution-strategies/"><u>Tackling the Issue of Excessive CPU Use by svchost.exe in Windows 11 – Solution Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-hands-of-italy-deciphering-silent-dialogue/"><u>The Hands of Italy: Deciphering Silent Dialogue</u></a></li>
 </ul></div>
 

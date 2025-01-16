@@ -1,7 +1,7 @@
 ---
 title: Time Optimization for Numerical Japanese
-date: 2025-01-05T17:59:51.766Z
-updated: 2025-01-10T19:15:30.846Z
+date: 2025-01-10T06:40:16.942Z
+updated: 2025-01-16T02:49:37.525Z
 tags:
   - speak
   - english
@@ -46,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
  That wasn’t so hard, was it? Besides, if you learn to count to 10, the numbers in Japanese 1-100 will become a piece of cake! It’s easier than you’d expect.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Master Bigger Japanese Numbers 1-100
 
 | Number | Kanji | Hiragana | Romaji       |
@@ -77,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
 ![Numbers in Japanese 1-100](https://edge.mondly.com/blog/wp-content/uploads/2019/11/numbers-in-japanese-1-100-scaled.jpg "Counting In Japanese From 1 To 10000 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Numbers in Japanese 1-100
 
  Aren’t the Japanese numbers fascinating? Once you learn how to count to 10, counting to 100 is just a game of repeatedly compounding and adding. Here are a few examples to help you better understand the process of counting to 100 in Japanese:
@@ -91,6 +99,10 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 * then 100 comes with a new word: 百 (_hyaku_).
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Counting In Japanese From 1 To 10000 8")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Do you want to learn Japanese? 🗻
 
@@ -145,7 +157,11 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 ![numbers in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/11/numbers-in-japanese-960x647.jpeg "Counting In Japanese From 1 To 10000 9")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Japanese Lucky Numbers
@@ -156,15 +172,7 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
 ![hatchi](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdDQ0cHlhYjkxb2QwaTd1MWh1aDYyc3U3am05dnAzcnAxaGxkZWJsaiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/bzoD9WOiU1wAg/giphy.gif "Counting In Japanese From 1 To 10000 10")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  On the other hand, you probably noticed that 4, 7, and 9 have two different readings each. As we, in the Western world, consider the number 13 to bring bad luck, the Japanese people consider the numbers 4 and 9 to be unlucky because し (_shi_ – 4_)_ ) and く (_ku_ – 9) sound the same as the words for “death” (死, shi) and “suffering, agony or torture” (苦, ku). Thus, Japanese people avoid using these unlucky numbers as much as possible. If you ever travel to Japan, pay close attention to the prices. Chances are you won’t see prices like 9.99 or 4.99 anywhere.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Japanese Counters List
 
@@ -178,23 +186,19 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
  o clearly indicate that you are referring to seconds, minutes, hours, months, or years, you must use specific counters in Japanese. Seconds are expressed with \~秒_(_ _byou)_ , minutes with \~分_(fun or pun)_ , hours with \~時_(ji)_ , months with \~月_(getsu)_ , and years with \~年_(nen)_ .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Japanese counters for people
 
  To count people in Japanese, use the counter ひとり_(hitori)_ for one person, ふたり_(futari)_ for two people, and \~人_(nin)_ for three or more people.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Japanese objects counters
 
  Long and thin objects, such as pencils, bottles, chopsticks, umbrellas, rivers, train tracks, or roads, have their own Japanese counter: \~本_(hon)_ . When counting these objects, all numbers end in_\-hon_ , except for 3, which ends in –_bon_ , and the numbers 1, 6, 8, and 10, which end in_\-pon_ . Although this might seem overwhelming initially, practice will help you master these exceptions more quickly.
 
  To count small and round objects like apples or tennis balls, you must use the \~個_(ko)_ counter. Conversely, to count thin and flat objects (such as sheets of paper, plates, or articles of clothing), you should use the まい_(mai)_ counter.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Japanese counters for animals
 
@@ -222,16 +226,12 @@ In conclusion,  while the prevalence of Arabic numerals in Japan offers a famili
 
 Before you go, make sure you check out these FAQs.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to say numbers in Japanese?
 
  To say numbers in Japanese, start by learning the numbers up to 10: ichi (1), ni (2), san (3), yon (4), go (5), roku (6), nana (7), hatchi (8), kyu (9) and juu (10). If you're not familiar with the Japanese writing system, you may have to rely heavily on the Romanized version (Romaji) to learn the correct pronunciation of each number. Once you've mastered the numbers 1-10 in Japanese, counting up to 100 becomes straightforward.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to write Japanese numbers?
@@ -274,22 +274,20 @@ Before you go, make sure you check out these FAQs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-pros-and-cons-reviewing-nikon-d7500/"><u>[New] Pros & Cons Reviewing Nikon D7500</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-revolutionizing-patient-engagement-with-creative-fb-strategies/"><u>[New] Revolutionizing Patient Engagement with Creative FB Strategies</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-from-ordinary-text-to-stunning-three-dimensional-designs-photo/"><u>[Updated] From Ordinary Text to Stunning Three-Dimensional Designs PHOTO</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-bridging-platforms-instagram-and-tik-tok-synergy-manual/"><u>2024 Approved Bridging Platforms Instagram & Tik Tok Synergy Manual</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/9-ways-to-facebook-video-black-screen-issues-on-chromesafarifir-for-2024/"><u>9 Ways to Facebook Video Black Screen Issues on Chrome/Safari/Fir for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/como-identificar-animales-con-nombres-hispanos/"><u>Cómo Identificar Animales Con Nombres Hispanos</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/hdr-lighting-insight-does-it-merit-creation/"><u>HDR Lighting Insight Does It Merit Creation?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hone-your-urdu-skills-in-10-minute-sessions/"><u>Hone Your Urdu Skills in 10-Minute Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hora-y-segundo-un-curso-inicial-en-espanol/"><u>Hora Y Segundo: Un Curso Inicial en Español</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-tecno-spark-20c-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Tecno Spark 20C for Free? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-oppo-find-x7-ultra-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Oppo Find X7 Ultra to Roku | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-breaking-down-sony-bdp-s6700-updates/"><u>In 2024, Breaking Down Sony BDP-S6700 Updates</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-essentials-greetings-expressions-and-vocabulary-for-latin-america/"><u>Language Essentials: Greetings, Expressions & Vocabulary for Latin America</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-10-innovative-methods-revolutionizing-learning-languages/"><u>Mondly’s 10 Innovative Methods Revolutionizing Learning Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/perfectly-poached-or-poured-tips-for-excellent-fried-eggs-106-characters-slightly-over-but-within-acceptable-limits-if-slight-adjustments-are-made-to-avoid-1/"><u>Perfectly Poached or Poured? Tips for Excellent Fried Eggs (106 Characters, Slightly over but Within Acceptable Limits if Slight Adjustments Are Made to Avoid Including Non-Relevant Content.)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/persians-epochal-journey-gaining-from-its-study/"><u>Persian's Epochal Journey: Gaining From Its Study</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-pedagogy-of-mondlys-learning-system/"><u>The Pedagogy of Mondly's Learning System</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-understanding-instagrams-video-limit-policy/"><u>2024 Approved Understanding Instagram's Video Limit Policy</u></a></li>
+<li><a href="https://win-dash.techidaily.com/ensure-smooth-printing-with-updated-canon-mg-series-mg3150-mg3750-driver-downloads-and-firmware-upgrades/"><u>Ensure Smooth Printing with Updated Canon MG Series (MG3150, MG3750) Driver Downloads & Firmware Upgrades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-ready-to-meet-your-new-ai-conversation-partner/"><u>Get Ready to Meet Your New AI Conversation Partner</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/googles-2017-choice-mondly-a-kid-friendly-companion/"><u>Google's 2017 Choice: Mondly - A Kid-Friendly Companion</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-vivo-x100-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Vivo X100 to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-12-mini-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone 12 mini</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-zte-axon-40-lite-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On ZTE Axon 40 Lite Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-treats-guide-child-health-champion-in-2017s-top-apps/"><u>Mondly Kids Treats Guide: Child Health Champion in 2017'S Top Apps</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/recuperation-de-fichiers-perdus-sur-un-ssd-local-avec-windows-nix-guide-complet-aux-7-solutions-efficaces/"><u>Récupération De Fichiers Perdus Sur Un SSD Local Avec Windows Nix : Guide Complet Aux 7 Solutions Efficaces</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-poco-c51-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Poco C51</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-bokmal-acquisition-in-daily-dashes/"><u>Speedy Bokmål Acquisition in Daily Dashes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-oxford-3000-learn-the-most-important-words-in-english/"><u>The Oxford 3000: Learn the Most Important Words in English</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-pioneer-bdr-xs06-blu-ray-burner-a-study-in-portability-and-capacity/"><u>The Ultimate Guide to the Pioneer BDR-XS06 Blu-Ray Burner: A Study in Portability and Capacity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/verschiedene-wege-deutschsprachige-grussformeln-zu-finden/"><u>Verschiedene Wege, Deutschsprachige Grußformeln Zu Finden</u></a></li>
 </ul></div>
 

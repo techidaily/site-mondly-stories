@@ -1,7 +1,7 @@
 ---
 title: Mondly's Principles for Knowledge Acquisition
-date: 2025-01-03T20:10:57.329Z
-updated: 2025-01-10T18:21:19.950Z
+date: 2025-01-08T23:44:43.781Z
+updated: 2025-01-16T06:43:51.495Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -102,20 +102,22 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-top-5-ios-podcast-apps-your-ultimate-listing/"><u>[New] 2024 Approved Top 5 iOS Podcast Apps Your Ultimate Listing</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-mastering-fading-techniques-for-less-intensity-in-logic-pro-tracks/"><u>2024 Approved Mastering Fading Techniques for Less Intensity in Logic Pro Tracks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-beginners-guide-to-indonesian-social-etiquette/"><u>A Beginner's Guide to Indonesian Social Etiquette</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/chinese-script-for-newcomers/"><u>Chinese Script for Newcomers</u></a></li>
-<li><a href="https://network-issues.techidaily.com/dxgkrnlsys-and-windows-blue-screen-error-fix/"><u>dxgkrnl.sys and Windows Blue Screen Error Fix</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enrich-your-speech-quality-top-27-french-idiomatic-expressions/"><u>Enrich Your Speech Quality: Top 27 French Idiomatic Expressions</u></a></li>
-<li><a href="https://network-issues.techidaily.com/hidden-visual-chipset-restore-nvidia-graphics-recognition/"><u>Hidden Visual Chipset: Restore NVIDIA Graphics Recognition</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-prevent-the-grounded-pc-crash-of-2024-essential-tips-and-tweaks/"><u>How to Prevent the Grounded PC Crash of 2024 - Essential Tips and Tweaks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-basics-of-urdu-with-must-know-terminology/"><u>Learn Basics of Urdu with Must-Know Terminology</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-local-language-speak-like-an-aussie/"><u>Learn Local Language: Speak Like an Aussie</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-pc-issues-during-a-match-of-battlefield-5-stability-tips-and-solutions/"><u>Overcoming PC Issues During a Match of Battlefield 5 - Stability Tips & Solutions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/proven-steps-for-dominating-mondly-use/"><u>Proven Steps For Dominating Mondly Use</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-for-the-young-explorer-in-elementary-schools/"><u>Spanish for the Young Explorer in Elementary Schools</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-art-of-amassing-attention-on-ig-a-guide-for-a-thousand-likesmonth-for-2024/"><u>The Art of Amassing Attention on IG A Guide for a Thousand Likes/Month for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-6-plus-drfone-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-free-easy-and-fast-youtubes-best-subtitle-getters-for-2024/"><u>[New] Free, Easy and Fast YouTube's Best Subtitle Getters for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-engineering-peak-canon-sequential-films/"><u>[New] In 2024, Engineering Peak Canon Sequential Films</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-ultimate-guide-to-capturing-and-editing-high-quality-slow-motion-videos-for-instagram/"><u>[New] In 2024, The Ultimate Guide to Capturing and Editing High-Quality Slow Motion Videos for Instagram</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-ultimate-watchlist-the-best-unboxers-of-the-new-era/"><u>[Updated] Ultimate Watchlist The Best Unboxers of the New Era</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/direct-download-compatible-amd-rx-6800-graphics-card-driver-for-your-windows-system-versions-included/"><u>Direct Download: Compatible AMD RX 6800 Graphics Card Driver for Your Windows System - Versions Included</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/germanys-heartbeat-top-25-authentic-phrases-for-immersion/"><u>Germany's Heartbeat: Top 25 Authentic Phrases for Immersion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-to-grips-with-the-korean-of-squid-game/"><u>Get to Grips with the Korean of Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gsl-redefined-the-pearson-mondly-collaboration-revealed/"><u>GSL Redefined - The Pearson-Mondly Collaboration Revealed</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-apple-watch-or-iphone-13-from-icloud-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Apple Watch Or iPhone 13 from iCloud</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-stance-on-privacy-and-use-agreements/"><u>New Stance on Privacy and Use Agreements</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimize-your-finnish-learning-through-digital-platforms/"><u>Optimize Your Finnish Learning Through Digital Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essence-of-romantic-language-families/"><u>The Essence of Romantic Language Families</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-checklist-for-successfully-charging-your-electric-car-at-home/"><u>The Ultimate Checklist for Successfully Charging Your Electric Car at Home</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/top-10-affordable-video-chat-for-android-users-for-2024/"><u>Top 10 Affordable Video Chat for Android Users for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-romance-speaking-cultures/"><u>Understanding Romance-Speaking Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-the-tongues-of-christmas-keeper/"><u>Unraveling the Tongues of Christmas Keeper</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-motorola-g24-power-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Motorola G24 Power Phone Network-Ready</u></a></li>
 </ul></div>
 

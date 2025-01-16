@@ -1,7 +1,7 @@
 ---
 title: The Balance Between Accuracy and Understanding
-date: 2025-01-04T17:23:11.700Z
-updated: 2025-01-10T17:47:07.116Z
+date: 2025-01-12T01:03:55.188Z
+updated: 2025-01-15T21:34:17.941Z
 tags:
   - speak
   - english
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
 
 Language learning is one of the best ways to broaden your horizons and better yourself as a person. It can also be intimidating. Many people would like to learn a foreign language, but they feel the task would be too hard. This is unfortunate because with a little effort and a commitment to the goal, learning a language can happen sooner than most people think.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **The Old Methods: Do They Make It More Difficult to Learn a Foreign Language
 
 Chances are that you probably took language classes at some point in your educational history. Anywhere you live, school curriculums include the study of foreign languages, but the average high-school student does not graduate with fluency in another language.
@@ -34,9 +30,17 @@ One of the best ways to learn a language is to practice both writing the languag
 
 This is why a focus on grammar is the wrong way to teach and learn a language. Grammar is the art of perfecting the use of a language you already know. When learning a language, it can hold students back in a variety of ways.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **1\. Complexity**
 
 There is a lot to take in when learning a language. The last thing a student needs is to get bogged down in a sea of confusing grammar rules. Of course, there are languages with simpler rules. For example, the [French grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is more difficult than [the German grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875), but unless you’re naturally gifted at learning languages, realizing there are so many grammar rules to figure out might leave you so discouraged that you give up.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **2\. Incorrect Focus**
 
@@ -45,16 +49,12 @@ Grammar rules are generally about perfecting the written language. This isn’t 
 The goal for a language student is to become fluent as quickly as possible. Fluency with the spoken word will transfer to an understanding of the written word as well. The old models of teaching do not place importance on becoming fluent as quickly as possible, and it seems this is a huge part of the problem.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **3\. A Lack of Conversational Aspects**
 
 Most of us don’t speak in the exact same way that we write. We choose different words, use slang and sometimes even say things in a different order than we would when writing them down. How many people do you know who speak using perfect grammar? Sure, some might exist, but it isn’t very common regardless what language we are discussing. For this reason, if you insist on studying grammar first and conversational language second, you might struggle to understand people as they speak. Luckily, nowadays, there are [modern solutions available that immerse you in conversations](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1\.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **4\. A Major Lack of Fun**
 
@@ -63,7 +63,7 @@ This might seem like a crazy concept to some, but learning a language should be 
 ![Learn grammar with Mondly: French grammar, German Grammar, Spanish Grammar and more](https://edge.mondly.com/blog/wp-content/uploads/2017/10/Webp.net-compress-image-1.jpg "Is Grammar Holding You Back From Learning A Language? 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Returning to Our Roots: Learning with the Mind of a Child**
@@ -79,7 +79,7 @@ Do you feel that grammar holds you back from learning a language? Share your sto
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Speak a new language in just 10 minutes a day
@@ -107,20 +107,16 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-insta-film-conversion-blueprints-to-mp3-formats-for-2024/"><u>[New] Insta Film Conversion Blueprints to MP3 Formats for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-powerdirectors-latest-revolution-compre-point-by-point-review-and-tutorial-for-2024/"><u>[New] PowerDirector's Latest Revolution Compre Point-by-Point Review & Tutorial for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-liveoutnow-an-in-depth-look-at-effortless-podcast-live-streaming/"><u>[Updated] 2024 Approved LiveOutNow An In-Depth Look at Effortless Podcast Live Streaming</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-essentials-for-becoming-a-top-notch-interviewer/"><u>[Updated] The Essentials for Becoming a Top-Notch Interviewer</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-androids-evolving-landscape-in-virtual-reality360-viewing/"><u>2024 Approved Android's Evolving Landscape in Virtual Reality/360 Viewing</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/2024-approved-how-to-create-a-freeze-frame-sequence-effect/"><u>2024 Approved How to Create a Freeze Frame Sequence Effect</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutsch-lernen-mit-aussicht-zahlen-ab-1-100-auf/"><u>Deutsch Lernen Mit Aussicht: Zählen Ab 1-100 Auf</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unleash-the-full-potential-of-youtube-videos-with-srt-download-tutorial/"><u>In 2024, Unleash the Full Potential of YouTube Videos With SRT Download Tutorial</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/key-expressions-your-guide-to-fluent-conversations-in-south-america/"><u>Key Expressions: Your Guide to Fluent Conversations in South America</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-merriment-unites-nations/"><u>Multilingual Merriment Unites Nations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-the-path-to-perfect-french-rhythm-and-tone/"><u>Navigating the Path to Perfect French Rhythm and Tone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romance-languages-the-hearts-eloquent-speeches/"><u>Romance Languages: The Heart's Eloquent Speeches</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/secure-future-savings-unlimited-lifetime-mondly-premium-at-up-to-96-off/"><u>Secure Future Savings: Unlimited Lifetime Mondly Premium at Up to 96% Off!</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/tie-breaking-bard-vs-bing-whos-best/"><u>Tie-Breaking: Bard Vs. Bing – Who’s Best?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vocabulary-revisited-modern-usage-of-elizabethan-words/"><u>Vocabulary Revisited: Modern Usage of Elizabethan Words</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-3-ways-to-record-discord-live-stream/"><u>[Updated] 2024 Approved 3 Ways to Record Discord Live Stream</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-simplifying-onestream-techniques-for-effective-streaming-for-2024/"><u>[Updated] Simplifying OneStream Techniques for Effective Streaming for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-leading-gamescript-replacements-for-fbx-files/"><u>2024 Approved Leading Gamescript Replacements for FBX Files</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-vivo-s17-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Vivo S17 Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://facebook.techidaily.com/counteracting-the-social-media-addiction-fb-reels/"><u>Counteracting the Social Media Addiction: FB Reels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-cinematic-works-to-learn-and-love-the-danish-tongue/"><u>Key Cinematic Works to Learn and Love the Danish Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-number-journey-for-aspiring-learners/"><u>Russian Number Journey for Aspiring Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-with-soul-top-17-authentic-spanish-proverbs/"><u>Speak With Soul: Top 17 Authentic Spanish Proverbs</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-guide-is-an-rtx-graphics-card-right-for-you/"><u>The Ultimate Guide: Is an RTX Graphics Card Right for You?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-language-training-solutions-for-effective-communication-skills/"><u>Top Language Training Solutions For Effective Communication Skills</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-in-2024-how-to-correct-lens-distortion-with-filmora/"><u>Updated In 2024, How to Correct Lens Distortion With Filmora</u></a></li>
 </ul></div>
 

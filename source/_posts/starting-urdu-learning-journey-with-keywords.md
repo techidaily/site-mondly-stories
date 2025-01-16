@@ -1,7 +1,7 @@
 ---
 title: Starting Urdu Learning Journey with Keywords
-date: 2025-01-08T17:22:49.076Z
-updated: 2025-01-10T16:19:35.733Z
+date: 2025-01-11T09:18:09.964Z
+updated: 2025-01-16T06:12:36.675Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
  Improving your Urdu vocabulary is one of the key aspects of [learning Urdu](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6589&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6589?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6589?mother%5Flang=en%5Fus?target%5Flang=ur) . The more Urdu words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important. In the beginning, you have to focus on basic, high-frequency words – words that make up the majority of everything we say on a daily basis.
 
 [Studies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) have shown that knowing as little as 100 words will help you understand 50% of any text in Urdu. Surprising as it may seem, it’s true. The most common 1,000 words in Urdu will give you a high coverage of 75% of any Urdu text. Isn’t that amazing?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The most common everyday Urdu words
 
@@ -85,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * who — _کون (kon)_
 * stop — _رکو (ruko)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The most popular Urdu words searches
 
  While we’re at it, why not also learn some of the most popular words for which people want an Urdu translation? If they are so popular in searches, I’m sure they can also be useful to you on your way to speaking Urdu.
@@ -107,19 +115,11 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * unique — _منفرد (munfarid)_
 * hope — _امید (umeed)_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Urdu words related to food and drink
 
  Did you know that the [Urdu language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) was one of the premier languages of poetry in South Asia for centuries? And rightly so. Just listen to the music of its words and you’ll understand.
 
 ![words in urdu by Sumeet B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/words-in-urdu-960x735.jpg "100+ Core Urdu Words – Learn The Most Common Words In Urdu 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Meanwhile, let’s add some flavor to your Urdu vocabulary. What are the best words to learn if not the words related to food and drink?
 
@@ -147,7 +147,7 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * pepper — _مرچ (mirch)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Urdu words related to body and health
@@ -175,10 +175,6 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * medicine — _دوا (dawa)_
 * pharmacy — _دواخانہ (dawakhana)_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Urdu words related to transportation and places
 
  While this crash course in Urdu words will get you from zero to beginner in as little as 15 minutes, these words will get you to the other hemisphere if you need it so.
@@ -199,7 +195,7 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
  Now that you’ve mastered some of the most basic Urdu vocabulary words, you can dive into the practical phrases that’ll help you ease into real-world conversations.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The most common Urdu phrases
@@ -234,6 +230,10 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Learn Urdu in just 10 minutes a day
 
  Do you want to see the Urdu words in action? Get Mondly, the award-winning language learning app that will help you speak Urdu from day 1.
@@ -263,18 +263,22 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/updated-the-ultimate-tutorial-sending-subtitles-via-srt-to-twitter-facebook-and-more/"><u>[Updated] The Ultimate Tutorial Sending Subtitles via SRT to Twitter, Facebook & More</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-from-gameplay-to-legacy-proven-strategies-for-documenting-a-sims-in-game-saga-in-sims-4/"><u>2024 Approved From Gameplay to Legacy Proven Strategies for Documenting a Sim’s In-Game Saga in Sims 4</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-mastering-simple-multi-snap-chat-video-creation-and-editing/"><u>2024 Approved Mastering Simple Multi-Snap Chat Video Creation & Editing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/96-off-for-lifetime-access-to-mondly-premium/"><u>96% OFF For Lifetime Access To Mondly Premium</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/croatian-speaking-population/"><u>Croatian Speaking Population</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cycle-des-semaines-en-france/"><u>Cycle Des Semaines en France</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/did-your-iphone-14-plus-passcode-change-itself-unlock-it-now-by-drfone-ios/"><u>Did Your iPhone 14 Plus Passcode Change Itself? Unlock It Now</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Motorola Moto G34 5G | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-unhindered-video-capture-app/"><u>In 2024, Unhindered Video Capture App</u></a></li>
-<li><a href="https://driver-install.techidaily.com/reinstating-wi-fi-capability-across-various-windows/"><u>Reinstating Wi-Fi Capability Across Various Windows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/stepwise-arabic-your-starting-line/"><u>Stepwise Arabic: Your Starting Line</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-saying-thanks-in-mandarin/"><u>Unlocking the Secrets of Saying Thanks in Mandarin</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unpacking-the-latin-american-european-pt-button-dynamics/"><u>Unpacking the Latin American-European PT Button Dynamics</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-image-all-screen-website-view/"><u>[New] In 2024, Image All-Screen Website View</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-enhancing-your-chat-experience-with-customized-whatsapp-tones/"><u>[Updated] In 2024, Enhancing Your Chat Experience with Customized WhatsApp Tones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/content-creation-in-the-digital-age-audio-vs-visual-for-2024/"><u>Content Creation in the Digital Age Audio vs Visual for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ting-your-youtube-profile-with-high-impact-artwork-guide/"><u>Elevating Your YouTube Profile with High-Impact Artwork Guide</u></a></li>
+<li><a href="https://video-capture.techidaily.com/essential-8-free-tools-enhancing-business-video-conferencing-efficiency/"><u>Essential 8 Free Tools Enhancing Business Video Conferencing Efficiency</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-complete-unpacking-of-ricohs-theta-vr-solution/"><u>In 2024, Complete Unpacking of Ricoh's Theta VR Solution</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-rendering-reality-realistic-3d-text-effects/"><u>In 2024, Rendering Reality Realistic 3D Text Effects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lexical-exchange-a-universal-story-of-language-adaptation/"><u>Lexical Exchange: A Universal Story of Language Adaptation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-leading-70plus-million-in-international-learning-community/"><u>Mondly: Leading 70+ Million in International Learning Community</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oui-merci-en-francais-invitations-celebres/"><u>Oui, Merci! En Français: Invitations Célèbres</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/step-by-step-guide-downsizing-pngjpeg-content-in-your-word-and-excel-docs/"><u>Step-by-Step Guide: Downsizing PNG/JPEG Content in Your Word and Excel Docs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-historical-roots-of-earths-languages-explored/"><u>The Historical Roots of Earth's Languages Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-teams-with-targeted-language-training-for-success/"><u>Transform Teams with Targeted Language Training for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triple-tiered-asian-dialects-quick-save-easy-find/"><u>Triple-Tiered Asian Dialects: Quick Save, Easy Find</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukrainian-language-leap-with-daily-10-min-segments-86-chars/"><u>Ukrainian Language Leap with Daily 10-Min Segments (86 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-turkeys-script-an-easy-to-learn-alphabet-and-pronunciation-guide/"><u>Understanding Turkey's Script: An Easy-to-Learn Alphabet & Pronunciation Guide</u></a></li>
+<li><a href="https://win-online.techidaily.com/wiederherstellbar-dateien-die-nicht-im-recyclinggutachten-geloscht-wurden-wiedererlangung-von-sd-speicherkarten/"><u>Wiederherstellbar: Dateien, Die Nicht Im Recyclinggutachten Gelöscht Wurden - Wiedererlangung Von SD-Speicherkarten</u></a></li>
 </ul></div>
 

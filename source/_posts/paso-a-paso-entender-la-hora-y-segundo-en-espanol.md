@@ -1,7 +1,7 @@
 ---
 title: "Paso a Paso: Entender La Hora Y Segundo en Español"
-date: 2025-01-06T20:12:03.775Z
-updated: 2025-01-10T18:23:18.305Z
+date: 2025-01-11T07:30:35.965Z
+updated: 2025-01-15T22:55:15.495Z
 tags:
   - speak
   - english
@@ -27,7 +27,7 @@ But first things first.
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## ¿Que hora es? – how to ask for the time in Spanish
@@ -61,6 +61,10 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -78,14 +82,10 @@ Here are some examples:
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Telling time in Spanish – a visual guide
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Hour + minutes in Spanish time
 
@@ -109,7 +109,7 @@ Here are some examples:
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
@@ -125,10 +125,6 @@ Here are some examples:
 * _tarde_ – in the afternoon
 
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Other useful time phrases in Spanish
 
@@ -165,6 +161,10 @@ Here are some examples:
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -190,19 +190,18 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tech-revival.techidaily.com/1725285136851-digiarty/"><u>[公式] Digiartyソフトウェアの満足保証:返金ポリシー詳細解説</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-goovision-xtreme-cam-high-res-screen-capturer/"><u>[New] In 2024, GooVision Xtreme Cam High-Res Screen Capturer</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-the-ultimate-guide-to-surpassing-a-million-youtube-subscribers/"><u>[New] The Ultimate Guide to Surpassing a Million YouTube Subscribers</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-secrets-of-the-pocket-acquiring-no-pay-images/"><u>[Updated] 2024 Approved Secrets of the Pocket Acquiring No-Pay Images</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-essential-guide-best-free-video-effect-websites-reviewed-and-rated-by-experts-for-2024/"><u>[Updated] Essential Guide Best Free Video Effect Websites Reviewed & Rated by Experts for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-pushing-boundaries-of-editing-how-to-erase-image-borders-on-canva/"><u>[Updated] Pushing Boundaries of Editing How to Erase Image Borders on Canva</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/affordable-japanese-language-learning-15-top-online-choices/"><u>Affordable Japanese Language Learning: 15 Top Online Choices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577362628-bangla-skills-boost-in-minutes/"><u>Bangla Skills Boost in Minutes!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cross-cultural-gratitude-thanking-in-30-languages-154/"><u>Cross-Cultural Gratitude: Thanking in 30 Languages (154)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/de-talen-van-vaderland-its-linguistic-roots/"><u>De Talen Van Vaderland: Its Linguistic Roots</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-german-a-foundational-guide-for-language-enthusiasts/"><u>Deciphering German: A Foundational Guide for Language Enthusiasts</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/fcp-x-visual-effects-green-screen-and-beyond-for-2024/"><u>FCP X Visual Effects Green Screen and Beyond for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-expertise-acquiring-the-best-unboxing-tunes-and-melodies/"><u>In 2024, Expertise Acquiring the Best Unboxing Tunes and Melodies</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/setting-achievable-wellness-targets-using-chatgpt-a-comprehensive-guide/"><u>Setting Achievable Wellness Targets Using ChatGPT: A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-7-leading-budget-4k-mirrorless-cameras-(1k/"><u>[New] 2024 Approved 7 Leading Budget 4K Mirrorless Cameras (<$1K)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-finding-pixel-ringtone-treasures-online/"><u>[New] 2024 Approved Finding Pixel Ringtone Treasures Online</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-download-your-favorite-shows-anytime-everywhere-with-these-apps-for-2024/"><u>[Updated] Download Your Favorite Shows Anytime, Everywhere with These Apps for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-effortlessly-convert-youtube-audio-top-4-low-cost-apps/"><u>[Updated] Effortlessly Convert YouTube Audio - Top 4 Low-Cost Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-secret-to-stylish-borders-in-instagram-visuals-for-2024/"><u>[Updated] The Secret to Stylish Borders in Instagram Visuals for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/mac-dvd-mac-os-mp4-itunes/"><u>最佳 Mac DVD软件 - 提升功效专业解码 Mac OS 中的加密光盘，高速转换成 MP4/移动设备/ iTunes 兼容文件</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/merry-christmas-or-merry-xmas-in-different-languages/"><u>Merry Christmas Or Merry Xmas In Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-your-portuguese-skills-utilize-these-6-study-methods/"><u>Polish Your Portuguese Skills: Utilize These 6 Study Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/teaching-world-unity-through-diversity-of-speeches/"><u>Teaching World Unity Through Diversity of Speeches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-dos-and-donts-in-spanish-accented-writing/"><u>The Do's & Don'ts in Spanish Accented Writing</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/top-4-techniques-for-effective-hp-laptop-screen-capture/"><u>Top 4 Techniques for Effective HP Laptop Screen Capture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/valkomma-i-sverige-ditt-avstand/"><u>Välkomma I Sverige: Ditt Avstånd</u></a></li>
 </ul></div>
 

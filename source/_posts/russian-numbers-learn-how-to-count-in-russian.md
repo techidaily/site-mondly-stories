@@ -1,7 +1,7 @@
 ---
 title: Russian Numbers – Learn How to Count in Russian
-date: 2025-01-06T19:43:30.518Z
-updated: 2025-01-10T20:03:35.281Z
+date: 2025-01-09T03:38:17.853Z
+updated: 2025-01-15T19:57:14.599Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 
  Whether you need to find out what’s the price for a matryoshka, ask a stranger when is the next bus arriving or give someone your phone number, knowing the Russian numbers is definitely essential. On top of that, they are not even that hard to learn. Once you learn how to count to ten, counting to 100 is a piece of cake.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Russian numbers 1-10
 
  In order to understand the logic behind counting in Russian faster, it’s best to break down the information into multiple sections. As you may expect, the Russian numbers from 1 to 10 are the most important. Not only these are the ones you’ll probably use the most, but they also lay the foundations for the bigger numbers in Russian.
@@ -31,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
  Here are the numbers from 1 to 10 in Russian with their respective pronunciations so you can begin practicing right now:
 
 ![russian numbers 1-10](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-1-10-600x424.jpg "Russian Numbers - Learn How To Count In Russian 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Russian numbers 1-10
 
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 * neuter: одно _(odno)_ ; два _(dva)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn how to count to 20 in Russian
@@ -58,10 +58,6 @@ If you did manage, good job! You must be a natural.
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Russian numbers: 21 and onwards
 
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
@@ -69,7 +65,7 @@ If you did manage, good job! You must be a natural.
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian tens
@@ -89,7 +85,7 @@ And guess what! It works the same with the hundreds.
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian hundreds
@@ -97,6 +93,10 @@ And guess what! It works the same with the hundreds.
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
 
 Not as hard as you’d expect, is it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Russian ordinal numbers
 
@@ -143,20 +143,21 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-immortalize-your-gaming-adventures-on-pc-6-ways/"><u>[New] In 2024, Immortalize Your Gaming Adventures on PC [6 Ways]</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-leading-tools-top-6-fb-lite-video-extractors/"><u>[New] In 2024, Leading Tools TOP 6 FB Lite Video Extractors</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-instagrowth-hack-secrets-for-scaling-to-1000month-fans-for-2024/"><u>[New] InstaGrowth Hack Secrets for Scaling to 1,000/Month Fans for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-ultimate-price-guide-for-cloud-storage-services/"><u>[Updated] 2024 Approved Ultimate Price Guide for Cloud Storage Services</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-learn-to-record-your-xbox-games-with-ease/"><u>[Updated] Learn to Record Your Xbox Games with Ease</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/a-deep-dive-into-the-middle-of-the-road-marvels-avengers-film/"><u>A Deep Dive Into the Middle-of-the-Road Marvel's Avengers Film</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/complete-guide-for-apple-iphone-7-lock-screen-drfone-by-drfone-ios/"><u>Complete Guide For Apple iPhone 7 Lock Screen | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expert-tips-for-online-korean-learning-the-ultimate-collection/"><u>Expert Tips for Online Korean Learning: The Ultimate Collection</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lingering-glances-and-flairful-flattery-in-france/"><u>Lingering Glances and Flairful Flattery in France</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-latin-faster-top-rated-online-learning/"><u>Master Latin Faster: Top-Rated Online Learning</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/reclaim-your-lost-treasures-from-the-sands-of-time-mac-files/"><u>Reclaim Your Lost Treasures From the Sands of Time (Mac Files)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revamp-user-agreement-and-rights/"><u>Revamp: User Agreement & Rights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-your-vocabulary-with-mondly-top-app-of-2022/"><u>Transform Your Vocabulary with Mondly - Top App of 2022</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-the-potential-of-your-mind-learn-languages-with-mondlys-ar/"><u>Unlock the Potential of Your Mind: Learn Languages with Mondly’s AR</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/winx-dvd-ripper-and-hd-video-converter-the-ultimate-free-software-for-copying-and-upgrading-movies/"><u>WinX DVD Ripper & HD Video Converter: The Ultimate Free Software for Copying and Upgrading Movies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-streamlined-subtitling-processes-for-instagrams-dynamic-media-for-2024/"><u>[New] Streamlined Subtitling Processes for Instagram's Dynamic Media for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-roadmap-to-creating-successful-youtube-collaborations/"><u>[New] The Roadmap to Creating Successful YouTube Collaborations</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-lenovo-simple-recording-techniques/"><u>[Updated] 2024 Approved Lenovo Simple Recording Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-filmoras-blueprint-for-stellar-youtube-trailers-for-2024/"><u>[Updated] Filmora's Blueprint for Stellar YouTube Trailers for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-performers-top-10-innovative-4k-mirrorless-models/"><u>Best Performers Top 10 Innovative 4K Mirrorless Models</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-education-through-multilingual-praise/"><u>Harmonizing Education Through Multilingual Praise</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-a-non-functional-mic-on-your-oculus-quest-2/"><u>How to Fix a Non-Functional Mic on Your Oculus Quest 2</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sailing-through-seafarers-expressions/"><u>Sailing Through Seafarers' Expressions</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-art-of-film-crafting-with-kinemaster-tools/"><u>The Art of Film Crafting with Kinemaster Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-days-of-the-week-in-french/"><u>The Days of the Week in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-reference-for-mastering-english-grammar-conjunctions-and-contractions/"><u>The Ultimate Reference for Mastering English Grammar Conjunctions & Contractions</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/this-months-treasure-trove-exclusive-list-of-top-ranking-max-documentaries-july-2024/"><u>This Month's Treasure Trove: Exclusive List of Top-Ranking Max Documentaries (July 2024)</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-10-no-cost-dvd-conversion-tools-of-2023-no-subscription-necessary/"><u>Top 10 No-Cost DVD Conversion Tools of 2023 (No Subscription Necessary)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleashing-linguistic-potential-mondlys-success-story-2022/"><u>Unleashing Linguistic Potential: Mondly's Success Story, 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-lithuanian-language-ideal-online-resources/"><u>Unlock Lithuanian Language: Ideal Online Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-assembly-of-spains-offspring/"><u>Worldwide Assembly of Spain's Offspring</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Perfect RU Alphabets' Phonetics Recognition
-date: 2025-01-03T20:02:13.835Z
-updated: 2025-01-10T16:53:41.983Z
+date: 2025-01-15T12:03:20.528Z
+updated: 2025-01-15T20:41:54.834Z
 tags:
   - speak
   - english
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
  Russian has been greatly influenced by Old Church Slavonic and – since the westernizing policies of Tsar Peter I the Great in the 18 century – by the [languages of western Europe](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Then, the 19th-century poet Aleksandr Pushkin determined the further development of the [Russian language we know](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today. His writings, in which he combined the colloquial and Church Slavonic styles, were decisive in establishing the best style for literary use.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The Cyrillic script
 
 [The Cyrillic script](https://en.wikipedia.org/wiki/Cyrillic%5Fscript) is the national script in various Slavic-, Turkic- and Iranic-speaking countries in Eastern Europe, the Caucasus, Central Asia, and Northern Asia.
@@ -42,14 +38,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
 ![russian letters](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-letters-600x480.jpg "Master The Russian Alphabet Pronunciation 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Red Square, Moscow, Russia” by Aurelien Romain©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Understand how to pronounce the Russian alphabet
@@ -68,6 +60,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **М м** sounds like “m” in “mother” or “mobile”,
 * **О о** sounds like “o” in “bore” or “more” (without the ‘r’ sound),
 * **Т т** sounds like “t” in “top” or “task”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Russian letters that sound the same as in English (but look different)
 
@@ -88,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **Ю ю** sounds like “you” or “use”,
 * **Я я** sounds like “yu” in yummy or “ya” in “yard”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Russian letters that look the same as in English (but sound different)
 
 * **В в** sounds like “v” in “van” or “voice”,
@@ -101,7 +101,7 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * **Ы ы** sounds like “i” in “ill” but with a “rounder” pronunciation (said with your tongue slightly back in your mouth).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Russian letter with no English equivalent
@@ -116,6 +116,10 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 ![russian alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-alphabet-pronunciation-1-431x600.jpg "Master The Russian Alphabet Pronunciation 3")
 
  Russian alphabet pronunciation
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Russian lesson no. 1: rules
 
@@ -136,10 +140,6 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Study Russian in just 10 minutes a day
 
@@ -166,24 +166,17 @@ thumbnail: https://thmb.techidaily.com/222a89a5c83410b00a22c43d882a6db1215cf7d87
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-eliminate-vr-discomfort-10-tips/"><u>[New] 2024 Approved Eliminate VR Discomfort 10 Tips</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-innovative-home-designs-for-modern-minecraft-world/"><u>[New] Innovative Home Designs for Modern Minecraft World</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-key-strategies-for-gaining-facebooks-top-marker/"><u>2024 Approved Key Strategies for Gaining Facebook's Top Marker</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-the-ultimate-guide-to-lgs-27in-widescreen-4k-display/"><u>2024 Approved The Ultimate Guide to LG's 27in Widescreen 4K Display</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/become-effortless-essential-17-natural-spanish-sayings/"><u>Become Effortless: Essential 17 Natural Spanish Sayings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brain-boost-in-your-fifties-with-foreign-languages-learning/"><u>Brain Boost in Your Fifties with Foreign Languages Learning</u></a></li>
-<li><a href="https://fox-where.techidaily.com/connect-your-scanner-to-a-pc-without-cables-easy-instructions-using-yls-wireless-solutions/"><u>Connect Your Scanner to a PC without Cables: Easy Instructions Using YL's Wireless Solutions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-collabs-for-youtube-channel-expansion/"><u>Crafting Collabs for YouTube Channel Expansion</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/efektywny-porzadownik-kopii-zapasowych-dla-serwera-windows-jak-ustalic-drugi-tydzien-na-sukces/"><u>Efektywny Porządownik Kopii Zapasowych Dla Serwera Windows: Jak Ustalić Drugi Tydzień Na Sukces</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/frequently-learned-overseas-dialects-in-the-usa/"><u>Frequently Learned Overseas Dialects in the USA</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-vivo-x-flip-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Vivo X Flip Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/italian-essentials-the-100-phrase-voyagers-companion/"><u>Italian Essentials: The 100-Phrase Voyager's Companion</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/santas-secretive-speech-skills-exposed/"><u>Santa's Secretive Speech Skills Exposed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/selecting-the-most-versatile-european-language-germanfrench/"><u>Selecting the Most Versatile European Language: German/French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-smart-stand-out-elite-english-coaching/"><u>Speak Smart, Stand Out: Elite English Coaching</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-joy-of-language-acquisition-beyond-50/"><u>The Joy of Language Acquisition Beyond 50</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitters-viral-hit-list-tiktok-edition-for-2024/"><u>Twitter's Viral Hit List TikTok Edition for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/uploading-maximum-length-videos-successfully-on-instagram-for-2024/"><u>Uploading Maximum-Length Videos Successfully on Instagram for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-mondly-is-your-essential-language-learning-ally/"><u>Why Mondly Is Your Essential Language Learning Ally</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mastering-auto-play-on-fb-video-streams/"><u>[New] In 2024, Mastering Auto-Play on FB Video Streams</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unleashing-potential-in-ar-applying-lut-techniques/"><u>[Updated] 2024 Approved Unleashing Potential in AR Applying LUT Techniques</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-recorded-tones-the-iphone-voicemail-keeper-for-2024/"><u>[Updated] Recorded Tones The iPhone Voicemail Keeper for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hellenic-harvest-language-growth-from-past-to-now/"><u>Hellenic Harvest: Language Growth From Past To Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-hello-in-different-languages/"><u>How To Say Hello In Different Languages</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/ideal-windows-podcast-software-selections/"><u>Ideal Windows Podcast Software Selections</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-a-step-by-step-guide-to-crafting-immersive-fb-video-experienenas/"><u>In 2024, A Step-by-Step Guide to Crafting Immersive FB Video Experienenas</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/introducing-microsofts-copilotplus-revolutionizing-productivity-with-the-latest-update-for-surface-users-in-enterprise-settings/"><u>Introducing Microsoft's Copilot+: Revolutionizing Productivity with the Latest Update for Surface Users in Enterprise Settings</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-the-use-of-googles-magic-eraser-a-comprehensive-guide-for-android-and-ios-users/"><u>Mastering the Use of Google’s Magic Eraser: A Comprehensive Guide for Android & iOS Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-into-the-future-of-chat-meet-ai/"><u>Step Into the Future of Chat: Meet AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-comprehensive-handbook-for-japanese-language-study/"><u>The Comprehensive Handbook for Japanese Language Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-to-learning-german-10-key-points/"><u>The Essential Guide to Learning German: 10 Key Points</u></a></li>
 </ul></div>
 

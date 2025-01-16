@@ -1,7 +1,7 @@
 ---
 title: International English Communication Skills
-date: 2024-09-10T13:28:07.175Z
-updated: 2024-09-11T13:28:07.175Z
+date: 2025-01-10T23:57:55.730Z
+updated: 2025-01-15T16:45:10.670Z
 tags:
   - speak
   - english
@@ -29,19 +29,9 @@ thumbnail: https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37
 9. [Attend educational shows to get inspired](#educational)
 10. [TESOL, ESL, and TEFL Certifications](#certifications)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## How to become an ESL teacher
 
@@ -53,20 +43,6 @@ thumbnail: https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37
 
  And I did. Honestly, it’s not entirely my merit because my tactics are mostly inspired by my experience as a student. What I did was make a list of all the strategies that worked for me and my colleagues. Next, I adapted this list to today’s trends, applied it in my classroom, and conquered two new lands called “interest” and “attention”. If you want to conquer the same lands in your classroom, stick around with me. I summed up my strategies in a list that I like to call**“The Decalogue of the Modern Teacher”** .
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 1\. Teaching English as a second language using videos
 
  I have a lot of friends that learned the basic English vocabulary by watching English cartoons. You might have some too. And I’m actually pretty sure that this is not a government secret: people (regardless of their age) learn faster and better when adding something they really enjoy doing to the learning process.
@@ -74,19 +50,9 @@ thumbnail: https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37
 ![english-second-language](https://edge.mondly.com/blog/wp-content/uploads/2018/02/english-second-language-scaled-960x640.jpg "How To Teach English As A Second Language 2")
  Although this is a great teaching tactic, don’t let yourself be carried away. The first thing you want to do is research. The method won’t work if your students don’t like the [movie](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or the cartoons that you have chosen. The secret is to stay anchored in modernity.
 
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
-
 
 **Pro tips:**
 
@@ -100,20 +66,6 @@ thumbnail: https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37
 
  I know what you think and no, I don’t advise you to choose a Nicki Minaj song. Put “quality” and “modernity” in a balance before making your choice. Good luck!
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 3\. Teaching English to adults: organize debates
 
 **Teaching English to adults** is tougher than**teaching English to kids** (if you ask me). But if Frodo managed to destroy the ring, you can teach adults some English too.
@@ -122,23 +74,13 @@ thumbnail: https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37
 
 **Pro tip:** Adults are bigger children. That means that you can also watch movies and TEDx Talks and review them together.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## how-to-teach-english-abroad
 
 ![how-to-teach-english-abroad](https://edge.mondly.com/blog/wp-content/uploads/2018/02/how-to-teach-english-abroad-960x640.jpg "How To Teach English As A Second Language 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. How to teach English in a fun way: create
 
@@ -147,20 +89,6 @@ thumbnail: https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37
 * **Create stories.** In high school, I had quite a big list of words I could not ever remember and my English teacher advised me to create a story using these words. Her technique worked like magic. To this day, I still create stories with words that I tend to forget.
 * **Create poems.** Your students might be reluctant to this strategy, but the creation process will rock their world making them proud of themselves.
 * Or**rap battles.** This is a bonus. You don’t have to be Nostradamus to foresee that students will love it!
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 5\. Use fun language learning apps to break the routine
 
@@ -171,19 +99,13 @@ thumbnail: https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37
 ![language-learning-app](https://edge.mondly.com/blog/wp-content/uploads/2018/02/language-learning-app-960x640.jpg "How To Teach English As A Second Language 4")
  It sounds futuristic. I know. But that’s exactly the reason why your students will love**learning English as a second language** using this app. Give it a try and enjoy the experience together.
 
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
-
-
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. How to teach English abroad: organize intercultural nights
 
@@ -193,20 +115,6 @@ thumbnail: https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37
 
  Food makes us happy. Good food makes us eager to learn more (food) words in a new language. Why shouldn’t we, as teachers, use this info in our own best interest? You can organize intercultural nights and discuss a lot of interesting things about the USA and UK’s cultures, but my guess is that traditional food will still be the star of the night.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 7\. English as a second language for kids: celebrate English holidays
 
  Kids from all over the [world simply love Halloween](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . For them, it makes no difference that this is an American holiday. And trust me: your students are no different. As long as they have fun, it doesn’t matter what holiday you are celebrating.
@@ -215,19 +123,9 @@ thumbnail: https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37
 
  On a more serious note, I can assure you this is really efficient. One kid in my class was so excited about this task that he handcrafted magic wands for all his colleagues and made a really convincing essay on “why Neville Longbottom is the real hero of Harry Potter”.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## teaching-english-to-foreign-students
 
@@ -247,6 +145,10 @@ thumbnail: https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37
 
 ![teaching-english-as-a-second-language](https://edge.mondly.com/blog/wp-content/uploads/2018/02/teaching-english-as-a-second-language-1024x576.jpg "How To Teach English As A Second Language 6")
  My guess is that this kind of event can inspire you to be a better teacher to your young students. Every day, technology becomes a bigger part of their worlds and we, as teachers, should keep up with the pace. Until super smartphones or super-smart robots will eventually replace us, we are still a crucial part of the global learning process. Although I find it hard to believe that scientists will ever [be able to create a software](https://financesonline.com/topapps/) so developed that it replicates the energy, dedication, and enthusiasm of a good teacher.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. TESOL, ESL, and TEFL Certifications
 
@@ -270,8 +172,6 @@ thumbnail: https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -279,16 +179,17 @@ thumbnail: https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-exploring-gradual-echo-deactivation-in-audacity/"><u>[New] 2024 Approved Exploring Gradual Echo Deactivation in Audacity</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-majestic-visual-chronicles-compiler-suite-for-2024/"><u>[New] Majestic Visual Chronicles Compiler Suite for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unique-narratives-increased-channel-visibility/"><u>[New] Unique Narratives, Increased Channel Visibility</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instas-tunes-ownership-and-legalities/"><u>[Updated] Insta's Tunes Ownership & Legalities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-seizes-spot-on-apples-top-10-ed-tech-leaders-board/"><u>Mondly Seizes Spot on Apple’s Top 10 Ed-Tech Leaders Board</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-elder-speeches-of-humanitys-heritage/"><u>The Elder Speeches of Humanity’s Heritage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-oldest-languages-a-global-comparison/"><u>The Oldest Languages: A Global Comparison</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transform-your-content-with-the-new-release-of-wonderfox-dvd-ripper-for-ipad-version-20/"><u>Transform Your Content with the New Release of WonderFox DVD Ripper for iPad, Version 2.0!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-power-of-basic-russian-salutations/"><u>Unlocking the Power of Basic Russian Salutations</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/why-siri-needs-a-transformation-is-apple-leaning-towards-ai-innovations-like-bing/"><u>Why Siri Needs a Transformation: Is Apple Leaning Towards AI Innovations Like Bing?</u></a></li>
+</ul></div>
 

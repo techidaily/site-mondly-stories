@@ -1,7 +1,7 @@
 ---
 title: "Saying Hi in Indonesia: Key Greeting Phrases"
-date: 2025-01-04T17:30:58.075Z
-updated: 2025-01-10T19:42:07.146Z
+date: 2025-01-14T18:07:16.556Z
+updated: 2025-01-16T02:13:01.034Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
 
  Besides, you’ll love [learning Indonesian words](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6912&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id) as some of them sound very cute to English speakers. Known as_Bahasa Indonesia_ to Indonesians, Indonesian calls the dolphin_lumba-lumba_ and the teeth_gigi_ . Cute. Told ‘ya!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## When and how should you say hello in Indonesia
 
  Unlike other Asian countries that place a big emphasis on the culture of respect, Indonesia doesn’t necessarily use honorifics. Besides, just like in English, Indonesian greetings don’t have formal variations for elders or those of a higher social status.
@@ -32,10 +36,6 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### ‘Hi’ in Indonesian
@@ -53,10 +53,6 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
 
@@ -71,7 +67,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -81,7 +77,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say goodbye
@@ -94,6 +90,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Start learning Indonesian today
 
@@ -126,18 +126,19 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-4k-masterpieces-our-favorites-listed/"><u>[New] 4K Masterpieces Our Favorites Listed</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-unraveling-adobes-storage-system-guide-and-comparison-chart-for-2024/"><u>[New] Unraveling Adobe's Storage System Guide & Comparison Chart for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apple-books-user-experience-assessment-is-it-worth-your-library/"><u>Apple Books User Experience Assessment: Is It Worth Your Library?</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/como-habilitar-o-movavi-video-editor-no-mac-passo-a-passo/"><u>Como Habilitar O Movavi Video Editor No Mac - Passo a Passo</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/easy-and-effective-ways-to-convert-wmv-files-into-imovie-with-these-top-free-tools/"><u>Easy and Effective Ways to Convert WMV Files Into iMovie with These Top FREE Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-scholar-top-language-examination-guides/"><u>From Novice to Scholar: Top Language Examination Guides</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-observer-to-expert-learn-korean-for-squid-game-fans/"><u>From Observer to Expert - Learn Korean for Squid Game Fans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580301933-join-the-new-years-club-dive-into-mondly-pro-at-a-low-cost/"><u>Join the New Year's Club - Dive Into Mondly Pro at a Low Cost</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-free-divx-video-cutting-solutions-expert-recommendations/"><u>New Free Divx Video Cutting Solutions Expert Recommendations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/norges-lexicon-leapfrogging-10-minutes-a-day/"><u>Norge's Lexicon Leapfrogging, 10 Minutes A Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-trio-of-languages-cantonese-portuguese-and-others-in-macau/"><u>The Trio of Languages: Cantonese, Portuguese & Others in Macau</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-essential-french-expressions-for-exploring-france/"><u>Ultimate Guide: Essential French Expressions for Exploring France</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-free-animation-solutions-top-picks-for-windows-and-mac-computers/"><u>Updated In 2024, Free Animation Solutions Top Picks for Windows and Mac Computers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-complete-guide-to-recording-live-tv-on-your-windows-pc-for-2024/"><u>[New] Complete Guide to Recording Live TV on Your Windows PC for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-redefining-the-art-of-editing-a-deep-dive-into-youtube-studios-capabilities/"><u>[New] In 2024, Redefining the Art of Editing A Deep Dive Into YouTube Studio's Capabilities</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-essential-imovie-steps-for-squaring-up-instagram-posts/"><u>[Updated] The Essential iMovie Steps for Squaring Up Instagram Posts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/iate-allies-for-small-channels-an-easy-approach-for-2024/"><u>Affiliate Allies for Small Channels An Easy Approach for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/error-45-dealt-with-efficiently/"><u>Error 45: Dealt with Efficiently</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-sony-xperia-10-v-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Sony Xperia 10 V Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-motorola-razr-40-ultra-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Motorola Razr 40 Ultra</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jolly-roger-jargon-decoding-20-piratical-terms/"><u>Jolly Roger Jargon: Decoding 20 Piratical Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingua-franca-croatia/"><u>Lingua Franca: Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-triumphs-engaging-70-million-learners-globally/"><u>Mondly Triumphs – Engaging 70 Million Learners Globally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shakespeares-words-36-words-shakespeare-invented-that-we-still-use-today/"><u>Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today</u></a></li>
+<li><a href="https://win-dash.techidaily.com/the-ultimate-guide-to-finding-downloading-and-installing-microsoft-surface-pro-4-drivers-in-windows/"><u>The Ultimate Guide to Finding, Downloading, and Installing Microsoft Surface Pro 4 Drivers in Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcultural-exchange-in-eng-language/"><u>Transcultural Exchange in ENG Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-to-correct-spaniard-diacritics/"><u>Unlocking the Secrets to Correct Spaniard Diacritics</u></a></li>
 </ul></div>
 
