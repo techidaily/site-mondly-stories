@@ -1,7 +1,7 @@
 ---
 title: Russian Numbers – Learn How to Count in Russian
-date: 2025-01-09T03:38:17.853Z
-updated: 2025-01-15T19:57:14.599Z
+date: 2025-01-18T16:14:32.431Z
+updated: 2025-01-22T18:04:48.930Z
 tags:
   - speak
   - english
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 ![russian numbers 1-10](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-1-10-600x424.jpg "Russian Numbers - Learn How To Count In Russian 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian numbers 1-10
@@ -39,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 * masculine: один _(odin)_ ; два _(dva)_
 * feminine: одна _(odna)_ ; две _(dve)_
 * neuter: одно _(odno)_ ; два _(dva)_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Learn how to count to 20 in Russian
 
@@ -54,9 +50,17 @@ If you did manage, good job! You must be a natural.
 
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Russian numbers 11-20
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Russian numbers: 21 and onwards
 
@@ -65,7 +69,7 @@ If you did manage, good job! You must be a natural.
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian tens
@@ -84,10 +88,6 @@ And guess what! It works the same with the hundreds.
 
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Russian hundreds
 
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
@@ -95,7 +95,7 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Russian ordinal numbers
@@ -143,21 +143,20 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-streamlined-subtitling-processes-for-instagrams-dynamic-media-for-2024/"><u>[New] Streamlined Subtitling Processes for Instagram's Dynamic Media for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/he-roadmap-to-creating-successful-youtube-collaborations/"><u>[New] The Roadmap to Creating Successful YouTube Collaborations</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-lenovo-simple-recording-techniques/"><u>[Updated] 2024 Approved Lenovo Simple Recording Techniques</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-filmoras-blueprint-for-stellar-youtube-trailers-for-2024/"><u>[Updated] Filmora's Blueprint for Stellar YouTube Trailers for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/best-performers-top-10-innovative-4k-mirrorless-models/"><u>Best Performers Top 10 Innovative 4K Mirrorless Models</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/harmonizing-education-through-multilingual-praise/"><u>Harmonizing Education Through Multilingual Praise</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-fix-a-non-functional-mic-on-your-oculus-quest-2/"><u>How to Fix a Non-Functional Mic on Your Oculus Quest 2</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sailing-through-seafarers-expressions/"><u>Sailing Through Seafarers' Expressions</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-art-of-film-crafting-with-kinemaster-tools/"><u>The Art of Film Crafting with Kinemaster Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-days-of-the-week-in-french/"><u>The Days of the Week in French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-reference-for-mastering-english-grammar-conjunctions-and-contractions/"><u>The Ultimate Reference for Mastering English Grammar Conjunctions & Contractions</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/this-months-treasure-trove-exclusive-list-of-top-ranking-max-documentaries-july-2024/"><u>This Month's Treasure Trove: Exclusive List of Top-Ranking Max Documentaries (July 2024)</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/top-10-no-cost-dvd-conversion-tools-of-2023-no-subscription-necessary/"><u>Top 10 No-Cost DVD Conversion Tools of 2023 (No Subscription Necessary)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unleashing-linguistic-potential-mondlys-success-story-2022/"><u>Unleashing Linguistic Potential: Mondly's Success Story, 2022</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-lithuanian-language-ideal-online-resources/"><u>Unlock Lithuanian Language: Ideal Online Resources</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-assembly-of-spains-offspring/"><u>Worldwide Assembly of Spain's Offspring</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-pro-tips-chromebooks-finest-pencil-based-software/"><u>[New] In 2024, Pro Tips Chromebook's Finest Pencil-Based Software</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-inside-vr-contemporary-insights-and-upcoming-struggles/"><u>[Updated] Inside VR Contemporary Insights & Upcoming Struggles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ausdruckswelt-deutsche-begrussungen-ohne-das-wort-hallo/"><u>Ausdruckswelt: Deutsche Begrüßungen Ohne Das Wort Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aussie-speak-101-mastering-local-slang/"><u>Aussie Speak 101: Mastering Local Slang</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/battlefield-4-audio-problems-discover-proven-fixes-now/"><u>Battlefield 4 Audio Problems? Discover Proven Fixes Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-professional-in-no-time-using-these-6-effective-strategies-for-learning-portuguese/"><u>Become a Professional in No Time Using These 6 Effective Strategies for Learning Portuguese</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/creative-labs-sound-blaster-zxr-analysis-evaluating-the-2013-premier-gaming-audio-device/"><u>Creative Labs Sound Blaster ZXR Analysis: Evaluating the 2013 Premier Gaming Audio Device</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/economical-desktop-encoder-software-guide-revealed/"><u>Economical Desktop Encoder Software Guide Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-english-education-programs/"><u>Global English Education Programs</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-asus-rog-phone-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/old-salt-lexicon-a-pirates-speaking-guide/"><u>Old Salt Lexicon: A Pirate’s Speaking Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-and-its-roots-in-language-culture/"><u>Romance and Its Roots in Language Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-influence-of-learning-english-on-careers/"><u>The Influence of Learning English on Careers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-10-portable-tools-dominating-video-editing-landscape-for-2024/"><u>Top 10 Portable Tools Dominating Video Editing Landscape for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-zero-cost-flv-video-editing-top-5-tools-to-get-the-job-done/"><u>Updated 2024 Approved Zero-Cost FLV Video Editing Top 5 Tools to Get the Job Done</u></a></li>
 </ul></div>
 

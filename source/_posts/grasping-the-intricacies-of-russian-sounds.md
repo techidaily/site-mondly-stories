@@ -1,7 +1,7 @@
 ---
 title: Grasping the Intricacies of Russian Sounds
-date: 2024-09-12T16:41:10.223Z
-updated: 2024-09-16T17:51:22.277Z
+date: 2025-01-18T16:52:06.180Z
+updated: 2025-01-22T17:11:11.161Z
 tags:
   - speak
   - english
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 
  “Red Square, Moscow, Russia” by Aurelien Romain©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Understand how to pronounce the Russian alphabet
 
  There are 33 letters in the Russian alphabet. 10 vowels (**а, э, ы, у, о, я, е, ё, ю, и)** , 21 consonants (**б, в, г, д, ж, з, к, л, м, н, п, р, с, т, ф, х, ц, ч, ш, щ,** and the consonant**й** which is sometimes a semivowel) and 2 pronunciation signs (the “soft sign” ь and the “hard sign” ъ).
@@ -49,16 +53,7 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
  If we were to compare the Russian alphabet to the English alphabet, we would have four groups of letters: letters that look and sound (almost) the same as in English, letters that sound the same but look different, letters that look the same but sound different and letters that have no English equivalent whatsoever.
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Russian letters that are (almost) the same as in English
@@ -71,10 +66,7 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 * **Т т** sounds like “t” in “top” or “task”.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Russian letters that sound the same as in English (but look different)
@@ -97,10 +89,7 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 * **Я я** sounds like “yu” in yummy or “ya” in “yard”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Russian letters that look the same as in English (but sound different)
@@ -114,6 +103,10 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 * **Ч ч** sounds like “ch” in “chat” or “church“,
 * **Х х** sounds like “ch” in “loch”,
 * **Ы ы** sounds like “i” in “ill” but with a “rounder” pronunciation (said with your tongue slightly back in your mouth).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Russian letter with no English equivalent
 
@@ -171,5 +164,21 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-explore-5-premier-photographers-and-videographers-mixing-tunes/"><u>[New] Explore 5 Premier Photographers & Videographers Mixing Tunes</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-synthesizing-a-look-at-magix-creative-suite/"><u>[New] Synthesizing a Look at MAGIX Creative Suite</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-charting-the-course-through-facebooks-most-watched-vids/"><u>2024 Approved Charting the Course Through Facebook's Most Watched Vids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connections-in-commotion-flirtatious-german/"><u>Connections in Commotion: Flirtatious German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-all-facets-of-japanese-hospitality/"><u>Explore All Facets of Japanese Hospitality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-expressive-world-of-italian-bodily-language/"><u>Exploring the Expressive World of Italian Bodily Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-merry-christmas-in-21-different-languages/"><u>How to Say Merry Christmas in 21 Different Languages</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-effortless-youtube-live-with-step-by-step-obs-guide-for-beginners/"><u>In 2024, Effortless YouTube Live with Step-by-Step OBS Guide for Beginners</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-vivo-s17-pro-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Vivo S17 Pro Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-synergy-mondly-enhances-pearsons-buttons/"><u>Innovative Synergy: Mondly Enhances Pearson's Buttons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-alphabet-essentials-an-expert-compendium/"><u>Japanese Alphabet Essentials: An Expert Compendium</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/masterful-14-textual-movement-illustrations-for-2024/"><u>Masterful 14 Textual Movement Illustrations for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/movavis-kostenloze-online-tool-herleiden-dpx-bestanden-in-gratis-png-format-efficient-en-gemakkelijk/"><u>Movavi's Kostenloze Online Tool: Herleiden DPX-Bestanden in Gratis PNG-Format Efficiënt en Gemakkelijk</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitters-wild-ride-the-hottest-tweets-unveiled/"><u>Twitter's Wild Ride The Hottest Tweets Unveiled</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: International Days of Gratitude Similar to US Thanksgiving
-date: 2025-01-03T20:04:40.254Z
-updated: 2025-01-10T17:56:29.474Z
+date: 2025-01-15T17:13:20.939Z
+updated: 2025-01-22T16:02:13.579Z
 tags:
   - speak
   - english
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
  Let’s learn more about these celebrations and discover seven of the most surprising countries that celebrate Thanksgiving (besides the US).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Canada
 
  The Canadian version of Thanksgiving is very similar to its American relative. You’ve got the turkey (though some choose ham or chicken instead), the mashed potatoes, the legendary gravy, the corn, and the pumpkin pie. Then there’s the name which is also ‘Thanksgiving’ – except for Quebec; there you’d call it ‘Action de Grâce’. Moreover, both [Americans and Canadians](https://www.bustle.com/life/canadian-thanksgiving-vs-american-thanksgiving) like to watch football and spend time with family on Thanksgiving. Everything seems familiar. Except for the date, of course. Canadian Thanksgiving is celebrated on the second Monday in October, much earlier than the United States which celebrates it on the fourth Thursday in November.
@@ -42,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
  Other sources trace the Canadian Thanksgiving to the French settlers who came to North America in the 17th century and held feasts to celebrate their successful harvests.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Germany, Austria, and Switzerland
 
  In Europe, the idea of Thanksgiving generally involves the celebration of the autumn harvests. Largely religious in nature, the celebration occurs around the time of the main harvest – early October in this situation. In German-speaking countries, the event is called Erntedankfest.
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
  Unlike the North American festivities, in rural Germany, Austria, and Switzerland, Erntedankfest is a more public celebration with musical performances, dancing, fireworks, and – you guessed it: food. In some places, churches are decored with autumn crops and during the day, people participate in religious processions or parades.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. The Netherlands
@@ -57,10 +57,6 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
  Ok, this is not entirely true. Not all Dutch people celebrate Thanksgiving, just this city called Leiden.
 
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Grenada
 
@@ -70,15 +66,15 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
 ![thanksgiving turkey](https://edge.mondly.com/blog/wp-content/uploads/2021/11/canadian-thanksgiving-960x641.jpg "What Countries Celebrate Thanksgiving? 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Thanksgiving turkey” by Claudio Schwarz©
 
 ## 5\. Japan
 
  勤労感謝の日 (’Kinrō Kansha no Hi’) has roots in 新嘗祭 (Niiname-sai), the ancient Shinto rice harvest ceremony and it’s celebrated annually on the 23rd of November. Known today as ‘Labor Thanksgiving Day’, the celebration has lost some of its original meaning and is regarded now as an occasion for commemorating labor and reflecting on issues that impact the community, such as the environment and human rights.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. Liberia
 
@@ -93,7 +89,7 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
  During pre-Christian times in Britain, the Saxons would offer the first sheaf of cereals to fertility gods then come together and celebrate the harvest with a supper. Many traditions remained even though Christianity arrived in Britain so the present-day Harvest Festival is celebrated even by churches.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Brazil
@@ -106,6 +102,10 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Learn to give thanks in over 40 languages
 
@@ -137,17 +137,22 @@ thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc31
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-ideal-slide-show-tools-for-iphone-series-10-13-upgrades/"><u>[New] Ideal Slide Show Tools For iPhone Series 10-13 Upgrades</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-master-class-in-laptop-screenrec-software-use/"><u>[Updated] Master Class in Laptop ScreenRec Software Use</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-techniques-for-acquiring-finnish-language-skills-virtually/"><u>Best Techniques for Acquiring Finnish Language Skills Virtually</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/capturefreeplay-cutting-edge-recording-for-gamers-for-2024/"><u>CaptureFreePlay Cutting-Edge Recording for Gamers for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoes-from-olympus-the-lingual-journey-of-greeks/"><u>Echoes From Olympus: The Lingual Journey of Greeks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embark-on-the-path-of-mondly-expertise-today/"><u>Embark on the Path of Mondly Expertise Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580908859-exclusive-free-access-to-mondly-premium/"><u>Exclusive Free Access to Mondly Premium!</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-nubia-red-magic-8s-pro-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Nubia Red Magic 8S Pro for Parents | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Oppo Reno 11 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/shopping-journey-to-visual-storytelling-hauling-edition-for-2024/"><u>Shopping Journey to Visual Storytelling Hauling Edition for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-vivo-x-fold-2-by-drfone-android/"><u>Three Ways to Sim Unlock Vivo X Fold 2</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719575582823-unlock-slovak-speech-one-quick-session-at-a-time/"><u>Unlock Slovak Speech, One Quick Session at a Time</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-optimize-for-popularity-top-youtube-seo-devices-unveiled/"><u>[New] 2024 Approved Optimize for Popularity Top YouTube SEO Devices Unveiled</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-from-passive-viewers-to-profitable-partners-on-vimeo-for-2024/"><u>[New] From Passive Viewers to Profitable Partners on Vimeo for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-step-by-step-guide-downloading-and-installing-obs-for-macos-for-2024/"><u>[New] Step-by-Step Guide Downloading & Installing OBS for macOS for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/1716070199528-updated-2024-approved-capture-and-share-your-mac-life-free/"><u>[Updated] 2024 Approved Capture & Share Your Mac Life, FREE!</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-sweet-slumber-scenes-video-critique/"><u>[Updated] 2024 Approved Sweet Slumber Scenes Video Critique</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-revolutionizing-mobile-media-6-leading-video-apps-without-periscope/"><u>[Updated] Revolutionizing Mobile Media 6 Leading Video Apps without Periscope</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unraveling-the-itunes-radio-download-process/"><u>[Updated] Unraveling the iTunes Radio Download Process</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-android-gallery-upload-on-iphone-device/"><u>2024 Approved Android Gallery Upload on iPhone Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-spanish-language-tools-top-93-travel-phrases-compilation/"><u>Essential Spanish Language Tools: Top 93 Travel Phrases Compilation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-language-and-society-together-in-mondly-vr/"><u>Explore Language & Society Together In Mondly VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-language-engaging-spanish-lesson/"><u>Exploring Language: Engaging Spanish Lesson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/farsis-enthralling-past-why-learn-it/"><u>Farsi's Enthralling Past: Why Learn It?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/farsis-evolutionary-tale-and-mastery-payoffs/"><u>Farsi's Evolutionary Tale and Mastery Payoffs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-norsk-fluency-daily-ten-minute-boosts/"><u>Fast Norsk Fluency - Daily Ten-Minute Boosts!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-fluency-boost-key-sentences-for-your-francophone-voyage/"><u>French Fluency Boost: Key Sentences for Your Francophone Voyage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/genom-att-svida-swedens-visa/"><u>Genom Att Svida: Sweden's Visa</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-unleash-the-power-of-reverse-video-in-final-cut-pro-for-2024/"><u>Updated Unleash the Power of Reverse Video in Final Cut Pro for 2024</u></a></li>
 </ul></div>
 

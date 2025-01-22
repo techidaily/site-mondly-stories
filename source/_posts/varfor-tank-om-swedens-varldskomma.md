@@ -1,7 +1,7 @@
 ---
 title: "Varför Tänk Om?: Sweden's Världskomma"
-date: 2024-09-27T22:07:47.768Z
-updated: 2024-10-01T18:45:32.769Z
+date: 2025-01-19T18:01:34.799Z
+updated: 2025-01-22T16:47:00.620Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/b1557e3d9700a9810b8b9bbec88362c53ba5a3f98
 
  Swedish people are sociable, and they care about traditions, so any foreigner should know how to, at least, properly introduce themselves and start a conversation. Learn more about all the Swedish greetings, and maybe you’ll feel inspired to try something new and [start learning the Nordic language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Here’s some to start with:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What you should know
 
  Swedes are respectful, but they rarely use last names or Mr. and Mrs in rather formal conversations as well. They like to call themselves by their first name, even in some professional circles. Equality and the lack of hierarchies in the workplace is a specific trait of the Swedish society. If you want to move to Sweden or visit the country, you must get accustomed to all these little details. This will make it easier for you to become “one of them” and meet new people
@@ -31,16 +35,7 @@ thumbnail: https://thmb.techidaily.com/b1557e3d9700a9810b8b9bbec88362c53ba5a3f98
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
 
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to answer the phone in Swedish
@@ -52,42 +47,27 @@ thumbnail: https://thmb.techidaily.com/b1557e3d9700a9810b8b9bbec88362c53ba5a3f98
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Good evening!” in Swedish
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say “Goodnight!” in Swedish
 
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
@@ -118,20 +98,24 @@ thumbnail: https://thmb.techidaily.com/b1557e3d9700a9810b8b9bbec88362c53ba5a3f98
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-budget-friendly-bundles-startup-channels-for-newcomers/"><u>[New] 2024 Approved Budget-Friendly Bundles Startup Channels for Newcomers</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-swiftrecorder-plus-soundtrack-guided-screen-recording-for-2024/"><u>[New] SwiftRecorder Plus - Soundtrack Guided Screen Recording for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nleash-the-power-of-optimization-5-secrets-to-skyrocket-your-audience/"><u>[New] Unleash the Power of Optimization 5 Secrets to Skyrocket Your Audience</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-screen-recorder-pro-for-windows-10/"><u>[Updated] 2024 Approved Screen Recorder Pro for Windows 10</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-creating-impactful-outros-top-6-free-tools-for-2024/"><u>[Updated] Creating Impactful Outros Top 6 FREE Tools for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-step-by-step-guide-to-viewing-vr-films-and-games-on-ios/"><u>[Updated] Step-by-Step Guide to Viewing VR Films & Games on IOS</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/amores-acoustic-alleyway-urban-italian-flirts/"><u>Amore's Acoustic Alleyway: Urban Italian Flirts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoes-from-the-globe-theatre-words-that-live-on/"><u>Echoes From the Globe Theatre: Words That Live On</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-word-building-oxford-mondly-methodology/"><u>Essential Word Building: Oxford-Mondly Methodology</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-2023s-leading-applications-for-downloading-facebook-lite-videos/"><u>In 2024, 2023'S Leading Applications for Downloading Facebook Lite Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/norges-lexicon-leapfrogging-10-minutes-a-day/"><u>Norge's Lexicon Leapfrogging, 10 Minutes A Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-compelling-case-10-reasons-to-learn-german-now/"><u>The Compelling Case: 10 Reasons to Learn German Now</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unleash-your-potential-a-guide-to-excellent-mondly-use/"><u>Unleash Your Potential: A Guide to Excellent Mondly Use</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/us-vs-uk-english-key-language-divergences/"><u>US vs UK English: Key Language Divergences</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/your-journey-to-glamorous-guruship-launching-an-aesthetic-channel/"><u>Your Journey to Glamorous Guruship Launching an Aesthetic Channel</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-secret-language-of-snapchat-behind-every-emoji-for-2024/"><u>[New] The Secret Language of Snapchat Behind Every Emoji for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-best-choices-twitter-video-conversion-software/"><u>[Updated] In 2024, Best Choices Twitter Video Conversion Software</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-step-up-your-gameplay-with-these-5-best-rated-ps2-android-emulators/"><u>[Updated] In 2024, Step Up Your Gameplay with These 5 Best-Rated PS2 Android Emulators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-daybreak-greetings-a-study-of-morning-phrases-in-10-languages/"><u>Global Daybreak Greetings: A Study of Morning Phrases in 10 Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/happy-easter-in-different-languages-and-easter-traditions/"><u>Happy Easter in Different Languages & Easter Traditions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-say-hello-in-italian-top-10-italian-greetings/"><u>How to Say Hello in Italian: Top 10 Italian Greetings</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-stop-thaumaturge-from-freezing-or-crashing-on-your-desktop-computer/"><u>How to Stop Thaumaturge From Freezing or Crashing on Your Desktop Computer</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-honor-magic-6-pro-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Honor Magic 6 Pro Phones? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-tracing-view-count-to-cash-flow-on-youtube-platform/"><u>In 2024, Tracing View Count to Cash Flow on YouTube Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/incorporating-movies-in-linguistic-learning/"><u>Incorporating Movies in Linguistic Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-variety-in-the-pearl-river-delta/"><u>Linguistic Variety in the Pearl River Delta</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-messages-to-the-holy-weeks-birthday/"><u>Multilingual Messages to the Holy Week's Birthday</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-numeral-acquisition-for-language-proficiency/"><u>Russian Numeral Acquisition for Language Proficiency</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/smart-sound-showdown-analyzing-the-features-of-google-nest-audio-against-apple-homepod/"><u>Smart Sound Showdown: Analyzing the Features of Google Nest Audio Against Apple HomePod</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-list-of-93-important-spanish-phrases-for-global-trips/"><u>The Ultimate List of 93 Important Spanish Phrases for Global Trips</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-rated-portable-battery-boosters-of-2024-reviewed-by-professionals-tech-digest/"><u>Top-Rated Portable Battery Boosters of 2024 Reviewed by Professionals - Tech Digest</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/ultimate-tutorial-how-to-stream-and-watch-flv-videos-on-your-android-device/"><u>Ultimate Tutorial: How to Stream and Watch FLV Videos on Your Android Device</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-premiere-pro-best-slow-motion-effects-to-use/"><u>Updated In 2024, Premiere Pro Best Slow Motion Effects To Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-young-minds-embrace-multilingualism-effortlessly/"><u>Why Young Minds Embrace Multilingualism Effortlessly</u></a></li>
 </ul></div>
 

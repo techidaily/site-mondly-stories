@@ -1,7 +1,7 @@
 ---
 title: "Israelian Voyage Preparation: Essential Insights & Local Speak"
-date: 2024-09-15T19:03:19.417Z
-updated: 2024-09-16T19:29:40.799Z
+date: 2025-01-15T16:23:52.306Z
+updated: 2025-01-22T17:39:17.764Z
 tags:
   - speak
   - english
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/b11b88dbc857a31124bdb8c315da86bb5d3837eab
  In addition to Hebrew, you will also hear [Arabic](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) (about one-fifth of the population is constituted by the Arab minority) and, of course, English. Not everybody speaks perfect English in Israel, but they certainly try. Since tourism is a central part of the country’s economy, shop, pub and restaurant owners try to keep the channel of communication open with the tourists.
 
 ![hebrew phrases](https://edge.mondly.com/blog/wp-content/uploads/2019/09/hebrew-phrases-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Mahane Yehuda Market, Jerusalem, Israel” by Roxanne Desgagnés©
 
@@ -96,20 +100,10 @@ thumbnail: https://thmb.techidaily.com/b11b88dbc857a31124bdb8c315da86bb5d3837eab
 
 ![travel to israel](https://edge.mondly.com/blog/wp-content/uploads/2019/09/travel-to-israel-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 5")
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “The Dead Sea” by Dave Herring©
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Haifa
@@ -117,16 +111,7 @@ thumbnail: https://thmb.techidaily.com/b11b88dbc857a31124bdb8c315da86bb5d3837eab
  When you’ll first see Bahá’í Gardens, you’ll feel like you’ve stepped out of reality. That’s how beautiful this place is. Spread almost a kilometer up Mount Carmel, The Terraces of the Bahá’í Faith include design elements inspired from the [Persian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) gardens in Iran, the Nishat Bagh gardens in India and English gardens.
 
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Ramon Crater
@@ -140,10 +125,7 @@ thumbnail: https://thmb.techidaily.com/b11b88dbc857a31124bdb8c315da86bb5d3837eab
  “Bahá’í Gardens, Haifa” by Denis Vdovin©
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Get ready to enjoy Israel with these basic Hebrew travel phrases
@@ -153,13 +135,6 @@ thumbnail: https://thmb.techidaily.com/b11b88dbc857a31124bdb8c315da86bb5d3837eab
  Traveling can be both amazing and stressful. What if you lose your luggage? What if you need to go to the toilet but you don’t know where to find one? What if nobody speaks English? Avoid stressful situation like these. Language should never be a barrier. Learn these basic Hebrew phrases beforehand and enjoy your trip to the fullest.
 
  First, we will explore Hebrew greetings, continue with some common ways to ask for help in Hebrew, basic phrases for when you’ll go to an Israeli restaurant and some basic phrases for shopping sprees. Happy learning!
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Hebrew Greetings and other basics
 
@@ -182,7 +157,15 @@ thumbnail: https://thmb.techidaily.com/b11b88dbc857a31124bdb8c315da86bb5d3837eab
 
 ![learn hebrew](https://edge.mondly.com/blog/wp-content/uploads/2019/09/learn-hebrew-1024x682.jpg "Your Travel Guide For The Next Trip To Israel: Tips &Amp; Travel Phrases 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Ein Gedi Oasis, Israel” by Robert Bye©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Common Hebrew phrases for travelers that need help
 
@@ -217,6 +200,10 @@ thumbnail: https://thmb.techidaily.com/b11b88dbc857a31124bdb8c315da86bb5d3837eab
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Here’s how to speak Hebrew in just 10 minutes a day
 
  Do you want to practice what you’ve learned and maybe learn some more Hebrew? Check [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3355&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3355?mother%5Flang=en%5Fus?target%5Flang=he&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3355?mother%5Flang=en%5Fus?target%5Flang=he) , the revolutionary language learning platform that makes language learning fun, fast and easy! Mondly is a pocket-held language tutor that allows you to put your brain on autopilot and enjoy the ride to fluency in 33 languages. By combining solid neural science, cutting edge technologies, bite-sized Daily Lessons and a gamified experience guaranteed to make you addicted to learning languages, Mondly gets you fluent faster than you could ever imagine.
@@ -240,5 +227,20 @@ thumbnail: https://thmb.techidaily.com/b11b88dbc857a31124bdb8c315da86bb5d3837eab
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-curating-tunes-a-comprehensive-guide-to-youtube-lists/"><u>[New] Curating Tunes A Comprehensive Guide to YouTube Lists</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/36929144-updated-2024-approved-top-6-youtube-outro-makers-lots-of-free-options/"><u>[Updated] 2024 Approved Top 6 YouTube Outro Makers-Lots of FREE Options!</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-visual-media-experience-overview-analysis/"><u>[Updated] Visual Media Experience Overview Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-symphony-of-multilingualism-with-science-and-melody/"><u>Discover the Symphony of Multilingualism with Science and Melody</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Nokia C22? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-language-evolution-usa-and-britain/"><u>English Language Evolution: USA and Britain</u></a></li>
+<li><a href="https://blog-min.techidaily.com/fixing-dvd-copy-protection-glitch-error-0x80030309-detailed-tips-and-tricks/"><u>Fixing DVD Copy Protection Glitch (Error 0X80030309) – Detailed Tips and Tricks</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-intensive-assessment-the-ultimate-guide-to-bublcam-360/"><u>In 2024, Intensive Assessment The Ultimate Guide to Bublcam 360</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-obs-vs-wirecast-which-should-you-trust-for-live/"><u>In 2024, OBS Vs. Wirecast - Which Should You Trust for Live?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-dawn-wishes-10-good-mornings-across-cultures/"><u>Multilingual Dawn Wishes: 10 Good Mornings Across Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/supercharge-global-business-interactions-with-prime-language-software/"><u>Supercharge Global Business Interactions with Prime Language Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-careers-with-multilingual-prowess/"><u>Transform Careers with Multilingual Prowess</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unpacking-de-vijfde-taal-dutchs-past/"><u>Unpacking De Vijfde Taal: Dutch's Past</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Unpacking De Vijfde Taal: Dutch's Past"
-date: 2024-09-11T18:11:35.689Z
-updated: 2024-09-16T16:24:08.929Z
+date: 2025-01-18T16:05:50.435Z
+updated: 2025-01-22T16:27:02.565Z
 tags:
   - speak
   - english
@@ -42,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/1f521609b1c133bd14e0ec883446171896f3c613d
 
  So where exactly in Western Europe is the Netherlands? The country borders Germany to the east,[Belgium](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to the south, and the North Sea to the northwest. Its largest city and capital is Amsterdam.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The Netherlands vs Holland
 
 Okay, bare with me. There’s more.
@@ -50,13 +54,6 @@ Okay, bare with me. There’s more.
 
 ![netherlands vs holland](https://edge.mondly.com/blog/wp-content/uploads/2022/02/netherlands-vs-holland.png "Where Are Dutch People From? Discover The Dutch Language 2")
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The Netherlands vs Holland
 
  It all goes back (again) to Old English. Originally referring to the people from the northern region of the Netherlands, ‘Holland’ literally meant ‘wood-land’. But over time, English speakers began to mistakenly associate it with the entire country.
@@ -64,10 +61,7 @@ Okay, bare with me. There’s more.
  Formerly the County of Holland (the most important county in the Low Countries region), Holland now consists of North and South Holland. These are two of the nation’s twelve provinces.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What language do they speak in the Netherlands?
@@ -85,13 +79,14 @@ Okay, bare with me. There’s more.
 ![language in the netherlands](https://edge.mondly.com/blog/wp-content/uploads/2022/02/language-in-the-netherlands-960x573.jpg "Where Are Dutch People From? Discover The Dutch Language 3")
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  ‘Tulip fields in the Netherlands’ by redcharlie©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What other countries speak Dutch?
 
@@ -100,6 +95,10 @@ Okay, bare with me. There’s more.
  The Dutch language is also spoken in a small part of France and on the islands of Curaçao, Sint Maarten, Aruba (all three part of the Kingdom of the Netherlands), Bonaire, Saba, and Sint Eustatius.
 
  If you travel to South Africa, you may think people speak Dutch, but they actually speak [Afrikaans](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , a language that evolved from Dutch.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Is German Dutch?
 
@@ -141,5 +140,21 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-improve-your-zoom-meet-by-sharpening-views/"><u>[New] Improve Your Zoom Meet by Sharpening Views</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-digest-your-facebook-memories/"><u>[Updated] In 2024, Digest Your Facebook Memories</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/advanced-tips-for-blending-modes-in-vfx-for-2024/"><u>Advanced Tips for Blending Modes in VFX for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/anfangsgrunde-des-deutschen-nummern-von-1-bis-100-erklaren/"><u>Anfangsgründe Des Deutschen: Nummern Von 1 Bis 100 Erklären</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/connecting-worlds-mastering-video-chats-on-xbox-one-with-zoom-for-2024/"><u>Connecting Worlds Mastering Video Chats on Xbox One with Zoom for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/download-the-latest-ios-version-for-free-discover-whats-new-in-ios-18-price-insights-and-exciting-news/"><u>Download the Latest iOS Version for Free! Discover What's New in iOS 18, Price Insights & Exciting News</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/exploring-why-your-pc-displays-a-blue-screen-a-deep-dive-by-yl-software-professionals/"><u>Exploring Why Your PC Displays a Blue Screen: A Deep Dive by YL Software Professionals</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-oneplus-11r-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/getting-it-right-an-expert-written-on-english-grammar-conjunctions-and-contractions/"><u>Getting It Right: An Expert' Written on English Grammar Conjunctions & Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-adjusted-understanding-your-rights/"><u>Privacy Adjusted - Understanding Your Rights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580912312-slovak-in-a-flash-online-learning-for-busy-lives/"><u>Slovak in a Flash - Online Learning for Busy Lives!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ten-powerful-reasons-to-embrace-the-german-language/"><u>Ten Powerful Reasons to Embrace the German Language</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-tips-lipo-power-sources-for-aerial-vehicles/"><u>Top Tips LiPo Power Sources for Aerial Vehicles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldly-speech-patterns-finding-a-home-in-english/"><u>Worldly Speech Patterns Finding a Home in English</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: A Journey Through Romantic Language History
-date: 2024-09-10T19:05:24.390Z
-updated: 2024-09-16T16:37:22.093Z
+date: 2025-01-17T16:36:54.748Z
+updated: 2025-01-22T17:25:46.026Z
 tags:
   - speak
   - english
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/fba56e471126861872d44702a4719c3712dd082c4
 
  However, you should know that categorizing languages is fairly difficult because of their existence on a continuum. Therefore, the exact number of languages in this family may vary depending on the source you are looking at.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why are they called Romance languages?
 
  It’s true that their name has nothing to do with ‘romance’, but why are they called Romance languages?
@@ -44,7 +48,15 @@ thumbnail: https://thmb.techidaily.com/fba56e471126861872d44702a4719c3712dd082c4
 
 ![what are the romance languages](https://edge.mondly.com/blog/wp-content/uploads/2021/07/what-are-the-romance-languages-960x541.jpg "What Are The Romance Languages? 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Mont Saint-Michel, France” by Fab Lentz©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Latin-based languages – where do they come from?
 
@@ -60,31 +72,11 @@ thumbnail: https://thmb.techidaily.com/fba56e471126861872d44702a4719c3712dd082c4
 
 ![italian](https://edge.mondly.com/blog/wp-content/uploads/2021/07/italian-960x768.jpg "What Are The Romance Languages? 6")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Manarola, Italy” by Robert Aniței©
 
  Back to our origin story, as you might have guessed, Vulgar Latin is the Latin that spread amongst the local populations of the Roman Empire. Then, over time, it evolved separately into different varieties of spoken Latin all over the empire.
 
  After the fall of the Roman Empire, these Latin varieties started to diverge even more and eventually evolved into separate languages. Unlike today, back in those days, there was no TV, radio or universal education to keep people up-to-date with the standard form of Latin. Consequently, the spoken forms of Latin diverged quite easily into the Romance languages we all know and love today.
-
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How similar are Romance languages?
 
@@ -95,16 +87,7 @@ thumbnail: https://thmb.techidaily.com/fba56e471126861872d44702a4719c3712dd082c4
 ![latin based languages](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-based-languages.png "What Are The Romance Languages? 7")
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Romanian is always the odd one out.
@@ -119,6 +102,10 @@ thumbnail: https://thmb.techidaily.com/fba56e471126861872d44702a4719c3712dd082c4
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### From 0 to conversational in any Romance language
 
@@ -143,5 +130,22 @@ thumbnail: https://thmb.techidaily.com/fba56e471126861872d44702a4719c3712dd082c4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-through-the-lens-sage-advice-for-improving-your-edits/"><u>[New] Through the Lens Sage Advice for Improving Your Edits</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-free-srt-conversion-uncover-top-8-online-options/"><u>[Updated] 2024 Approved Free SRT Conversion Uncover Top 8 Online Options</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-art-and-science-of-writing-smart-slug-lines/"><u>[Updated] The Art and Science of Writing Smart Slug Lines</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-monitor-mastery-understanding-the-benefits-of-ultrawide-vs-uhd-4k/"><u>2024 Approved Monitor Mastery Understanding the Benefits of UltraWide vs UHD 4K</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/access-to-knowledge-with-mondly-for-ukrainian/"><u>Access to Knowledge with Mondly for Ukrainian</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/best-free-tools-for-transferring-data-from-transcend-ssds-download-and-step-by-step-instruction-manual/"><u>Best Free Tools for Transferring Data From Transcend SSDs: Download & Step-by-Step Instruction Manual</u></a></li>
+<li><a href="https://win-answers.techidaily.com/call-of-duty-black-ops-cold-war-troubleshooting-mastering-error-code-80070057/"><u>Call of Duty: Black Ops Cold War Troubleshooting - Mastering Error Code 80070057</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-why-the-samsung-galaxy-tab-s4-is-a-game-changer-in-android-tablets/"><u>Comprehensive Review: Why the Samsung Galaxy Tab S4 Is a Game-Changer in Android Tablets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-planet-choice-apples-popular-app/"><u>Daily Planet Choice: Apple's Popular App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-downunder-slang-with-us/"><u>Dive Into Downunder Slang with Us</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-global-opportunities-leading-3-linguistic-advancement-apps/"><u>Jumpstart Global Opportunities: Leading 3 Linguistic Advancement Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/optimal-vision-with-the-best-4k-monitors-1-10/"><u>Optimal Vision with the Best 4K Monitors, #1-10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapidly-absorb-czech-language-using-modern-online-methods/"><u>Rapidly Absorb Czech Language Using Modern Online Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-expressive-german-idioms-top-25/"><u>The Ultimate Guide to Expressive German Idioms (Top 25)</u></a></li>
+<li><a href="https://media-tips.techidaily.com/walmart-acquires-vizios-advertising-division-in-major-deal/"><u>Walmart Acquires Vizio's Advertising Division in Major Deal</u></a></li>
+</ul></div>
 

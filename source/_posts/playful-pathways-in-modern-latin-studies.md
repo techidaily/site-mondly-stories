@@ -1,7 +1,7 @@
 ---
 title: Playful Pathways in Modern Latin Studies
-date: 2024-09-10T13:28:28.401Z
-updated: 2024-09-11T13:28:28.401Z
+date: 2025-01-19T17:40:46.880Z
+updated: 2025-01-22T17:32:23.469Z
 tags:
   - speak
   - english
@@ -20,19 +20,9 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 
  I know you are excited. I am too. “How is this even possible?” – you’ll ask. Well, here’s a hint: brilliant minds invented very cool and immensely useful pieces of software called “language learning apps” that can make language learning fun. The problem is that most language learning apps ignore Latin. But not this one. This [language learning app](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5440&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5440?mother%5Flang=en%5Fus?target%5Flang=la&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5440?mother%5Flang=en%5Fus?target%5Flang=la) will change the way we learn Latin forever. Read on to find out more and you won’t be disappointed.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## How I learned Latin like a pro (and how you can too!)
 
@@ -50,19 +40,9 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 
 Here’s how.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Veni, vidi, vici
 
@@ -84,25 +64,9 @@ Here’s how.
 
  Latin made fun with language learning app Mondly
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## _Carpe diem_ and learn Latin the fun way
 
@@ -114,25 +78,9 @@ Here’s how.
 
 ![carpe diem latin](https://edge.mondly.com/blog/wp-content/uploads/2020/09/carpe-diem-latin-960x641.jpg "Back To School: Latin Made Fun And Easy For Students Of All Ages 4")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
  “Carpe diem” by Mr Autthaporn Pradidpong©
 
@@ -145,19 +93,9 @@ Here’s how.
 
 ---
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Speak Latin fluently in just 10 minutes a day
 
@@ -175,8 +113,6 @@ Here’s how.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -184,16 +120,20 @@ Here’s how.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/evolutionize-your-music-playback-with-these-high-quality-free-audio-splits-for-2024/"><u>[New] Revolutionize Your Music Playback with These High-Quality Free Audio Splits for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2023s-leading-advanced-robotic-mopping-systems/"><u>2023'S Leading Advanced Robotic Mopping Systems</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/crafting-your-first-twitter-profile/"><u>Crafting Your First Twitter Profile</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/dive-into-sonys-high-res-xperia-the-4k-phone-unveiled-for-2024/"><u>Dive Into Sony's High-Res Xperia The 4K Phone Unveiled for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-latest-updates-for-canon-eos-d530-camera-software/"><u>Download & Latest Updates for Canon EOS D530 Camera Software</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-itel-a60-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Itel A60 Phone Without Password?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-adventures-interactive-and-lively-teaching/"><u>Latin Adventures: Interactive & Lively Teaching</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-spanish-for-kids-from-spanish-for-kindergarten-to-elementary-school/"><u>Learn Spanish For Kids: From Spanish For Kindergarten To Elementary School</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-modern-devices-through-toms-electronic-wisdom/"><u>Mastering Modern Devices Through Tom's Electronic Wisdom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sweet-speeches-unveil-the-world-of-chocolate-in-30-languages/"><u>Sweet Speeches: Unveil the World of Chocolate in 30 Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gnwsh-glwttothpeioy-paradoseis-eyxethmatos/"><u>Γνώση Γλωττοτηπειού Παραδόσεις Ευχετήματος</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/avchdmovaviwmvflv/"><u>あらゆる種類の動画ファイルを自在に変換する手引き：AVCHD、MOV、AVI、WMV、FLV</u></a></li>
+</ul></div>
 

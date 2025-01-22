@@ -1,7 +1,7 @@
 ---
 title: Starting Your Journey to Speaking Spanish
-date: 2025-01-04T18:28:37.263Z
-updated: 2025-01-10T17:11:25.246Z
+date: 2025-01-15T17:49:38.622Z
+updated: 2025-01-22T18:02:31.882Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
  Learning how to count is crucial if you decide to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Although we may not always acknowledge it, numbers or_números_ (as you’d call them in Spanish) are essential to our day-to-day lives. From shopping to setting up a meeting, telling time, or giving someone your phone number – they really are one of the most basic and important language lessons. So let’s crack the mystery and discover what comes after_uno_ ,_dos,_ and_tres_ . Because Pitbull only gets us so far.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish numbers 1 to 30
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Spanish numbers to 40
@@ -79,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Count to 100 in Spanish
@@ -112,7 +112,7 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish numbers to 1000 and beyond
@@ -153,7 +153,7 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Barcelona, Spain
@@ -205,21 +205,20 @@ Here are some more examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-aces-cache-the-premier-choice-for-twitterscape-animation-preservation-for-2024/"><u>[New] Ace's Cache The Premier Choice for Twitterscape Animation Preservation for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-ultimate-easygoing-pc-game-guide/"><u>[New] In 2024, The Ultimate Easygoing PC Game Guide</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-crafting-360-worlds-top-picks-between-samsung-and-lg-for-2024/"><u>[Updated] Crafting 360 Worlds Top Picks Between Samsung & LG for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-make-good-youtube-banner-dos-and-donts-for-2024/"><u>[Updated] How To Make Good YouTube Banner - Dos and Don’ts for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/5-routes-to-reviving-the-elusive-windows-terminal/"><u>5 Routes to Reviving the Elusive Windows Terminal</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/adopting-a-global-communication-lifestyle-in-24/"><u>Adopting a Global Communication Lifestyle in '24</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/childhood-as-the-peak-time-for-second-language-acquisition/"><u>Childhood as the Peak Time for Second Language Acquisition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581340946-conquer-croatias-linguistic-landscape-with-these-essential-phrases/"><u>Conquer Croatia's Linguistic Landscape with These Essential Phrases</u></a></li>
-<li><a href="https://win-guides.techidaily.com/download-our-complimentary-bootstrap-based-material-design-ui-framework-from-creative-tim/"><u>Download Our Complimentary Bootstrap-Based Material Design UI Framework From Creative Tim</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577691832-embrace-the-new-year-with-an-epic-deal-save-96-on-mondly-premium-access/"><u>Embrace the New Year with an Epic Deal - Save 96% on Mondly Premium Access</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/free-cross-platform-4k-playback-tools-for-win-and-os-x-devices/"><u>Free, Cross-Platform 4K Playback Tools for Win & OS X Devices</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/inquiries-beyond-the-reach-of-gpt/"><u>Inquiries Beyond the Reach of GPT</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/mastering-board-functionality-a-comprehensive-approach-to-using-whiteboards-in-zoom-meetings-for-2024/"><u>Mastering Board Functionality A Comprehensive Approach to Using Whiteboards in Zoom Meetings for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579198473-mondly-and-apple-championed-as-ed-tech-elite-10-list-feat/"><u>Mondly & Apple Championed as Ed-Tech Elite: #10 List Feat</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577505926-one-moment-a-day-gain-mastery-over-urdu/"><u>One Moment a Day, Gain Mastery Over Urdu!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581780596-speedy-bokmal-study-sessions-10-min-dashes/"><u>Speedy Bokmål Study Sessions, 10-Min Dashes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-template-hacks-for-building-professional-youtube-intros-for-2024/"><u>[Updated] Template Hacks for Building Professional YouTube Intros for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-multi-lens-modifiers-for-creative-video-effects/"><u>2024 Approved Multi-Lens Modifiers for Creative Video Effects</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210031768-9782100814077-comprendre-et-aider-mon-enfant-different-avec-les-ecrans/"><u>Comprendre et aider mon enfant différent avec les écrans | Free Book</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/discover-the-ultimate-list-22-premier-no-cost-screencast-applications/"><u>Discover the Ultimate List: 22 Premier No-Cost Screencast Applications!</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/effortless-mass-file-manipulation-in-windows-master-the-art-of-batch-copymove-with-tips-from-yl-software-pros/"><u>Effortless Mass File Manipulation in Windows: Master the Art of Batch Copy/Move with Tips From YL Software Pros</u></a></li>
+<li><a href="https://article-files.techidaily.com/fifteen-methods-to-reset-a-twitch-stream-in-real-time-for-2024/"><u>Fifteen Methods to Reset a Twitch Stream in Real-Time for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gold-star-for-educators-mondly-kids-in-google-plays-top-2017-apps/"><u>Gold Star for Educators - Mondly Kids in Google Play's Top 2017 Apps</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-tecno-pova-6-pro-5g-devices-by-drfone-android/"><u>How to Reset Gmail Password on Tecno Pova 6 Pro 5G Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immersive-german-learning-experience-via-dark-show/"><u>Immersive German Learning Experience via Dark Show</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-high-performance-drone-gimbals/"><u>In 2024, High-Performance Drone Gimbals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-fluent-latvian-in-under-an-hours-practice/"><u>Speak Fluent Latvian in Under an Hour's Practice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-best-25-german-phrases/"><u>Speak Like a Local: Best 25 German Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-slang-survival-guide-common-english-expressions/"><u>The Slang Survival Guide: Common English Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-talk-tracks-enhance-enterprise-eloquence-strategies/"><u>Transform Talk Tracks: Enhance Enterprise Eloquence Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-english-potential-with-oxford-3000-and-mondly/"><u>Unlock Your English Potential with Oxford 3000 and Mondly</u></a></li>
 </ul></div>
 

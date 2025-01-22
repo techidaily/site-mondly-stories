@@ -1,7 +1,7 @@
 ---
 title: "Italian Dialogues: Key Phrases to Enhance Your Visit"
-date: 2025-01-09T07:06:10.512Z
-updated: 2025-01-16T10:43:27.796Z
+date: 2025-01-18T17:19:30.398Z
+updated: 2025-01-22T17:10:05.463Z
 tags:
   - speak
   - english
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 5. [Italian for tourists that want to have fun](#italian-tourists)
 6. [Italian phrases about love](#italian-love)
 7. [Days of the week and numbers in Italian](#numbers-in-italian)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Italian greetings and courtesy phrases
 
@@ -59,11 +63,11 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 ![italian phrases english translation](https://edge.mondly.com/blog/wp-content/uploads/2019/07/italian-phrases-english-translation-1024x682.jpg "100+ Essential Italian Travel Phrases For Your Trip 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Manarola, Italy” by Marc Zimmer©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Basic Italian phrases for travelers that need help
 
@@ -87,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * I’ll be back immediately. –_Ritorno subito._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Italian phrases for food lovers
@@ -95,6 +99,10 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
  Food is a crucial part of a trip to Italy. No one – and I mean not even a single soul, not even Arya Stark – leaves Italy without indulging on mountains of pizza, pasta and [gelato](https://en.wikipedia.org/wiki/Gelato) . So here’s**how to order drinks or food in Italian restaurants:**
 
 ![italian phrases english](https://edge.mondly.com/blog/wp-content/uploads/2019/07/italian-phrases-english-1024x683.jpg "100+ Essential Italian Travel Phrases For Your Trip 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Gelato” by Anita Austvika©
 
@@ -112,6 +120,10 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * I would like a coffee. –_Vorrei un caffè._
 * Can I have some ice cream? –_Posso prendere il gelato?_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Basic Italian for tourists who need a place to spend the night
 
  Looking for the perfect accommodation can be a real headache sometimes. Well, imagine you did find it, but the hosts only speak Italian. How will you deal with that? Some**basic Italian** would surely be useful in this situation.
@@ -124,10 +136,6 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * How was your stay with us? –_Come è stato il suo soggiorno con noi?_
 * Very pleasant, thank you. –_Molto piacevole, grazie._
 * Here is your bill, please look it over. –_Ecco il suo conto, per favore lo controlli._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Italian for tourists who want to have fun
 
@@ -145,10 +153,6 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 * How much does a ticket cost? –_Quanto costa un biglietto?_
 * One ticket, please. –_Un biglietto, per favore._
 * Are there seats available? –_Ci sono posti disponibili?_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. Italian phrases about love
 
@@ -218,10 +222,6 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Speak Italian fluently in just 10 minutes a day
 
  Do you want to see these Italian phrases in action in real-life conversations? Get Mondly, the award-winning language learning app that will [help you speak Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as if you were Tuscany-born.
@@ -247,20 +247,19 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/guida-speciale-al-contare-in-italiano-1-1000/"><u>Guida Speciale Al Contare in Italiano (1-1000)</u></a></li>
-<li><a href="https://techidaily.com/how-to-hard-reset-realme-12-pro-5g-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Realme 12 Pro 5G Without Password | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-beyond-flying-fun-in-depth-dji-phantom-4-examination/"><u>In 2024, Beyond Flying Fun In-Depth DJI Phantom 4 Examination</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-lock-your-vivo-s17e-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Vivo S17e Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/making-avatar-creation-a-breeze-in-the-digital-realm-for-2024/"><u>Making Avatar Creation a Breeze in the Digital Realm for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-brings-you-a-diverse-new-phrasebook/"><u>Mondly Brings You a Diverse New Phrasebook!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/most-chosen-overseas-languages-for-education/"><u>Most Chosen Overseas Languages for Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-grammars-maze-for-learners/"><u>Navigating Grammar's Maze for Learners</u></a></li>
-<li><a href="https://fox-access.techidaily.com/scripting-a-captivating-cinematic-sketchpad-for-2024/"><u>Scripting a Captivating Cinematic Sketchpad for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-itel-s23plus-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Itel S23+ Device</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-xiaomi-redmi-k70-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Xiaomi Redmi K70 without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlocking-global-content-up-to-date-strategies-for-a-region-free-dvd-player/"><u>Unlocking Global Content: Up-to-Date Strategies for a Region-Free DVD Player</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-smooth-conversation-top-9-verbal-mastery-hints/"><u>Unlocking Smooth Conversation: Top 9 Verbal Mastery Hints</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/us-vs-uk-a-linguistic-comparison/"><u>US vs UK: A Linguistic Comparison</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voice-activated-multi-language-the-new-oculus-quest-update-feature/"><u>Voice-Activated, Multi-Language: The New Oculus Quest Update Feature</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-professionals-picks-selecting-the-best-software-for-live-streamsvmix-or-wirecast/"><u>[New] 2024 Approved Professionals' Picks Selecting the Best Software for Live Streams—VMix or Wirecast?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-art-and-science-of-writing-smart-slug-lines/"><u>[New] In 2024, The Art and Science of Writing Smart Slug Lines</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-navigating-job-interviews-with-confidence-and-competence-for-2024/"><u>[New] Navigating Job Interviews with Confidence and Competence for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-stand-out-strategies-a-step-by-step-guide-to-reddit-success/"><u>[New] Stand Out Strategies A Step-By-Step Guide to Reddit Success</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-perfect-your-youtube-videos-after-publishing/"><u>[Updated] In 2024, Perfect Your YouTube Videos After Publishing</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-memetic-mayhem-the-20-most-shared-gems/"><u>[Updated] Memetic Mayhem The 20 Most Shared Gems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-guide-to-the-german-pronunciation-and-alphabetback-buttonfilter-button/"><u>A Beginner’s Guide To The German Pronunciation & AlphabetBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-dedicated-decade-with-mondlybacks-filters/"><u>A Dedicated Decade with MondlyBack's Filters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/best-in-class-applications-for-mastery-of-languages/"><u>Best-In-Class Applications for Mastery of Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/clear-speech-pathway-top-100-english-linguistic-challenges/"><u>Clear Speech Pathway: Top 100 English Linguistic Challenges</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-languages-confidently-with-mondlys-ar-technology/"><u>Conquer Languages Confidently With Mondly's AR Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/numero-italiano-conoscenza-e-esplorazioni-intermedie/"><u>Numero Italiano: Conoscenza E Esplorazioni Intermedie</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-unlock-4k-the-ultimate-list-of-free-video-converters/"><u>Updated In 2024, Unlock 4K The Ultimate List of Free Video Converters</u></a></li>
+<li><a href="https://some-tips.techidaily.com/upgrading-your-experience-unveiling-top-macos-15-enhancements-for-apple-macbook-users-gadgetguru/"><u>Upgrading Your Experience: Unveiling Top MacOS 15 Enhancements for Apple MacBook Users! | GadgetGuru</u></a></li>
 </ul></div>
 

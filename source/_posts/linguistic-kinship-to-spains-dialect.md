@@ -1,7 +1,7 @@
 ---
 title: Linguistic Kinship to Spain’s Dialect
-date: 2025-01-12T11:57:49.637Z
-updated: 2025-01-16T00:09:59.870Z
+date: 2025-01-18T17:44:07.486Z
+updated: 2025-01-22T17:42:24.887Z
 tags:
   - speak
   - english
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
  Without further ado, let’s dive in and uncover the full list of Spanish-speaking countries. While we’re at it, we’ll also look into the history behind the expansion of the Spanish language and how many people [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How many people speak Spanish?
@@ -56,13 +56,13 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
 !['How many people speak Spanish' by Cecy Alvarado©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/how-many-people-speak-spanish-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In addition to the 20 countries, Spanish is also the official language of several international organizations. These include the United Nations, the European Union, the Organization of American States, the Union of South American Nations, the Community of Latin American and Caribbean States, the [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Union and many other international organizations.
 
  Now let’s go into a little more detail and split the countries into continents.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in South America
 
@@ -80,6 +80,10 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 * Uruguay — 98%
 * Venezuela — 97%
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Spanish-speaking countries in Central America
 
  Out of the seven countries in Central America, only Belize doesn’t have Spanish as its official language. However, the majority of the Belizeans can speak Spanish. Thus, if you’re planning a trip to Central America, speaking Spanish will definitely come in handy.
@@ -93,19 +97,11 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
  \* the number represents the percentage of the population who speak Spanish.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Spanish-speaking countries in North America
 
  Considering that the Spanish language came here from Europe a few centuries back, it’s fascinating that Mexico is the world’s most populous Hispanophone country. In addition to Spanish, the Mexican government recognizes 68 national languages, 63 of which are indigenous. Examples include Nahuatl, Yucatec Maya, Zapotec, Mixtec, Mayo, Yaqui, Tzeltal, Tzotzil, Chol, Totonac, Purépecha and more.
 
 * Mexico — 97% (percentage of the entire population speaking Spanish)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in the Caribbean
 
@@ -114,10 +110,6 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 * Cuba — 100% (99,8 to be precise)
 * Dominican Republic — 98%
 * Puerto Rico — 99%
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in Europe
 
@@ -132,6 +124,10 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 * Equatorial Guinea — 74% (percentage of the entire population speaking Spanish)
 
 !['Spanish speakers' by Florian Wehde©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/spanish-speakers-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Countries where Spanish is spoken although it’s not an official language
 
@@ -159,6 +155,10 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Speak Spanish like a local fast
 
@@ -191,24 +191,24 @@ thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-building-brand-presence-a-guide-to-planning-instagram-videos-for-2024/"><u>[New] Building Brand Presence A Guide to Planning Instagram Videos for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-elevate-your-skills-comprehensive-periscope-tutorial-for-2024/"><u>[Updated] Elevate Your Skills Comprehensive Periscope Tutorial for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-complete-seo-strategy-for-podcast-growth/"><u>[Updated] The Complete Seo Strategy for Podcast Growth</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/data-disappears-in-excel-2023-how-to-get-it-back-by-stellar-guide/"><u>Data Disappears in Excel 2023 - How to get it back</u></a></li>
-<li><a href="https://win-forum.techidaily.com/fixing-task-failed-to-complete-error-in-windows-11-quickly-and-easily/"><u>Fixing 'Task Failed to Complete' Error in Windows 11 Quickly and Easily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/happiness-transcends-language-on-74/"><u>Happiness Transcends Language on 7/4</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/immediate-frame-grabbers-help-for-2024/"><u>Immediate Frame Grabber's Help for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/lg-smart-tv-streaming-how-to-get-espn-plus-live-and-on-demand/"><u>LG Smart TV Streaming: How To Get ESPN Plus Live and On Demand</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lifelong-learning-top-4-benefits-for-multilingual-adults/"><u>Lifelong Learning: Top 4 Benefits for Multilingual Adults</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-french-books-best-novels-for-beginners-outlined/"><u>Mastering French Books: Best Novels For Beginners Outlined</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-secures-title-germanys-best-virtual-linguistic-hub/"><u>Mondly Secures Title: Germany's Best Virtual Linguistic Hub</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/self-taught-french-strategies-unveiled/"><u>Self-Taught French Strategies Unveiled</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/start-speaking-filipino-today-with-easy-10-minute-lessons/"><u>Start Speaking Filipino Today with Easy 10-Minute Lessons</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/stop-the-blue-screen-nightmare-overcoming-error-0xc000021a-in-windows-11-and-8-your-complete-fixer/"><u>Stop the Blue Screen Nightmare: Overcoming Error 0xC000021A in Windows 11 and 8 - Your Complete Fixer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/temps-de-la-semaine-en-france/"><u>Temps De La Semaine en France</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/terms-and-conditions-updated-clarity/"><u>Terms & Conditions: Updated Clarity</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-ultimate-breakdown-of-lg-channels-what-you-must-know/"><u>The Ultimate Breakdown of LG Channels - What You Must Know</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/understanding-emeditors-inbuilt-character-encoding-in-version-10/"><u>Understanding EmEditor's Inbuilt Character Encoding in Version 10</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/world-languages-at-the-peak/"><u>World Languages at the Peak</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-wirecast-overview-and-comparable-solutions/"><u>[Updated] 2024 Approved WireCast Overview & Comparable Solutions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-delving-into-the-world-of-mixed-reality-technology-for-2024/"><u>[Updated] Delving Into the World of Mixed Reality Technology for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-guardian-of-gifs-saving-memorable-moments-from-twitter/"><u>[Updated] The Guardian of GIFs Saving Memorable Moments From Twitter</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-dive-deep-into-the-world-of-facebook-story-creation-expert-advice-inside/"><u>2024 Approved Dive Deep Into the World of Facebook Story Creation Expert Advice Inside</u></a></li>
+<li><a href="https://win-blog.techidaily.com/defeating-the-problem-ensuring-your-iphone-works-with-itunes-in-windows-11/"><u>Defeating the Problem: Ensuring Your iPhone Works with iTunes in Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engaging-worldwide-teachers-at-bett-2022/"><u>Engaging Worldwide Teachers at BETT 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-your-lexicon-mondlys-revolutionized-phrases/"><u>Enhancing Your Lexicon: Mondly's Revolutionized Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-danish-narratives-as-language-learning-aids/"><u>Essential Danish Narratives as Language Learning Aids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-words-mastery-with-oxfords-innovative-approach/"><u>Essential Words Mastery with Oxford's Innovative Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-vietnam-a-language-led-adventure/"><u>Exploring Vietnam: A Language-Led Adventure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expo-dubai-2020-the-new-horizon-of-language-skills/"><u>Expo Dubai 2020: The New Horizon of Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/flourish-in-multilingualisms-landscape/"><u>Flourish in Multilingualism's Landscape</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gaining-wisdom-in-world-languages/"><u>Gaining Wisdom in World Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-for-novices-mastering-sounds-and-symbols/"><u>German for Novices: Mastering Sounds & Symbols</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/harmonizing-movement-with-music-instagrams-reel-synergy-guide-for-2024/"><u>Harmonizing Movement with Music Instagram's Reel Synergy Guide for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-samsung-galaxy-a34-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Samsung Galaxy A34 5G Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/masterful-strategies-for-prolonged-battery-life-in-your-portable-pc-guided-by-yl-computing-experts/"><u>Masterful Strategies for Prolonged Battery Life in Your Portable PC – Guided by YL Computing Experts</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/seo-strategies-in-2009-focusing-on-attraction-sex-or-brand-development-for-online-success/"><u>SEO Strategies in 2009: Focusing on Attraction (SEX) or Brand Development for Online Success?</u></a></li>
+<li><a href="https://article-files.techidaily.com/transformative-idea-capture-via-mematic-software/"><u>Transformative Idea Capture via Mematic Software</u></a></li>
 </ul></div>
 

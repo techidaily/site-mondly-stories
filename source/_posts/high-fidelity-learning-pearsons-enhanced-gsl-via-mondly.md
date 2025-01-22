@@ -1,7 +1,7 @@
 ---
 title: "High Fidelity Learning: Pearson's Enhanced GSL via Mondly"
-date: 2024-09-15T16:16:11.563Z
-updated: 2024-09-16T16:06:01.325Z
+date: 2025-01-21T16:36:07.858Z
+updated: 2025-01-22T16:27:28.708Z
 tags:
   - speak
   - english
@@ -38,9 +38,17 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **How Pearson created the GSL**
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Why the GSL stands out**
 
@@ -49,10 +57,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Why start with French, Spanish, and Italian?**
@@ -62,6 +67,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  Moreover, the Romance languages, with their shared Latin roots and interconnected nuances, offer a fascinating study when approached with the precision of the GSL.
 
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Language learning backed by unparalleled global research**
 
@@ -75,10 +84,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Fast-track your progress with Mondly by Pearson**
@@ -100,5 +106,22 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-amplify-your-audio-presence-learn-to-modify-voices-for-free/"><u>[Updated] 2024 Approved Amplify Your Audio Presence Learn to Modify Voices for FREE</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-cash-creation-in-content-a-deep-dive-into-vids-and-videos-for-2024/"><u>[Updated] Cash Creation in Content A Deep Dive Into Vids and Videos for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-essential-list-top-9-multi-device-collaboration-apps-iosandroid-reviewed/"><u>[Updated] In 2024, Essential List Top 9 Multi-Device Collaboration Apps iOS/Android Reviewed</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unlocking-secrets-the-battle-of-biometric-systems-in-phones/"><u>[Updated] Unlocking Secrets The Battle of Biometric Systems in Phones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprovechando-la-pronunciacion-para-colores/"><u>Aprovechando La Pronunciación Para Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/button-pressing-on-keyboards-the-uk-us-disparity/"><u>Button Pressing on Keyboards: The UK-US Disparity</u></a></li>
+<li><a href="https://fox-links.techidaily.com/compilation-of-top-mobile-photo-and-film-editors/"><u>Compilation of Top Mobile Photo & Film Editors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-europes-tongues-language-diversity-declared/"><u>Embrace Europe's Tongues: Language Diversity Declared</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-get-and-install-logitech-hd-webcam-c525-drivers-on-your-window-pc-a-comprehensive-guide/"><u>How to Get and Install Logitech HD Webcam C525 Drivers on Your Window PC: A Comprehensive Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-zero-5g-2023-turbo-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Infinix Zero 5G 2023 Turbo Phone Without Password?</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/kodi-imdb-integration-tutorial-building-and-using-your-movie-lists-step-by-step-guide/"><u>Kodi IMDB Integration Tutorial: Building and Using Your Movie Lists - Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multi-language-navigation-button-enhanced-for-oculus-quest-users/"><u>Multi-Language Navigation Button Enhanced for Oculus Quest Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-counting-made-simple-a-guide/"><u>Russian Counting Made Simple: A Guide</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-chatgpt-ios-app-top-9-solutions-for-connection-issues/"><u>Troubleshooting ChatGPT iOS App: Top 9 Solutions for Connection Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-secrets-of-culinary-excellence-with-these-6-essential-tips/"><u>Unlock the Secrets of Culinary Excellence with These 6 Essential Tips</u></a></li>
+</ul></div>
 

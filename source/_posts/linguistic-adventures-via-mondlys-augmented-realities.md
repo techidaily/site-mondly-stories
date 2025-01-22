@@ -1,7 +1,7 @@
 ---
 title: Linguistic Adventures via Mondly's Augmented Realities
-date: 2024-09-26T22:19:34.826Z
-updated: 2024-10-01T19:22:38.187Z
+date: 2025-01-18T16:17:57.422Z
+updated: 2025-01-22T16:22:22.999Z
 tags:
   - speak
   - english
@@ -31,10 +31,11 @@ thumbnail: https://thmb.techidaily.com/1b5bd1138535c35f66522db0e8712af2e5e414384
 _ ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 2") _
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## _An out of this world encounter_
@@ -43,18 +44,15 @@ _ ![AUGMENTED REALITY LION](https://media.giphy.com/media/ckAvyr8RNxvc0Tbued/gip
 
 _ ![AR Mondly Languages](https://media.giphy.com/media/5eF84ByiI55ql9Xyrk/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 3") _
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  _But the coolest feature is yet to come. You just have to ask her to show you an animal. “Show me a rabbit” – I said – and a virtual rabbit magically appeared on the floor. I got to tell you: I have never been so amazed when seeing a rabbit in my whole life. Besides that, I learned that “rabbit” is “conejo” in Spanish. The rabbit started jumping around and I suddenly felt that anything could happen at this point so I quickly asked her to show me another animal fearing that the rabbit could take me to Wonderland._
 
  _The cow, the chicken and the flying eagle followed and I was simply mesmerized. I truly felt like a kid all over again. I walked around the room and discovered that I was capable to see Mondly and the animals from different angles and distances. I’m almost 24, but I’m quite sure that my 70 years old grandmother would also enjoy this as much as I did. When the elephant appeared I had to take a step back to see it better because it was enormous, like actual elephant size enormous._
 
 _ ![AUGMENTED REALITY MONDLY LANGUAGES](https://media.giphy.com/media/gC1iUtDE9Tkh0wDx3O/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 4") _
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## _Building the future of learning and teaching_
 
@@ -67,10 +65,7 @@ _ ![AR language learning app](https://media.giphy.com/media/C9pYCWN2mjxuWD0ufF/g
  _Now, I was indeed amazed, but there may be room for improvement. I’m sure that until the launch they will work more on the conversation topics, but when technology makes it possible I expect the character and the animals to be more realistic. I’ve seen it in games, so I’m sure that this will soon be possible in AR._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## _Pokémon Go is cool, but can’t we all be a little more productive?_
@@ -80,10 +75,7 @@ _ ![AR language learning app](https://media.giphy.com/media/C9pYCWN2mjxuWD0ufF/g
 _ ![MondlyAR app](https://media.giphy.com/media/2yyH5SzNqpUzwwN3TZ/giphy.gif "The New Augmented Reality App From Mondly Is The Future Of Language Learning 6") _
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  _As I left their headquarters in my 2004 Peugeot 206, I realized that these people live in the future and I am a decade behind them. Hopefully, smart use of technology like theirs will help us make our way to the future._
@@ -112,19 +104,17 @@ _ ![MondlyAR app](https://media.giphy.com/media/2yyH5SzNqpUzwwN3TZ/giphy.gif "Th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/updated-scouting-talent-top-5-video-artists-who-create-with-rhythm-and-beat/"><u>[Updated] Scouting Talent Top 5 Video Artists Who Create With Rhythm & Beat</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-the-ultimate-ios-screenshoting-hack-for-2024/"><u>[Updated] The Ultimate iOS Screenshoting Hack for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-iphone-hacks-for-capturing-stunning-skyline-shots/"><u>2024 Approved Top iPhone Hacks for Capturing Stunning Skyline Shots</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/asian-language-hierarchy-first-second-third-leaders/"><u>Asian Language Hierarchy: First, Second, Third Leaders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/efficient-strategies-online-learning-lithuanian-success/"><u>Efficient Strategies: Online Learning Lithuanian Success</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/enable-scanned-device-functionality-in-windows-10/"><u>Enable Scanned Device Functionality in Windows 10</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/fifa-world-cup-russia-2018-complete-guide-with-strategies-and-tips/"><u>FIFA World Cup Russia 2018: Complete Guide with Strategies and Tips</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ng-your-portal-to-youtubes-video-mastery-hub/"><u>Finding Your Portal to YouTube's Video Mastery Hub</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ideal-scandinavian-films-to-perfect-your-danish/"><u>Ideal Scandinavian Films to Perfect Your Danish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/impressive-interactions-top-50-classics-in-latin-for-charm/"><u>Impressive Interactions - Top 50 Classics in Latin for Charm</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-vivo-y78t-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Vivo Y78t FRP Bypass Instantly</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-aiming-for-the-stars-select-7-top-shooter-experiences/"><u>In 2024, Aiming for the Stars Select 7 Top Shooter Experiences</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/unlocking-your-podcast-potential-on-ios-from-script-to-success-for-2024/"><u>Unlocking Your Podcast Potential on iOS From Script to Success for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-harmony-a-linguistic-springtime-greeting/"><u>Worldwide Harmony: A Linguistic Springtime Greeting</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/astering-the-art-of-incorporating-youtube-in-slate-presentations-for-2024/"><u>[New] Mastering the Art of Incorporating YouTube in Slate Presentations for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pros-and-cons-reviewing-nikon-d7500/"><u>[New] Pros & Cons Reviewing Nikon D7500</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-strategies-for-seamless-sound-transitions-in-adobe-premiere/"><u>2024 Approved Expert Strategies for Seamless Sound Transitions in Adobe Premiere</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-top-5-cinematiccamera-tips/"><u>2024 Approved Top 5 Cinematic/Camera Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/analyzing-the-strengths-and-weaknesses-of-pidgin-chat-software/"><u>Analyzing the Strengths & Weaknesses of Pidgin Chat Software</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpts-academic-perks-essential-uses-for-student-success/"><u>ChatGPT's Academic Perks: Essential Uses for Student Success</u></a></li>
+<li><a href="https://win-dash.techidaily.com/comprehensive-guide-for-acquiring-and-configuring-toshiba-printer-software-with-windows/"><u>Comprehensive Guide for Acquiring and Configuring Toshiba Printer Software with Windows</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-spanish-numbers-for-beginners/"><u>Learning Spanish Numbers for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/living-linguistically-essential-steps-for-seamless-language-integration/"><u>Living Linguistically: Essential Steps for Seamless Language Integration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-language-tests-elite-certification-and-study-blueprint/"><u>Navigating Language Tests: Elite Certification & Study Blueprint</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/professioneller-kostenfreier-player-fur-wmv-dateien-ideal-fur-mac-and-windows-betriebssysteme/"><u>Professioneller Kostenfreier Player Für WMV Dateien - Ideal Für Mac & Windows Betriebssysteme</u></a></li>
 </ul></div>
 

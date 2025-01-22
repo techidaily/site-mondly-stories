@@ -1,7 +1,7 @@
 ---
 title: "Worldwide Breakfast Banter: How to Say 'Good Morning'"
-date: 2025-01-10T16:56:27.358Z
-updated: 2025-01-16T08:53:21.306Z
+date: 2025-01-21T17:45:04.356Z
+updated: 2025-01-22T16:19:32.015Z
 tags:
   - speak
   - english
@@ -46,7 +46,7 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Both “bonjour” and “bon matin” are appropriate in both formal and informal settings and can be used with friends and strangers alike.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Good morning in German:_Guten Morgen!_
@@ -62,7 +62,7 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Literally meaning “good day”, “buongiorno” can safely be used in all kinds of social contexts from morning until after lunch.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Good morning in Portuguese:_Bom dia!_
@@ -75,6 +75,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 [Learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-7421&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7421&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7421)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Good morning in Russian:_Доброе утро!_
 
  To say [“good morning” in Russian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can use the phrase “доброе утро” which is pronounced “Dobroye utro”. This is the most popular way to greet people in the morning.
@@ -83,19 +87,11 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Additionally, if you want to go the extra mile, it is considered polite to ask about the person’s well-being after greeting them. For example, “как дела?”_(kak dela?)_ which means “how are you?” is often used in conjunction with “доброе утро”_(dobraye utro)_ . This makes the greeting more friendly and personal.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. Good morning in Chinese:_早上好！_
 
  早上好_(Zǎoshang hǎo)_ is how you normally say “good morning” in Chinese. However, if you want to keep it short and sound more like a native, you can just simply say 早_(zǎo)_ .
 
  The same as the English “good morning”, 早 (zǎo) can be used in most social settings provided it’s morning, of course.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 8\. Good morning in Japanese:_おはようございます！_
 
@@ -106,7 +102,7 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 !["Good morning in Spanish" by Dawid Zawiła©](https://edge.mondly.com/blog/wp-content/uploads/2023/01/good-morning-in-spanish-960x640.jpg "How To Say Good Morning In 10 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. Good morning in Arabic:_صباح الخير!_
@@ -116,6 +112,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  Other morning greetings in Arabic include يسعد صباحكم_(_ _Yaseed sabahkom)_ which translates to “may you have a nice morning”, صباح الياسمين_(_ _Sabah al Yasmine)_ meaning “a morning full of jasmine”, and صباح أل عشت_(_ _Sabah al ishta)_ which is “a morning full of cream”.
 
  Careful though! As beautiful as they sound, these last examples can only be used with friends or people who are very close to your heart.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. Good morning in Hindi:_सुप्रभात!_
 
@@ -165,24 +165,15 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-gaining-heavy-followers-and-verification-status-a-quick-guide-with-top-6-insights/"><u>[New] In 2024, Gaining Heavy Followers & Verification Status A Quick Guide with Top 6 Insights</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-digital-tales-fundamentals-the-core-principles/"><u>[Updated] 2024 Approved Digital Tales Fundamentals The Core Principles</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-latest-vr-gaming-engines-review-2023-edition-for-2024/"><u>[Updated] Latest VR Gaming Engines Review - 2023 Edition for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-asmr-insights-understanding-its-health-benefits/"><u>2024 Approved ASMR Insights Understanding Its Health Benefits</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/disabled-apple-iphone-12-pro-max-how-to-unlock-a-disabled-apple-iphone-12-pro-max-by-drfone-ios/"><u>Disabled Apple iPhone 12 Pro Max How to Unlock a Disabled Apple iPhone 12 Pro Max?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-vivo-y100-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Vivo Y100 For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-star-app-by-apple-today/"><u>International Star App by Apple Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introduccion-al-medir-tiempo-en-espanol/"><u>Introducción Al Medir Tiempo en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/jour-de-fois-francais/"><u>Jour De Fois Français</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-delights-selecting-top-film-selections/"><u>Multilingual Delights: Selecting Top Film Selections</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/opening-doors-with-russian-vital-travel-linguistic-tools/"><u>Opening Doors with Russian: Vital Travel Linguistic Tools</u></a></li>
-<li><a href="https://program-issues.techidaily.com/pc-players-rejoice-tormented-souls-no-longer-plagued-by-frequent-crashes/"><u>PC Players Rejoice: Tormented Souls No Longer Plagued by Frequent Crashes!</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/screen-captures-galore-expert-techniques-for-twitter-visuals-for-2024/"><u>Screen Captures Galore Expert Techniques for Twitter Visuals for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seamless-hangul-acquisition-the-korean-alphabet-in-a-nutshell/"><u>Seamless Hangul Acquisition: The Korean Alphabet in a Nutshell</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seamless-transition-into-the-world-of-latin/"><u>Seamless Transition Into the World of Latin</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-turkish-alphabet-decoded-an-inclusive-language-learning-tool/"><u>The Turkish Alphabet Decoded: An Inclusive Language Learning Tool</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/vertrauenswurdig-und-zuverlassig-top-ersatz-fur-den-acronis-server/"><u>Vertrauenswürdig Und Zuverlässig: Top-Ersatz Für Den Acronis Server</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-travelers-handbook-the-top-105-croatian-language-tools-you-need/"><u>Your Traveler’s Handbook: The Top 105 Croatian Language Tools You Need</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/movavi-jpgjpeg/"><u>무료 Movavi에서 인터넷에서 JPG/JPEG 이미지 변환 서비스 - 편집기</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-ultimate-hue-harmonizer-software/"><u>[New] Ultimate Hue Harmonizer Software</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-high-performance-video-calls-a-curated-ranking-of-top-10-apps/"><u>[Updated] 2024 Approved High-Performance Video Calls A Curated Ranking of Top 10 Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cosmic-conversations-diving-deep-into-star-wars-languages/"><u>Cosmic Conversations: Diving Deep Into Star Wars Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crescendo-of-comprehension-musical-techniques-for-learning-languages/"><u>Crescendo of Comprehension: Musical Techniques for Learning Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dubai-expo-2020-shaping-global-polyglots/"><u>Dubai Expo 2020: Shaping Global Polyglots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581333482-find-your-voice-flawlessly-choose-mondly/"><u>Find Your Voice Flawlessly – Choose Mondly!</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-from-apple-iphone-15-smoothly-by-drfone-ios/"><u>How To Remove iCloud From Apple iPhone 15 Smoothly</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-oneplus-11-5g-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost OnePlus 11 5G Device</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigate-with-ease-selecting-the-perfect-mice-for-your-mac-this-year/"><u>Navigate with Ease: Selecting the Perfect Mice for Your Mac This Year</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/remove-the-lock-screen-fingerprint-of-your-sony-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Sony</u></a></li>
 </ul></div>
 

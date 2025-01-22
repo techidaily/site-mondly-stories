@@ -1,7 +1,7 @@
 ---
 title: The Worldwide Hispanic Voice Network
-date: 2025-01-11T04:18:20.474Z
-updated: 2025-01-16T06:19:04.093Z
+date: 2025-01-16T17:39:57.275Z
+updated: 2025-01-22T16:57:23.450Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
  Without further ado, let’s dive in and uncover the full list of Spanish-speaking countries. While we’re at it, we’ll also look into the history behind the expansion of the Spanish language and how many people [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) today.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How many people speak Spanish?
 
 **As of 2022, 548 million people speak Spanish worldwide.** This number includes both native and non-native speakers. However, the ‘unofficial’ number could be bigger than that.
@@ -42,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
  Now just imagine how many new friends you could make if you started [learning Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) now!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## List of Spanish-speaking countries
 
  **Formally, Spanish is the official language of 20 countries and one dependent territory: Argentina, Bolivia, Chile, Colombia, Costa Rica, Cuba, Dominican Republic, Ecuador, El Salvador, Equatorial Guinea, Guatemala, Honduras, Mexico, Nicaragua, Panama, Paraguay, Peru, Spain, Uruguay, Venezuela and Puerto Rico.**
@@ -56,12 +56,16 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
 !['How many people speak Spanish' by Cecy Alvarado©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/how-many-people-speak-spanish-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In addition to the 20 countries, Spanish is also the official language of several international organizations. These include the United Nations, the European Union, the Organization of American States, the Union of South American Nations, the Community of Latin American and Caribbean States, the [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Union and many other international organizations.
 
  Now let’s go into a little more detail and split the countries into continents.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Spanish-speaking countries in South America
@@ -79,6 +83,10 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 * Peru — 87%
 * Uruguay — 98%
 * Venezuela — 97%
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in Central America
 
@@ -98,10 +106,6 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
  Considering that the Spanish language came here from Europe a few centuries back, it’s fascinating that Mexico is the world’s most populous Hispanophone country. In addition to Spanish, the Mexican government recognizes 68 national languages, 63 of which are indigenous. Examples include Nahuatl, Yucatec Maya, Zapotec, Mixtec, Mayo, Yaqui, Tzeltal, Tzotzil, Chol, Totonac, Purépecha and more.
 
 * Mexico — 97% (percentage of the entire population speaking Spanish)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Spanish-speaking countries in the Caribbean
 
@@ -126,7 +130,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 !['Spanish speakers' by Florian Wehde©](https://edge.mondly.com/blog/wp-content/uploads/2022/11/spanish-speakers-960x640.jpg "Full List Of Spanish-Speaking Countries — How Many People Speak Spanish? 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Countries where Spanish is spoken although it’s not an official language
@@ -136,10 +140,6 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
  One reason is that Spain was once a very powerful empire and its influence can still be seen in many parts of the world. Another reason is that many people from Spanish-speaking countries have migrated and brought their language with them. Probably the best example is **the United States where more than 41 million people speak Spanish as a native language.**
 
  Other countries with large minorities of Spanish speakers are Belize, the Philippines (Spanish was an official language here from 1565 to 1973), Gibraltar and Andorra.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## A brief history of the Spanish language
 
@@ -191,22 +191,17 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-immediate-capture-in-zoom-conferences-via-snap/"><u>[New] In 2024, Immediate Capture in Zoom Conferences via Snap</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-leading-youtube-themes-for-captivating-opens/"><u>[New] In 2024, Leading YouTube Themes for Captivating Opens</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-android-and-iphones-powerful-picklist-boosting-facebook-likeability/"><u>[Updated] Android & iPhone's Powerful Picklist Boosting Facebook Likeability</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-mastering-basic-tone-alterations-in-ps/"><u>[Updated] Mastering Basic Tone Alterations in PS</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-ultimate-guide-to-best-internet-recording-tools-2023/"><u>[Updated] Ultimate Guide to Best Internet Recording Tools 2023</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/future-ready-wi-fi-enhancement-an-in-depth-look-at-the-netgear-nighthawk-ax8-mesh-extender/"><u>Future-Ready Wi-Fi Enhancement: An In-Depth Look at the Netgear Nighthawk AX8 Mesh Extender</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/get-into-advanced-dialogue-the-next-gen-ai-partner/"><u>Get Into Advanced Dialogue: The Next-Gen AI Partner</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-gratitude-a-polyglots-toolkit-for-thank-you-phrases-157-trimmed-to-fit/"><u>Global Gratitude: A Polyglot's Toolkit for Thank You Phrases (157) [Trimmed to Fit]</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/harnessing-artificial-intelligence-for-efficient-learning/"><u>Harnessing Artificial Intelligence for Efficient Learning</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-xiaomi-redmi-13c-5g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Xiaomi Redmi 13C 5G Phones with/without a PC</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/latest-updates-for-intel-integrated-graphics-drivers-compatible-with-windows-11/"><u>Latest Updates for Intel Integrated Graphics Drivers: Compatible with Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-speech-best-linguistic-practices-for-clear-conversation/"><u>Mastering Speech: Best Linguistic Practices for Clear Conversation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/semana-completa-memorizar-los-dias-en-espanol-de-nuevo/"><u>Semana Completa: Memorizar Los Días En Español De Nuevo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spellbound-in-sicily-mastering-20plus-local-slants/"><u>Spellbound in Sicily: Mastering 20+ Local Slants</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-digital-language-odyssey-begins-with-arabic-lessons-from-mondly-online/"><u>The Digital Language Odyssey Begins with Arabic Lessons From Mondly Online</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/the-ultimate-guide-to-producing-quality-social-media-film/"><u>The Ultimate Guide to Producing Quality Social Media Film</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-top-5-language-learning-applications/"><u>Ultimate Guide: Top 5 Language Learning Applications</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-extract-your-fb-videos-effortlessly-anywhere-for-2024/"><u>[Updated] Extract Your FB Videos Effortlessly, Anywhere for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-key-strategies-for-professional-video-production-via-nvidia/"><u>[Updated] Key Strategies for Professional Video Production via NVIDIA</u></a></li>
+<li><a href="https://extra-information.techidaily.com/5-ultimate-platforms-for-high-quality-text-embellishments-for-2024/"><u>5 Ultimate Platforms for High-Quality Text Embellishments for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577851696-become-a-croatian-connoisseur-heres-your-list-of-7-key-benefits/"><u>Become a Croatian Connoisseur – Here's Your List Of 7 Key Benefits!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/british-and-american-english-a-comparative-study/"><u>British and American English: A Comparative Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/demystifying-math-learning-russian-arithmetic-skills/"><u>Demystifying Math: Learning Russian Arithmetic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-mondly-language-learning-leader-of-2022/"><u>Discover Mondly: Language Learning Leader of 2022</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/from-live-to-recorded-a-skilled-approach-to-skype-chat-documentation/"><u>From Live to Recorded A Skilled Approach to Skype Chat Documentation</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-samsung-ubd-k8500-review-2023-update/"><u>In 2024, Samsung UBD-K8500 Review - 2023 Update</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/installing-your-hp-printer-on-windows-universal-drivers-ready/"><u>Installing Your HP Printer on Windows: Universal Drivers Ready</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581063210-make-2023-your-best-save-96-on-mondly-premium/"><u>Make 2023 Your Best: Save $96 on Mondly Premium</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-the-potential-of-non-mic-sound-capture-methods-for-2024/"><u>Unlocking the Potential of Non-Mic Sound Capture Methods for 2024</u></a></li>
 </ul></div>
 

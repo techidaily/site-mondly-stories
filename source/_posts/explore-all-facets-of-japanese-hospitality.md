@@ -1,7 +1,7 @@
 ---
 title: Explore All Facets of Japanese Hospitality
-date: 2024-09-09T19:42:44.326Z
-updated: 2024-09-16T18:05:30.003Z
+date: 2025-01-15T16:19:48.974Z
+updated: 2025-01-22T16:14:38.393Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/4914ba55ffacf89f7eecf219812b0360d597ec646
  Japanese culture is the culture of respect. You don’t have to visit Japan to know that. We all heard about the famously polite**Japanese bow** and about the big emphasis Japanese people place on the respect of hierarchy in the family and etiquette in general. It’s in their DNA. And the same as its culture, the**Japanese language** is one of the most polite languages in the world. It’s true that, as a tourist, you don’t have to [learn Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to perfection, but you know what they say: when in Rome, do as the Romans do and you will certainly increase the enjoyment of your adventure.
 
  Learning as much as a simple **_Konnichiwa_ (“hello” in Japanese)** or **_Arigato_ (“thank you” in Japanese)** can work wonders. So here’s a guide to all the**Japanese greetings** you’ll need in your Japanese adventure: from**“hello” in Japanese** to**_Moshi Moshi_** (used to say “hello” on the phone), goodbye and other**common Japanese greetings.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. “Hello” in Japanese
 
@@ -65,6 +69,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
 ## 3.“Goodbye” in Japanese
@@ -85,20 +93,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “See you soon, human” by Alain Pham©
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -124,13 +122,14 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Kyoto, Japan” by Andre Benz©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Don’t forget about the Japanese bow
@@ -200,5 +199,21 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-building-a-sustainable-income-via-youtube-and-adsense/"><u>[New] Building a Sustainable Income via YouTube and AdSense</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-youtube-to-mpeg-transformation-hacks-you-need/"><u>[New] YouTube-to-MPEG Transformation Hacks You Need</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-broadcast-bliss-the-most-accurate-local-and-online-tv-services/"><u>[Updated] Broadcast Bliss The Most Accurate Local and Online TV Services</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-superior-websites-to-ditch-twitter-completely/"><u>[Updated] Superior Websites to Ditch Twitter Completely</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unveiling-the-mystery-of-facebooks-status-video-downloads/"><u>[Updated] Unveiling the Mystery of Facebook's Status Video Downloads</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-desktop-route-to-viral-video-success-with-tiktok/"><u>2024 Approved The Desktop Route to Viral Video Success with TikTok</u></a></li>
+<li><a href="https://solve-help.techidaily.com/best-software-tools-to-transform-avi-videos-into-mp4-format-on-windows-pcs/"><u>Best Software Tools to Transform AVI Videos Into MP4 Format on Windows PCs</u></a></li>
+<li><a href="https://techtrends.techidaily.com/fixing-errors-when-btballoondll-cant-be-found-on-your-computer/"><u>Fixing Errors When btballoon.dll Can't Be Found on Your Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jolly-rogers-jargon-top-20-expressions-for-the-brave/"><u>Jolly Roger's Jargon: Top 20 Expressions for the Brave</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-semana-completa-ensenada-en-castellano/"><u>La Semana Completa Enseñada en Castellano</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-the-smart-snacking-app-google-plays-best-of-2017/"><u>Mondly Kids: The Smart Snacking App, Google Play’s Best of 2017</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-journey-into-ar-powered-linguistics/"><u>Mondly's Journey Into AR-Powered Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-to-learning-10-essential-spanish-salutations/"><u>Step-By-Step Guide to Learning 10 Essential Spanish Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worlds-words-wisdom-the-extended-entity/"><u>World's Words Wisdom: The Extended Entity</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Lerne Deutsche Wochenabschnitte Erkennen
-date: 2024-09-13T20:14:04.399Z
-updated: 2024-09-16T19:07:12.993Z
+date: 2025-01-18T16:33:25.199Z
+updated: 2025-01-22T17:15:08.226Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/470729e2db7d552929f896fede9bd2112971e2401
  If someone asks_welchen Wochentag haben wir heute?_ (“which day of the week do we have today?”), what do you answer? The days of the week are probably one of the first things you learn not just in German but in any language. As a toddler, you probably started with “mom”, “dad”, “hello”, and “thank you”, then you probably advanced to counting, colors, and, naturally, the days of the week. So, if you are on your way to [learning German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , the days of the week in German are surely a good starting point.
 
  If you think about it, the_Tage_ (days) of the_Woche_ (week) is one of the most basic and important language lessons. Simply knowing these seven short words will help you set up meetings, and dates and create a weekly agenda that will decide your every social and professional move. After all, our entire life revolves around the concept of time and the many ways we keep track of it: seconds, minutes, hours, days, weeks, months, years, and so on. So let’s help you get started and see which are the weekdays in German.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The days of the week in German
 
@@ -42,6 +46,10 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
 
 ![days of the week in German](https://edge.mondly.com/blog/wp-content/uploads/2020/08/days-of-the-week-in-german-960x960.jpg "Learn The Days Of The Week In German 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The days of the week in German
 
 **“Thursday”** which is_**Donnerstag**_ in German literally means “thunder’s day”. The day was originally named after Thor, the super awesome Norse god Marvel made famous. In German-speaking cultures, Thor was known as Donar so this is where_Donnerstag_ comes from. Obviously, the English word “Thursday” comes from “Thor’s day”.
@@ -53,6 +61,10 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
 **_Sonntag_ (“Sunday”)** comes from the [German word](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) _Sonne_ (“sun”). So_Sonntag_ and “Sunday” are both literally “the day of the sun” or “sun-day”.
 
  As you can see, the German days of the week are very similar to English, so you shouldn’t have a hard time remembering them. But, if you do, you can always [get Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5415&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de) , the award-winning language learning app that brings together crystal clear audios recorded by fluent voice actors, real conversations, and practical topics to make [German easy to learn](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5415&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5415?mother%5Flang=en%5Fus?target%5Flang=de) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to use the German days of the week correctly
 
@@ -92,12 +104,21 @@ _**Mittwoch**_ , the only German weekday that doesn’t end in_tag_ , simply mea
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-elevate-the-visual-appeal-of-your-video-credits/"><u>[New] In 2024, Elevate the Visual Appeal of Your Video Credits</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-multimedia-mastery-tips-for-mass-photo-and-video-uploads/"><u>[New] Instagram Multimedia Mastery Tips for Mass Photo & Video Uploads</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-effortlesswebcamcapturewithyoucam-for-2024/"><u>[Updated] EffortlessWebcamCaptureWithYouCam for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-vita-video-editor-app-review-for-2024/"><u>[Updated] Vita Video Editor App Review for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-comprehensive-guide-to-macs-preferred-snippers/"><u>2024 Approved Comprehensive Guide to Mac's Preferred Snippers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-the-landscape-intricacies-of-using-the-background-eraser-feature/"><u>2024 Approved Navigating the Landscape Intricacies of Using the Background Eraser Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciding-on-a-more-useful-foreign-language-german-vs-french/"><u>Deciding on a More Useful Foreign Language: German vs French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/festivities-for-1500-effortless-learning-moments/"><u>Festivities for 1,500 Effortless Learning Moments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hope-amidst-poverty-colombias-danny-fund/"><u>Hope Amidst Poverty: Colombia's Danny Fund</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-get-past-cold-war-game-stalling-at-start-up-for-both-desktop-and-gaming-consoles/"><u>How to Get Past 'Cold War' Game Stalling at Start-Up for Both Desktop and Gaming Consoles</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-everything-from-apple-iphone-se-to-iphone-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Everything from Apple iPhone SE to iPhone | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/rethink-windows-11-the-top-10-best-replacement-software/"><u>Rethink Windows 11: The Top 10 Best Replacement Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-declaring-affection-in-hungarian/"><u>The Art of Declaring Affection in Hungarian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-secret-to-perfectly-fried-eggs-every-time-10-tips-93-characters/"><u>The Secret to Perfectly Fried Eggs Every Time, 10 Tips (93 Characters)</u></a></li>
+</ul></div>
 

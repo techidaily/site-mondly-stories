@@ -1,7 +1,7 @@
 ---
 title: The Fundamentals of Fluent Russian Communication
-date: 2025-01-10T05:16:11.276Z
-updated: 2025-01-16T03:33:29.192Z
+date: 2025-01-17T16:06:39.099Z
+updated: 2025-01-22T17:32:54.371Z
 tags:
   - speak
   - english
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
  Here, just as everywhere else, greetings set the tone for interactions. A mere gesture of using the local Russian language can elevate a simple interaction to a heartfelt connection. Even without mastering the entire language, familiarizing yourself with basic Russian phrases such as “hello”, “good morning”, “please”, “thank you”, or simply “yes” can create welcoming moments and forge bonds.
 
  In this guide, we will delve into both common and unique Russian greetings. So if you’ve ever wondered how to**greet in Russian** and witness its transformative power, you’re in the right place. Welcome to the heart of Russia, one greeting at a time.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 1\. Most common Russian greetings
 
@@ -57,19 +53,11 @@ Good job, you!
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Russian Greetings: Common Phrases And Basic Words 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Learn Russian today
 
  Build practical Russian skills for real life with Mondly.
 
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2406&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2406%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Additional Russian greetings Russians use
 
@@ -83,6 +71,10 @@ Good job, you!
 
 ![hi in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hi-in-russian.jpg "Russian Greetings: Common Phrases And Basic Words 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Russian farewells
 
  Goodbyes are just as important as greetings. When you’re taking your leave, you can bid adieu with**До свидания (Do svidaniya)** in Russian, which means “until we see each other again”. Some of the most common Russian farewells include:
@@ -92,6 +84,10 @@ Good job, you!
 * **До встречи (Do vstrechi)** – See you soon: This is a bit more formal than Пока (Poka) and technically very similar to До свидания (Do svidaniya). The only difference is that it implies that you actually intend to meet later with the person you’re addressing it to.
 * **Увидимся (Uvidimsya)** – See you: It’s relatively informal and akin to the English “see you later”. You can tell your friends Увидимся (Uvidimsya) if you expect to meet them again in the near future.
 * **До скорого (Do skorogo)** – See you soon: It’s a warm farewell, yet rather polite. In practice, it aligns more with “see you” than “see you soon”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Helpful phrases for greetings
 
@@ -129,7 +125,7 @@ Good job, you!
  If you feel like you need more information on Russian greetings, here are some frequently asked questions. Maybe you’ll find your answer here.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How can I learn to pronounce Russian words correctly?
@@ -137,12 +133,16 @@ Good job, you!
  Use transliteration. It can be tricky to get the hang of Russian words using the Cyrillic alphabet, so resources that use transliteration will always come in handy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How do Russians say “hello” and “goodbye”?
 
  Здравствуйте (Zdravstvuyte) is generally used for slightly formal hellos, while Привет (Privyet) is more suitable for casuals settings. The most common way to say “goodbye” in Russian is До свидания (Do svidaniya).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How can I greet someone respectfully in Russian if I don’t know their name?
 
@@ -182,24 +182,15 @@ Good job, you!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-optimize-media-storage-tips-and-tricks-for-mov-on-windows-pcs/"><u>[New] In 2024, Optimize Media Storage Tips & Tricks for .mov on Windows PCs</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/2024-approved-crafting-captivating-audio-representations-syncopated-waveform-graphics-and-transformative-animation-in-adobe-premiere-pro/"><u>2024 Approved Crafting Captivating Audio Representations Syncopated Waveform Graphics and Transformative Animation in Adobe Premiere Pro</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-discovering-the-ultimate-solution-showmores-recording-mastery/"><u>2024 Approved Discovering The Ultimate Solution ShowMore's Recording Mastery</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-vivo-t2-pro-5g-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Vivo T2 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/app-wont-open-on-your-nokia-g310-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Nokia G310? Here Are All Fixes | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-leading-spots-for-stunning-3d-metallic-type-creations/"><u>In 2024, Leading Spots for Stunning 3D Metallic Type Creations</u></a></li>
-<li><a href="https://techtrends.techidaily.com/instagram-message-editing-101-a-comprehensive-guide-for-beginners/"><u>Instagram Message Editing 101: A Comprehensive Guide for Beginners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-leap-practical-steps-towards-complete-linguistic-integration/"><u>Language Leap: Practical Steps Towards Complete Linguistic Integration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-leap-prime-programs-for-strong-communicators/"><u>Language Leap: Prime Programs for Strong Communicators</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-choices-amongst-the-jewish-states-citizines/"><u>Linguistic Choices Amongst the Jewish State's Citizines?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mellifluous-multilingualism-the-science-of-music-in-learning/"><u>Mellifluous Multilingualism: The Science of Music in Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-crafting-world-communicators-s-app-rankings/"><u>Mondly: Crafting World Communicators 'S App Rankings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-latest-language-guide-unveiled/"><u>Mondly's Latest Language Guide Unveiled</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-best-websites-to-add-emojis-to-photos-online/"><u>New Best Websites to Add Emojis to Photos Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapid-learning-for-polska-proficiency/"><u>Rapid Learning for Polska Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/scandinavian-screenplays-for-authentic-language-learning/"><u>Scandinavian Screenplays for Authentic Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/starting-point-essential-urdu-vocabulary-selection/"><u>Starting Point: Essential Urdu Vocabulary Selection</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-ultimate-lg-screen-chronicles-a-complete-review-of-4k-quality/"><u>The Ultimate LG Screen Chronicles A Complete Review of 4K Quality</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1722894087737-top-5-free-video-call-apps-skype-alternatives-you-must-try/"><u>Top 5 Free Video Call Apps : Skype Alternatives You Must Try</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-conquer-the-connection-mastering-insta-tik-linkage/"><u>[New] 2024 Approved Conquer the Connection Mastering Insta-Tik Linkage</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-shining-up-your-android-videos-effortlessly/"><u>[New] Shining Up Your Android Videos Effortlessly</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-prime-5-image-background-altering-mobile-apps-iphone/"><u>[Updated] Prime 5 Image Background Altering Mobile Apps (iPhone)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-impactful-reasons-for-multilingual-journey/"><u>7 Impactful Reasons for Multilingual Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-beginners-primer-on-friendly-interactions-in-china/"><u>A Beginner's Primer on Friendly Interactions in China</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-spanish-diacritics-and-their-significance/"><u>Deciphering Spanish Diacritics and Their Significance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/die-10-wichtigsten-deutschen-abschiedsworter/"><u>Die 10 Wichtigsten Deutschen Abschiedswörter</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-understanding-the-underrated-downsides-of-vr/"><u>In 2024, Understanding the Underrated Downsides of VR</u></a></li>
+<li><a href="https://win-community.techidaily.com/revive-lost-documents-top-7-strategies-for-retrieving-deleted-files-on-windows-11/"><u>Revive Lost Documents: Top 7 Strategies for Retrieving Deleted Files on Windows 11</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-complete-walkthrough-on-how-to-permanently-remove-your-tiktok-presence/"><u>The Complete Walkthrough on How To Permanently Remove Your TikTok Presence</u></a></li>
 </ul></div>
 

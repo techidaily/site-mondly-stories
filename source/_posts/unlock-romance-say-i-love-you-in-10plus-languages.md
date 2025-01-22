@@ -1,7 +1,7 @@
 ---
 title: "Unlock Romance: Say I Love You In 10+ Languages!"
-date: 2025-01-05T19:10:28.426Z
-updated: 2025-01-10T18:33:02.649Z
+date: 2025-01-15T18:00:54.137Z
+updated: 2025-01-22T18:07:09.932Z
 tags:
   - speak
   - english
@@ -56,6 +56,10 @@ Here are some more ways to say “I love you” in other languages:
 
  Is this still not enough? Here’s how saying “I love you” different languages can be fun:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say I love you – a quick guide for “I love you”s in 30 most common languages
 
  Modern society makes us feel so much and express so little! We’ve become shallow. Just like [the song](https://www.youtube.com/watch?v=bo%5FefYhYU2A) says, many of us aren’t probably happy in this modern world. We bury ourselves every day under mountains of unexpressed feelings often because of social media. We’re afraid to show our inner, deeper selves. We put on masks. We don’t dare to be romantic anymore. And still, our loved ones are the ones that get to discover more of ourselves. More than just a pretty face and a cool Instagram account. That’s because they drown us in authentic, real love. They see the best in us and stick around even the hardest times. And they deserve the same back. Always. Not just on Valentine’s Day. But every single day! Wine for him, flowers for her, little gifts for the both of them. Today. This is a reminder.
@@ -63,7 +67,7 @@ Here are some more ways to say “I love you” in other languages:
 ![i love you in french](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-french.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Now back to expressing your love in different languages. If you feel like the video above wasn’t enough for you, here’s how to write “I love you” in different languages – with transliterations where it’s needed. **Keep in mind that these aren’t always the most commonly used in their home country.** They are, instead, the most complete and grammatically correct – which is what you really need in the beginning.
@@ -89,7 +93,7 @@ Here are some more ways to say “I love you” in other languages:
 ![how to say i love you by Tyler Nix©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/how-to-say-i-love-you-scaled.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * **I love you in Croatian:** _Volim te!_
@@ -115,10 +119,6 @@ Here are some more ways to say “I love you” in other languages:
 
 **Here’s a short recap with only the correct pronunciations:**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## “I love you” in sign language
 
  To sign “I love you”, put up your thumb, index finger and pinkie finger while keeping your ring finger and your middle finger down. Like this:
@@ -126,11 +126,7 @@ Here are some more ways to say “I love you” in other languages:
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
@@ -138,6 +134,10 @@ Here are some more ways to say “I love you” in other languages:
  Now that you know how to say “I love you” in so many languages, here’s a sweet present idea you could use for your next anniversary or Valentine’s Day. All you need to buy is a big jar – big enough for all your love. The rest of it comes from the bottom of your heart. The first step is to prepare 365 pieces of paper of different colors and sizes and write “I love you” in different languages on the first 32 of them. Go wildly romantic with the rest of them: you could write love quotes for him or love quotes for her, poems or songs that you both like. Next step? Decorate the jar with tiny lights, pieces of lace or stickers.
 
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
@@ -224,24 +224,24 @@ _With you, my heart will forever blend._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-6-high-definition-21-hdmi-models-analyzed/"><u>[New] In 2024, 6 High-Definition 2.1 HDMI Models Analyzed</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-the-ultimate-comparison-between-sharex-and-rivals/"><u>[New] The Ultimate Comparison Between ShareX & Rivals</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-top-creators-fusing-photography-plus-video-with-captivating-musical-sounds/"><u>[Updated] 2024 Approved Top Creators Fusing Photography + Video with Captivating Musical Sounds</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-navigating-macs-best-screen-capturing-apps-and-tech-for-2024/"><u>[Updated] Navigating Mac's Best Screen Capturing Apps & Tech for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-multitude-of-cheers-for-your-special-day/"><u>A Multitude of Cheers for Your Special Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-apps-accelerating-global-communication-skills/"><u>Best Apps Accelerating Global Communication Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquering-vietnamese-a-beginners-phrasebook/"><u>Conquering Vietnamese: A Beginner's Phrasebook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deconstructing-jargon-a-slang-dictionary-for-the-informal-age/"><u>Deconstructing Jargon: A Slang Dictionary for the Informal Age</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-into-language-learning-in-virtual-reality-mondly-unveils-vr-edition/"><u>Dive Into Language Learning in Virtual Reality - Mondly Unveils VR Edition</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/durch-deutsche-tage-lernst-du/"><u>Durch Deutsche Tage Lernst Du</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-german-a-list-of-convincing-reasons/"><u>Embrace German: A List of Convincing Reasons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/emotive-epics-celebrating-french-romance/"><u>Emotive Epics: Celebrating French Romance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580711523-hello-in-japanese-all-the-japanese-greetings-you-need-to-know/"><u>Hello In Japanese - All The Japanese Greetings You Need To Know</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-from-sketches-to-stakes-leading-platforms-turning-art-into-nfts/"><u>In 2024, From Sketches to Stakes Leading Platforms Turning Art Into NFTs</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-things-you-must-know-for-screen-mirroring-apple-iphone-8-drfone-by-drfone-ios/"><u>In 2024, Things You Must Know for Screen Mirroring Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/restore-missing-app-icon-on-asus-rog-phone-8-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Asus ROG Phone 8 Step-by-Step Solutions | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/reviving-a-dell-wireless-keyboard-expert-tips-for-restoring-connection-and-responsiveness/"><u>Reviving a Dell Wireless Keyboard: Expert Tips for Restoring Connection and Responsiveness</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/reviving-your-lost-data-how-to-restore-unintentionally-or-permanently-deleted-files-on-windows-7-using-four-effective-methods/"><u>Reviving Your Lost Data: How to Restore Unintentionally or Permanently Deleted Files on Windows 7 Using Four Effective Methods</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/tailoring-your-multi-task-experience-safe-area-and-pip-settings-for-2024/"><u>Tailoring Your Multi-Task Experience Safe Area & PIP Settings for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nsights-into-youtubes-visionary-studio-platform-for-2024/"><u>[New] Insights Into YouTube's Visionary Studio Platform for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-digital-painting-prowess-picart-backdrop-exclusion-method/"><u>[Updated] In 2024, Digital Painting Prowess PicArt Backdrop Exclusion Method</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-the-ultimate-guide-to-organizing-fb-giveaways/"><u>2024 Approved The Ultimate Guide to Organizing FB Giveaways</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/amazons-must-have-savings-in-august-2nce-unveiling-the-hottest-deals-according-to-zdnet/"><u>Amazon's Must-Have Savings in August 2Nce: Unveiling the Hottest Deals, According to ZDNET</u></a></li>
+<li><a href="https://win-able.techidaily.com/bypassing-errgfxd3dinit-complication-to-enhance-your-grand-theft-auto-v-experience/"><u>Bypassing ERR_GFX_D3D_INIT Complication to Enhance Your Grand Theft Auto V Experience</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fix-cannot-paste-the-data-error-in-microsoft-excel-stellar-by-stellar-guide/"><u>Fix Cannot Paste the Data Error in Microsoft Excel | Stellar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-keywords-in-korean-for-squid-game-enthusiasts/"><u>Grasping Keywords in Korean for Squid Game Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guide-to-overcoming-call-of-duty-wwii-error-code-4128-glitches/"><u>Guide to Overcoming Call of Duty: WWII Error Code 4128 Glitches</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-marketing-layers-deconstructing-strategys-packaging/"><u>In 2024, Marketing Layers Deconstructing Strategy's Packaging</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-techniques-in-business-language-training/"><u>Innovative Techniques in Business Language Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/juvenile-jargon-expansion-kindergarten-elementary-learning-spanish/"><u>Juvenile Jargon Expansion: Kindergarten-Elementary Learning Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kid-app-sundae-mondly-plus-back-button-magic-on-play/"><u>Kid-App Sundae - Mondly + Back Button Magic on Play</u></a></li>
+<li><a href="https://common-error.techidaily.com/logitech-scroll-wheel-stuck-heres-how-you-can-repair-it/"><u>Logitech Scroll Wheel Stuck? Here's How You Can Repair It!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-ultimate-companion-for-polyglots/"><u>Mondly: The Ultimate Companion for Polyglots</u></a></li>
+<li><a href="https://techtrends.techidaily.com/movavi-wi-fi-jpg-jpeg/"><u>Movavi의 실시간 제공 Wi-Fi 안전한 JPG 대신 JPEG 교체 서비스 - 무료</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-video-velocity-10-free-apps-to-control-video-speed-on-your-mobile/"><u>New 2024 Approved Video Velocity 10 Free Apps to Control Video Speed on Your Mobile</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-verbal-journey-transform-flingish-to-fluent/"><u>Virtual Verbal Journey: Transform Flingish to Fluent!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/warm-salutations-in-indonesia-the-essential-guide/"><u>Warm Salutations in Indonesia: The Essential Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/symbates-eyxes-kala-morfh-gkreman/"><u>Συμβατές Ευχές Καλά Μορφή Γκρεμάν</u></a></li>
 </ul></div>
 

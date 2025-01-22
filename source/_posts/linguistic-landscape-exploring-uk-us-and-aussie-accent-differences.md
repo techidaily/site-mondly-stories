@@ -1,7 +1,7 @@
 ---
 title: "Linguistic Landscape: Exploring UK, U.S., and Aussie Accent Differences"
-date: 2025-01-03T18:42:38.922Z
-updated: 2025-01-10T18:50:41.533Z
+date: 2025-01-16T17:23:36.487Z
+updated: 2025-01-22T17:22:21.601Z
 tags:
   - speak
   - english
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/bc22e110eacd1143aa0bdeeb05b2f88960a893ae5
  Let’s get down to work and review some of the most notable [British accents](https://oxfordhousebcn.com/en/a-brief-guide-to-different-british-accents-and-dialects/) you need to know from the British Isles and Ireland.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Received Pronunciation or Queen’s English
@@ -65,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/bc22e110eacd1143aa0bdeeb05b2f88960a893ae5
  To hear the Cockney accent in action, watch the movie Snatch – specifically Jason Statham’s character.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Brummie Accent
@@ -75,6 +75,10 @@ Awww, doesn’t “Brummie” sound really cute?
  Made famous worldwide “by order of the fo\*\*ing Peaky Blinders”, the Brummie accent, or more formally the Birmingham dialect, was actually one of the most ridiculed English accents in the United Kingdom. Can you believe it?
 
 ![British accent](https://media.giphy.com/media/l3mZpcNC69UuXjoME/giphy-downsized-large.gif "English Accents: From Queen’s English To Aussie 11")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  But I guess it’s true what they say: he who laughs last, laughs best. Now the Brummie accent has millions of fans all over the world because everybody wants to speak – and dress – like Tommy Shelby.
 
@@ -98,15 +102,15 @@ Awww, doesn’t “Brummie” sound really cute?
 
  Because this accent has roots in Old English and is influenced by Old Norse, the language of the [Vikings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you’ll hear it used in many fantasy TV shows such as Game of Thrones.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Northern Irish Accent
 
  If you watched at least one episode of Outlander, the Northern Irish accent will probably be your favorite on this list. Once you get to know Jamie Fraser and his lads, you can’t help but try to imitate their way of speaking.
 
  Distinctive thanks to its often funny slang (“wee” means “small”, “lassie” means “young girl”), Northern Irish was influenced by the lowland Scots language and is characterized by an exaggerated “r”, especially at the end of some sentences.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Welsh Accent
 
@@ -132,21 +136,17 @@ Awww, doesn’t “Brummie” sound really cute?
 
 ![british american](https://edge.mondly.com/blog/wp-content/uploads/2020/11/british-american-960x692.jpg "English Accents: From Queen’s English To Aussie 13")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  British English accents vs American English accents – who wins?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## American English Accents
 
  While there are some**North American English** accents, there’s nothing as complex as what we discussed about British English accents. Although we are looking at a larger piece of territory,[accents in North America](http://dialectblog.com/northamerican-accents/) are highly mutually intelligible with very few major differences. Additionally, having been settled longer than the American West Coast, the East Coast has had more time to work on its unique accents so it currently comprises three or four linguistically significant regions that are somehow different from each other as well as quite internally diverse.
 
 ![american accent](https://edge.mondly.com/blog/wp-content/uploads/2020/11/american-accent-960x768.jpg "English Accents: From Queen’s English To Aussie 14")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Having a fun time in America” by frank mckenna©
 
@@ -157,7 +157,7 @@ Awww, doesn’t “Brummie” sound really cute?
  This is the “standard” American English spoken by TV actors, new presenters, and a percentage of middle-class Americans;
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **New England Accent**
@@ -185,18 +185,22 @@ Coming Soon
 * **Midwestern American accent** – made famous by the film “Fargo”, this accent is mostly present in Minnesota, North Dakota, and a few areas in Iowa. I for one can already hear actress Frances McDormand speaking. Can you?
 * **Midland and Western American dialect** – because they cover a large amount of territory, it is fairly difficult to pin down one prominent feature;
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Canadian English Accents
 
 * **Central Canadian accent** – fairly similar to General American accent;
 * **Eastern Canadian accent** – as these territories were first settled by Scottish and Irish people, many of the present-day accents maintain some of the European features of their “cousins”. The most notable is the Newfoundland Dialect, which in some cases sounds much more like an Irish accent than a North American one.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Australian English Accent
 
  When compared to British English accents, the**Australian accent** is even more homogeneous than the North American English accents. In fact, there are only three main varieties of Australian English: Broad Australian, General Australian, and Cultivated Australian. If you want to broaden your vocabulary with some fun Aussie slang, check out our article [right here](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## New Zealand English Accent
 
@@ -205,7 +209,7 @@ Coming Soon
 ![australian accent](https://edge.mondly.com/blog/wp-content/uploads/2020/11/australian-accent-960x637.jpg "English Accents: From Queen’s English To Aussie 15")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Oh, hello there, Aussie” by David Clode©
@@ -224,10 +228,6 @@ Coming Soon
 
  Yes, accents can change over time due to various factors such as migration, urbanization, globalization, and media influence. Language is dynamic, and as societies evolve, so do their accents.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Are English accents influenced by other languages?
 
  Yes, English accents can be influenced by other languages, especially in regions with significant linguistic diversity or historical contact with other language communities.
@@ -238,7 +238,7 @@ Coming Soon
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Brush up your English accent with Mondly
@@ -264,24 +264,17 @@ English mastery is at your fingertips – and in your native tongue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-perfecting-your-look-essential-makeup-tips-and-product-reviews/"><u>[Updated] 2024 Approved Perfecting Your Look Essential Makeup Tips & Product Reviews</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-how-to-fix-the-youtube-shorts-not-showing-up-issue/"><u>[Updated] In 2024, How to Fix the YouTube Shorts Not Showing Up Issue?</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-unveiling-the-best-of-zoom-and-tiktok-video-sync/"><u>[Updated] In 2024, Unveiling the Best of ZOOM & TikTok Video Sync</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-silent-story-consumers-leading-anonymity-apps/"><u>[Updated] Silent Story Consumers Leading Anonymity Apps</u></a></li>
-<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-samsung-galaxy-m34-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Samsung Galaxy M34 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-journey-through-the-language-of-italian-gestures/"><u>A Journey Through the Language of Italian Gestures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-legacy-in-progress-mondlylanguages-daring-visionary-journey/"><u>A Legacy in Progress: MondlyLanguages - Daring Visionary Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/charming-chit-chat-mastering-the-art-of-conversation/"><u>Charming Chit-Chat: Mastering the Art of Conversation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conversing-with-confidence-mastering-japanese-salutations/"><u>Conversing with Confidence: Mastering Japanese Salutations</u></a></li>
-<li><a href="https://win-blog.techidaily.com/cracking-down-on-e277-pc-players-guide-to-resolving-roblox-issues/"><u>Cracking Down on E277: PC Players' Guide to Resolving Roblox Issues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/digital-pathway-learn-lithuanian-effectively/"><u>Digital Pathway: Learn Lithuanian Effectively</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-japanese-top-free-and-self-taught-study-strategies/"><u>Discovering Japanese: Top Free & Self-Taught Study Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-the-nuances-of-french-sound-articulation/"><u>Discovering the Nuances of French Sound Articulation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-your-interactions-with-japanese-formalities/"><u>Elevate Your Interactions with Japanese Formalities</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/garmin-forerunner-45-for-dedicated-runners/"><u>Garmin Forerunner 45 for Dedicated Runners</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719575856651-germanys-favorite-language-site-mondly-reigns-supreme/"><u>Germany’s Favorite Language Site, Mondly Reigns Supreme</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-freedomforsounders-review-extraction-excellence/"><u>In 2024, FreedomForSounders Review Extraction Excellence</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-ultimate-strategies-for-compelling-video-instruction-content/"><u>In 2024, Ultimate Strategies for Compelling Video Instruction Content</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/next-level-innovation-openai-brings-game-changing-ai-capabilities-to-market-with-gpt-4/"><u>Next-Level Innovation: OpenAI Brings Game-Changing AI Capabilities to Market With GPT-4</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-building-your-youtube-empire-kit-overview-for-2024/"><u>[Updated] Building Your YouTube Empire Kit Overview for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unplug-and-replay-twitch-livestream-techniques/"><u>2024 Approved Unplug and Replay Twitch Livestream Techniques</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-zapping-to-the-top-with-fast-instagram-video-playback/"><u>2024 Approved Zapping to the Top with Fast Instagram Video Playback</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effortless-installation-of-iphone-drivers-on-your-windows-11-computer/"><u>Effortless Installation of iPhone Drivers on Your Window's 11 Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ethereal-elixirs-spirited-italian-flirtation-lines/"><u>Ethereal Elixirs: Spirited Italian Flirtation Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everyday-speech-simplified-insights-into-prevalent-slang/"><u>Everyday Speech Simplified: Insights Into Prevalent Slang</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-multilingual-fabric-of-macau/"><u>Exploring the Multilingual Fabric of Macau</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-struggling-to-successful-communicator-mondlys-best-10-practices/"><u>From Struggling to Successful Communicator: Mondly’s Best 10 Practices</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-apple-id-verification-code-not-working-on-iphone-14-plus-by-drfone-ios/"><u>How To Fix Apple ID Verification Code Not Working On iPhone 14 Plus</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solve-pdf-not-printing-woes-instantly-with-these-proven-tips/"><u>Solve 'PDF Not Printing' Woes Instantly with These Proven Tips</u></a></li>
+<li><a href="https://win-latest.techidaily.com/troubleshooting-eerie-printer-noises-insights-and-solutions-for-smoother-printing-guided-by-yl-software/"><u>Troubleshooting Eerie Printer Noises: Insights and Solutions for Smoother Printing - Guided by YL Software</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/unlocking-creative-edits-your-guide-to-snapchat-photos/"><u>Unlocking Creative Edits Your Guide to Snapchat Photos</u></a></li>
 </ul></div>
 

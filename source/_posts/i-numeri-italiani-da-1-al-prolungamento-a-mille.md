@@ -1,7 +1,7 @@
 ---
 title: "I Numeri Italiani: Da 1 Al Prolungamento a Mille"
-date: 2024-09-27T21:02:54.443Z
-updated: 2024-10-01T20:32:02.753Z
+date: 2025-01-20T17:58:30.129Z
+updated: 2025-01-22T18:17:08.839Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/69ee34b64cf92db1f2232edf38c3580f65ba5a6c1
  Lucky for us, language learners, most languages use Arabic numerals (0, 1, 2, 3, 4, 5, 6, 7, 8, 9) in writing. The challenging parts are pronunciation and spelling. When you start [learning Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you will, of course, need to learn numbers. Italian numbers are easy to remember and pronounce because they follow a simple and predictable pattern. Once you know the Italian numbers to 10, counting to 100 and even 1000 is easy.
 
  There’s hardly a day that passes without using [numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . They’re essential to our day-to-day lives. From shopping to giving people your phone number and setting up a meeting at a certain time, numbers are probably one of the first lessons you should take in any language. So, let’s see how easy it is to count from_zero_ to_cento_ in_Italiano_ .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Count to 10 in Italian
 
@@ -53,10 +57,7 @@ Here’s how to write and pronounce the Italian numbers 1-10:
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian numbers 11-20
@@ -96,10 +97,7 @@ Let’s see some examples:
 * to say “20 children”, you’ll say_venti bambini_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian numbers to 30 and beyond
@@ -115,10 +113,7 @@ Let’s see some examples:
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Count tens in Italian
@@ -155,10 +150,7 @@ Let’s see some examples:
 * 98 – _novant**otto**_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian numbers 100 to 1000 and beyond
@@ -260,20 +252,22 @@ Let’s see some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-precision-capturing-the-art-of-ps4-gaming-recordings-with-obs/"><u>[New] In 2024, Precision Capturing The Art of PS4 Gaming Recordings with OBS</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-ultimate-web-compendium-alarm-rhythms-guidebook-for-2024/"><u>[Updated] Ultimate Web Compendium Alarm Rhythms Guidebook for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprendre-lanatomie-de-base-les-segments-corporels-en-francais/"><u>Comprendre L'Anatomie De Base : Les Segments Corporels en Français</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/continental-verbal-prowess-leading-triad-of-asian-languages/"><u>Continental Verbal Prowess: Leading Triad of Asian Languages</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-and-install-brother-l2700dw-printer-drivers-on-windows/"><u>Download & Install Brother L2700DW Printer Drivers on Windows</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-pictures-from-motorola-moto-g34-5g-by-fonelab-android-recover-pictures/"><u>How to recover deleted pictures from Motorola Moto G34 5G.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577334805-how-to-say-i-love-you-in-hungarian/"><u>How to Say I Love You in Hungarian</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Samsung Galaxy M34 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/online-learning-learn-bengali-daily/"><u>Online Learning: Learn Bengali Daily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pioneering-proto-dutch-a-linguistic-map/"><u>Pioneering Proto-Dutch: A Linguistic Map</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-pinyin-alphabet/"><u>The Essentials of Pinyin Alphabet</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-ultimate-roadmap-to-proficiency-in-lut-construction-for-2024/"><u>The Ultimate Roadmap to Proficiency in LUT Construction for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transform-lives-with-arabic-and-mondly-top-6-benefits-await/"><u>Transform Lives with Arabic & Mondly: Top 6 Benefits Await!</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unlocking-creative-potential-in-lyric-videos-with-lyric-video-maker-for-2024/"><u>Unlocking Creative Potential in Lyric Videos with Lyric Video Maker for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/aifc-movavi/"><u>무료 AIFC 웹 매디어를 사용하여: Movavi 구현 방법</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-finding-the-most-economical-streaming-apps-for-your-phone/"><u>[New] Finding the Most Economical Streaming Apps for Your Phone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-maiden-shoot-revelations-and-critique/"><u>[New] Maiden Shoot Revelations and Critique</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/bring-tiktok-to-life-easy-ways-to-view-shorts-on-a-larger-screen/"><u>Bring TikTok to Life - Easy Ways to View Shorts on a Larger Screen</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-oppo-a38-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Oppo A38 is off? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/capturing-life-in-hd-top-webcam-recorder-reviews/"><u>Capturing Life in HD - Top WebCam Recorder Reviews</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/digiartyamazonwinx-dvd/"><u>Digiarty年始特別企画：Amazonギフトカード激ウマキャンペーン！WinX DVDリッパープラチナもご賞品です。</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/loves-universal-language-beyond-verbal-expressions/"><u>Love's Universal Language: Beyond Verbal Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-tongues-with-black-fridays-ultimate-sale/"><u>Master Multiple Tongues with Black Friday's Ultimate Sale</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pc-gaming-troubles-why-is-my-rec-room-mic-not-working-fixes-and-tips-latest-guide/"><u>PC Gaming Troubles: Why Is My Rec Room Mic Not Working? Fixes & Tips (Latest Guide)</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/resolving-mp4-output-issue-correcting-aspect-ratio-after-ripping-dvds-with-handbrake/"><u>Resolving MP4 Output Issue: Correcting Aspect Ratio After Ripping DVDs with Handbrake</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-gday-like-a-true-blue-aussie/"><u>Say 'G'day!' Like a True Blue Aussie</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-fix-correcting-the-windows-update-failed-error-code-0x800705b4-on-windows-10/"><u>Step-by-Step Fix: Correcting the 'Windows Update Failed (Error Code 0X800705B4)' On Windows 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-evolution-of-my-language-mastery-with-mondly-the-10-key-factors/"><u>The Evolution of My Language Mastery with Mondly - The 10 Key Factors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-rated-online-strategies-to-learn-and-excel-in-new-languages/"><u>Top-Rated Online Strategies to Learn and Excel in New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-japans-language-of-respect-and-friendship/"><u>Unlocking Japan's Language of Respect & Friendship</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zestfully-mastering-latin-through-games/"><u>Zestfully Mastering Latin Through Games</u></a></li>
 </ul></div>
 

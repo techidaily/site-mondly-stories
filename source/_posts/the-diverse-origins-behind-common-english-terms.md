@@ -1,7 +1,7 @@
 ---
 title: The Diverse Origins Behind Common English Terms
-date: 2024-11-03T21:10:17.708Z
-updated: 2024-11-05T00:56:58.360Z
+date: 2025-01-17T17:15:15.556Z
+updated: 2025-01-22T16:58:38.137Z
 tags:
   - speak
   - english
@@ -81,22 +81,16 @@ thumbnail: https://thmb.techidaily.com/cceaece01aa4bcb3e2bd94d9a7dafd046bccc2616
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -128,10 +122,7 @@ thumbnail: https://thmb.techidaily.com/cceaece01aa4bcb3e2bd94d9a7dafd046bccc2616
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish loanwords: English words that are actually Spanish
@@ -157,10 +148,7 @@ thumbnail: https://thmb.techidaily.com/cceaece01aa4bcb3e2bd94d9a7dafd046bccc2616
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
@@ -190,6 +178,10 @@ thumbnail: https://thmb.techidaily.com/cceaece01aa4bcb3e2bd94d9a7dafd046bccc2616
 | Balcony   |
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## German loanwords: English words that are actually German
 
@@ -273,18 +265,21 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/tep-by-step-guide-youtube-videos-in-avi-format-for-2024/"><u>[New] Step-by-Step Guide YouTube Videos in AVI Format for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-pull-off-professional-video-edits-with-ken-burns-effect/"><u>[Updated] 2024 Approved Pull Off Professional Video Edits with Ken Burns Effect</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-capturing-the-moment-mobile-phone-snapchat-recordings/"><u>[Updated] In 2024, Capturing the Moment Mobile Phone Snapchat Recordings</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-ultimate-guide-to-creating-engaging-facebook-stories/"><u>[Updated] In 2024, The Ultimate Guide to Creating Engaging Facebook Stories</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bienvenue-en-france-mots-francais-du-reconnaitre/"><u>Bienvenue en France: Mots Français Du Reconnaître</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-etiquette-for-successful-socializing-in-south-america/"><u>Cultural Etiquette for Successful Socializing in South America</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-verbal-affection-in-magyar-speech/"><u>Discovering Verbal Affection in Magyar Speech</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/melodic-movements-music-upload-mastery-for-youtube/"><u>Melodic Movements Music Upload Mastery for YouTube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580093229-the-british-lingo-book-saying-it-right/"><u>The British Lingo Book: Saying It Right!</u></a></li>
-<li><a href="https://win-able.techidaily.com/top-5-acapella-downloads-ideal-choices-for-enhancing-your-dj-mixes/"><u>Top 5 Acapella Downloads: Ideal Choices for Enhancing Your DJ Mixes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/turkish-and-korean-exploring-the-language-mystery/"><u>Turkish And Korean: Exploring The Language Mystery</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-best-video-to-live-photos-apps-plushowtos/"><u>Updated Best Video to Live Photos Apps +Howtos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/welcome-to-a-deal-filled-new-year-save-96-on-mondly-premium/"><u>Welcome to a Deal-Filled New Year - Save 96% on Mondly Premium</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-beat-hunters-delight-accessible-online-scanners/"><u>[New] Beat Hunters Delight Accessible Online Scanners</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-ultimate-budget-friendly-online-face-offs/"><u>[Updated] In 2024, Ultimate Budget-Friendly Online Face-Offs</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-pioneering-technology-cutting-edge-screen-capture-software-listings/"><u>[Updated] Pioneering Technology Cutting-Edge Screen Capture Software Listings</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-hot-40-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Infinix Hot 40 Phone without Google Account?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-keeping-track-of-your-google-voice-conversations/"><u>In 2024, Keeping Track of Your Google Voice Conversations</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-color-grading-techniques-in-gopro-studio/"><u>In 2024, Mastering Color Grading Techniques in GoPro Studio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-languages-what-really-works-and-what-doesnt/"><u>Learning Languages: What Really Works and What Doesn't</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/liste-des-fichiers-essentiels-a-sauvegarder-avant-de-reinstaller-windows-11/"><u>Liste Des Fichiers Essentiels À Sauvegarder Avant De Réinstaller Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-russian-basic-numerical-skills/"><u>Mastering Russian: Basic Numerical Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-sea-roar-20-piratical-expressions-unveiled/"><u>Mastering Sea Roar: 20 Piratical Expressions Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/most-extended-term-exploration-initiative/"><u>Most Extended Term Exploration Initiative</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-eloquence-for-joyous-occasions/"><u>Multilingual Eloquence for Joyous Occasions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/small-economical-yet-striking-the-samsung-galaxy-s10e-review-for-savvy-smartphone-enthusiasts/"><u>Small, Economical, Yet Striking: The Samsung Galaxy S10e Review for Savvy Smartphone Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-croatian-with-confidence-unveil-these-top-7-advantages-now/"><u>Speak Croatian with Confidence: Unveil These Top 7 Advantages Now!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unleash-creativity-exploring-the-top-8-drawing-apps-on-ios-devices/"><u>Unleash Creativity Exploring the Top 8 Drawing Apps on iOS Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/warm-up-your-world-with-french-mastering-the-art-of-saying-bonjour/"><u>Warm Up Your World with French: Mastering the Art of Saying 'Bonjour'</u></a></li>
 </ul></div>
 

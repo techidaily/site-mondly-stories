@@ -1,7 +1,7 @@
 ---
 title: "Sverige Möjligen: Allt I Görelse"
-date: 2025-01-11T08:08:55.662Z
-updated: 2025-01-15T22:25:18.293Z
+date: 2025-01-15T17:09:57.529Z
+updated: 2025-01-22T16:56:52.789Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/bc4e71fa64ffb5cacb645afa1410abd3ad84d4a51
  Swedish people are sociable, and they care about traditions, so any foreigner should know how to, at least, properly introduce themselves and start a conversation. Learn more about all the Swedish greetings, and maybe you’ll feel inspired to try something new and [start learning the Nordic language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Here’s some to start with:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What you should know
@@ -31,32 +31,36 @@ thumbnail: https://thmb.techidaily.com/bc4e71fa64ffb5cacb645afa1410abd3ad84d4a51
  If you’re visiting and want to get a coffee, the simplest way to sound and look like a local is to throw in a smile and a **“Hej!”** (pronounced just like _Hey!_). This one is the perfect greeting, regardless of the time of day or to whom you address it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Hello!” in Swedish
 
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to answer the phone in Swedish
 
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say “Good Morning!” in Swedish
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Good evening!” in Swedish
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say “Goodnight!” in Swedish
 
@@ -65,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/bc4e71fa64ffb5cacb645afa1410abd3ad84d4a51
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
 
@@ -98,20 +98,17 @@ thumbnail: https://thmb.techidaily.com/bc4e71fa64ffb5cacb645afa1410abd3ad84d4a51
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-precision-in-screenshots-a-detailed-guide/"><u>[New] Precision in Screenshots A Detailed Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-all-about-youtubes-elite-access-a-complete-breakdown/"><u>[Updated] 2024 Approved All About YouTube's Elite Access - A Complete Breakdown</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-becoming-a-pro-in-spotify-ad-deals/"><u>[Updated] In 2024, Becoming a Pro in Spotify Ad Deals</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/decoding-the-secret-discovering-the-essence-of-elon-musks-truthgpt-endeavor/"><u>Decoding the Secret: Discovering the Essence of Elon Musk's TruthGPT Endeavor!</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-the-definitive-path-from-twitter-video-to-creatively-crafted-gifs/"><u>In 2024, The Definitive Path From Twitter Video to Creatively Crafted GIFs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introducing-haste-to-learning-urdu-online/"><u>Introducing Haste to Learning Urdu Online!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/latest-rtx-2080-super-drivers-for-windows-11-free-downloads-and-updates-available/"><u>Latest RTX 2080 Super Drivers for Windows 11: Free Downloads and Updates Available</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-top-10-dynamic-ways-to-say-hello-in-spanish/"><u>Learning Top 10 Dynamic Ways To Say Hello In Spanish</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/massive-discount-alert-save-170-on-the-amazing-new-omni-series-qled-by-amazon-fire-tv-exclusive-deal/"><u>Massive Discount Alert: Save $170 on the Amazing New Omni Series QLED by Amazon Fire TV - Exclusive Deal!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-named-one-of-google-plays-best-apps-of-2017back-buttonfilter-button/"><u>Mondly Kids App Named One Of Google Play's Best Apps Of 2017Back ButtonFilter Button</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-benefits-of-learning-croatian-7-reasons-to-start-today/"><u>The Benefits Of Learning Croatian: 7 Reasons To Start Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-polyglot-symphony-global-teaching-day/"><u>The Polyglot Symphony: Global Teaching Day</u></a></li>
-<li><a href="https://some-tips.techidaily.com/unlimited-outro-options-at-no-expense-online-for-2024/"><u>Unlimited Outro Options at No Expense Online for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-the-aussie-tongue-100plus-terms-guide/"><u>Unlock the Aussie Tongue: 100+ Terms Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/virtual-guru-guide-to-lithuanian-mastery/"><u>Virtual Guru Guide to Lithuanian Mastery</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-masterclass-webcast-theme-builder/"><u>[New] Masterclass Webcast Theme Builder</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-ideal-thumbnails-for-maximum-clicks/"><u>[Updated] 2024 Approved Ideal Thumbnails for Maximum Clicks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-economical-desktop-encoder-software-guide-revealed-for-2024/"><u>[Updated] Economical Desktop Encoder Software Guide Revealed for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-from-stream-to-file-vimeo-hd-to-mp4-methods-for-2024/"><u>[Updated] From Stream to File Vimeo HD to MP4 Methods for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/5-myths-busted-the-real-power-of-polyglots/"><u>5 Myths Busted: The Real Power of Polyglots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decode-german-eloquence-top-16-thank-you-expressions/"><u>Decode German Eloquence: Top 16 'Thank You' Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/does-rigidity-thwart-language-acquisition/"><u>Does Rigidity Thwart Language Acquisition?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-hangul-learning-discovering-the-korean-writing-system/"><u>Effortless Hangul Learning: Discovering the Korean Writing System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eloquent-expression-100-twisting-challenges-await/"><u>Eloquent Expression: 100 Twisting Challenges Await</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/movavi-convertir-sin-costo-tus-audiocasetes-voc-al-estandar-wav-en-linea-facilmente/"><u>Movavi: Convertir Sin Costo Tus Audiocasetes VOC Al Estándar WAV en Línea Fácilmente</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211424088-9781398848221-reincarnation-and-the-law-of-karma/"><u>Reincarnation and the Law of Karma | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211477074-9789695592267-the-art-of-embracing-nothingness/"><u>The Art of Embracing Nothingness | Free Book</u></a></li>
 </ul></div>
 

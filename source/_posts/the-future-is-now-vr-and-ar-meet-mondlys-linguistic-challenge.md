@@ -1,7 +1,7 @@
 ---
 title: The Future Is Now - VR & AR Meet Mondly's Linguistic Challenge
-date: 2024-09-10T13:30:51.879Z
-updated: 2024-09-11T13:30:51.879Z
+date: 2025-01-16T17:07:51.089Z
+updated: 2025-01-22T16:54:51.575Z
 tags:
   - speak
   - english
@@ -30,37 +30,17 @@ Alex continues   _“From our experience, the biggest things that keep people fr
 
 ![MondlyVR for Daydream Learn languages in Virtual Reality 1 2](https://edge.mondly.com/blog/wp-content/uploads/2017/10/MondlyVR-for-Daydream-Learn-languages-in-Virtual-Reality-1_2.gif "Mondly Launches The First Vr Language App With Speech Recognition On Daydream 2")
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Experts agree that IMMERSION is the best way to learn a new language
 
 In one [study](http://www.nytimes.com/2012/04/03/science/how-immersion-helps-to-learn-a-new-language.html?mcubz=1)  , featured in the New York Times by Michael Ullman, a neuroscientist at Georgetown University Medical Center, language learning subjects were split into two groups. One group studied language in a formal classroom setting, while the other was taught through immersion. After five months, both groups retained the language. However, the group that learned a new language through immersion displayed the full brain patterns of a native speaker.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-
-
 
 ## Reasons to Pay Attention to Mondly VR
 
@@ -110,8 +90,6 @@ In one [study](http://www.nytimes.com/2012/04/03/science/how-immersion-helps-to-
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -119,16 +97,20 @@ In one [study](http://www.nytimes.com/2012/04/03/science/how-immersion-helps-to-
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-maximize-your-experience-10-must-know-iphone-x-techniques/"><u>[New] Maximize Your Experience 10 Must-Know iPhone X Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-global-markets-through-english-mastery/"><u>Conquer Global Markets Through English Mastery</u></a></li>
+<li><a href="https://program-issues.techidaily.com/cyberpunk-2077-optimization-issues-why-is-my-gpu-not-being-utilized-on-windows-11/"><u>Cyberpunk 2077 Optimization Issues: Why Is My GPU Not Being Utilized on Windows 11?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dual-linguistic-learning-pathway/"><u>Dual Linguistic Learning Pathway</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-security-policy-now-live/"><u>Enhanced Security Policy Now Live</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harnessing-on-screen-speech-for-language-growth/"><u>Harnessing On-Screen Speech for Language Growth</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-vivo-s18e-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Vivo S18e Phones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jahreszyklus-in-deutsch-lernen/"><u>Jahreszyklus in Deutsch Lernen</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/mastering-interactive-ebooks-a-comprehensive-guide-to-creating-a-seamless-photo-slideshow-with-flipbuilder/"><u>Mastering Interactive Ebooks: A Comprehensive Guide to Creating a Seamless Photo Slideshow with FlipBuilder</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mohu-leaf-30-tv-antenna-balancing-cost-with-optimal-viewing-experience-review/"><u>Mohu Leaf 30 TV Antenna - Balancing Cost with Optimal Viewing Experience Review</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-youtube-tv-the-ultimate-guide/"><u>Navigating YouTube TV The Ultimate Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581915943-top-25-german-idioms-to-speak-like-a-german/"><u>Top 25 German Idioms to Speak Like a German</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unmissable-meta-quest-3-offer-512gb-storage-at-great-value-exclusive-october-sale-and-prime-day-savings-zdnet/"><u>Unmissable Meta Quest 3 Offer - 512GB Storage at Great Value! Exclusive October Sale & Prime Day Savings | ZDNet</u></a></li>
+</ul></div>
 

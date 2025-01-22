@@ -1,7 +1,7 @@
 ---
 title: "Thank You Universe: Learning Languages for Appreciation (154)"
-date: 2024-09-12T18:30:06.099Z
-updated: 2024-09-16T18:24:06.340Z
+date: 2025-01-15T16:12:46.719Z
+updated: 2025-01-22T17:40:25.413Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/79f8247109e3ede5c749bfadee103c2b769f1b6d9
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
 
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
 
@@ -56,7 +60,15 @@ thumbnail: https://thmb.techidaily.com/79f8247109e3ede5c749bfadee103c2b769f1b6d9
 
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Thanks” by Hanny Naibaho©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
 
@@ -80,6 +92,10 @@ thumbnail: https://thmb.techidaily.com/79f8247109e3ede5c749bfadee103c2b769f1b6d9
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
 
@@ -109,18 +125,22 @@ thumbnail: https://thmb.techidaily.com/79f8247109e3ede5c749bfadee103c2b769f1b6d9
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-top-vr-content-developers-you-should-know/"><u>[New] In 2024, Top VR Content Developers You Should Know</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-diy-video-meme-guide-boost-your-posts-on-fb-and-instagram/"><u>[Updated] 2024 Approved DIY Video Meme Guide Boost Your Posts on FB & Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-transforming-engagement-on-instagram-top-10-compelling-igtv-content-concepts-for-brands/"><u>[Updated] In 2024, Transforming Engagement on Instagram Top 10 Compelling IGTV Content Concepts for Brands</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/coming-soon-the-new-macbook-with-touchscreen-technology-insights-into-release-schedule-pricing-forecasts-and-specs-breakdown/"><u>Coming Soon: The New MacBook with Touchscreen Technology - Insights Into Release Schedule, Pricing Forecasts, and Specs Breakdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-hangul-your-pathway-to-language-excellence/"><u>Conquering Hangul: Your Pathway to Language Excellence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/delving-into-our-linguistic-prehistory/"><u>Delving Into Our Linguistic Prehistory</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expert-guide-to-essential-93-spanish-terms-for-adventurers/"><u>Expert Guide to Essential 93 Spanish Terms for Adventurers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/exploring-top-techniques-for-fixing-windows-10-issues-with-sfc-and-dism/"><u>Exploring Top Techniques for Fixing Windows 10 Issues with SFC & DISM</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-low-saxon-to-modern-dutch-linguistics/"><u>From Low Saxon to Modern Dutch Linguistics</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-huawei-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Huawei Through Google Earth?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leverage-technology-for-business-excellence-via-apps/"><u>Leverage Technology for Business Excellence via Apps</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mcdonalds-automated-drive-through-bot-causes-chaos-hilariously-goes-viral/"><u>McDonald's Automated Drive-Through Bot Causes Chaos, Hilariously Goes Viral</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/movaviflac-ape/"><u>Movaviで簡単フリー音楽FLACへの無料オンライン変換 - APE</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-fcpx-lower-thirds-101-a-beginners-guide-to-success/"><u>New FCPX Lower Thirds 101 A Beginners Guide to Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-future-language-that-will-define-my-growth/"><u>Unveiling The Future Language That Will Define My Growth</u></a></li>
+</ul></div>
 

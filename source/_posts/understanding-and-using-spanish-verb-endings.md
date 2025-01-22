@@ -1,7 +1,7 @@
 ---
 title: Understanding and Using Spanish Verb Endings
-date: 2025-01-13T02:09:10.451Z
-updated: 2025-01-16T01:54:05.635Z
+date: 2025-01-16T18:05:34.167Z
+updated: 2025-01-22T16:06:13.568Z
 tags:
   - speak
   - english
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/f5c71e67a7e48026b76caae61fa224d5139bed717
 ## Understanding and Using Spanish Verb Endings
 
  ¡Hola, Spanish language aficionado! Welcome to another essential Spanish lesson you’ll have to learn if you want to boost your Spanish conversation skills. Today, we are talking about**Spanish verbs** , their conjugations, and some [**Spanish grammar rules**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that will naturally join the party. Are you ready? Let’s start with the basics.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish verbs: rules for regular Spanish verbs
 
@@ -60,13 +64,13 @@ Spanish verbs conjugations make sense now, don’t they?
 
 ![Mondly app screenshot verb conjugation](https://edge.mondly.com/blog/wp-content/uploads/2019/06/verb-conjugation-353x600.png "Spanish Verb Conjugation: Regular And Irregular Verbs 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  In Mondly, you can quickly see a verb’s conjugation by simply tapping on it
 
  Before moving on to irregular Spanish verbs and more examples, let’s also explore**the past and future of regular Spanish verbs** . What do you think? Wouldn’t that be useful?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish Preterite Tense – Regular Preterite Verb Endings
 
@@ -111,10 +115,6 @@ And the conjugation of comer will look like this:
 
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
 
  In Spanish, there are two ways to form the future tense:**the informal future tense** (the verb_ir_ \+ a + infinitive ->_voy a comer_) and**the simple future tense,** which we will illustrate in this article.
@@ -148,7 +148,7 @@ And the conjugation of comer will look like this:
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish verbs: how to master irregular Spanish verbs
@@ -212,7 +212,7 @@ And the conjugation of comer will look like this:
 _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious because to the final letter “i” of their stem, we will need to add an “e”. Thus, “I acquire” will be “Yo adquiero”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Spanish verbs with an irregular “yo” form
@@ -240,7 +240,7 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish verbs conjugation examples –_ser, estar, ir_
@@ -334,24 +334,18 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-edit-youtube-videos-in-imovie/"><u>[New] 2024 Approved How to Edit YouTube Videos in iMovie?</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-secure-screenshots-without-intrusions/"><u>[Updated] 2024 Approved Secure Screenshots Without Intrusions</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-for-youtube-trailers-in-filmora/"><u>[Updated] Step-by-Step for YouTube Trailers in Filmora</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-effortless-audio-downloads-these-24-tools-split-youtube-sounds/"><u>2024 Approved Effortless Audio Downloads These 24 Tools Split YouTube Sounds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/grasping-the-basics-of-spanish-verb-conjugation/"><u>Grasping the Basics of Spanish Verb Conjugation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/happy-birthdays-a-global-linguistic-journey/"><u>Happy Birthdays: A Global Linguistic Journey</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-can-you-tell-if-a-person-has-seen-your-message-proven-techniques/"><u>How Can You Tell if a Person Has Seen Your Message? Proven Techniques</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/humor-haven-in-virtual-realms-mastering-20plus-funny-metaverse-imagery-for-2024/"><u>Humor Haven in Virtual Realms Mastering 20+ Funny Metaverse Imagery for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/humorhatchery-app/"><u>HumorHatchery App</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-custom-film-conclusion-templates-for-free/"><u>In 2024, Custom Film Conclusion Templates, For FREE</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/italys-essential-hand-signals-a-cultural-guide/"><u>Italy's Essential Hand Signals - A Cultural Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/meet-your-upcoming-artificial-intelligence-confidant/"><u>Meet Your Upcoming Artificial Intelligence Confidant</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-horizons-through-senior-linguistics/"><u>New Horizons Through Senior Linguistics</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/photoshop-partners-for-pixel-perfect-grids-and-frames/"><u>Photoshop Partners for Pixel-Perfect Grids and Frames</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polite-pleasers-how-to-show-thankfulness-in-30-different-tongues-157-trimmed-to-fit/"><u>Polite Pleasers: How to Show Thankfulness in 30 Different Tongues (157) [Trimmed to Fit]</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/talk-like-an-aussie-the-language-of-the-landscape/"><u>Talk Like an Aussie: The Language of the Landscape</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transformative-communication-the-power-of-multilingualism/"><u>Transformative Communication: The Power of Multilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/universal-spooktacular-traditions-unveiled/"><u>Universal Spooktacular Traditions Unveiled</u></a></li>
-<li><a href="https://win-top.techidaily.com/1728480854002-aomei-backupper/"><u>データの安全性向上：AOMEI Backupperでセットアップするリカバリー環境</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitter-videos-on-facebook-the-transfer-guide/"><u>[Updated] In 2024, Twitter Videos on Facebook The Transfer Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-why-are-status-emojis-blue-understanding-fbs-visual-language-for-2024/"><u>[Updated] Why Are Status Emojis Blue? Understanding FB's Visual Language for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bonnes-entrees-en-francais-merci-pour-larrivee/"><u>Bonnes Entrées en Français: Merci Pour L’Arrivée</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-complex-speech-overcoming-difficult-word-enunciation/"><u>Conquering Complex Speech: Overcoming Difficult Word Enunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-croatian-dialogues-preparing-to-master-the-language-of-the-adriatic-sea/"><u>Essential Croatian Dialogues: Preparing to Master the Language of the Adriatic Sea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-recognition-educators-in-multilingual-light/"><u>Global Recognition: Educators in Multilingual Light</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-tecno-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Tecno</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/protecting-originality-openais-gpt-output-detector/"><u>Protecting Originality: OpenAI's GPT Output Detector</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576862006-speak-croatian-and-boost-your-career-discover-these-7-advantages/"><u>Speak Croatian and Boost Your Career: Discover These 7 Advantages!</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/streamlining-screen-record-on-mac-via-keyboard-shortcuts/"><u>Streamlining Screen Record on Mac via Keyboard Shortcuts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-tongue-of-croatia/"><u>The Tongue of Croatia</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/visual-storytelling-support-center/"><u>Visual Storytelling Support Center</u></a></li>
 </ul></div>
 

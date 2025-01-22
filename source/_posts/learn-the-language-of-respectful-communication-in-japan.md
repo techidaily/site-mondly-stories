@@ -1,7 +1,7 @@
 ---
 title: Learn the Language of Respectful Communication in Japan
-date: 2025-01-14T16:02:54.541Z
-updated: 2025-01-16T08:37:31.350Z
+date: 2025-01-16T17:48:09.455Z
+updated: 2025-01-22T16:08:13.838Z
 tags:
   - speak
   - english
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
  Japanese culture is the culture of respect. You don’t have to visit Japan to know that. We all heard about the famously polite**Japanese bow** and about the big emphasis Japanese people place on the respect of hierarchy in the family and etiquette in general. It’s in their DNA. And the same as its culture, the**Japanese language** is one of the most polite languages in the world. It’s true that, as a tourist, you don’t have to [learn Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to perfection, but you know what they say: when in Rome, do as the Romans do and you will certainly increase the enjoyment of your adventure.
 
  Learning as much as a simple **_Konnichiwa_ (“hello” in Japanese)** or **_Arigato_ (“thank you” in Japanese)** can work wonders. So here’s a guide to all the**Japanese greetings** you’ll need in your Japanese adventure: from**“hello” in Japanese** to**_Moshi Moshi_** (used to say “hello” on the phone), goodbye and other**common Japanese greetings.**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 1\. “Hello” in Japanese
 
@@ -49,17 +45,9 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Good morning in Japanese and other relevant greetings
 
@@ -77,7 +65,15 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Meguro River, Matsuno, Japan” by Sora Sagano©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Japanese
 
@@ -99,7 +95,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
  “See you soon, human” by Alain Pham©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
@@ -126,6 +122,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Kyoto, Japan” by Andre Benz©
 
 ## Don’t forget about the Japanese bow
@@ -143,6 +143,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -164,10 +168,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -201,24 +201,22 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-gif-creation-tools-reviewed-by-industry-vets/"><u>[New] 2024 Approved Best GIF Creation Tools Reviewed by Industry Vets</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-80plus-catchy-cooking-channel-names-to-attract-more-audience/"><u>[New] 80+ Catchy Cooking Channel Names to Attract More Audience</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-find-the-finest-websites-with-free-game-of-thrones-audio-for-2024/"><u>[New] Find the Finest Websites with Free Game of Thrones Audio for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-clear-visuals-ahead-mastering-your-logitech-webcams-capabilities/"><u>[Updated] Clear Visuals Ahead Mastering Your Logitech Webcam's Capabilities</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-direct-engagement-syncing-instagram-with-facebook-for-2024/"><u>[Updated] Direct Engagement Syncing Instagram with Facebook for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-syncopate-sound-and-picture-youtubes-audio-editing-techniques/"><u>[Updated] Syncopate Sound and Picture YouTube's Audio Editing Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-impact-on-eng-linguistic-adoption-and-lexicon-expansion/"><u>Global Impact on Eng: Linguistic Adoption and Lexicon Expansion</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-fly-higher-10-must-have-uav-extras-revealed/"><u>In 2024, Fly Higher 10 Must-Have UAV Extras Revealed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/master-languages-effortlessly-with-mondly-googles-choice/"><u>Master Languages Effortlessly with Mondly, Google's Choice</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/minute-magic-numbers-in-the-land-of-the-rising-sun/"><u>Minute Magic: Numbers in the Land of the Rising Sun</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-named-best-online-language-learning-portal-in-germany/"><u>Mondly Named Best Online Language Learning Portal In Germany</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-syncs-up-with-pearson-education-circle/"><u>Mondly Syncs Up With Pearson Education Circle</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-impact-on-language-acquisition-unveiled-in-10-areas/"><u>Mondly's Impact on Language Acquisition Unveiled in 10 Areas</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-learning-horizons-in-adulthood/"><u>New Learning Horizons in Adulthood</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/revolutionary-3-language-schools-speak-new-words-effortlessly/"><u>Revolutionary 3 Language Schools: Speak New Words, Effortlessly!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romancing-the-magyar-tongue-expression-of-love/"><u>Romancing the Magyar Tongue: Expression of Love</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-for-audio-editors-using-garageband/"><u>The Ultimate Guide for Audio Editors Using GarageBand</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-unreliability-of-artificnial-intelligence-in-identifying-deceptive-practices-four-case-studies-zerogpt/"><u>The Unreliability of Artificnial Intelligence in Identifying Deceptive Practices - Four Case Studies (ZeroGPT)</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-capturing-your-screen-on-windows-or-mac/"><u>Ultimate Guide: Capturing Your Screen on Windows or Mac</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-mastering-screen-capture-for-google-meet-talks/"><u>[New] 2024 Approved Mastering Screen Capture for GooGle Meet Talks</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-enhancing-photos-with-chronological-details-for-2024/"><u>[New] Enhancing Photos with Chronological Details for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-navigating-the-maze-fb-messengers-a-video-downloading-guide/"><u>[New] Navigating the Maze FB Messengers - A Video Downloading Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-crafting-impeccable-crossfades-with-premiere-pro-for-2024/"><u>[Updated] Crafting Impeccable Crossfades with Premiere Pro for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-the-depths-of-video-talks-on-youtube-for-2024/"><u>[Updated] Exploring the Depths of Video Talks on YouTube for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/70-years-of-europes-lexicon-diverse-dialects-unite/"><u>70 Years of Europe's Lexicon: Diverse Dialects Unite</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-unexpected-ways-language-expands-your-horizons/"><u>8 Unexpected Ways Language Expands Your Horizons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridge-cultures-effortlessly-mondlys-revamped-phrase-compendium/"><u>Bridge Cultures Effortlessly: Mondly’s Revamped Phrase Compendium</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/career-advancement-through-fluency-across-languages/"><u>Career Advancement Through Fluency Across Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-study-on-english-grammar-patterns/"><u>Comparative Study on English Grammar Patterns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/desde-lunes-a-domingo-espanol-avanzado/"><u>Desde Lunes a Domingo, Español Avanzado</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dessert-dialogues-discovering-chocolate-across-cultures/"><u>Dessert Dialogues: Discovering 'Chocolate' Across Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dominant-dialects-of-croatia/"><u>Dominant Dialects of Croatia</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/filming-flexibility-talent-distribution-license/"><u>Filming Flexibility Talent Distribution License</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-is-the-docooler-usb-20-and-12-megapixel-quality-worth-it/"><u>In-Depth Review: Is The Docooler USB 2.0 and 12 Megapixel Quality Worth It?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tivizing-engagement-for-a-robust-subscription-base/"><u>Incentivizing Engagement for a Robust Subscription Base</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/ultimate-quicktime-lapse-setup-for-5/"><u>Ultimate Quicktime-Lapse Setup for #5</u></a></li>
 </ul></div>
 

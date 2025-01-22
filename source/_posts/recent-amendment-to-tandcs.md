@@ -1,7 +1,7 @@
 ---
 title: Recent Amendment to T&Cs
-date: 2024-09-10T17:47:09.349Z
-updated: 2024-09-16T19:32:34.992Z
+date: 2025-01-18T17:39:57.821Z
+updated: 2025-01-22T16:23:57.170Z
 tags:
   - speak
   - english
@@ -15,6 +15,10 @@ thumbnail: https://thmb.techidaily.com/acc116e7f31959c80ee46ff620abee605b240216a
 ---
 
 ## Recent Amendment to T&Cs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Mondly Languages Privacy Policy
 
@@ -175,6 +179,10 @@ We use Google, Facebook, TikTok and LinkedIn cookies.
 
 **How does our site handle Do Not Track signals?** Currently, we don’t honor “Do Not Track” signals.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Terms of use – Mondly App
 
 **1\. Scope**
@@ -274,18 +282,18 @@ We use Google, Facebook, TikTok and LinkedIn cookies.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-the-boundless-gallery-of-forgotten-artists/"><u>[New] The Boundless Gallery of Forgotten Artists</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-premium-mac-image-transformer-for-2024/"><u>[Updated] Premium Mac Image Transformer for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-business-brilliance-through-tailored-linguistic-training/"><u>Boost Business Brilliance Through Tailored Linguistic Training</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-alphabet-and-sounds-a-starters-guide/"><u>German Alphabet & Sounds: A Starter's Guide</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-infinix-smart-8-plus-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Infinix Smart 8 Plus to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Xiaomi 13T? | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-of-the-logitech-c920-professional-hd-webcam-for-crystal-clear-streaming/"><u>In-Depth Analysis of the Logitech C920 Professional HD Webcam for Crystal Clear Streaming</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-teams-up-with-pearson-education-circle/"><u>Mondly Teams Up With Pearson Education Circle</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-maturation-of-multilingual-abilities/"><u>Rapid Maturation of Multilingual Abilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/reeling-in-social-media-leadership-can-fbs-reels-outshine-tiktok/"><u>Reeling in Social Media Leadership: Can FB's Reels Outshine TikTok?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-mondly-stands-out-in-language-education-app-field/"><u>Why Mondly Stands Out in Language Education App Field?</u></a></li>
+</ul></div>
 

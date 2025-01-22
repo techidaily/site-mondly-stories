@@ -1,7 +1,7 @@
 ---
 title: "Svenska Hjärtefär: Ditt Avstånd"
-date: 2025-01-08T22:40:59.565Z
-updated: 2025-01-15T23:41:48.776Z
+date: 2025-01-17T17:20:38.919Z
+updated: 2025-01-22T17:44:13.762Z
 tags:
   - speak
   - english
@@ -26,32 +26,32 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
  If you’re visiting and want to get a coffee, the simplest way to sound and look like a local is to throw in a smile and a **“Hej!”** (pronounced just like _Hey!_). This one is the perfect greeting, regardless of the time of day or to whom you address it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say “Hello!” in Swedish
 
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to answer the phone in Swedish
 
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say “Good Morning!” in Swedish
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say “Good evening!” in Swedish
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Goodnight!” in Swedish
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “What’s up?” in Swedish
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
@@ -98,24 +98,24 @@ thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b772
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-essential-blueprint-for-inspiring-valorant-video-thumbnails/"><u>[New] The Essential Blueprint for Inspiring Valorant Video Thumbnails</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-cinematic-hope-the-top-10-inspirational-films/"><u>[Updated] In 2024, Cinematic Hope The Top 10 Inspirational Films</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/creativity-unleashed-discover-the-stunning-features-and-capabilities-of-crealitys-new-k1c-3d-printer/"><u>Creativity Unleashed! Discover the Stunning Features and Capabilities of Creality's New K1C 3D Printer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/los-diez-dias-del-mundo-el-espanol-para-cada-jornada/"><u>Los Diez Días Del Mundo: El Español Para Cada Jornada</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/major-asian-dialects-ranking-triad/"><u>Major Asian Dialects: Ranking Triad</u></a></li>
-<li><a href="https://article-files.techidaily.com/master-your-search-securing-cool-images-at-pexels-for-2024/"><u>Master Your Search Securing Cool Images at Pexels for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-celebrated-for-ict-accomplishment/"><u>Mondly Celebrated for ICT Accomplishment</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-empowers-learning-for-everyone-reaching-70-million-globally/"><u>Mondly Empowers Learning for Everyone, Reaching 70 Million Globally</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-milestone-in-7-years-of-language-acquisition/"><u>Mondly's Milestone in 7 Years of Language Acquisition</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/personalize-windows-email-and-scheduling-with-top-pics/"><u>Personalize Window's Email & Scheduling with Top Pics</u></a></li>
-<li><a href="https://some-tips.techidaily.com/raspberry-pis-on-high-demand-unveiling-reasons-behind-supply-issues-and-how-to-secure-yours-zdnet/"><u>Raspberry Pis on High Demand: Unveiling Reasons Behind Supply Issues and How to Secure Yours | ZDNet</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-lost-photos-during-transfer-from-iphone-14-pro-to-pc-or-mac-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Recover Lost Photos during Transfer from iPhone 14 Pro to PC or Mac | Stellar</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saudade-de-portugal-conhecimento-das-melhores-expressoes/"><u>Saudade De Portugal! - Conhecimento Das Melhores Expressões</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/simple-techniques-to-efficiently-take-photos-of-your-laptop-display/"><u>Simple Techniques to Efficiently Take Photos of Your Laptop Display</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-spectrum-of-worldwide-halloween/"><u>The Spectrum of Worldwide Halloween</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-tips-for-removing-dust-and-fingerprints-from-modern-television-screens-safely/"><u>Top Tips for Removing Dust and Fingerprints From Modern Television Screens Safely</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/trim-tongue-training-the-three-mental-agility-steps/"><u>Trim Tongue Training: The Three Mental Agility Steps</u></a></li>
-<li><a href="https://driver-error.techidaily.com/troubleshoot-and-solve-your-gtx-950-with-error-code-43-in-win11/"><u>Troubleshoot and Solve Your GTX 950 with Error Code 43 in Win11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-learn-english-top-reasons-and-benefits/"><u>Why Learn English: Top Reasons and Benefits</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-get-ready-to-win-more-with-this-purely-gratis-voice-modifier/"><u>[New] Get Ready to Win More with This Purely Gratis Voice Modifier</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-how-to-perfectly-record-and-preserve-your-ps3-games/"><u>[New] In 2024, How to Perfectly Record and Preserve Your PS3 Games</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-iphones-guide-to-spherical-videos-on-facebook-platform/"><u>[Updated] 2024 Approved IPhone's Guide to Spherical Videos on Facebook Platform</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-how-to-activate-a-virtual-grid-display-for-meet-users-for-2024/"><u>[Updated] How to Activate a Virtual Grid Display for Meet Users for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-best-aspect-ratios-to-enhance-video-quality/"><u>2024 Approved Best Aspect Ratios to Enhance Video Quality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-mastery-of-french-colorful-terms/"><u>Accelerated Mastery of French Colorful Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/affectionate-articulations-venetian-verbal-flirtations/"><u>Affectionate Articulations: Venetian Verbal Flirtations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aging-gracefully-with-multilingual-skills/"><u>Aging Gracefully With Multilingual Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-confident-speaker-in-hindi-discover-the-top-8-reasons-to-learn-via-mondly-online/"><u>Become a Confident Speaker in Hindi: Discover the Top 8 Reasons to Learn via Mondly Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/belgian-multilingualism-which-tongues-prevail/"><u>Belgian Multilingualism: Which Tongues Prevail?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/can-grammar-hinder-fluent-speaking/"><u>Can Grammar Hinder Fluent Speaking?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/championing-the-best-3-sites-master-a-new-language-today/"><u>Championing the Best 3 Sites: Master a New Language Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cracking-down-unders-lingo-mastery-guide/"><u>Cracking Down Under's Lingo Mastery Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empowering-colombias-underprivileged-with-dannys-foundation/"><u>Empowering Colombia's Underprivileged with Danny's Foundation</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebooks-brief-broadcasts-unpacked/"><u>Facebook's Brief Broadcasts Unpacked</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>How to Detect and Stop mSpy from Spying on Your Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-vivo-g2-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Vivo G2 Phone Without Password?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-oneplus-11-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On OnePlus 11 5G? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unlocking-popularity-a-comprehensive-list-of-instagrams-top-25-tags-for-2024/"><u>Unlocking Popularity A Comprehensive List of Instagram's Top 25 Tags for 2024</u></a></li>
 </ul></div>
 

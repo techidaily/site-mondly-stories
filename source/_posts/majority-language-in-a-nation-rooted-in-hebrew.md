@@ -1,7 +1,7 @@
 ---
 title: Majority Language in a Nation Rooted in Hebrew
-date: 2025-01-09T04:00:28.286Z
-updated: 2025-01-16T12:24:23.565Z
+date: 2025-01-18T16:58:43.986Z
+updated: 2025-01-22T17:33:21.272Z
 tags:
   - speak
   - english
@@ -20,15 +20,15 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  Following a tumultuous and often violent history, the nation of Israel now has a [population](https://en.wikipedia.org/wiki/Israel#Demographics) of more than 9 million people. Out of this, 74.2% are Jews, 20.9% Arabs and 4.8% are Christians and people who have no religion listed in the civil registry. Despite the cultural diversity, almost the entire population speaks Hebrew, the country’s official language, either as a first or second language. However, this is not the full story of the languages of Israel. Let’s take a closer look at the country’s current linguistic landscape.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Israel language mosaic – what language is spoken in Israel?
 
  **Hebrew is the everyday and official language of Israel and roughly everyone speaks it, but the Arab minority which accounts for about one-fifth of the population, also speaks Arabic. Additionally, a high percentage of Israelis know English and over a million of them speak Russian as a result of immigration from the Soviet Union.**
 
  Although Hebrew can be seen and heard everywhere, Israel’s laws are officially published in Arabic and English as well. The same is true for most road signs, food labels, medicine brochures, safety regulations and messages published by the government.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Hebrew
 
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
  Modern Hebrew is what you’ll hear on [the streets of Israel](https://link.springer.com/referenceworkentry/10.1007%2F978-3-030-02438-3%5F125) (and what you can [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5614&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he) ) and premodern Hebrew is now used only for prayer or study in Jewish communities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Arabic
@@ -52,10 +52,6 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  “Dome of the Rock, Jerusalem, Israel” by Stacey Franco©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Russian
 
  When you asked yourself “what language is spoken in Israel?”, probably Russian wasn’t your first choice. However, over one million [Russian-speaking Israelis](https://en.wikipedia.org/wiki/Languages%5Fof%5FIsrael) make Russian the most widely spoken non-official language in the State of Israel. Following a mass Jewish immigration from the USSR in the 1970s and later, Israel became home to many Soviet Jews who fled Russia to escape anti-Semitic discrimination.
@@ -64,12 +60,16 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
 So, as you can see, Russian is surprisingly widespread in Israel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Other languages
 
  Other languages you’re likely to hear in Israel are Yiddish, French (which was used as a diplomatic language in Israel until the 1990s when the Israeli-French alliance was undermined), German, Spanish and Romanian.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can you speak English in Israel?
@@ -88,7 +88,7 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Speak Hebrew or Arabic fluently in just 10 minutes a day
@@ -116,22 +116,14 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-speedy-steps-scribbling-down-slides-in-ppt-for-2024/"><u>[New] Speedy Steps Scribbling Down Slides in PPT for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-the-soundscape-symphony-magixs-audio-mastery-in-studio-suite/"><u>[New] The Soundscape Symphony Magix's Audio Mastery in Studio Suite</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-legal-limits-of-capturing-youtube-video-footage/"><u>[Updated] 2024 Approved The Legal Limits of Capturing YouTube Video Footage</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-guide-to-large-prop-integration-in-tiktok-productions/"><u>[Updated] Guide to Large Prop Integration in TikTok Productions</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/a-photographers-journey-to-jaw-dropping-colors/"><u>A Photographer's Journey to Jaw-Dropping Colors</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-access-your-iphone-15-pro-when-you-forget-the-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Access Your iPhone 15 Pro When You Forget the Passcode? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-mastery-made-simple-10-effective-strategies-with-mondly/"><u>Language Mastery Made Simple: 10 Effective Strategies with Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learning-languages-later-successful-strategies/"><u>Learning Languages Later: Successful Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lowest-price-for-endless-mondly-use/"><u>Lowest Price for Endless Mondly Use</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nine-steps-to-master-the-art-of-engaging-chats/"><u>Nine Steps to Master the Art of Engaging Chats</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/one-moment-a-day-gain-mastery-over-urdu/"><u>One Moment a Day, Gain Mastery Over Urdu</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-art-of-being-friendly-in-indonesia/"><u>The Art of Being Friendly in Indonesia</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/the-complete-guide-from-recording-to-live-on-facebook-for-2024/"><u>The Complete Guide From Recording to Live on Facebook for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-crucial-5-features-android-must-adopt-to-rivet-against-iphones-ios-supremacy/"><u>The Crucial 5 Features Android Must Adopt to Rivet Against iPhone's iOS Supremacy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-transformative-journey-to-english-proficiency/"><u>The Transformative Journey to English Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-europes-linguistic-tapestry-language-diversity-on-europe-day/"><u>Unveiling Europe's Linguistic Tapestry: Language Diversity on Europe Day</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/unveiling-the-impact-exploring-the-influence-of-chinas-three-kingdoms-era-on-historical-progress-insights-by-yl-computing/"><u>Unveiling the Impact: Exploring the Influence of China's Three Kingdoms Era on Historical Progress – Insights by YL Computing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-from-video-to-visual-storytelling-crafting-gifs-with-youtube-content/"><u>[New] 2024 Approved From Video to Visual Storytelling Crafting GIFs with YouTube Content</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-the-art-of-crafting-viral-video-content-on-youtube/"><u>[New] The Art of Crafting Viral Video Content on YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-rules-the-real-goal-of-learning-languages/"><u>Beyond Rules: The Real Goal of Learning Languages</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/chart-topping-photos-origins-explored-for-2024/"><u>Chart-Topping Photos Origins Explored for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/confundir-idiomas-50-frases-falsas-inglesa-espanola/"><u>Confundir Idiomas: 50 Frases Falsas Inglesa-Española</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578956900-daily-bengali-dose-ten-minutes-to-fluency/"><u>Daily Bengali Dose: Ten Minutes to Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-global-communication-mondlys-fresh-phrase-collection/"><u>Embrace Global Communication: Mondly's Fresh Phrase Collection</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exclusive-analysis-how-apple-bypassed-crucial-ai-breakthroughs-in-latest-event-zdnet/"><u>Exclusive Analysis: How Apple Bypassed Crucial AI Breakthroughs in Latest Event | ZDNet</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/latest-guide-on-ipad-23-and-iphone-15-plus-icloud-activation-lock-bypass-by-drfone-ios/"><u>Latest Guide on iPad 2/3 and iPhone 15 Plus iCloud Activation Lock Bypass</u></a></li>
 </ul></div>
 

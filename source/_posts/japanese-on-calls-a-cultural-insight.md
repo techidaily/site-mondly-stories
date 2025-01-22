@@ -1,7 +1,7 @@
 ---
 title: "Japanese On-Calls: A Cultural Insight"
-date: 2024-09-13T16:03:31.245Z
-updated: 2024-09-16T16:22:23.268Z
+date: 2025-01-19T17:11:34.178Z
+updated: 2025-01-22T16:25:17.524Z
 tags:
   - speak
   - english
@@ -45,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/a88de5655376206e2ee17661cb9dd03b46b68bf81
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
@@ -67,13 +71,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3.“Goodbye” in Japanese
 
  Another greeting we borrowed from the Japanese and sometimes use in our day-to-day conversations in English is**_Sayōnara_** (さよなら), a greeting that carries the connotation of farewell and translates to “goodbye”.
@@ -92,20 +89,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “See you soon, human” by Alain Pham©
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -131,7 +118,15 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Kyoto, Japan” by Andre Benz©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Don’t forget about the Japanese bow
 
@@ -148,6 +143,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -200,5 +199,26 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-direct-ipad-to-iphone-media-sync-tutorial/"><u>[New] 2024 Approved Direct iPad-to-iPhone Media Sync Tutorial</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-pulse-of-printed-words-2-methods-of-bouncing-text-for-2024/"><u>[New] The Pulse of Printed Words 2 Methods of Bouncing Text for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-effortless-zoom-edge-management-your-visual-companion/"><u>[Updated] 2024 Approved Effortless Zoom Edge Management Your Visual Companion</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-humor-hive-undead-jester-creators/"><u>[Updated] Humor Hive Undead Jester Creators</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/affordable-wireless-magnetic-charging-solution-for-your-iphone-only-35-recommended-by-zdnet/"><u>Affordable Wireless Magnetic Charging Solution for Your iPhone, Only $35 – Recommended by ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/arabic-basics-unwrapped-for-starters/"><u>Arabic Basics Unwrapped for Starters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comparative-analysis-brazilian-vs-european-pt-shortcuts/"><u>Comparative Analysis: Brazilian vs European PT Shortcuts</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/easy-steps-to-overcome-runtime-errors-for-pandora-avatar-adventure-on-windows-systems/"><u>Easy Steps to Overcome Runtime Errors for 'Pandora Avatar Adventure' On Windows Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-urdu-words-for-beginners-over-100-core-words-and-phrases/"><u>Essential Urdu Words For Beginners: Over 100 Core Words And Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-wochentage-lernzielreich/"><u>German Wochentage: Lernzielreich</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-indonesian-a-quick-guide-to-indonesian-greetings/"><u>Hello in Indonesian: A Quick Guide to Indonesian Greetings</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-fix-the-windows-disk-management-could-not-start-virtual-disk-service-error/"><u>How to Fix the Windows “Disk Management Could Not Start Virtual Disk Service” Error</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-unlock-content-potential-with-the-right-vimeo-membership-choice/"><u>In 2024, Unlock Content Potential with the Right Vimeo Membership Choice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-laughter-and-learning-journey/"><u>Latin Laughter & Learning Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nombren-fauna-un-listado-de-animales-espanoles/"><u>Nombren Fauna: Un Listado De Animales Españoles</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/optimierte-videostabilisierungstechniken-fur-verschiedene-plattformen-wie-windows-macos-android-and-ios/"><u>Optimierte Videostabilisierungstechniken Für Verschiedene Plattformen Wie Windows, macOS, Android & iOS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saber-el-esquema-del-mes-dias-en-espanol-de-a-a-f/"><u>Saber El Esquema Del Mes: Días en Español De A a F</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581723463-transformative-language-experience-unveiling-7-compelling-advantages-of-hindi-study-online-with-mondly/"><u>Transformative Language Experience: Unveiling 7 Compelling Advantages of Hindi Study Online with Mondly!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-guide-find-the-highest-quality-70-inch-screens-on-digital-trends/"><u>Ultimate Guide: Find the Highest Quality 70-Inch Screens on Digital Trends</u></a></li>
+</ul></div>
 

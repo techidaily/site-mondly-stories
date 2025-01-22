@@ -1,7 +1,7 @@
 ---
 title: "Beginner’s Primer on German Linguistics: Phonetics and Letters"
-date: 2024-09-14T18:19:54.111Z
-updated: 2024-09-16T19:38:52.927Z
+date: 2025-01-18T16:12:47.646Z
+updated: 2025-01-22T17:55:18.595Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/3ae6340df4d4c49e0276be718794a66a7c17d49d4
 
  However, German pronunciation being difficult is just a myth._Oh ja,_ you read that right. German is actually one of the few languages where pronunciation makes sense. Once you know the rules, all you have to do is flex those pronunciation muscles and speak like a true German. It’s really not as hard as you think. Let’s break the myth together.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The basics of the German alphabet
 
  We’ll naturally start with the basics. Much like English, the German alphabet consists of 26 standard letters. In addition to that, it also features the letter ß – known as the German ligature – and umlauted forms of three vowels: ä, ö and ü. In total,_das Alphabet_ has 8 vowels and 22 consonants.
@@ -33,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/3ae6340df4d4c49e0276be718794a66a7c17d49d4
  German is the only language that uses ß and if the character is unavailable, it can be replaced with ⟨ss⟩. In fact, in Swiss Standard German (used in Switzerland and Liechtenstein), the letter was completed replaced by ⟨ss⟩ sometime in the 20th century.
 
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### German umlauts: ä, ö, ü
 
@@ -51,10 +59,7 @@ Now round off your lips and start practicing!
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## German pronunciation guide for single letters
@@ -70,6 +75,10 @@ Now round off your lips and start practicing!
 3. **V** – Sounds like the English ‘f’. This is why _Vater_ sounds a lot like ‘father’.
 4. **J** – _Oh ja,_ you already know this one! The German _j_ is pronounced like the English ‘y’.
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## German pronunciation guide for letter combinations
 
@@ -89,10 +98,7 @@ Now round off your lips and start practicing!
  Did you recognize_ze rules_ in this example?
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to pronounce long German words
@@ -139,5 +145,22 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unveiling-apples-powerhouses-the-m1-pro-and-m1-max-analysis/"><u>[New] 2024 Approved Unveiling Apple's Powerhouses The M1 Pro and M1 Max Analysis</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-unmatched-microphone-selections-for-cams/"><u>[New] In 2024, Unmatched Microphone Selections for Cams</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-enthrall-audiences-identifying-top-6-video-formats/"><u>[Updated] Enthrall Audiences Identifying Top 6 Video Formats</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-the-core-upgrades-of-windows-11/"><u>[Updated] In 2024, The Core Upgrades of Windows 11</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-best-laptops-for-video-editing/"><u>[Updated] The Best Laptops for Video Editing</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/beat-the-bulk-lowering-your-cpu-use-for-smoother-zooms-top-tips/"><u>Beat the Bulk: Lowering Your CPU Use for Smoother Zooms – Top Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comenzar-a-conocer-el-tiempo-en-espanol/"><u>Comenzar a Conocer El Tiempo en Español</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-vivo-v29-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Vivo V29 FRP In 3 Different Ways</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-prime-7-free-screen-recorders-for-old-computers/"><u>In 2024, Prime 7 Free Screen Recorders for Old Computers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-at-your-fingertips-pearson/"><u>Language Mastery at Your Fingertips: Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prodigy-pathways-to-succeeding-in-international-language-assessments/"><u>Prodigy Pathways to Succeeding in International Language Assessments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/smooth-language-journey-top-10-simple-to-learn-tongues/"><u>Smooth Language Journey: Top 10 Simple to Learn Tongues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tiny-tongues-grand-languages-kinder-to-fifth-grade-spanish/"><u>Tiny Tongues, Grand Languages: Kinder to Fifth Grade Spanish</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-samsung-galaxy-f34-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Samsung Galaxy F34 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-basics-of-chinese-social-interactions/"><u>Unveiling the Basics of Chinese Social Interactions</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Pedagogy of Mondly's Learning System
-date: 2024-09-09T17:42:04.787Z
-updated: 2024-09-16T17:26:48.475Z
+date: 2025-01-17T16:43:54.634Z
+updated: 2025-01-22T17:05:28.256Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a
 
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Minimum effort, maximum results
 
  Think about those endless pages of rules you had to memorize in high school. That was no easy task. But once in a while, there was a teacher that really enjoyed the job and took the time to properly explain all the thinking behind them. Only then the rules would stick.
@@ -42,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a
 
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
@@ -49,6 +57,10 @@ thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a
 [Studies](https://academic.oup.com/applij/article-abstract/34/4/457/199564?redirectedFrom=fulltext) have shown that knowing as little as 100 words helps you understand 50% of any text in the language you’re learning. Surprising as it may seem, it’s true. Knowing 1,000 words will give you a high coverage of 75% of any text. Here’s how much lexical coverage you need to reach fluency in almost any language:
 
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lexical coverage overview
 
@@ -60,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
 
@@ -84,12 +100,22 @@ thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-photoshops-image-curve-secrets/"><u>2024 Approved Unveiling Photoshop's Image Curve Secrets</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-chatbots-unleashed-assessing-the-strengths-of-chatgpt-plus-vs-perplexity/"><u>AI Chatbots Unleashed: Assessing the Strengths of ChatGPT Plus Vs. Perplexity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-bilingual-proven-online-methods-to-learn-languages/"><u>Becoming Bilingual: Proven Online Methods to Learn Languages</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/conquer-the-shadows-cracking-the-code-on-cod-black-ops-cold-war-boicw-error-87b4x-a3z9y/"><u>Conquer the Shadows: Cracking The Code on COD: Black Ops Cold War (BOICW) Error 87B4X-A3Z9Y</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/discovering-the-future-of-broadcast-roku-and-facebook-live-for-2024/"><u>Discovering the Future of Broadcast Roku & Facebook LIVE for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/finding-the-common-speech-among-belgians/"><u>Finding the Common Speech Among Belgians</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Vivo Y02T? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-tutorial-for-activating-icloud-on-apple-iphone-6s-plus-safe-and-legal-by-drfone-ios/"><u>In 2024, Easy Tutorial for Activating iCloud on Apple iPhone 6s Plus Safe and Legal</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-top-picks-secure-and-legal-tiktok-follower-sources-safe/"><u>In 2024, Top Picks Secure & Legal TikTok Follower Sources (Safe)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581875041-italian-numbers-made-easy-count-to-1000-and-beyond-in-italian/"><u>Italian Numbers Made Easy – Count to 1000 and Beyond in Italian</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-german-top-10-compelling-reasons/"><u>Mastering German: Top 10 Compelling Reasons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-japanese-education-online-independent-and-gratis/"><u>Navigating Japanese Education - Online, Independent & Gratis</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/professional-setup-ranking-the-leading-9-online-microphone-tools/"><u>Professional Setup Ranking the Leading 9 Online Microphone Tools</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/streamlined-techniques-how-to-utilize-the-background-blur-on-w11-photos/"><u>Streamlined Techniques: How to Utilize the Background Blur on W11 Photos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-20-francophone-books-for-language-learners-to-start-with/"><u>Top 20 Francophone Books for Language Learners to Start With</u></a></li>
+</ul></div>
 

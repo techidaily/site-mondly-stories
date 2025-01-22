@@ -1,7 +1,7 @@
 ---
 title: "Embracing Time: 2Nd Year at Mondly Languages and Bold Dreams"
-date: 2024-09-11T16:05:04.590Z
-updated: 2024-09-16T18:20:25.988Z
+date: 2025-01-15T16:29:29.247Z
+updated: 2025-01-22T17:27:59.765Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/efc2d305e478474af3e17a5e089941fb3280acaab
 
  Two years ago we made that dream come true. We built a great language learning app and we made it our mission to offer everyone lessons in as many languages as possible.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## On May 28 2014, Mondly
 
  We started small, but kept thinking big at every step of the way. Our developers, designers, language experts and translators all worked together to build a language learning app that’s easy to use, fun to learn with, and effective in real life situations.
@@ -31,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/efc2d305e478474af3e17a5e089941fb3280acaab
  With this in mind, we give you an infographic about where Mondly stands today. From here on, sky’s the limit.
 
 Thank you for being a part of our journey ![Mondly - 2 Years Infografic](https://edge.mondly.com/blog/wp-content/uploads/2016/05/2years-Infographic-v3-scaled.png "2 Years Of Mondly Languages 2") ](https://edge.mondly.com/blog/wp-content/uploads/2016/05/2years-Infographic-v3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhappy-2nd-birthday%2F&t=2+Years+of+Mondly+Languages "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
@@ -52,12 +60,21 @@ Thank you for being a part of our journey ![Mondly - 2 Years Infografic](https:/
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-a-critical-analysis-of-luminances-role-in-hdr-development/"><u>[New] A Critical Analysis of Luminance's Role in HDR Development</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-synching-youtube-songs-to-video-frameworks-for-2024/"><u>[New] Synching YouTube Songs to Video Frameworks for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-mold-sharable-imagery-in-adobe-software/"><u>[Updated] 2024 Approved Mold Sharable Imagery in Adobe Software</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-easy-steps-to-alter-story-video-playback-speed/"><u>[Updated] In 2024, Easy Steps to Alter Story Video Playback Speed</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ingenious-designer-of-visual-and-auditory-delight-for-2024/"><u>[Updated] Ingenious Designer of Visual & Auditory Delight for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-drone-applications-at-present-and-in-the-future/"><u>2024 Approved Drone Applications at Present and in the Future</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/easy-steps-to-update-and-repair-hp-deskjet-printer-drivers-on-windows-10/"><u>Easy Steps to Update and Repair HP Deskjet Printer Drivers on Windows 10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/educational-advancement-powered-by-mondlys-apple-initiative/"><u>Educational Advancement Powered by Mondly’s Apple Initiative</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-aussie-vernacular-sayings-and-more/"><u>Exploring Aussie Vernacular, Sayings & More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-chatty-with-these-17-streetwise-spanish-terms/"><u>Get Chatty with These 17 Streetwise Spanish Terms</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-best-samsung-galaxy-a14-4g-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Samsung Galaxy A14 4G Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/innovative-animation-solutions-with-advanced-3d-modellers/"><u>Innovative Animation Solutions with Advanced 3D Modellers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israeli-peoples-chosen-dialect/"><u>Israeli People’s Chosen Dialect?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-now-supported-by-huawei/"><u>Mondly Now Supported by Huawei</u></a></li>
+</ul></div>
 

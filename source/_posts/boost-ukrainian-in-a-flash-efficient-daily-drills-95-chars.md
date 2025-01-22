@@ -1,7 +1,7 @@
 ---
 title: "Boost Ukrainian in a Flash: Efficient Daily Drills (95 Chars)"
-date: 2024-09-12T16:14:34.679Z
-updated: 2024-09-16T19:46:28.396Z
+date: 2025-01-20T17:20:58.235Z
+updated: 2025-01-22T16:16:43.589Z
 tags:
   - speak
   - english
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 
  Ukrainian is a fascinating language with a long history of foreign influences. Due to it being profoundly different from English, many people consider learning Ukrainian a personal triumph. And so should you. Here’s everything you need to know if you want to learn Ukrainian fast.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Ukrainian language in a nutshell
 
  Ukrainian, known as_украї́нська мо́ва_ (romanized:[_Ukraïns’ka mova_](https://www.britannica.com/topic/Ukrainian-language) ) to Ukrainians, is the official language of Ukraine and the descendant of the colloquial language used in Kievan Rus between the 10th and the 13th century. From there on, the language developed into what was called ‘the Ruthenian language’. As a result of Ukraine’s long political subordination, Ukrainian had almost no literary expression until the 18th century when the modern literary Ukrainian language was born.
@@ -26,11 +30,19 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 
  Additionally, Ukrainian’s vocabulary also includes a large number of words borrowed from [Polish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) during the Polish rule from the 13th to the 17th centuries.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Is Ukrainian hard to learn?
 
  Due to being a Slavic language, Ukrainian is one of the hardest languages to learn by native English speakers. In fact, according to [the FSI](https://www.state.gov/foreign-language-training/) (Foreign Service Institute) of the US government, an English speaker would need about 1100 class hours or 44 weeks of practice to become fluent in Ukrainian. This makes Ukrainian as hard to learn as Polish, Icelandic or Finnish. However, you don’t have to get discouraged. Japanese, Chinese and Korean are still much harder to learn than Ukrainian.
 
  Besides, choosing the right [Ukrainian course](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6604&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6604?mother%5Flang=en%5Fus?target%5Flang=ua&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6604?mother%5Flang=en%5Fus?target%5Flang=ua) can work wonders. Read on to discover what is the best way to learn Ukrainian fast.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Start with the Ukrainian alphabet
 
@@ -43,10 +55,7 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
  And you know what’s the best thing about it? Almost all the words in Ukrainian can be pronounced the same way they are written. As soon as you will know how to pronounce each individual Ukrainian letter, you will also be able to read out loud in Ukrainian.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10 basic Ukrainian words and phrases you can learn right now
@@ -67,10 +76,7 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
  Here’s a glimpse of how some of these Ukrainian words sound when spoken by a fluent speaker:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to learn Ukrainian fast with Mondly
@@ -109,5 +115,17 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-detailed-process-for-creating-professional-voice-recordings/"><u>[Updated] 2024 Approved Detailed Process for Creating Professional Voice Recordings</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-action-camera-buying-for-newbies-the-updated-guide-23/"><u>2024 Approved Action Camera Buying for Newbies - The Updated Guide '23</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-egayements-francais-lart-de-dire-merci/"><u>4 Égayements Français: L'Art De Dire 'Merci'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-essential-esl-grammar-hints-for-fluent-comprehension/"><u>8 Essential ESL Grammar Hints for Fluent Comprehension</u></a></li>
+<li><a href="https://program-issues.techidaily.com/battle-stray-application-crashes-on-your-computer-with-these-proven-fixes-pc/"><u>Battle Stray Application Crashes on Your Computer with These Proven Fixes (PC)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-oppo-f23-5g-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Oppo F23 5G Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-enhanced-gsl-precision-with-mondly-collaboration/"><u>Pearson's Enhanced GSL Precision with Mondly Collaboration</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/resolving-chatgpt-is-at-full-capacity-issues-in-windows-a-step-by-step-guide/"><u>Resolving 'ChatGPT Is At Full Capacity' Issues in Windows: A Step-by-Step Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-realme-c67-4g-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Realme C67 4G Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-languages-sing-in-belgiums-streets/"><u>Which Languages Sing in Belgium’s Streets?</u></a></li>
+</ul></div>
 

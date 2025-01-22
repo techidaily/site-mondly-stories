@@ -1,7 +1,7 @@
 ---
 title: Impact of Grammar on Linguistic Acquisition
-date: 2025-01-14T11:51:56.874Z
-updated: 2025-01-16T10:06:16.351Z
+date: 2025-01-18T17:25:03.067Z
+updated: 2025-01-22T16:19:14.337Z
 tags:
   - speak
   - english
@@ -18,25 +18,21 @@ thumbnail: https://thmb.techidaily.com/929258c247a8621297933bc07467c148b4e889d77
 
 Language learning is one of the best ways to broaden your horizons and better yourself as a person. It can also be intimidating. Many people would like to learn a foreign language, but they feel the task would be too hard. This is unfortunate because with a little effort and a commitment to the goal, learning a language can happen sooner than most people think.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **The Old Methods: Do They Make It More Difficult to Learn a Foreign Language
 
 Chances are that you probably took language classes at some point in your educational history. Anywhere you live, school curriculums include the study of foreign languages, but the average high-school student does not graduate with fluency in another language.
 
 Many students can manage reading and writing in a foreign language, but they struggle to understand it in conversational form. These situations make it clear that the past methods of language education are lacking. What is the solution?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Language Learning: What Holds People Back?**
 
 One of the best ways to learn a language is to practice both writing the language and speaking it in a conversational manner. This is where many people panic and lose confidence in everything they have learned. If you’re new at a language, chances are that you haven’t even begun to grasp all the important grammar rules. This can lead to insecurity about sounding stupid when you write or speak the language, and this fear might hold you back from practicing.
 
 This is why a focus on grammar is the wrong way to teach and learn a language. Grammar is the art of perfecting the use of a language you already know. When learning a language, it can hold students back in a variety of ways.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **1\. Complexity**
 
@@ -48,12 +44,16 @@ Grammar rules are generally about perfecting the written language. This isn’t 
 
 The goal for a language student is to become fluent as quickly as possible. Fluency with the spoken word will transfer to an understanding of the written word as well. The old models of teaching do not place importance on becoming fluent as quickly as possible, and it seems this is a huge part of the problem.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **3\. A Lack of Conversational Aspects**
 
 Most of us don’t speak in the exact same way that we write. We choose different words, use slang and sometimes even say things in a different order than we would when writing them down. How many people do you know who speak using perfect grammar? Sure, some might exist, but it isn’t very common regardless what language we are discussing. For this reason, if you insist on studying grammar first and conversational language second, you might struggle to understand people as they speak. Luckily, nowadays, there are [modern solutions available that immerse you in conversations](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1\.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **4\. A Major Lack of Fun**
@@ -63,7 +63,11 @@ This might seem like a crazy concept to some, but learning a language should be 
 ![Learn grammar with Mondly: French grammar, German Grammar, Spanish Grammar and more](https://edge.mondly.com/blog/wp-content/uploads/2017/10/Webp.net-compress-image-1.jpg "Is Grammar Holding You Back From Learning A Language? 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Returning to Our Roots: Learning with the Mind of a Child**
@@ -77,10 +81,6 @@ If worrying about grammar has been holding you back in language learning, allow 
 Do you feel that grammar holds you back from learning a language? Share your story in a comment below.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Speak a new language in just 10 minutes a day
 
@@ -107,18 +107,24 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-explore-laughter-tears-fusion-the-best-ig-accounts-ever-for-2024/"><u>[New] Explore Laughter-Tears Fusion The Best IG Accounts Ever for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-advancements-in-quantum-hdr-technology-explained/"><u>[New] In 2024, Advancements in Quantum HDR Technology Explained</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-smooth-sailing-with-instagram-fixes-for-frustrations-for-2024/"><u>[Updated] Smooth Sailing with Instagram Fixes for Frustrations for 2024</u></a></li>
-<li><a href="https://win-studio.techidaily.com/changing-your-windows-11-language-preferences-a-step-by-step-guide-yl-tech-solutions/"><u>Changing Your Windows 11 Language Preferences: A Step-by-Step Guide - YL Tech Solutions</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/discover-the-perfect-work-travel-companion-a-stylish-13-laptop-alternative-to-macbook-and-dell-xps-zdnet-recommendations/"><u>Discover the Perfect Work-Travel Companion: A Stylish 13 Laptop Alternative to MacBook & Dell XPS | ZDNet Recommendations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/go-beyond-ciao-bella-20plus-italian-slang-words-and-expressions/"><u>Go Beyond “Ciao Bella”: 20+ Italian Slang Words & Expressions</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Oppo F23 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-vivo-v27e-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Vivo V27e to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/korean-days-unveiled-a-language-journey/"><u>Korean Days Unveiled: A Language Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/launching-revolutionary-mondlys-faq-collection/"><u>Launching Revolutionary Mondly's FAQ Collection</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-app-mondly-on-huawei-devices/"><u>New App: Mondly on Huawei Devices</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/professional-sticker-cleansing-for-videos-for-2024/"><u>Professional Sticker Cleansing for Videos for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-verdict-on-clearstream-nv-hdtv-antennas-great-capability-hidden-behind-an-unsightly-package/"><u>The Verdict on ClearStream Nv HDTV Antennas: Great Capability Hidden Behind an Unsightly Package</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-10-hd-android-videos-ultimate-players-guide/"><u>[New] Top 10 HD Android Videos Ultimate Players Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unleashing-potential-a-deep-dive-into-intova-x/"><u>[New] Unleashing Potential A Deep Dive Into Intova X</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-platform-showdown-vimeos-edge-vs-youtube-and-dailymotion/"><u>[Updated] Platform Showdown Vimeo's Edge vs YouTube & Dailymotion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-global-star-daily-app-selection/"><u>Apple's Global Star: Daily App Selection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bilingual-brain-builder/"><u>Bilingual Brain Builder</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-strategies-to-enhance-multicultural-communication/"><u>Breaking Barriers: Strategies to Enhance Multicultural Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581815703-bridging-worlds-essential-strategies-for-effective-intercultural-communication/"><u>Bridging Worlds: Essential Strategies for Effective Intercultural Communication</u></a></li>
+<li><a href="https://fox-access.techidaily.com/comprehensive-listing-of-best-zero-cost-broadcasting-tech-for-all-platforms/"><u>Comprehensive Listing of Best Zero-Cost Broadcasting Tech for All Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connect-worldwide-mondlys-enhanced-multicultural-phrasebook/"><u>Connect Worldwide: Mondly's Enhanced Multicultural Phrasebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-communication-top-6-strategies-to-embrace-languages/"><u>Conquer Communication: Top 6 Strategies to Embrace Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquering-russian-greetings-keywords-for-fluency/"><u>Conquering Russian Greetings: Keywords for Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-daily-bengali-lessons/"><u>Effortless Daily Bengali Lessons</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-easy-methods-how-to-transfer-pictures-from-apple-iphone-15-pro-to-pc-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Easy Methods How To Transfer Pictures From Apple iPhone 15 Pro to PC | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-llama-2-understanding-and-utilizing-its-features-effectively/"><u>Mastering Llama 2: Understanding and Utilizing Its Features Effectively</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581107411-mondly-unveils-top-8-motivational-factors-to-learn-hindi-online/"><u>Mondly Unveils: Top 8 Motivational Factors to Learn Hindi Online</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ating-the-process-of-verifying-your-youtube-id/"><u>Navigating the Process of Verifying Your YouTube ID</u></a></li>
+<li><a href="https://win-forum.techidaily.com/step-by-step-process-for-installing-newest-driver-software-in-windows-11-with-revo-uninstaller/"><u>Step-by-Step Process for Installing Newest Driver Software in Windows 11 with Revo Uninstaller</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/streamlined-process-to-download-asus-pointing-stick-drivers-for-seamless-windows-11-experience/"><u>Streamlined Process to Download ASUS Pointing Stick Drivers for Seamless Windows 11 Experience</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-ultimate-tutorial-for-recording-movies-on-your-laptop-or-pc/"><u>The Ultimate Tutorial for Recording Movies on Your Laptop or PC</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Global Goodwill on American Celebratory Date
-date: 2024-09-12T17:12:48.599Z
-updated: 2024-09-16T18:11:55.591Z
+date: 2025-01-15T16:02:34.875Z
+updated: 2025-01-22T17:11:08.054Z
 tags:
   - speak
   - english
@@ -25,6 +25,10 @@ The **4th of July** is an important day in American calendars. Lots of preparati
 The biggest attractions are the 4th of July fireworks. Cities all over the USA compete against each other in who has the biggest and the most long-lasting firework display. Not only this but right before the day itself, they offer details on their websites on where is the best place to go to see the 4th of July fireworks, what you can find there – apart from the show – and what other events they have scheduled for the American Independence Day.
 
 ![fireworks 4th july](https://edge.mondly.com/blog/wp-content/uploads/2017/07/fireworks-4th-july.jpg "How To Say ‘Happy 4Th Of July’ In Different Languages 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Say ‘Happy 4th of July’ in Various Languages
 
@@ -80,25 +84,24 @@ Now that you know how to say “Happy 4th of July” in different languages, you
 
 ![Learn languages free online with Mondly Learn English Spanish German French Chinese](https://edge.mondly.com/blog/wp-content/uploads/2017/05/Learn-languages-free-online-with-Mondly-Learn-English-Spanish-German-French-Chinese.png "How To Say ‘Happy 4Th Of July’ In Different Languages 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **A step further**
 
 Now that you’re familiar with 33 ways of wishing Americans a “Happy Independence Day”, don’t you want to go further? [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-586&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-586&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-586) can help you! We have an app specifically designed to teach you American English and much more. Not only this, but you can also learn all of the above [33 languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) if you sign up to Mondly today!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## American Independence Day: Did you know?
 
 According to historical documents, July 2nd is the real Independence Day of the USA, but it’s celebrated on the fourth. Why? Well, two days before the 4th of July, the Second Continental Congress voted to approve a resolution of independence. This had been proposed in June by Richard Henry Lee of Virginia. This resolution declared the United States independent from Great Britain rule. But in order to make the decision legal, they needed the Declaration of Independence, a document which had been prepared by Thomas Jefferson and a Committee of Five. Congress debated for two days and approved it on 4th of July, which was to become the American Independence Day.
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What is the significance of the 4th of July in the United States?
@@ -106,10 +109,7 @@ According to historical documents, July 2nd is the real Independence Day of the 
 The 4th of July is celebrated as Independence Day in the United States. It commemorates the country's declaration of independence from Great Britain on July 4, 1776.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How do Americans typically celebrate the 4th of July?
@@ -145,5 +145,26 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/implified-design-guide-add-your-own-style-to-your-video-shorts-for-2024/"><u>[New] Simplified Design Guide Add Your Own Style to Your Video Shorts for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-igtv-creation-insider-techniques-for-maximum-impact/"><u>[Updated] In 2024, Mastering IGTV Creation Insider Techniques for Maximum Impact</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-transformative-visuals-the-pixiz-process-for-photo-video-fusion/"><u>[Updated] Transformative Visuals The Pixiz Process for Photo-Video Fusion</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-poco-c65-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-journey-through-french-language-27-key-phrases/"><u>A Journey Through French Language: 27 Key Phrases</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-samsung-galaxy-m54-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Samsung Galaxy M54 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breakfast-banter-discovering-good-morning-in-10-linguistic-styles/"><u>Breakfast Banter: Discovering 'Good Morning' In 10 Linguistic Styles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficiently-acquiring-french-skills-indoor-methods/"><u>Efficiently Acquiring French Skills - Indoor Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-communication-through-3-neurological-activities/"><u>Enhanced Communication Through 3 Neurological Activities</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-safe-is-it-to-use-the-pirate-bay-for-movies-a-complete-guide-on-security-and-risks/"><u>How Safe Is It To Use The Pirate Bay For Movies: A Complete Guide On Security And Risks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581520275-huawei-users-get-ready-for-mondly/"><u>Huawei Users, Get Ready for Mondly</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-the-art-of-correcting-error-740-on-winos/"><u>Mastering the Art of Correcting Error 740 on WINOS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-era-for-your-personal-data-rights/"><u>New Era for Your Personal Data Rights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/pioneering-social-media-connectivity-youtube-plus-tiktok-harmony-for-2024/"><u>Pioneering Social Media Connectivity YouTube + TikTok Harmony for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/revolutionize-your-content-with-these-top-10-editing-strategies-for-2024/"><u>Revolutionize Your Content with These Top 10 Editing Strategies for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/socratic-speeches-from-antiquity-to-modern-syntax/"><u>Socratic Speeches: From Antiquity to Modern Syntax</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-with-latvian-today-just-ten-minutes-a-day/"><u>Start with Latvian Today - Just Ten Minutes a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-polyglot-playground-master-languages-in-virtual-space/"><u>VR Polyglot Playground: Master Languages in Virtual Space</u></a></li>
+</ul></div>
 

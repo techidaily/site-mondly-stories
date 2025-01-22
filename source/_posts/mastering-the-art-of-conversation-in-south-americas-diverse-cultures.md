@@ -1,7 +1,7 @@
 ---
 title: Mastering the Art of Conversation in South America's Diverse Cultures
-date: 2024-09-24T16:45:50.510Z
-updated: 2024-10-01T18:36:45.199Z
+date: 2025-01-16T17:59:49.523Z
+updated: 2025-01-22T16:53:49.709Z
 tags:
   - speak
   - english
@@ -32,25 +32,11 @@ thumbnail: https://thmb.techidaily.com/2b667f6d425e137d74634d5b5e43d01ba3b3015e3
 
  Rooted in the phrase “to be healthy and well”, it’s not just a greeting, but a wish for good health.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Привет (Privyet): Hi in Russian
 
 **Привет** is the most popular informal Russian greeting. It’s what you would use with your friends – the same way we use “hi” in English. Short, sweet and easy to say!
 
  If we’re being honest,**здравствуйте** and **Привет** are everything you need when it comes to Russian greetings. If you don’t want to overcrowd your mind, you can stop right here and come back later when you’re ready for more. If you want the full picture of Russian greetings now, let’s continue to discover how Russians say hello to each other.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2\. Time-specific Russian greetings
 
@@ -72,6 +58,10 @@ Good job, you!
  Build practical Russian skills for real life with Mondly.
 
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2406&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2406%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Additional Russian greetings Russians use
 
@@ -115,13 +105,14 @@ Good job, you!
 
 ![hello in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hello-in-russian-960x640.jpg "Russian Greetings: Common Phrases And Basic Words 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Found this interesting? You might want to learn about the [Russian alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [Russian numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) too.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cultural insights on Russian greetings
@@ -142,26 +133,20 @@ Good job, you!
  Use transliteration. It can be tricky to get the hang of Russian words using the Cyrillic alphabet, so resources that use transliteration will always come in handy.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How do Russians say “hello” and “goodbye”?
 
  Здравствуйте (Zdravstvuyte) is generally used for slightly formal hellos, while Привет (Privyet) is more suitable for casuals settings. The most common way to say “goodbye” in Russian is До свидания (Do svidaniya).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How can I greet someone respectfully in Russian if I don’t know their name?
 
  To greet someone respectfully in Russian you can say Здравствуйте (Zdravstvuyte) or use the time specific greetings.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Are there specific greetings for different times of the day in Russian?
 
@@ -197,17 +182,22 @@ Good job, you!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/creating-professional-gameplay-archives-with-fbx-for-2024/"><u>Creating Professional Gameplay Archives with FBX for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/customize-your-screenscape-google-meets-dynamic-background-switch-for-2024/"><u>Customize Your Screenscape Google Meet's Dynamic Background Switch for 2024</u></a></li>
-<li><a href="https://solve-news.techidaily.com/die-effektivsten-methoden-zum-hochladen-von-avchd-m2ts-auf-mp4-ohne-qualitatsverlust/"><u>Die Effektivsten Methoden Zum Hochladen Von AVCHD-M2TS Auf MP4 Ohne Qualitätsverlust</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-scholar-top-language-examination-guides/"><u>From Novice to Scholar: Top Language Examination Guides</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-observer-to-expert-learn-korean-for-squid-game-fans/"><u>From Observer to Expert - Learn Korean for Squid Game Fans</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-apple-iphone-12-lock-screen-with-notifications-drfone-by-drfone-ios/"><u>In 2024, How to Make the Most of Your Apple iPhone 12 Lock Screen with Notifications? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-verizon-iphone-15-plus-by-drfone-ios/"><u>In 2024, How to Unlock Verizon iPhone 15 Plus</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580301933-join-the-new-years-club-dive-into-mondly-pro-at-a-low-cost/"><u>Join the New Year's Club - Dive Into Mondly Pro at a Low Cost</u></a></li>
-<li><a href="https://network-issues.techidaily.com/mastering-switchable-graphic-performance-on-latest-windows-11/"><u>Mastering Switchable Graphic Performance on Latest Windows 11</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/melodic-compilation-a-comprehensive-guide-to-exclusive-online-sites-for-video-tune-libraries-for-2024/"><u>Melodic Compilation A Comprehensive Guide to Exclusive Online Sites for Video Tune Libraries for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-trio-of-languages-cantonese-portuguese-and-others-in-macau/"><u>The Trio of Languages: Cantonese, Portuguese & Others in Macau</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-essential-french-expressions-for-exploring-france/"><u>Ultimate Guide: Essential French Expressions for Exploring France</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-leading-animals-in-play-androids-favorites-list/"><u>[New] Leading Animals in Play Android's Favorites List</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-the-elite-set-selecting-the-best-gaming-streamers-webcams-for-2024/"><u>[New] The Elite Set Selecting the Best Gaming Streamers Webcams for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-mastering-photos-ios-alignment-and-cloud-syncing-for-2024/"><u>[Updated] Mastering Photos IOS Alignment and Cloud Syncing for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-magix-vpx-review-transforming-media-with-ease/"><u>2024 Approved Magix VPX Review Transforming Media with Ease</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-restore-a-clear-image-addressing-line-issues-in-modern-television-screens/"><u>How to Restore a Clear Image: Addressing Line Issues in Modern Television Screens</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-jpeg-to-gif-discover-the-top-10-free-options/"><u>In 2024, Mastering JPEG-to-GIF Discover the Top 10 Free Options</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-mondlys-new-phrasebook/"><u>Introducing Mondly’s New Phrasebook</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/metaverse-meets-the-multiverse-a-detailed-comparison/"><u>Metaverse Meets the Multiverse A Detailed Comparison</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-latest-faq-update-comprehensive-support/"><u>Mondly's Latest FAQ Update: Comprehensive Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prime-foreign-tongue-education-in-america/"><u>Prime Foreign Tongue Education in America</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-guide-boosting-your-origin-download-velocity/"><u>Quick Guide: Boosting Your Origin Download Velocity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semanas-completas-conoce-todos-los-dias-del-mes/"><u>Semanas Completas: Conoce Todos Los Dias Del Mes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-choosing-your-next-ebook-reader-kobo-clara-colour-reviewed/"><u>The Definitive Guide to Choosing Your Next Ebook Reader: Kobo Clara Colour Reviewed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triadic-tongues-rising-in-asian-societies/"><u>Triadic Tongues Rising in Asian Societies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unexpected-perks-mastering-languages-in-golden-age/"><u>Unexpected Perks: Mastering Languages in Golden Age</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-languages-with-movies-and-television-insights/"><u>Unlocking Languages with Movies & Television Insights</u></a></li>
 </ul></div>
 

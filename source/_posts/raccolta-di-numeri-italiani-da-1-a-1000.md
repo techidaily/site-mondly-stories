@@ -1,7 +1,7 @@
 ---
 title: Raccolta Di Numeri Italiani (Da 1 a 1000)
-date: 2025-01-15T03:06:35.302Z
-updated: 2025-01-15T22:12:10.382Z
+date: 2025-01-17T17:09:30.217Z
+updated: 2025-01-22T16:42:38.067Z
 tags:
   - speak
   - english
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/f795cb8f05b5f5e2a9428472b69cf514c64baf04e
  Lucky for us, language learners, most languages use Arabic numerals (0, 1, 2, 3, 4, 5, 6, 7, 8, 9) in writing. The challenging parts are pronunciation and spelling. When you start [learning Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you will, of course, need to learn numbers. Italian numbers are easy to remember and pronounce because they follow a simple and predictable pattern. Once you know the Italian numbers to 10, counting to 100 and even 1000 is easy.
 
  There’s hardly a day that passes without using [numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . They’re essential to our day-to-day lives. From shopping to giving people your phone number and setting up a meeting at a certain time, numbers are probably one of the first lessons you should take in any language. So, let’s see how easy it is to count from_zero_ to_cento_ in_Italiano_ .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Count to 10 in Italian
 
@@ -57,7 +53,7 @@ Here’s how to write and pronounce the Italian numbers 1-10:
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian numbers 11-20
@@ -96,6 +92,10 @@ Let’s see some examples:
 * to say “18 years”, you’ll say_diciotto anni_
 * to say “20 children”, you’ll say_venti bambini_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -109,7 +109,7 @@ Let’s see some examples:
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Count tens in Italian
@@ -146,7 +146,7 @@ Let’s see some examples:
 * 98 – _novant**otto**_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian numbers 100 to 1000 and beyond
@@ -178,7 +178,7 @@ Let’s see some examples:
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “The Amalfi Coast” by Gregory Smirnov©
@@ -252,18 +252,21 @@ Let’s see some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-perfecting-picture-clarity-efficiently-eradicating-backgrounds-for-2024/"><u>[New] Perfecting Picture Clarity Efficiently Eradicating Backgrounds for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-building-an-audience-on-ig-steps-to-reach-1k-in-one-month/"><u>[Updated] 2024 Approved Building an Audience on IG Steps to Reach 1K in One Month</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-expert-tips-crafting-compelling-facebook-ad-videos/"><u>[Updated] Expert Tips Crafting Compelling Facebook Ad Videos</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/1728479722269-iphone/"><u>如何使用特定方法找回已经在iPhone上被永久删除的照片？</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/best-free-full-featured-windows-1110-dvd-ripper-tools-top-picks-no-cost-downloads/"><u>Best Free Full-Featured Windows 11/10 DVD Ripper Tools (Top Picks) – No Cost Downloads</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-sites-where-virtual-worlds-come-alive/"><u>In 2024, Sites Where Virtual Worlds Come Alive</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introductory-spanish-numerical-conjugation/"><u>Introductory Spanish Numerical Conjugation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-spanish-verb-usage/"><u>Mastering the Art of Spanish Verb Usage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nombre-y-significado-de-cada-dia-en-espanol-desde-el-domingo-a-martes/"><u>Nombre Y Significado De Cada Día en Español: Desde El Domingo a Martes</u></a></li>
-<li><a href="https://driver-error.techidaily.com/realtek-usb-controllers-unresponsive-after-update/"><u>Realtek USB Controllers Unresponsive After Update</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/start-your-french-reading-journey-with-these-top-20-novels/"><u>Start Your French Reading Journey with These Top 20 Novels</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-elite-selection-of-network-server-storage-units-for-the-year-2024/"><u>The Elite Selection of Network Server Storage Units for the Year 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-richness-of-language-in-macau/"><u>The Richness of Language in Macau</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-10-best-live-streaming-services-for-church-you-should-know/"><u>[New] In 2024, 10 Best Live Streaming Services for Church You Should Know</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-vidma-to-go-screen-record-and-beyond-alternatives-for-2024/"><u>[Updated] Vidma to Go Screen Record and Beyond Alternatives for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-break-free-the-chuckles-ranking-20-hilarious-fb-detention-scenes/"><u>2024 Approved Break Free the Chuckles Ranking 20 Hilarious FB Detention Scenes</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-formulating-a-channels-automatic-subscribe-purl/"><u>2024 Approved Formulating a Channel’s Automatic Subscribe PURL</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-pioneering-stories-on-youtube-2023-edition/"><u>2024 Approved Pioneering Stories on YouTube, 2023 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-italian-expressions-a-guide-for-smooth-trips/"><u>Essential Italian Expressions: A Guide for Smooth Trips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-stage-to-street-shakespeares-lasting-lexical-staples/"><u>From Stage to Street: Shakespeare’s Lasting Lexical Staples</u></a></li>
+<li><a href="https://win-premium.techidaily.com/how-to-successfully-export-your-flipbook-creation-onto-a-cd-rom-a-comprehensive-guide/"><u>How to Successfully Export Your FlipBook Creation Onto a CD-ROM: A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578838888-introducing-haste-to-learning-urdu-online/"><u>Introducing Haste to Learning Urdu Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-vietnam-with-key-phrases-compiled/"><u>Journey Through Vietnam with Key Phrases Compiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-thanks-in-30-languages-an-intercultural-companion-154/"><u>Saying Thanks in 30 Languages: An Intercultural Companion (154)</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/seamlessly-blend-apple-music-and-videos/"><u>Seamlessly Blend Apple Music & Videos</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-approach-to-fix-d3dx9amoissed-file-missing-or-inaccessible-problems/"><u>Step-by-Step Approach to Fix 'D3dx9_amoissed' File Missing or Inaccessible Problems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stille-hilfe-durch-worte-im-deutschen-kontext/"><u>Stille Hilfe Durch Worte Im Deutschen Kontext</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-without-borders-explore-cultures-in-virtual-reality/"><u>Words Without Borders: Explore Cultures in Virtual Reality</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1726226919507-online-aiff-mp3-movavi/"><u>모바일 지원, 최신 기술을 사용한 Online AIFF MP3 택시 변환 - Movavi의 강력한 도구</u></a></li>
 </ul></div>
 

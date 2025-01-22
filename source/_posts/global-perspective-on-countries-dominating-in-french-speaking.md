@@ -1,7 +1,7 @@
 ---
 title: Global Perspective on Countries Dominating in French Speaking
-date: 2025-01-15T07:22:04.201Z
-updated: 2025-01-16T11:16:21.454Z
+date: 2025-01-17T17:23:41.897Z
+updated: 2025-01-22T16:00:24.038Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/c097990fd37784ce6293a6224fb832fd4d9a7841c
 
  Meanwhile, if you’re not sure whether you should [learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) or not, our advice would be to go for it. **French has been adopted as the official language of the largest number of countries after English.** For this reason alone, speaking French will help you make friends and easily communicate all over the world.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How many people speak French?
 
  **According to recent data from [Ethnologue](https://www.ethnologue.com/language/fra) , 274 million people speak French worldwide.** However, the ‘unofficial’ number could be much closer to 300 million speakers.
@@ -31,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/c097990fd37784ce6293a6224fb832fd4d9a7841c
  These numbers put French on the 7th spot in the top [most spoken languages in the world](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) following English, Mandarin Chinese, Hindi, Spanish, Standard Arabic and Bengali. Its ever-growing popularity also makes**French the second most studied language in the world,** after English. There are currently around 120 million students being taught French by 500,000 teachers worldwide.
 
  In fact, the French language is so popular that according to current [projections](https://www.forbes.com/sites/pascalemmanuelgobry/2014/03/21/want-to-know-the-language-of-the-future-the-data-suggests-it-could-be-french/?sh=51a894376d58) , there will be over 750 million French speakers around the world by 2050\. So it’s definitely a good idea to [start learning French](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-7067&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7067?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7067?mother%5Flang=en%5Fus?target%5Flang=fr) right now!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## List of French-speaking countries
 
@@ -45,11 +53,7 @@ thumbnail: https://thmb.techidaily.com/c097990fd37784ce6293a6224fb832fd4d9a7841c
 ![how many people speak french](https://edge.mondly.com/blog/wp-content/uploads/2022/10/how-many-people-speak-french-960x600.jpg "Top French-Speaking Countries | How Many People Speak French? 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### French-speaking countries in Europe
@@ -64,10 +68,6 @@ thumbnail: https://thmb.techidaily.com/c097990fd37784ce6293a6224fb832fd4d9a7841c
 * Monaco — 97%
 * Switzerland — 67%
 * Italy — 20% (French is the official language of the autonomous region of the Aosta Valley)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### French-speaking countries in Africa
 
@@ -101,6 +101,10 @@ The French-speaking countries of Africa are:
 
  \* the number represents the percentage of the population who speak French.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### French-speaking countries in North America
 
  If we know anything about Canada, it is the fact that the French language occupies a special place in its heart. At a national level, both English and French are recognized as official languages, but their status differs from one province to another. For example, in Quebec, French is the only official language.
@@ -118,10 +122,6 @@ We told you that French speakers could be found everywhere in the world!
 * Haiti — 42% (percentage of the entire population speaking French).
 
 !['French speakers' by Claudia Altamimi©](https://edge.mondly.com/blog/wp-content/uploads/2022/10/french-speakers-960x720.jpg "Top French-Speaking Countries | How Many People Speak French? 5")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### French-speaking countries in Oceania
 
@@ -142,7 +142,7 @@ We told you that French speakers could be found everywhere in the world!
  Now we finally have the full picture and we can understand why French is spoken on five continents.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A short history of the French language
@@ -193,24 +193,22 @@ We told you that French speakers could be found everywhere in the world!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-explore-and-review-free-powerful-and-user-friendly-ios-edits-for-2024/"><u>[Updated] Explore & Review Free, Powerful, and User-Friendly iOS Edits for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-from-amateurs-to-experts-a-complete-guide-to-instagram-covers-for-2024/"><u>[Updated] From Amateurs to Experts A Complete Guide to Instagram Covers for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-a-comprehensive-manual-on-motion-detection-systems/"><u>2024 Approved A Comprehensive Manual on Motion Detection Systems</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/wma-mp4-movavi/"><u>網路直接免費 WMA 到 MP4 格式移動: 使用Movavi 無損轉編解碼器</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2593832-9781683250234-aries/"><u>Aries | Free Book</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-best-batch-file-transformations/"><u>In 2024, Best Batch File Transformations</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-iphone-15-pro-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>In 2024, iPhone 15 Pro Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/instrucciones-para-entender-la-hora-en-espanol/"><u>Instrucciones Para Entender La Hora en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-bridge-salutations-across-nations/"><u>Language Bridge: Salutations Across Nations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/latin-playfully-unlocked-through-education/"><u>Latin Playfully Unlocked Through Education</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/mastering-gadgets-and-systems-at-toms-hardware-central/"><u>Mastering Gadgets & Systems at Tom's Hardware Central</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/prime-foreign-tongues-pursued-by-americans/"><u>Prime Foreign Tongues Pursued by Americans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/reloj-digital-conocimiento-esencial-en-espanol/"><u>Reloj Digital: Conocimiento Esencial en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rhythmic-recall-enhancing-memory-with-musical-language-lessons/"><u>Rhythmic Recall: Enhancing Memory with Musical Language Lessons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/secrets-for-successful-linguistic-assessments/"><u>Secrets for Successful Linguistic Assessments</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solutions-to-fix-speaker-distortion-on-windows-107/"><u>Solutions to Fix Speaker Distortion on Windows 10/7</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/top-freeware-videokompressoren-keine-watermarks/"><u>Top Freeware Videokompressoren: Keine Watermarks!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/traveling-to-israel-tips-and-phrases-for-your-trip/"><u>Traveling To Israel? Tips And Phrases For Your Trip</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uk-dialect-decoded-fluent-in-locals-tongue/"><u>UK Dialect Decoded: Fluent in Locals Tongue</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-expert-guide-to-leveraging-obs-in-android/"><u>[New] Expert Guide to Leveraging OBS in Android</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cut-the-cord-with-youtube-mp3-conversion-tools/"><u>[Updated] 2024 Approved Cut the Cord with YouTube-MP3 Conversion Tools</u></a></li>
+<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-nokia-g310-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Nokia G310 FRP</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/complete-list-of-top-100-commonly-misspelled-words-in-english/"><u>Complete List Of Top 100 Commonly Misspelled Words In English</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-youtube-video-trailers-with-filmoras-guide/"><u>Crafting YouTube Video Trailers with Filmora's Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/data-protection-strategy-updated/"><u>Data Protection Strategy Updated</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/decoding-dacs-clarifying-what-they-are-and-their-significance-for-audiophiles/"><u>Decoding DACs: Clarifying What They Are and Their Significance for Audiophiles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/forsok-till-swedish-valkommen-pa-sverige/"><u>Försök Till Swedish: Välkommen På Sverige</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-monolingual-to-polylingual-a-century-for-europe-day/"><u>From Monolingual to Polylingual: A Century for Europe Day</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-exploring-youtubes-regular-pay-structure/"><u>In 2024, Exploring YouTube’s Regular Pay Structure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/local-tongue-mastery-uk-phrases-and-sayings/"><u>Local Tongue Mastery: UK Phrases & Sayings</u></a></li>
+<li><a href="https://win-unique.techidaily.com/resetting-your-memory-recover-forgotten-passwords-with-windows-control-panel-guidance-by-yl-technologies-yl-productivity-tools/"><u>Resetting Your Memory: Recover Forgotten Passwords with Windows Control Panel Guidance by YL Technologies | YL Productivity Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579854344-saying-i-love-you-in-over-50-countries-today/"><u>Saying 'I Love You' In Over 50 Countries Today!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-the-influence-of-ai-powered-chatbots-on-modern-content-creation-techniques/"><u>Unveiling the Influence of AI-Powered Chatbots on Modern Content Creation Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viking-verbal-legacy-the-echoes-of-old-norse-speech/"><u>Viking Verbal Legacy: The Echoes of Old Norse Speech</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1657193-9781250054074-what-i-know-for-sure/"><u>What I Know For Sure | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pista-logia-eygnwmwn-gkreman/"><u>Πιστά Λόγια Ευγνώμων Γκρεμάν</u></a></li>
 </ul></div>
 

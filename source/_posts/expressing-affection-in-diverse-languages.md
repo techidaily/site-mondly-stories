@@ -1,7 +1,7 @@
 ---
 title: Expressing Affection in Diverse Languages
-date: 2024-09-11T19:21:40.287Z
-updated: 2024-09-16T19:47:29.498Z
+date: 2025-01-18T16:04:05.762Z
+updated: 2025-01-22T16:54:51.704Z
 tags:
   - speak
   - english
@@ -26,11 +26,19 @@ thumbnail: https://thmb.techidaily.com/aa427c93a364e264a275d02d7b783f7e962d85c1f
 
  Spoken mainly in the Americas, Europe, and parts of Africa, Romance languages have roughly 1 billion native speakers worldwide. Spanish, Portuguese, French, Italian and Romanian are also national languages and the top 5 most important Romance languages. These five languages combined account for over 90 percent of those who [speak a Romance language](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6018&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Romance languages complete list
 
  According to [Ethnologue](https://www.ethnologue.com/subgroups/romance) , there are 43 Romance languages: Aragonese, Aromanian, Arpitan, Asturian, Cajun French, Campidanese Sardinian, Catalan, Charapa Spanish, Corsican, Emilian, Extremaduran, Fala, French, Friulian, Galician, Gallurese Sardinian, Guernésiais, Istriot, Istro Romanian, Italian, Judeo-Italian, Ladin, Ladino, Ligurian, Logudorese Sardinian, Lombard, Megleno Romanian, Minderico, Mirandese, Napoletano-Calabrese, Occitan, Picard, Piedmontese, Portuguese, Romagnol, Romanian, Romansh, Sassarese Sardinian, Shuadit, Sicilian, Spanish, Venetian and Walloon.
 
  However, you should know that categorizing languages is fairly difficult because of their existence on a continuum. Therefore, the exact number of languages in this family may vary depending on the source you are looking at.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why are they called Romance languages?
 
@@ -60,19 +68,6 @@ thumbnail: https://thmb.techidaily.com/aa427c93a364e264a275d02d7b783f7e962d85c1f
 
 ![italian](https://edge.mondly.com/blog/wp-content/uploads/2021/07/italian-960x768.jpg "What Are The Romance Languages? 6")
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Manarola, Italy” by Robert Aniței©
 
  Back to our origin story, as you might have guessed, Vulgar Latin is the Latin that spread amongst the local populations of the Roman Empire. Then, over time, it evolved separately into different varieties of spoken Latin all over the empire.
@@ -80,10 +75,7 @@ thumbnail: https://thmb.techidaily.com/aa427c93a364e264a275d02d7b783f7e962d85c1f
  After the fall of the Roman Empire, these Latin varieties started to diverge even more and eventually evolved into separate languages. Unlike today, back in those days, there was no TV, radio or universal education to keep people up-to-date with the standard form of Latin. Consequently, the spoken forms of Latin diverged quite easily into the Romance languages we all know and love today.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How similar are Romance languages?
@@ -94,16 +86,13 @@ thumbnail: https://thmb.techidaily.com/aa427c93a364e264a275d02d7b783f7e962d85c1f
 
 ![latin based languages](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-based-languages.png "What Are The Romance Languages? 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Romanian is always the odd one out.
 
  Although all the modern Romance languages are definitely closer to each other than to Latin, if you really are passionate about languages, it might prove fun to learn Latin (which, by the way, you can do with [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6018&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6018) ). Discovering the origin of these languages will surely help you make connections and learn faster.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Is English a Romance language?
 
@@ -113,6 +102,10 @@ thumbnail: https://thmb.techidaily.com/aa427c93a364e264a275d02d7b783f7e962d85c1f
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### From 0 to conversational in any Romance language
 
@@ -137,5 +130,24 @@ thumbnail: https://thmb.techidaily.com/aa427c93a364e264a275d02d7b783f7e962d85c1f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-mastering-the-craft-of-online-title-perfection/"><u>[New] In 2024, Mastering the Craft of Online Title Perfection</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-navigate-zoom-with-precision-on-windows-10-devices/"><u>2024 Approved Navigate Zoom with Precision on Windows 10 Devices</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/anticipate-the-unseen-7-forecasts-redefining-modern-cybersecurity-measures/"><u>Anticipate the Unseen: 7 Forecasts Redefining Modern Cybersecurity Measures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cutting-edge-systems-for-effective-language-study/"><u>Cutting-Edge Systems for Effective Language Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-basic-sound-structures-in-german-language/"><u>Discover Basic Sound Structures in German Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-croatian-language-skills-for-cultural-immersion-success/"><u>Essential Croatian Language Skills for Cultural Immersion Success!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/evaluation-of-viewing-seconds-in-a-20mb-videography/"><u>Evaluation of Viewing Seconds in a 20MB Videography</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixes-for-metro-exodus-game-crash-issues-on-windows/"><u>Fixes for Metro Exodus Game Crash Issues on Windows</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-epson-wf-2760-driver-for-windows-11-download-and-installation-guide/"><u>Get Your Epson WF-2760 Driver for Windows 11 - Download and Installation Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heres-how-to-use-mondly-and-get-the-best-out-of-it/"><u>Here’s How To Use Mondly And Get The Best Out Of It</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-the-social-spheres-new-picks-explore-these-8-trends/"><u>In 2024, The Social Sphere's New Picks Explore These 8 Trends</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-korean-at-your-fingertips-discover-6-online-goldmines/"><u>Mastering Korean at Your Fingertips - Discover 6 Online Goldmines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/must-learn-croatian-dialogues-for-smooth-expat-experiences/"><u>Must-Learn Croatian Dialogues for Smooth Expat Experiences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pasos-para-saber-los-dias-de-la-semana-en-espanol/"><u>Pasos Para Saber Los Días De La Semana en Español</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-4-must-try-ai-powered-story-creation-tools-unleash-your-imagination/"><u>Top 4 Must-Try AI-Powered Story Creation Tools - Unleash Your Imagination!</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unraveling-the-apple-podcast-app-submission-system-for-2024/"><u>Unraveling the Apple Podcast App Submission System for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-words-in-english-language-mergers-over-time/"><u>Worldwide Words in English: Language Mergers Over Time</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Worldwide Celebrations: A Tapestry of Easter Speeches"
-date: 2024-09-15T20:14:58.247Z
-updated: 2024-09-16T17:23:47.008Z
+date: 2025-01-15T17:41:47.268Z
+updated: 2025-01-22T17:41:21.783Z
 tags:
   - speak
   - english
@@ -55,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/fdb6c6b05c78c0b2bd4cfb049b84f9ca3dab160f0
 
  As the Christian faith spread, early believers who did not follow Jewish customs blended their observances with the pagan spring festival, eventually recognizing Easter as “resurrection day.” The Easter traditions that we enjoy today are a mixture of Christian and ancient pagan customs. Although the Christian traditions are still very much a part of the holiday, the pagan symbols of eggs, bunnies, and sweets have become more prominent and “marketable”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why do we celebrate Easter?
 
  Christians celebrate Easter as a happy holiday because it fulfills the Old Testament prophecies and shows God’s plan to save everyone. Easter celebrates the Resurrection of Jesus Christ, which defeated death on the third day and gives hope for salvation. Christians believe that Jesus’ death paid for humanity’s sins and his Resurrection gives believers hope for their own resurrection.
@@ -66,10 +70,7 @@ thumbnail: https://thmb.techidaily.com/fdb6c6b05c78c0b2bd4cfb049b84f9ca3dab160f0
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Happy Easter In Different Languages &Amp; Easter Traditions 2")
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Language learning made easy
@@ -106,6 +107,10 @@ thumbnail: https://thmb.techidaily.com/fdb6c6b05c78c0b2bd4cfb049b84f9ca3dab160f0
 
  Nowadays, the Easter egg hunt has become a fun activity enjoyed by children and parents alike.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Easter traditions around the world
 
 * In**Greece** , people dye the eggs only in red shades as red represents the blood of Jesus Christ.
@@ -116,6 +121,10 @@ thumbnail: https://thmb.techidaily.com/fdb6c6b05c78c0b2bd4cfb049b84f9ca3dab160f0
 * In**Sweden and Finland** , it is an Easter tradition for children to dress as Easter witches. Like the trick-or-treating tradition of Halloween, they then go door to door and present hand-made carts and other greetings in exchange for sweets.
 * In**Haux, France** , locals serve a giant omelet in the town’s main square. The omelet is made of more than 15,000 eggs and feeds up to 1,000 people.
 * In**Vatican City** , on Good Friday, the Pope marks the Way of the Cross by beginning a procession at the Colosseum. Participants in the procession carry candles and stop 14 times along the way to represent the Stations of the Cross as they make their way around the amphitheater and up to Palatine Hill.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Easter greetings in different countries
 
@@ -136,16 +145,7 @@ thumbnail: https://thmb.techidaily.com/fdb6c6b05c78c0b2bd4cfb049b84f9ca3dab160f0
 !['Happy Easter' by Priscilla Du Preez©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/happy-easter-960x640.jpg "Happy Easter In Different Languages &Amp; Easter Traditions 4")
 
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Spanish – _¡Felices Pascuas!_
@@ -160,13 +160,6 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
 
  Other Easter traditions in France include chocolate, the Easter bells_(_ _Les cloches de Pâques)_ and the classic rabbits and eggs, of course!
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. German –_Frohe Ostern!_
 
  Easter (_Ostern_ in German) in Germany has a long history and some of its traditions have even spread around the world.
@@ -175,18 +168,15 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
 
  The Easter menu also included yeast pastries like_Hefezopf_ or_Osterkranz_ , which can be stuffed with nuts and dried fruits and eaten with butter or jam.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Italian –_Buona Pasqua!_
 
  Easter (_Pasqua_ in Italian) is a significant holiday in Italy, second only to Christmas. While the days before Easter include solemn masses, the holiday itself is a joyous celebration with many traditions._La Pasquetta_ , the day after Easter Sunday, is also a public holiday throughout Italy.
 
  Traditional holiday foods in Italy include lamb or goat, artichokes, and special Easter breads that differ from region to region. Some popular Easter breads are_Pannetone_ sweet bread and_Colomba_ (dove-shaped) bread, which are often given as gifts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Portuguese –_Feliz Páscoa!_
 
@@ -195,6 +185,10 @@ _Pâques_ (‘Easter’ in French) is an important holiday in France as families
  Similarly, Easter in Brazil, a country with one of the world’s largest Catholic populations, is centered on religion and spending time with loved ones.
 
 In both countries, people eat salt cod on Good Friday.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Turkish –_Paskalyanız kutlu olsun!_
 
@@ -207,19 +201,6 @@ In both countries, people eat salt cod on Good Friday.
  Romania is a highly religious country, so Easter is a significant celebration for Romanians. During the three days of Easter (and even after), most locals will greet each other using the Paschal greeting_Hristos a Înviat – Adevărat a Înviat_ which means “Christ is Risen! – Truly He is Risen!”.
 
  Following the period of Lent (in varying degrees of strictness), the traditional Easter menu in Romania includes_cozonac_ (which is a type of sweet bread with nuts and Turkish delight),_drob_ (made from minced up offal and entrails) and oven-cooked lamb.
-
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 8\. Polish –_Wesołego Alleluja!_
 
@@ -263,5 +244,26 @@ In both countries, people eat salt cod on Good Friday.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-download-harmony-free-music-from-fb/"><u>[New] Download Harmony Free Music From FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-audience-connection-implementing-a-triplet-of-copywriting-tactics-in-fb-ads-for-2024/"><u>[Updated] Audience Connection Implementing a Triplet of Copywriting Tactics in FB Ads for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-how-to-curate-a-facebook-playlist-via-phonetablet/"><u>[Updated] In 2024, How to Curate a Facebook Playlist via Phone/Tablet</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-swift-seize-video-with-soundtracking/"><u>[Updated] In 2024, Swift Seize Video with Soundtracking</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-shorts-vs-tiktok-which-one-is-better-for-2024/"><u>[Updated] YouTube Shorts Vs. TikTok Which One Is Better for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-cutting-edge-techniques-for-capturing-stellar-interviews-on-idevices/"><u>2024 Approved Cutting-Edge Techniques for Capturing Stellar Interviews on iDevices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581430573-9-english-grammar-tips-from-an-esl-speaker/"><u>9 English Grammar Tips From An ESL Speaker</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/asian-lingo-triad-priority-save-easy-reordering/"><u>Asian Lingo Triad: Priority Save, Easy Reordering</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalan-crash-course-minutes-to-mastery/"><u>Catalan Crash Course – Minutes to Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/demographics-of-french-language-users-worldwide/"><u>Demographics of French Language Users Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-knowledge-for-no-cost/"><u>Discovering Knowledge for No Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/echoes-in-your-mouth-starting-with-basic-german-phonetics/"><u>Echoes in Your Mouth: Starting with Basic German Phonetics</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/enhance-your-online-presence-using-manycam-the-leading-choice-in-live-video-editing-tools-and-fake-backgrounds/"><u>Enhance Your Online Presence Using ManyCam – The Leading Choice in Live Video Editing Tools & Fake Backgrounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/high-fidelity-learning-pearsons-enhanced-gsl-via-mondly/"><u>High Fidelity Learning: Pearson's Enhanced GSL via Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/monday-a-dimanche-en-france/"><u>Monday À Dimanche en France</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/monitor-selection-mastery-ultrawide-versus-uhd-4k-for-2024/"><u>Monitor Selection Mastery UltraWide Versus UHD 4K for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-language-exchange-through-pearson/"><u>Online Language Exchange Through Pearson</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-messages-after-x50-has-been-deleted-by-fonelab-android-recover-messages/"><u>Recover your messages after X50 has been deleted</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-tutorial-for-snapping-screenshots-on-nintendo-switch-console/"><u>Step-by-Step Tutorial for Snapping Screenshots on Nintendo Switch Console</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Turkish Letter System Unveiled: A Simple Learning Path for Newbies"
-date: 2024-09-09T19:59:52.916Z
-updated: 2024-09-16T19:55:45.686Z
+date: 2025-01-17T16:13:25.304Z
+updated: 2025-01-22T17:52:49.063Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
 
  But Turkish didn’t always use the Latin script. Let’s look a little bit at the history and see how today’s Turkish alphabet was born.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Turkish alphabet – a short history
 
  The Turkik languages have a long history of [writing systems](https://en.wikipedia.org/wiki/Turkish%5Falphabet) . Over time, these languages have been written using different alphabets like Cyrillic, Uyghur, Greek, Arabic, Latin and some other Asiatic writing systems.
@@ -30,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
 
 ![turkish language](https://edge.mondly.com/blog/wp-content/uploads/2019/10/turkish-language-1024x713.jpg "Turkish Alphabet And Pronunciation: A Quick Guide 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “The Blue Mosque, Istanbul, Turkey” by Adli Wahid©
 
  Then, in the 19th century, together with the introduction of the printing press and telegraph appeared the need for a more Turkish-oriented script. The Arabic script was perfect for writing Ottoman Turkish – which included a lot of [Arabic](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Persian words – but it was poorly suited for the Turkish part of the vocabulary.
@@ -37,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
  In other words, while the Arabic language is poor in vowels and rich in consonants, Turkish is exactly the opposite. Thus, the Arabic script was inadequate at representing Turkish phonemes. And this is exactly why Turkish reformists promoted the adoption of the Latin script.
 
  Fortunately, **in 1928, Mustafa Kemal Atatürk, the founder of the Turkish Republic, finally adopted the 29-letter Latin script as a part of his famous Reforms in Turkey – the same alphabet that Turks use today.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The pronunciation of each letter of the Turkish alphabet
 
@@ -48,7 +60,15 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
 
 ![turkish alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2019/10/turkish-alphabet-pronunciation-scaled-960x679.jpg "Turkish Alphabet And Pronunciation: A Quick Guide 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The pronunciation of the 29 letters of the Turkish alphabet
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Rules to help you get started with Turkish
 
@@ -97,18 +117,19 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-streamline-your-social-impact-with-snapchat-gifs/"><u>[Updated] 2024 Approved Streamline Your Social Impact with Snapchat Gifs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-from-dull-to-dynamic-a-masters-approach-to-color/"><u>2024 Approved From Dull to Dynamic A Master's Approach to Color</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chiefly-taught-foreign-languages-in-american-schools/"><u>Chiefly Taught Foreign Languages in American Schools</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/effective-solutions-to-fix-cod-warzone-game-disc-reading-issues-with-errors-50-and-31/"><u>Effective Solutions to Fix COD Warzone Game Disc Reading Issues with Errors [5.0 and 3.1]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581917754-from-beans-to-bars-heres-chocolate-in-30-languages/"><u>From Beans to Bars, Here's Chocolate in 30 Languages</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Realme Note 50? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-motorola-edge-40-pro-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Motorola Edge 40 Pro Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/resolved-overcoming-silence-fixing-the-lack-of-sound-during-mp4-file-imports-into-imovie/"><u>Resolved: Overcoming Silence - Fixing the Lack of Sound During MP4 File Imports Into iMovie</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-samsung-galaxy-s23-fe-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from Samsung Galaxy S23 FE</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-numbers-101-a-beginners-guide-to-counting-in-spanish/"><u>Spanish Numbers 101: A Beginner's Guide To Counting In Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voyage-to-italy-key-expressions-to-ease-your-travels/"><u>Voyage to Italy: Key Expressions to Ease Your Travels</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/wholesome-eating-made-simple-by-chatgpt/"><u>Wholesome Eating Made Simple by ChatGPT</u></a></li>
+</ul></div>
 

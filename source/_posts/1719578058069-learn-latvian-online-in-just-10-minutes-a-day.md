@@ -1,7 +1,7 @@
 ---
 title: Learn Latvian Online In Just 10 Minutes A Day
-date: 2024-09-14T18:45:53.570Z
-updated: 2024-09-16T16:01:23.480Z
+date: 2025-01-17T17:48:43.581Z
+updated: 2025-01-22T17:17:58.082Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/4824b5bc1ec47ceadb929bb6b68e8c9454196f2de
 
  Consisting of super fun, efficient and accessible language lessons, the new Latvian course is now available on [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4558&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv) ,[Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4558&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv) and [web](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4558&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4558?mother%5Flang=en%5Fus?target%5Flang=lv) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Latvian language in a nutshell
 
  Also known as “Lettish”, the Latvian language is the official language of Latvia and one of the 24 official languages of the European Union.
@@ -32,13 +36,25 @@ thumbnail: https://thmb.techidaily.com/4824b5bc1ec47ceadb929bb6b68e8c9454196f2de
 
 ![latvian language course](https://edge.mondly.com/blog/wp-content/uploads/2020/03/latvian-language-course-277x600.jpg "Learn Latvian Online In Just 10 Minutes A Day 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Learn Latvian with Mondly
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How similar are Latvian and Lithuanian?
 
  As a Baltic language, Latvian is most closely related to sister language [Lithuanian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Linguists even claim that, for quite some time, **Latvian and Lithuanian were different dialects of the same language.** However, Latvian has followed a more rapid development that made the two contemporary languages rather different.
 
  Unsurprisingly, Latvian and Lithuanian do share a lot of features, but they are not mutually intelligible enough to make conversation possible.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How similar are Latvian and Russian?
 
@@ -58,10 +74,7 @@ thumbnail: https://thmb.techidaily.com/4824b5bc1ec47ceadb929bb6b68e8c9454196f2de
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Speak Latvian today
@@ -85,5 +98,18 @@ thumbnail: https://thmb.techidaily.com/4824b5bc1ec47ceadb929bb6b68e8c9454196f2de
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-advanced-tech-webcams-the-ultimate-guide-to-the-top-5-with-sound/"><u>[New] In 2024, Advanced Tech Webcams - The Ultimate Guide to the Top 5 With Sound</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-avoid-high-costs-buying-budget-friendly-gopros/"><u>[Updated] 2024 Approved Avoid High Costs Buying Budget-Friendly GoPros</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-revolutionize-your-image-layouts-with-these-tools/"><u>[Updated] Revolutionize Your Image Layouts with These Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-essential-italian-travel-phrases-for-your-trip/"><u>100+ Essential Italian Travel Phrases for Your Trip</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-skills-boost-in-minutes/"><u>Bangla Skills Boost in Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-openers-starting-conversations-in-china/"><u>Conversational Openers: Starting Conversations in China</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hering-youtube-popularity-factors-for-higher-placement/"><u>Deciphering YouTube Popularity Factors for Higher Placement</u></a></li>
+<li><a href="https://fox-that.techidaily.com/find-lock-and-erase-secure-your-stolen-iphone-through-apples-find-my-service/"><u>Find, Lock, and Erase: Secure Your Stolen iPhone Through Apple’s Find My Service</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/instant-language-proficiency-master-slovak-in-just-ten-minutes/"><u>Instant Language Proficiency? Master Slovak in Just Ten-Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-latvian-skills-minutes-at-a-time/"><u>Jumpstart Your Latvian Skills, Minutes at a Time</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/metagaming-mastery-top-10-friendly-games-for-2024/"><u>Metagaming Mastery Top 10 Friendly Games for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Slovak in a Flash - Online Learning for Busy Lives
-date: 2025-01-14T04:49:10.354Z
-updated: 2025-01-16T08:21:59.364Z
+date: 2025-01-19T17:22:07.296Z
+updated: 2025-01-22T16:34:54.300Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/5ef4b9be2cc03e1f5bba8134aa6b00b2355f4bf89
  Consisting of super fun, efficient and accessible language lessons, the new Slovak course is now available on [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4562&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4562?mother%5Flang=en%5Fus?target%5Flang=sk&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4562?mother%5Flang=en%5Fus?target%5Flang=sk) ,[Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4562&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4562?mother%5Flang=en%5Fus?target%5Flang=sk&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4562?mother%5Flang=en%5Fus?target%5Flang=sk) and [web](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4562&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4562?mother%5Flang=en%5Fus?target%5Flang=sk&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4562?mother%5Flang=en%5Fus?target%5Flang=sk) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Slovak language in a nutshell
@@ -35,13 +35,13 @@ thumbnail: https://thmb.techidaily.com/5ef4b9be2cc03e1f5bba8134aa6b00b2355f4bf89
 ![slovak language course](https://edge.mondly.com/blog/wp-content/uploads/2020/03/slovak-language-course-277x600.jpg "Learn Slovak Online In Just 10 Minutes A Day 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Learn Slovak with Mondly
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Slovak vs Czech – how similar are they?
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/5ef4b9be2cc03e1f5bba8134aa6b00b2355f4bf89
  Other languages that share history and vocabulary with Slovak are Latin, German, Czech, Hungarian,[Polish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Greek.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10 basic Slovak phrases and words you can learn right now
@@ -81,7 +81,7 @@ thumbnail: https://thmb.techidaily.com/5ef4b9be2cc03e1f5bba8134aa6b00b2355f4bf89
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Start learning Slovak today
@@ -107,15 +107,24 @@ thumbnail: https://thmb.techidaily.com/5ef4b9be2cc03e1f5bba8134aa6b00b2355f4bf89
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-optimal-ppt-presentation-capture-methods/"><u>[New] 2024 Approved Optimal PPT Presentation Capture Methods</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-countdown-configuration-in-obs-for-streamers-and-filmmakers-for-2024/"><u>[New] Countdown Configuration in OBS for Streamers and Filmmakers for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/counteracting-text-slyness-openais-anti-deception-ai/"><u>Counteracting Text Slyness: OpenAI's Anti-Deception AI</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-exit-dfu-mode-on-iphone-15-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit DFU Mode on iPhone 15 Plus? | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-ios-integration-listening-to-podcasts-made-easy/"><u>In 2024, IOS Integration Listening to Podcasts Made Easy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-driving-change/"><u>Johannes Honterus: Driving Change</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lexical-differences-a-tale-of-two-englishes/"><u>Lexical Differences: A Tale of Two Englishes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rapidly-acquire-japanese-numbers-today/"><u>Rapidly Acquire Japanese Numbers Today</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-titans-of-tutorials-youtube-leaders-for-2024/"><u>The Titans of Tutorials YouTube Leaders for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/tune-into-new-language-skills-using-scientific-musical-approaches/"><u>Tune Into New Language Skills - Using Scientific, Musical Approaches</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-free-scape-discovering-the-artistic-no-money-backdrops-of-tiktok-for-2024/"><u>[New] FREE-Scape Discovering the Artistic No-Money Backdrops of TikTok for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-sound-sphere-navigating-music-uploads/"><u>[New] In 2024, The Sound Sphere Navigating Music Uploads</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-tips-and-tricks-for-clearing-cluttered-backdrops-in-figma-for-2024/"><u>[New] Tips and Tricks for Clearing Cluttered Backdrops in Figma for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-ultimate-tutorial-downloading-and-extracting-audio-from-vids-on-social-platforms/"><u>[Updated] Ultimate Tutorial Downloading and Extracting Audio From Vids on Social Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-must-watch-foreign-films-for-eloquence/"><u>10 Must-Watch Foreign Films for Eloquence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/2-years-of-mondly-languages/"><u>2 Years of Mondly Languages</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/a-deep-dive-into-chatgpt-how-it-works-and-its-impact/"><u>A Deep Dive Into ChatGPT: How It Works and Its Impact</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-local-rap-figure-learn-27-authentic-french-expressions/"><u>Become a Local Rap Figure: Learn 27 Authentic French Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-workplace-dynamics-selecting-best-language-aids/"><u>Boost Workplace Dynamics: Selecting Best Language Aids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilian-and-eu-portuguese-a-comparative-linguistic-examination/"><u>Brazilian and EU Portuguese: A Comparative Linguistic Examination</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultures-of-appreciation-multilingual-thank-you-guides-154/"><u>Cultures of Appreciation: Multilingual Thank-You Guides (154)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-power-of-arabic-6-compelling-online-advantages-with-mondly/"><u>Discover the Power of Arabic: 6 Compelling Online Advantages with Mondly</u></a></li>
+<li><a href="https://common-error.techidaily.com/essential-fixes-for-non-functional-windows-audio/"><u>Essential Fixes for Non-Functional Windows Audio</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580898500-fast-norsk-fluency-daily-ten-minute-boosts/"><u>Fast Norsk Fluency - Daily Ten-Minute Boosts</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-unlock-more-views-and-likes-on-tiktok-top-50-hashtags/"><u>In 2024, Unlock More Views & Likes on TikTok Top 50 Hashtags</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782319-9781591438052-mysteries-of-the-ancient-past/"><u>Mysteries of the Ancient Past | Free Book</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722181629875-safeguard-your-affections-from-ai-enhanced-romance-hoaxes-top-vehicle-of-scams-in-todays-digital-age-and-how-they-can-be-spotted/"><u>Safeguard Your Affections From AI-Enhanced Romance Hoaxes: Top Vehicle of Scams in Today's Digital Age, and How They Can Be Spotted</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-tutorial-on-powering-down-your-latest-iphone-15-pro-and-max-variants/"><u>The Ultimate Tutorial on Powering Down Your Latest iPhone 15 Pro and Max Variants</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578757679-ukranian-in-a-flash-one-minute-a-day-65-chars-note-adjusted-for-brevity/"><u>Ukranian in a Flash, One Minute a Day (65 Chars) - Note: Adjusted for Brevity.</u></a></li>
 </ul></div>
 

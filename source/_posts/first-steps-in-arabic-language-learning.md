@@ -1,7 +1,7 @@
 ---
 title: First Steps in Arabic Language Learning
-date: 2024-09-10T16:02:43.412Z
-updated: 2024-09-16T17:37:48.928Z
+date: 2025-01-16T17:26:44.586Z
+updated: 2025-01-22T17:37:54.161Z
 tags:
   - speak
   - english
@@ -34,9 +34,17 @@ thumbnail: https://thmb.techidaily.com/3de73e34857cd0f78a7df37ffea6db9e6fc87f29f
 
 I’d really stick by these if I were you!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Decision time
 
  Ok, you can’t really learn all the Arabic, since there are many types of it (Palestinian, Iraqi, Egyptian, Levantine). To be more precise, there’s the mother tongue, which is the official language, but also different accents and a lot of pronunciations depending on the locale. So, choose the type of Arabic you want to learn in relation to the region/regions you are interested in. There’s also Modern Standard Arabic, one of the official languages of the UN.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Commence with just the basics
 
@@ -49,10 +57,7 @@ I’d really stick by these if I were you!
  So, when you encounter a written word there will be no way of knowing how to pronounce it unless you’ve heard it before. And this is where Mondly comes in handy! We provide you with real-life conversations, a speech recognition chatbot, and quality recordings. You’ll get used to Arabic words in no time. Ok, final note, you write from left to right, not the other way around.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Learn how to use an Arabic dictionary
@@ -62,15 +67,16 @@ I’d really stick by these if I were you!
  In order to find a word, you need to already know its root and the letter that the root starts with, and this letter is not always the first letter in the word. So yeah, learning to use the dictionary will take some practice, but once you’ve mastered it will make things much simpler.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Start practicing and speaking
 
 ![coworkers talking](https://edge.mondly.com/blog/wp-content/uploads/2022/01/coworkers-talking-960x640.jpg "Arabic For Beginners: A Step By Step Guide 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  ‘Coworkers’ by Mikhail Nilov©
 
@@ -110,5 +116,26 @@ I’d really stick by these if I were you!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-storyboard-sovereignty-ranking-the-premier-schools-1-8-for-2024/"><u>[New] Storyboard Sovereignty Ranking the Premier Schools (#1-#8) for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-collection-free-3d-text-psds-galore/"><u>[New] Ultimate Collection FREE 3D Text PSDs Galore</u></a></li>
+<li><a href="https://program-issues.techidaily.com/beat-street-fighter-6-delays-and-latency-headaches-advanced-optimization-techniques-for-gaming-laptops-and-desktops/"><u>Beat Street Fighter 6 Delays & Latency Headaches – Advanced Optimization Techniques for Gaming Laptops and Desktops</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/deciding-on-superior-ai-gpt-plus-or-perplexity/"><u>Deciding on Superior AI: GPT Plus or Perplexity?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-vocabulary-to-master-latin-american-greetings/"><u>Essential Vocabulary to Master Latin American Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-kid-safe-world-mondlys-awarded-feature-set/"><u>Explore Kid-Safe World - Mondly’s Awarded Feature Set</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-japanese-all-the-japanese-greetings-you-need-to-know/"><u>Hello in Japanese – All the Japanese Greetings You Need to Know</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-cut-the-cord-with-youtube-mp3-conversion-tools/"><u>In 2024, Cut the Cord with YouTube-MP3 Conversion Tools</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-from-concept-to-capture-the-breakdown-of-apeaks-recorder-software/"><u>In 2024, From Concept to Capture The Breakdown of Apeak's Recorder Software</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-samsung-galaxy-a54-5g-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Samsung Galaxy A54 5G Location | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-apps-transforming-linguistic-skills/"><u>Innovative Apps Transforming Linguistic Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-of-communication-an-israeli-insight/"><u>Languages of Communication: An Israeli Insight?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-french-greetings-with-ease-and-flair-a-practical-guide/"><u>Learning French Greetings with Ease & Flair: A Practical Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/izing-video-content-8-essentials-for-novices-for-2024/"><u>Monetizing Video Content - 8 Essentials for Novices for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingualism-made-easy-with-media-content/"><u>Multilingualism Made Easy with Media Content</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-german-letters-and-phonetics-for-beginners/"><u>Navigating German Letters and Phonetics for Beginners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-an-italian-100plus-useful-travel-language-guide/"><u>Speak Like an Italian: 100+ Useful Travel Language Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-3-key-technological-advancements-of-the-decade/"><u>The 3 Key Technological Advancements of the Decade</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unveiling-the-new-additions-to-apples-obsolete-catalog-what-it-means-for-your-older-mac-models-zdnet/"><u>Unveiling the New Additions to Apple's 'Obsolete' Catalog: What It Means for Your Older Mac Models | ZDNet</u></a></li>
+</ul></div>
 

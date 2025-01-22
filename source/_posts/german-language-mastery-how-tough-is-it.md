@@ -1,7 +1,7 @@
 ---
 title: "German Language Mastery: How Tough Is It?"
-date: 2025-01-08T20:49:12.388Z
-updated: 2025-01-16T04:38:04.353Z
+date: 2025-01-17T16:21:41.784Z
+updated: 2025-01-22T16:03:51.134Z
 tags:
   - speak
   - english
@@ -21,16 +21,12 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
  Like people, languages are very different but also sometimes similar. This doesn’t mean you can’t be friends. Read on to discover a fair evaluation of the complexity of the German language. If_Deutsch_ is as hard as they say, we will reveal a safe method to make it easy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why is German considered hard to learn?
 
  We can all probably agree that German has a bad reputation for being one of the [hardest languages to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Society, entertainment, and memes in particular, always seem to maintain and even solidify our prejudices about the German language. The two most popular justifications are its neverending long words and their harsh pronunciation. Over the course of history, we had and still have a lot of preconceptions, but this one is particularly hard to break. So let’s shatter all the myths right here, right now.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. German is impossible to pronounce
 
@@ -40,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 
 **Verdict: false assumption.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. German words are neverending
 
  Or so they seem. The German language is famous for having some of the [longest words in the world](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . But did you know that these words are, in fact, compounds? This means that German puts different words together to create a new word. In turn, English uses spaces or hyphens to make everything much easier to read. German, unfortunately, spells everything together. For example,_rindfleischetikettierungsüberwachungsaufgabenübertragungsgesetz_ (63 letters) means “law delegating beef label monitoring”.
@@ -47,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
  However, there’s an easy trick to overcome this problem. All you have to do is to mentally separate the awfully long word into smaller bits. The more short [German words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you know, the more long German words you’ll master. Easy as that!
 
 **Verdict: true assumption, but not as scary as it seems.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Multiple genders AND formal vs. informal language
 
@@ -64,7 +68,7 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 !['German hard to learn' by Sebastian Herrmann©](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-hard-to-learn-960x640.jpg "Is German Hard To Study? 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. German grammar is too hard to learn
@@ -78,10 +82,6 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 Doesn’t this sound familiar?
 
 **Verdict: false assumption.**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is German hard to learn?
 
@@ -97,10 +97,6 @@ Doesn’t this sound familiar?
 
  Moreover, your progress can also be influenced by the learning method you’re using. While dry memorization techniques used to be the norm until a few years ago, nowadays learning German can be much more enjoyable.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Can German be easy to learn?
 
  Definitely yes. As complex as the German language may be, the language learning app [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6661&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6661?mother%5Flang=en%5Fus?target%5Flang=de&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6661?mother%5Flang=en%5Fus?target%5Flang=de) can make it fun and quite easy to learn. Millions of people have learned German with Mondly and they all agree that German is not as hard to learn as ‘advertised’.
@@ -111,6 +107,10 @@ Doesn’t this sound familiar?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Study German in just 10 minutes a day
 
@@ -141,22 +141,19 @@ Doesn’t this sound familiar?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-finalcut-pro-101-crafting-professional-youtube-edits-for-2024/"><u>[Updated] FinalCut Pro 101 Crafting Professional YouTube Edits for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-a-comprehensive-look-at-vlc-recorder/"><u>[Updated] In 2024, A Comprehensive Look at VLC Recorder</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-master-the-art-of-steadiness-in-imaging/"><u>2024 Approved Master the Art of Steadiness in Imaging</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-htc-u23-pro-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track HTC U23 Pro without App | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/how-to-swiftly-learn-a-new-language-via-the-internet/"><u>How to Swiftly Learn a New Language via the Internet</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-begin-webcam-footage-recording-with-vlc/"><u>In 2024, Begin Webcam Footage Recording with VLC</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Nokia 150 (2023) | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/innovative-management-solutions-for-multilingualism/"><u>Innovative Management Solutions for Multilingualism</u></a></li>
-<li><a href="https://discover-help.techidaily.com/iphoneandroidwindows-6/"><u>IPhone/Android/Windows手機上如何回復丟失的相片: 6個有效方法</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/leveraging-mondly-for-enhanced-linguistic-skills-top-10-ways/"><u>Leveraging Mondly for Enhanced Linguistic Skills - Top 10 Ways</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-minds-cognitive-upsides/"><u>Multilingual Minds: Cognitive Upsides</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/navigating-spotifys-ad-landscape-a-beginners-guide-for-2024/"><u>Navigating Spotify's Ad Landscape A Beginner's Guide for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-online-lithuanian-education/"><u>The Ultimate Guide to Online Lithuanian Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/thriving-socially-and-cognitively-embracing-new-languages-post-fifty/"><u>Thriving Socially and Cognitively: Embracing New Languages Post-Fifty</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/trennungsformeln-fur-die-deutsche-sprache/"><u>Trennungsformeln Für Die Deutsche Sprache</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-top-rated-free-vob-video-editors-for-pc-and-mac/"><u>Updated Top-Rated Free VOB Video Editors for PC and Mac</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/young-scholars-spanish-adventure-from-playtime-to-classroom/"><u>Young Scholars' Spanish Adventure: From Playtime To Classroom</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-counterclockwise-watch-how-to-unravel-your-youtube-sequence-for-2024/"><u>[Updated] Counterclockwise Watch How to Unravel Your YouTube Sequence for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-obs-vs-wirecast-which-should-you-trust-for-live/"><u>2024 Approved OBS Vs. Wirecast - Which Should You Trust for Live?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-rapid-guide-to-understanding-turkeys-alphabet-and-phonetics/"><u>A Rapid Guide to Understanding Turkey's Alphabet & Phonetics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-step-by-step-primer-for-english-contraction-mastery/"><u>A Step-by-Step Primer for English Contraction Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/animals-in-spanish-60-animal-names-you-need-to-learn/"><u>Animals In Spanish: 60 Animal Names You Need To Learn</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-100-years-of-eu-languages-unite-diverge/"><u>Celebrating 100 Years of EU - Languages Unite, Diverge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/diverse-expressions-of-hello/"><u>Diverse Expressions of Hello</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/do-xbox-series-xs-gaming-systems-include-an-integrated-optical-disc-player-for-movies-and-games/"><u>Do Xbox Series X|S Gaming Systems Include an Integrated Optical Disc Player for Movies and Games?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-lightning-flicker-viewer-windows-photos/"><u>In 2024, Lightning Flicker Viewer - Windows Photos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579057583-open-new-doors-in-life-and-career-by-learning-hindi-reveal-top-8-reasons-to-choose-mondlys-platform/"><u>Open New Doors in Life and Career by Learning Hindi: Reveal Top 8 Reasons to Choose Mondly's Platform!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-realme-narzo-n55-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Realme Narzo N55 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://win11.techidaily.com/stealthy-strategies-bypassing-windows-account-sign-in/"><u>Stealthy Strategies: Bypassing Windows Account Sign-In</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlocking-orbital-secrets-how-amazons-breakthrough-in-space-based-laser-technology-is-revolutionizing-satellite-internet/"><u>Unlocking Orbital Secrets: How Amazon's Breakthrough in Space-Based Laser Technology Is Revolutionizing Satellite Internet</u></a></li>
 </ul></div>
 

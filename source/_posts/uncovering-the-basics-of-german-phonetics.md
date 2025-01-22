@@ -1,7 +1,7 @@
 ---
 title: Uncovering the Basics of German Phonetics
-date: 2024-09-09T17:45:49.504Z
-updated: 2024-09-16T16:35:15.375Z
+date: 2025-01-21T17:26:27.578Z
+updated: 2025-01-22T16:43:33.520Z
 tags:
   - speak
   - english
@@ -20,11 +20,19 @@ thumbnail: https://thmb.techidaily.com/122fad585a96b844750a62c04c4dce3455583d7df
 
  However, German pronunciation being difficult is just a myth._Oh ja,_ you read that right. German is actually one of the few languages where pronunciation makes sense. Once you know the rules, all you have to do is flex those pronunciation muscles and speak like a true German. It’s really not as hard as you think. Let’s break the myth together.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The basics of the German alphabet
 
  We’ll naturally start with the basics. Much like English, the German alphabet consists of 26 standard letters. In addition to that, it also features the letter ß – known as the German ligature – and umlauted forms of three vowels: ä, ö and ü. In total,_das Alphabet_ has 8 vowels and 22 consonants.
 
  Considering you’re already familiar with all the other letters, let’s continue by taking a closer look at these four special letters: ß, ä, ö and ü.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### ß also known as ‘sharp S’, ‘eszett’ or ‘scharfes S’
 
@@ -33,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/122fad585a96b844750a62c04c4dce3455583d7df
  German is the only language that uses ß and if the character is unavailable, it can be replaced with ⟨ss⟩. In fact, in Swiss Standard German (used in Switzerland and Liechtenstein), the letter was completed replaced by ⟨ss⟩ sometime in the 20th century.
 
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### German umlauts: ä, ö, ü
 
@@ -51,10 +63,11 @@ Now round off your lips and start practicing!
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## German pronunciation guide for single letters
@@ -70,13 +83,6 @@ Now round off your lips and start practicing!
 3. **V** – Sounds like the English ‘f’. This is why _Vater_ sounds a lot like ‘father’.
 4. **J** – _Oh ja,_ you already know this one! The German _j_ is pronounced like the English ‘y’.
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## German pronunciation guide for letter combinations
 
@@ -139,5 +145,26 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-investment-worthy-asmr-sound-for-every-fan/"><u>[New] Investment-Worthy ASMR Sound for Every Fan</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-from-static-to-dynamic-hyperlapse-video-techniques/"><u>[Updated] From Static to Dynamic Hyperlapse Video Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-speedy-periscope-broadcasting-made-simple/"><u>[Updated] Speedy Periscope Broadcasting Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-strategies-for-perfecting-english-grammar-with-esl-insight/"><u>8 Strategies for Perfecting English Grammar with ESL Insight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/climb-the-linguistic-ladder-for-workplace-success/"><u>Climb the Linguistic Ladder for Workplace Success</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-the-premiere-apple-watch-accessory-a-comprehensive-look-at-our-favorite-titanium-band-featured/"><u>Discover the Premiere Apple Watch Accessory: A Comprehensive Look at Our Favorite Titanium Band, Featured</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/flirting-in-german-success-strategies/"><u>Flirting in German: Success Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hellenic-heirs-language-legacy-and-current-usage/"><u>Hellenic Heirs: Language Legacy & Current Usage</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-free-floating-vr-without-nausea/"><u>In 2024, Navigating Free-Floating VR without Nausea</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Vivo S18e | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-premium-lifetime-no-cost-plan/"><u>Mondly Premium: Lifetime, No-Cost Plan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-corporate-lexicon-for-effective-negotiation/"><u>Navigating Corporate Lexicon for Effective Negotiation</u></a></li>
+<li><a href="https://blog-min.techidaily.com/professional-digiarty-media-suite-premium-dvd-ripping-and-video-conversion-tools/"><u>Professional Digiarty Media Suite: Premium DVD Ripping & Video Conversion Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-number-one-your-starting-point/"><u>Spanish Number One - Your Starting Point</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tage-der-woche-deutsche-sprachreise-antreten/"><u>Tage Der Woche: Deutsche Sprachreise Antreten</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-7-tips-for-boosting-pc-performance-fast/"><u>Top 7 Tips for Boosting PC Performance Fast</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-samsung-galaxy-s23-fe-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Samsung Galaxy S23 FE FRP Bypass</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/wiederherstellung-geschlossener-powerpoint-dokumente-unter-windows-schritt-fur-schritt/"><u>Wiederherstellung Geschlossener PowerPoint-Dokumente Unter Windows - Schritt Für Schritt</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-teachers-day-how-to-say-teacher-in-different-languages/"><u>World Teachers’ Day | How to Say “Teacher” In Different Languages</u></a></li>
+</ul></div>
 

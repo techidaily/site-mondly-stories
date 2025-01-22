@@ -1,7 +1,7 @@
 ---
 title: "Sprache Und Kultur: Alternative Deutschen Begrüßungen Ohne 'Hallo'"
-date: 2024-09-15T17:53:26.842Z
-updated: 2024-09-16T20:12:50.616Z
+date: 2025-01-16T17:36:40.470Z
+updated: 2025-01-22T16:02:40.802Z
 tags:
   - speak
   - english
@@ -36,6 +36,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  Since we’re discussing diminutives, let’s also mention that_tschüss_ (‘bye’) can become_tschüssi_ . How cute!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Guten Tag – “Hello” or “Good day”
 
  Time to put your tie on!_Guten Tag_ is how you keep things formal. If you want to say ‘hello’ in German to a stranger or maybe to someone you respect, this is the best choice for you.
@@ -52,13 +56,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -73,6 +70,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Was ist los? – “What’s up?”
 
  Very similar to_alles klar?_ ,_was ist los?_ is appropriate for very casual conversations.
@@ -82,10 +83,7 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Regional German greetings
@@ -93,10 +91,7 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
@@ -139,10 +134,7 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
 **Localization:** Bavaria (south-eastern Germany) and Austria.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Servus – “At your service”
@@ -191,5 +183,24 @@ _Tschüss!_ (‘Goodbye!’)
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-simple-way-to-blur-faces-in-picsart/"><u>[New] Simple Way To Blur Faces in Picsart</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unveiling-instagrams-videography-timeframe/"><u>[New] Unveiling Instagram's Videography Timeframe</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-synthesize-shots-the-photo-montage-methodology/"><u>[Updated] Synthesize Shots The Photo Montage Methodology</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-best-ios-slideshow-software-from-x-to-ios13/"><u>2024 Approved Best iOS Slideshow Software From X to IOS13</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-expertly-selected-360-cameras-for-youtube-and-facebook/"><u>2024 Approved Expertly Selected 360° Cameras for YouTube & Facebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/amplify-potential-by-embracing-new-tongues/"><u>Amplify Potential by Embracing New Tongues</u></a></li>
+<li><a href="https://some-tips.techidaily.com/combating-fraudulent-business-fronts-in-digital-and-physical-realms-tech-insights/"><u>Combating Fraudulent Business Fronts in Digital & Physical Realms | Tech Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-dialogues-how-to-wake-up-the-world-with-good-morning/"><u>Dawn Dialogues: How to Wake Up the World with 'Good Morning'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-the-future-of-conversations-with-ai/"><u>Dive Into the Future of Conversations with AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-worlds-apart/"><u>English Worlds Apart</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-infinix-hot-30-5g-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Infinix Hot 30 5G Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-salutations-guide-essential-phrases-and-gestures/"><u>Japanese Salutations Guide: Essential Phrases & Gestures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-forward-easy-learning-for-an-extraordinary-savings/"><u>Language Leap Forward - Easy Learning for an Extraordinary Savings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-patois-top-15-language-list/"><u>Premier Patois: Top 15 Language List</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/step-up-your-image-game-the-best-free-online-editors/"><u>Step Up Your Image Game The Best Free Online Editors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/superior-software-paving-the-way-to-polyglot-prowess/"><u>Superior Software Paving the Way to Polyglot Prowess</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-five-critical-considerations-for-acquiring-used-and-revamped-laptops/"><u>The Five Critical Considerations for Acquiring Used and Revamped Laptops</u></a></li>
+</ul></div>
 

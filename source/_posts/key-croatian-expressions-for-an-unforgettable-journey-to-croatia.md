@@ -1,7 +1,7 @@
 ---
 title: Key Croatian Expressions for an Unforgettable Journey to Croatia
-date: 2025-01-13T18:02:18.160Z
-updated: 2025-01-16T12:30:40.482Z
+date: 2025-01-21T17:41:27.963Z
+updated: 2025-01-22T16:14:23.199Z
 tags:
   - speak
   - english
@@ -64,10 +64,6 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 
  “Plitvice Lakes National Park” by Jonatan Pie©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Basic Croatian phrases for travelers that need help
 
  Every new travel experience should be a dream come true. Imagine visiting**Dubrovnik** and the**Plitvice Lakes National Park** for the first time. It’s a unique feeling you’ll never get to experience again. Unfortunately, emergencies sometimes happen whether we anticipate them or not. It’s best not to let them affect you and the magnificent trip you are taking. So make sure you master this handful of**Croatian phrases** that might save your day at some point during one of your journeys through the spectacular**Krka National Park.**
@@ -93,10 +89,6 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 
 ![croatian translation](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-translation-1024x694.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Delicious” by Cel Lisboa©
 
 * I have a reservation. My name is \_\_\_\_\_. –_Imam rezervaciju. Moje ime je \_\_\_\_._
@@ -113,7 +105,7 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Basic Croatian for travelers who need a place to spend the night
@@ -135,6 +127,10 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 
 ![croatian to english](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-to-english-960x766.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Cavtat, Croatia” by Conor Rees©
 
 * Is there a pub here? –_Ima li ovdje pub?_
@@ -145,6 +141,10 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 * How much does a ticket cost? –_Kolika je cijena karte?_
 * One ticket, please. –_Jednu kartu bih Vas molio._
 * Are there seats available? –_Ima li slobodnih mjesta?_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Croatian phrases about love
 
@@ -168,14 +168,10 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 ![croatian words](https://edge.mondly.com/blog/wp-content/uploads/2019/07/croatian-words-1024x682.jpg "100+ Essential Croatian Phrases You'Ll Need Before Traveling To Croatia 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Primošten, Croatia” by Hrvoje Klaric©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. Learn Croatian for your shopping sprees
 
@@ -187,6 +183,10 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 * Can I have a receipt? –_Mogu li dobiti račun?_
 * What would you like? –_Što bi željela?_
 * Can I have some ice cream? –_Mogu li dobiti sladoleda?_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Days of the week and numbers in Croatian
 
@@ -256,20 +256,17 @@ thumbnail: https://thmb.techidaily.com/b1aabf9182a40f39eacfea832a56e2883c1058666
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-crafting-perfection-an-essential-guide-to-hdr-imaging/"><u>[New] 2024 Approved Crafting Perfection An Essential Guide to HDR Imaging</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-top-10-epic-adventures-ultimate-gameplay-showdowns-for-2024/"><u>[New] Top 10 Epic Adventures Ultimate Gameplay Showdowns for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-top-secure-cost-free-androidios-apps-for-private-video-conferencing/"><u>[New] Top Secure, Cost-Free Android/iOS Apps for Private Video Conferencing</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-prime-freefire-content-creation-on-youtube/"><u>[Updated] Prime FreeFire Content Creation on YouTube</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Xiaomi 14 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-oneplus-ace-2v-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From OnePlus Ace 2V to New Android Phone? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-from-apple-iphone-14-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock from Apple iPhone 14</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-essential-russian-chit-chat-for-safe-adventures/"><u>Learn Essential Russian Chit-Chat for Safe Adventures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/majority-fluent-in-french-an-international-overview/"><u>Majority Fluent in French: An International Overview</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-years-linguistic-achievement-goal/"><u>New Year's Linguistic Achievement Goal</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/reconhecer-abrecos-e-boas-vindas-em-portugues/"><u>Reconhecer Abreços E Boas-Vindas Em Português</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speedy-catalan-skills-just-10-mins/"><u>Speedy Catalan Skills, Just 10 Mins</u></a></li>
-<li><a href="https://app-tips.techidaily.com/step-by-step-guide-connecting-your-pc-with-icloud-through-the-icloud-control-panel/"><u>Step-by-Step Guide: Connecting Your PC with iCloud Through the iCloud Control Panel</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-linguistic-edge-mondlys-victory-as-2022s-best-app/"><u>The Linguistic Edge: Mondly's Victory as 2022’S Best App</u></a></li>
-<li><a href="https://fox-that.techidaily.com/understanding-the-barriers-why-cant-you-send-presents-from-your-apple-product/"><u>Understanding the Barriers: Why Can't You Send Presents From Your Apple Product?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-fullscreen-image-of-page-layout-for-2024/"><u>[New] Fullscreen Image of Page Layout for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-action-cam-war-gopros-hero5-versus-garmin-virb-for-2024/"><u>[Updated] Action Cam War GoPro's Hero5 Versus Garmin VIRB for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-unleash-creativity-capturing-sims-4-adventures/"><u>[Updated] Unleash Creativity Capturing Sims 4 Adventures</u></a></li>
+<li><a href="https://win-great.techidaily.com/ais-future-outlined-by-sam-altman-in-microsofts-build-keynote-insights-on-progress/"><u>AI's Future Outlined by Sam Altman in Microsoft's Build Keynote - Insights on Progress</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/awaken-your-inner-german-top-25-idioms-to-perfect-your-speech/"><u>Awaken Your Inner German - Top 25 Idioms to Perfect Your Speech</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/how-to-keep-the-conversation-flowing-on-discord/"><u>How to Keep the Conversation Flowing on Discord</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/immediate-frame-grabbers-help-for-2024/"><u>Immediate Frame Grabber's Help for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Oppo Reno 11 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/in-depth-analysis-top-online-tactics-for-language-acquisition/"><u>In-Depth Analysis: Top Online Tactics for Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovation-meets-collaboration-mondly-and-pearsons-buttonjunction/"><u>Innovation Meets Collaboration: Mondly & Pearson's ButtonJunction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lectura-temporal-en-espanol-todos-los-pasos/"><u>Lectura Temporal en Español: Todos Los Pasos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/phonetic-mastery-demystifying-tough-lexical-items/"><u>Phonetic Mastery: Demystifying Tough Lexical Items</u></a></li>
 </ul></div>
 

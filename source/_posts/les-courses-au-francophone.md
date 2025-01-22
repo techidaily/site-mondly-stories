@@ -1,7 +1,7 @@
 ---
 title: Les Courses Au Francophone
-date: 2025-01-15T06:02:52.205Z
-updated: 2025-01-15T22:11:57.201Z
+date: 2025-01-16T16:56:15.753Z
+updated: 2025-01-22T17:36:36.191Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/dc5fff1a9acb5e2e1b1bb4c72b06c12c5151a76a3
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Days of the week in French
@@ -78,7 +78,7 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -125,20 +125,22 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-htcs-masterstroke-in-immersive-technology-a-deep-dive-into-vive/"><u>[Updated] HTC's Masterstroke in Immersive Technology - A Deep Dive Into Vive</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-path-profile-picture-dimensions/"><u>[Updated] Path Profile Picture Dimensions</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/best-video-repair-utilities-a-guide-to-top-software-options-for-windows-and-mac/"><u>Best Video Repair Utilities: A Guide to Top Software Options for Windows and Mac</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/google-play-acclaim-for-mondly-kids-childhood-nutrition-guide-of-2017/"><u>Google Play Acclaim for Mondly Kids - Childhood Nutrition Guide of 2017</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/how-to-get-cheap-quality-gopro-cameras-today-for-2024/"><u>How to Get Cheap, Quality GoPro Cameras Today for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-music-from-vivo-y200-by-fonelab-android-recover-music/"><u>How to Rescue Lost Music from Vivo Y200</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-unleash-creativity-crafting-your-own-youtube-shorts-thumbnails/"><u>In 2024, Unleash Creativity Crafting Your Own YouTube Shorts Thumbnails</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/integrating-gpt-3-into-your-python-projects-a-comprehensive-guide/"><u>Integrating GPT-3 Into Your Python Projects: A Comprehensive Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-leap-kindergarten-to-fifth-grade-in-spanish/"><u>Language Leap: Kindergarten to Fifth Grade in Spanish</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/le-temps-de-la-france/"><u>Le Temps De La France</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lerne-deutsche-wochentage-inklusive-namen/"><u>Lerne Deutsche Wochentage Inklusive Namen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-russian-greetings-essential-phrases-and-basic-vocabulary/"><u>Mastering Russian Greetings: Essential Phrases And Basic Vocabulary</u></a></li>
-<li><a href="https://common-error.techidaily.com/overcoming-intermittent-logitech-g930-microphone-cut-outs-professional-advice-for-stable-audio/"><u>Overcoming Intermittent Logitech G930 Microphone Cut-Outs: Professional Advice for Stable Audio</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sprachliche-wege-den-kontakt-abzubrechen/"><u>Sprachliche Wege, Den Kontakt Abzubrechen</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/the-ultimate-guide-to-swift-and-smooth-ipad-recordings-for-2024/"><u>The Ultimate Guide to Swift and Smooth iPad Recordings for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-constructive-approaches-to-defeating-digital-trolls/"><u>[Updated] 2024 Approved Constructive Approaches to Defeating Digital Trolls</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-motorola-edge-40-pro-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-basic-russian-phrases-every-traveler-needs-to-know/"><u>100+ Basic Russian Phrases Every Traveler Needs To Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578225825-2022-speak-anywhere-for-a-bargain-priced-language-bundle/"><u>2022: Speak Anywhere for a Bargain-Priced Language Bundle!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-guide-to-the-body-language-in-everyday-italian-life/"><u>A Guide to the Body Language in Everyday Italian Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieve-fluency-in-finnish-with-expert-online-guidance/"><u>Achieve Fluency in Finnish with Expert Online Guidance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-tagalog-skills-10-minute-study-sessions/"><u>Boost Your Tagalog Skills - 10-Minute Study Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-japanese-online-paths-for-independent-and-free-learning/"><u>Conquer Japanese: Online Paths for Independent and Free Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciding-your-perfect-next-linguistic-endeavor/"><u>Deciding Your Perfect Next Linguistic Endeavor</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/die-deutsche-sprache-zur-reue-nutzen/"><u>Die Deutsche Sprache Zur Reue Nutzen</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-navigating-the-process-of-making-youtube-trail-videos/"><u>In 2024, Navigating the Process of Making YouTube Trail Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-partition-performance-topping-recorder-showdown/"><u>In 2024, Partition Performance Topping Recorder Showdown</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-iphone-8-plus-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>In 2024, Unlock iPhone 8 Plus With Forgotten Passcode Different Methods You Can Try</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mastering-terraria-connection-repair-six-proven-methods-that-work-every-time/"><u>Mastering Terraria Connection Repair: Six Proven Methods That Work Every Time</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Vivo X Fold 2? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-printer-problems-why-you-cant-print-without-the-right-driver/"><u>Solving Printer Problems: Why You Can't Print Without the Right Driver</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/transform-your-tech-talking-experience-with-chrome-and-ai/"><u>Transform Your Tech Talking Experience, With Chrome & AI</u></a></li>
 </ul></div>
 

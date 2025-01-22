@@ -1,7 +1,7 @@
 ---
 title: Mondly's Accuracy Meets Pearson’s High-Quality GSL
-date: 2025-01-07T17:19:04.508Z
-updated: 2025-01-10T17:41:39.187Z
+date: 2025-01-18T18:11:25.195Z
+updated: 2025-01-22T16:53:45.137Z
 tags:
   - speak
   - english
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/93cb6ac8ec609718de42842a42295e1ee84908cc0
  The Global Scale of Languages (GSL) helps educators and language learners know where they are, where they need to go and how they can get there.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Starting with the Global Scale of English (GSE)**
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/93cb6ac8ec609718de42842a42295e1ee84908cc0
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Introducing the Global Scale of Languages (GSL)**
@@ -51,7 +51,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Why the GSL stands out**
@@ -60,10 +60,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Confidence in clarity:**  The GSL enables learners to pinpoint their strengths in reading, writing, listening, and speaking with a straightforward 10-90 scale. This level of clarity fosters motivation and boosts learners’ confidence.
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Why start with French, Spanish, and Italian?**
 
  These three languages, rich in history and culture, have always been popular choices among our learners. We believe that by integrating GSL with these languages first, we can enhance the learning experience for a larger number of our users.
@@ -71,6 +67,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  Moreover, the Romance languages, with their shared Latin roots and interconnected nuances, offer a fascinating study when approached with the precision of the GSL.
 
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Language learning backed by unparalleled global research**
 
@@ -84,7 +84,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Fast-track your progress with Mondly by Pearson**
@@ -108,22 +108,20 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-add-a-snapshot-to-your-instagram-story/"><u>[New] 2024 Approved Add a Snapshot to Your Instagram Story</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-streamlined-templates-the-essential-ae-text-list/"><u>[New] Streamlined Templates The Essential AE Text List</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-comparative-game-capture-review-obs-vs-shadowplay-for-2024/"><u>[Updated] Comparative Game Capture Review OBS Vs. ShadowPlay for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-learn-to-capture-videos-from-webcam-in-vlc/"><u>[Updated] Learn to Capture Videos From Webcam in VLC</u></a></li>
-<li><a href="https://extra-information.techidaily.com/30-metaverse-phenomena-making-your-mark-with-memes/"><u>30 Metaverse Phenomena Making Your Mark with Memes</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/6-ways-to-survive-and-thrive-in-the-ai-dominated-workplace/"><u>6 Ways to Survive and Thrive in the AI-Dominated Workplace</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/become-a-home-cooking-wizard-in-just-three-easy-steps/"><u>Become a Home Cooking Wizard in Just Three Easy Steps!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/celestial-syntaxes-mastering-galactic-grammar-and-diction/"><u>Celestial Syntaxes: Mastering Galactic Grammar and Diction</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprendiendo-el-reloj-digital-ensenanza-fundamental/"><u>Comprendiendo El Reloj Digital - Enseñanza Fundamental</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cross-continental-talk-brazilian-vs-european-portuguese/"><u>Cross-Continental Talk: Brazilian Vs. European Portuguese</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutsche-wochentage-einfache-lerneinheit/"><u>Deutsche Wochentage: Einfache Lerneinheit</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/diverse-dialogue-initiation/"><u>Diverse Dialogue Initiation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embark-on-arabic-beginners-pathway/"><u>Embark on Arabic: Beginner's Pathway</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719575651672-essential-croatian-language-skills-for-cultural-immersion-success/"><u>Essential Croatian Language Skills for Cultural Immersion Success</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/essential-drone-motors-guide-for-optimal-flight/"><u>Essential Drone Motors Guide for Optimal Flight</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-can-you-unlock-iphone-13-after-forgetting-the-passcode-drfone-by-drfone-ios/"><u>In 2024, Can You Unlock iPhone 13 After Forgetting the Passcode? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-nokia-c300-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Nokia C300 Is Unlocked</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-maximizing-the-impact-of-outdoor-videos-live-streams-via-periscopefacebook/"><u>[New] 2024 Approved Maximizing the Impact of Outdoor Videos Live Streams via Periscope/Facebook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-social-media-stardom-in-a-nutshell-master-these-9-tactics-for-insta-glory/"><u>[New] 2024 Approved Social Media Stardom in a Nutshell Master These 9 Tactics for Insta Glory</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-professional-guide-ensuring-imovie-content-shines-on-vimeo/"><u>[New] In 2024, Professional Guide Ensuring iMovie Content Shines on Vimeo</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-transform-voice-with-cloud-services-top-5-online-chromebook-audio-editors/"><u>[Updated] 2024 Approved Transform Voice with Cloud Services Top 5 Online Chromebook Audio Editors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/economical-and-efficient-an-in-depth-review-of-the-ambient-ws-2902a-osprey/"><u>Economical & Efficient: An In-Depth Review of the Ambient WS-2902A Osprey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enrich-perspectives-through-polyglotisms-triumph/"><u>Enrich Perspectives Through Polyglotism's Triumph</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expand-your-mind-enhance-your-job-prospects/"><u>Expand Your Mind, Enhance Your Job Prospects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-the-language-of-thanksgiving-mandarins-xiexie/"><u>Exploring the Language of Thanksgiving: Mandarin's Xièxiè</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-romance-in-spanish-best-pick-up-lines/"><u>Expressing Romance in Spanish: Best Pick-Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressive-idioms-unveiled-defining-current-english-slang/"><u>Expressive Idioms Unveiled: Defining Current English Slang</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/flourish-in-social-settings-mastering-verbal-exchanges/"><u>Flourish in Social Settings: Mastering Verbal Exchanges</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fueling-dreams-with-johannes-honterus/"><u>Fueling Dreams with Johannes Honterus</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/full-scale-examination-unboxing-the-dji-phantom-4/"><u>Full-Scale Examination Unboxing the DJI Phantom 4</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-6-pure-android-screen-recorder-selections-no-ads/"><u>In 2024, 6 Pure Android Screen Recorder Selections (No Ads)</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/sichern-sie-ihre-daten-mit-einem-iphoney-backup-vor-der-anschaffung-neuer-modelle-fonebackup/"><u>Sichern Sie Ihre Daten Mit Einem iPhoney-Backup Vor Der Anschaffung Neuer Modelle - FoneBackup</u></a></li>
 </ul></div>
 

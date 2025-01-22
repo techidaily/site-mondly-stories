@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Chinese Thank You Phrases
-date: 2025-01-04T19:49:52.970Z
-updated: 2025-01-10T19:11:24.699Z
+date: 2025-01-21T18:06:00.642Z
+updated: 2025-01-22T17:09:11.275Z
 tags:
   - speak
   - english
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/6b74a794374950c8c7d33f01e283b8595a0e02efb
  **So here are 12 of the most important ways to say thank you in Chinese.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Xièxiè – the most common Chinese thanks
@@ -43,14 +43,10 @@ thumbnail: https://thmb.techidaily.com/6b74a794374950c8c7d33f01e283b8595a0e02efb
 ![thanks in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/thanks-in-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Xiangxi, China” by Theodor Lundqvist©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Thank you very much in Chinese
 
@@ -70,7 +66,7 @@ Other variations include:
 * Thank you SO much! – 太谢谢你了! –_Tài xiè xiè nǐ le!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Thank you for… in Chinese
@@ -87,6 +83,10 @@ Other variations include:
 * Thank you for spending time with us. – 谢谢您花时间和我们在一起。-_Xièxiè nín huā shíjiān hé wǒmen zài yìqǐ._
 
 ![xiexie chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/xiexie-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Jiaxing, China” by Jay©
 
@@ -110,7 +110,7 @@ Other variations include:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s how to speak Chinese in just 10 minutes a day
@@ -140,19 +140,16 @@ Other variations include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-custom-whatsapp-ringtone-guide-on-ios-devices/"><u>[New] In 2024, Custom WhatsApp Ringtone Guide on iOS Devices</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-professional-level-communication-on-skype-for-2024/"><u>[Updated] Professional-Level Communication on Skype for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-undisclosed-secrets-to-growth-on-social-media/"><u>[Updated] The Undisclosed Secrets to Growth on Social Media</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apple-and-mondly-pioneering-the-future-of-education-with-top-10-recognition/"><u>Apple & Mondly: Pioneering the Future of Education with Top 10 Recognition</u></a></li>
-<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-htc-u23-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boosting-bilingualism-3-mind-stimulating-language-drills/"><u>Boosting Bilingualism: 3 Mind-Stimulating Language Drills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conocer-la-pantalla-del-reloj-pasos-para-comenzar/"><u>Conocer La Pantalla Del Reloj - Pasos Para Comenzar</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/danish-films-your-gateway-to-authentic-linguistic-fluency/"><u>Danish Films: Your Gateway to Authentic Linguistic Fluency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-dialects-turkey-and-korea/"><u>Deciphering Dialects: Turkey and Korea</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-the-secrets-of-speed-in-language-acquisition/"><u>Decoding the Secrets of Speed in Language Acquisition</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/die-2023-fuhrenden-kostenlosen-dvd-kopierprogramme-fur-windows-1011-expertenvergleich-und-ranking/"><u>Die 2023 Führenden Kostenlosen DVD-Kopierprogramme Für Windows 10/11 – Expertenvergleich Und Ranking</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722976799277-get-the-latest-lenovo-bluetooth-drivers-for-windows-710-fast-easy-installation-guaranteed/"><u>Get the Latest Lenovo Bluetooth Drivers for Windows 7/10: Fast, Easy Installation Guaranteed!</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-motorola-moto-g04-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Motorola Moto G04 is off? | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-ideal-video-capture-apps-for-educators/"><u>In 2024, Ideal Video Capture Apps for Educators</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-essential-low-power-pc-screen-capturing-apps/"><u>2024 Approved Essential Low-Power PC Screen Capturing Apps</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-apples-strategic-choice-no-exclamation-marks-on-their-site-unveiling-the-reasons/"><u>Discover Apple's Strategic Choice: No Exclamation Marks on Their Site - Unveiling the Reasons</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-tips-for-fixing-dead-lenovo-mousepads-a-cross-platform-win-11-8-and-nw-solution/"><u>Expert Tips for Fixing Dead Lenovo Mousepads: A Cross-Platform Win 11, 8 & Nw Solution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-practica-para-leer-la-hora-en-espanol/"><u>Guía Práctica Para Leer La Hora en Español</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/guidelines-to-erase-youtube-recordings-on-pc/"><u>Guidelines to Erase YouTube Recordings on PC</u></a></li>
+<li><a href="https://techidaily.com/innovative-ocr-technology-transforms-one-million-medical-records-into-easily-searchable-database/"><u>Innovative OCR Technology Transforms One Million Medical Records Into Easily Searchable Database</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-powerhouse-englishs-impact/"><u>Language Powerhouse: English's Impact</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-languages-unlocked-with-mondly-the-future-of-gaming/"><u>Oculus Quest Languages Unlocked with 'Mondly' - The Future of Gaming?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-chinese-thanks-the-essentials-of-xiexie/"><u>Understanding Chinese Thanks: The Essentials of Xièxiè</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-10-most-popular-minion-memes-that-moms-are-crazy-about/"><u>Updated 10 Most Popular Minion Memes that Moms Are Crazy About</u></a></li>
+<li><a href="https://solve-info.techidaily.com/wie-man-heic-bilder-von-google-photos-effektiv-in-das-verbreitetere-jpeg-format-konvertiert/"><u>Wie Man HEIC Bilder Von Google Photos Effektiv in Das Verbreitetere JPEG-Format Konvertiert</u></a></li>
 </ul></div>
 

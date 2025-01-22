@@ -1,7 +1,7 @@
 ---
 title: Kommunikative Vergebung in Deutsch
-date: 2025-01-08T18:21:25.971Z
-updated: 2025-01-10T18:25:19.363Z
+date: 2025-01-21T16:54:18.874Z
+updated: 2025-01-22T17:33:16.051Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/e317ee1375b71965ab23395d09818c610ccf5d2d8
  Let’s look at the most important ways to say “sorry” in German and when to use each of them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When should you say you’re sorry?
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/e317ee1375b71965ab23395d09818c610ccf5d2d8
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to apologize in German
@@ -47,7 +47,7 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say sorry in German – the “Excuse me” sorry
@@ -59,7 +59,7 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Other ways to say sorry in German
@@ -105,7 +105,7 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in German
@@ -139,22 +139,16 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-learn-youtube-editing-tricks-for-flawless-shortening/"><u>[New] In 2024, Learn YouTube Editing Tricks for Flawless Shortening</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/3-leading-asian-languages-back-and-filter-efficiently/"><u>3 Leading Asian Languages: Back & Filter Efficiently</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581197529-be-a-polyglot-in-minutes-enjoy-a-staggering-95-savings/"><u>Be a Polyglot in Minutes - Enjoy a Staggering 95% Savings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580015126-boost-your-tagalog-skills-10-minute-daily-sessions/"><u>Boost Your Tagalog Skills - 10-Minute Daily Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-language-learning-urdus-10-minutes/"><u>Daily Dose of Language Learning - Urdu's 10 Minutes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/danny-from-colombias-assistance-program-for-vulnerable-populations/"><u>Danny From Colombia's Assistance Program for Vulnerable Populations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/descripcion-de-musculos-desde-la-nariz-a-los-toes-en-espanol/"><u>Descripción De Músculos: Desde La Nariz a Los Toes en Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-the-superior-method-to-learn-finnish-online/"><u>Discover the Superior Method to Learn Finnish Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-learning-portuguese-discover-6-effective-study-methods/"><u>Elevate Learning Portuguese: Discover 6 Effective Study Methods</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-elevate-your-song-listening-with-these-top-6-android-apps/"><u>In 2024, Elevate Your Song Listening With These Top 6 Android Apps</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Huawei Nova Y91 | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-samsung-galaxy-f15-5g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Samsung Galaxy F15 5G FRP Bypass Everything You Need to Know</u></a></li>
-<li><a href="https://win11.techidaily.com/master-compatibility-fixes-without-the-troubleshooter/"><u>Master Compatibility Fixes Without the Troubleshooter</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nk-your-favorite-films-top-7-replacements/"><u>Rethink Your Favorite Films - Top 7 Replacements</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/securing-affordable-tunes-for-students-a-step-by-step-guide-to-scoring-discounts-on-apple-music-subscriptions-cnet/"><u>Securing Affordable Tunes for Students: A Step-by-Step Guide to Scoring Discounts on Apple Music Subscriptions | CNET</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/steelcase-carry-karma-assessment-astonishingly-versatile-design/"><u>Steelcase Carry Karma Assessment: Astonishingly Versatile Design</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/your-ultimate-guide-to-downloading-the-epson-xp-n400-printer-drivers-step-by-step-instructions/"><u>Your Ultimate Guide to Downloading the Epson XP N400 Printer Drivers - Step by Step Instructions</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-harnessing-the-power-of-zooms-video-filter-options/"><u>[New] 2024 Approved Harnessing the Power of Zoom's Video Filter Options</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exemplary-episodes-for-auditory-drama/"><u>[New] Exemplary Episodes for Auditory Drama</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comprehensive-instructions-for-linking-your-printer-with-different-devices/"><u>Comprehensive Instructions for Linking Your Printer with Different Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-endorses-mondly-for-immersive-language-mastery/"><u>Google Endorses Mondly for Immersive Language Mastery</u></a></li>
+<li><a href="https://article-helps.techidaily.com/hilarityhatcher-create-comedy-with-a-click/"><u>HilarityHatcher Create Comedy with a Click</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-vivo-v27e-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Vivo V27e Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-legacy-milestone-achievements-at-mondlylanguages/"><u>Linguistic Legacy: Milestone Achievements at MondlyLanguages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sensorylinguistics-a-vr-approach-to-language/"><u>SensoryLinguistics: A VR Approach to Language</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-definitive-guide-correcting-issues-with-samsung-ssd-drivers-running-on-windows-machines/"><u>The Definitive Guide: Correcting Issues with Samsung SSD Drivers Running on Windows Machines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-the-science-of-second-language-acquisition/"><u>Understanding the Science of Second Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unravel-english-core-with-oxford-and-mondly/"><u>Unravel English Core with Oxford & Mondly</u></a></li>
 </ul></div>
 

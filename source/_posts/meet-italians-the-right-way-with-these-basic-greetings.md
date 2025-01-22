@@ -1,7 +1,7 @@
 ---
 title: Meet Italians the Right Way with These Basic Greetings
-date: 2025-01-14T21:09:11.273Z
-updated: 2025-01-16T07:16:29.687Z
+date: 2025-01-20T17:19:32.084Z
+updated: 2025-01-22T16:46:45.790Z
 tags:
   - speak
   - english
@@ -18,25 +18,29 @@ thumbnail: https://thmb.techidaily.com/cd3822e24581abb5be24ba6398f11b4a362481119
 
  First impressions matter. Don’t let anyone tell you otherwise. Especially in Italy where the people are so warm and friendly! Just a simple [**hello in Italian**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , like_Ciao_ ,_Buongiorno_ or_Salve,_ can make all the difference in a conversation with an Italian native. Maybe add a_bacio sulla guancia_ (kiss on the cheek) to that if it is appropriate and they will absolutely love you! And don’t think that this is just “an Italian thing”. No. Your attempt to speak the local language will surely be regarded as a sign of respect everywhere you go in the world. So get your greetings on point before traveling to a foreign country. You never get a second chance to make a good first impression!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. How to say “hello” in Italian
 
 _Ciao_ is undeniably the most common Italian greeting. In fact, I’d say it is universal and used in many countries between friends as a joke. Together, of course, with_Capisce_ (“Do you understand?”). We all use_Capisce_ and_Buongiorno_ (“[Good morning](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) “) when we want to summon our inner Italians, don’t we? Hahaha!
 
 ![italian](https://media.giphy.com/media/HPZubh6ApHpN6/giphy.gif "How To Say Hello In Italian: Top 10 Italian Greetings 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  But there’s more to**Italian greetings** than just_Ciao_ . Let’s discover the best ways to**say hello in Italian** and how it is appropriate to use them, depending on the social context you are in.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Hello in Italian – Salve!**
 
  The Italian culture is renowned for its deep respect for the elderly. That is why you should always be a bit more formal in one-to-one interactions with older people or with people you don’t personally know. In this kind of situation, you can safely use_Salve._ To put it into perspective,_Ciao_ is the Italian equivalent of “Hi” while_Salve_ is the equivalent of “Hello”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Hi in Italian – Ciao!**
 
@@ -48,6 +52,10 @@ _Ciao_ is undeniably the most common Italian greeting. In fact, I’d say it is 
 
  In Italy, it is also possible to hear children say_Ciao-ciao,_ which is the cuter version of_Ciao_ and it translates to “Bye-bye”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Italian greetings for certain moments of the day
 
 **Good morning in Italian** –_Buongiorno!_ (it can also be used as a goodbye)  
@@ -55,10 +63,6 @@ _Ciao_ is undeniably the most common Italian greeting. In fact, I’d say it is 
 **Good evening in Italian** –_Buonasera!_ (it can also be used as a goodbye)  
 **Good night in Italian** –_Buonanotte!_ (it isn’t used only as a bedtime expression. Italians say_Buonanotte_ when they meet someone in the late evening.)  
  All four of these greetings are safe to use in any kind of formal or informal interaction.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **3\. How to say** “**goodbye** ”**in Italian**
 
@@ -74,7 +78,7 @@ _Ciao_ is undeniably the most common Italian greeting. In fact, I’d say it is 
 * See you soon. –_A presto._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Other basic Italian phrases that you should know
@@ -98,10 +102,6 @@ _Ciao_ is undeniably the most common Italian greeting. In fact, I’d say it is 
 * It’s nice to meet you –_Piacere di conoscerti._
 
 ![italian greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/07/italian-greetings-1024x703.jpg "How To Say Hello In Italian: Top 10 Italian Greetings 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Italian food” by Nerise Gokpinar©
 
@@ -147,22 +147,19 @@ _Ciao_ is undeniably the most common Italian greeting. In fact, I’d say it is 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-breakthrough-techniques-for-outstanding-youtube-openers-technique-1plus2/"><u>[New] In 2024, Breakthrough Techniques for Outstanding YouTube Openers (Technique 1+2)</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-designing-aplus-cover-photos-for-your-insta-highlights-for-2024/"><u>[New] Step-by-Step Designing A+ Cover Photos for Your Insta Highlights for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-direct-download-and-mp3-creation-for-streaming-video-files-for-2024/"><u>[Updated] Direct Download & MP3 Creation for Streaming Video Files for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-breakthrough-tactics-for-improved-voice-identity-in-pubg/"><u>[Updated] In 2024, Breakthrough Tactics for Improved Voice Identity in PUBG</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-filmmakers-delight-filmoras-best-aspects-exposed/"><u>2024 Approved Filmmakers' Delight Filmora's Best Aspects Exposed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-gratitude-for-american-birthday/"><u>Global Gratitude for American Birthday</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/google-and-mondly-team-up-for-your-linguistic-endeavors/"><u>Google and Mondly Team Up for Your Linguistic Endeavors</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-oppo-a56s-5g-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Oppo A56s 5G PC | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/italian-journey-companion-phrases-for-a-seamless-visit/"><u>Italian Journey Companion: Phrases for a Seamless Visit</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-english-contractions-a-comprehensive-walkthrough/"><u>Mastering English Contractions: A Comprehensive Walkthrough</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-animation-drawing-made-easy-top-7-software-solutions-for-2024/"><u>New Animation Drawing Made Easy Top 7 Software Solutions for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rediscovering-the-original-forms-of-human-speech/"><u>Rediscovering the Original Forms of Human Speech</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-checklist-for-establishing-a-distinctive-online-self-for-2024/"><u>The Ultimate Checklist for Establishing a Distinctive Online Self for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-100-spelling-pitfalls-avoiding-the-most-frequent-mistakes/"><u>Top 100 Spelling Pitfalls: Avoiding the Most Frequent Mistakes</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/ultimate-guide-creating-full-screen-exe-flipbooks-with-flipbuilder/"><u>Ultimate Guide: Creating Full-Screen EXE Flipbooks with FlipBuilder</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unveiling-the-secrets-of-successful-portuguese-learning-strategies/"><u>Unveiling the Secrets of Successful Portuguese Learning Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/poiothta-eygnwmwn-klisma-gkreman/"><u>Ποιότητα Ευγνώμων Κλίσμα Γκρεμάν</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-learning-the-ins-and-outs-of-firefox-pip/"><u>[New] Learning the Ins and Outs of Firefox PIP</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-video-transfer-youtube-to-dailymotion-conversion-for-2024/"><u>[New] Mastering Video Transfer YouTube to Dailymotion Conversion for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-jokejumper-generate-share-worthy-images-quickly/"><u>[Updated] JokeJumper Generate Share-Worthy Images Quickly</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-guide-to-sending-animated-gifs-on-snapchat-for-2024/"><u>[Updated] The Ultimate Guide to Sending Animated Gifs on Snapchat for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-pro-tip-8-key-sites-to-harvest-free-eco-friendly-filming-backdrops/"><u>2024 Approved Pro Tip! 8 Key Sites to Harvest FREE Eco-Friendly Filming Backdrops</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-simplified-introduction-to-german-pronunciation/"><u>A Simplified Introduction to German Pronunciation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/contare-con-cuore-unintroduzione-alle-cifre-italiane-1-1000/"><u>Contare Con Cuore - Un'Introduzione Alle Cifre Italiane (1-1000)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/creating-a-personalized-french-education-at-home/"><u>Creating a Personalized French Education at Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cut-your-language-journey-short-with-these-innovative-tools/"><u>Cut Your Language Journey Short With These Innovative Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cutting-edge-filtration-mondly-pearson-tech-alliance/"><u>Cutting-Edge Filtration: Mondly-Pearson Tech Alliance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-10-vital-spanish-greeting-phrases/"><u>Discovering 10 Vital Spanish Greeting Phrases</u></a></li>
+<li><a href="https://article-tips.techidaily.com/hidden-gems-in-window-11s-interface-top-30-tips-and-tricks-unveiled-for-2024/"><u>Hidden Gems in Window 11'S Interface Top 30 Tips and Tricks Unveiled for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-users-beware-thread-shutdown-dec/"><u>Instagram Users Beware: Thread Shutdown Dec</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-itel-p40-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Itel P40 | Dr.fone</u></a></li>
 </ul></div>
 

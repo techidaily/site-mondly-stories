@@ -1,7 +1,7 @@
 ---
 title: "Japenese Expressions: Friendliness & Respect on Display"
-date: 2025-01-07T16:15:29.074Z
-updated: 2025-01-10T16:55:17.010Z
+date: 2025-01-16T16:39:44.573Z
+updated: 2025-01-22T16:48:54.740Z
 tags:
   - speak
   - english
@@ -36,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/e5643a5ff8d74b4fe59c3561d40554a2f62dd8947
 ![honnichiwa](https://edge.mondly.com/blog/wp-content/uploads/2019/08/honnichiwa-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Kyoto, Japan” by Sorasak©
@@ -48,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/e5643a5ff8d74b4fe59c3561d40554a2f62dd8947
  – using**Hiragana symbols:** こんにちは
 
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
@@ -69,14 +73,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Japanese
@@ -97,7 +97,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “See you soon, human” by Alain Pham©
@@ -126,10 +126,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Kyoto, Japan” by Andre Benz©
 
 ## Don’t forget about the Japanese bow
@@ -147,6 +143,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -201,21 +201,22 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-elevating-your-vlog-through-proper-lighting-for-2024/"><u>[Updated] Elevating Your Vlog Through Proper Lighting for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-maximizing-visibility-how-to-upload-videos-to-instagram-desktop-for-2024/"><u>[Updated] Maximizing Visibility How to Upload Videos to Instagram Desktop for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-prime-video-capture-leaders-revealed/"><u>2024 Approved Prime Video Capture Leaders Revealed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581151239-celebrating-a-decade-of-mondly/"><u>Celebrating A Decade of Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conversational-charm-the-ultimate-list-of-flirting-favorites/"><u>Conversational Charm: The Ultimate List of Flirting Favorites</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/convert-ringtone-files-m4r-to-music-format-m4a-for-free-with-movavis-online-tool/"><u>Convert Ringtone Files (M4R) to Music Format (M4A) for Free with Movavi's Online Tool</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivate-german-manners-with-these-16-best-phrases-to-thank/"><u>Cultivate German Manners with These 16 Best Phrases to Thank</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-the-best-cross-cultural-film-experiences/"><u>Discover the Best Cross-Cultural Film Experiences</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embarkation-on-arabic-learning-journey/"><u>Embarkation on Arabic Learning Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-croatia-7-advantages-in-learning-its-language/"><u>Embrace Croatia: 7 Advantages in Learning Its Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-world-cultures-with-an-easy-affordable-language-course/"><u>Embrace World Cultures with an Easy, Affordable Language Course</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/enhancing-gameplay-smoothness-solutions-for-frame-rate-problems-in-naraka-bladepoint/"><u>Enhancing Gameplay Smoothness: Solutions for Frame Rate Problems in Naraka: Bladepoint</u></a></li>
-<li><a href="https://discover-help.techidaily.com/identifying-the-reasons-behind-a-malfunctioning-audio-card-insights-by-yl-computing/"><u>Identifying the Reasons Behind a Malfunctioning Audio Card - Insights by YL Computing</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-silent-recorders-revealed-6-undiscovered-android-and-ios-apps/"><u>In 2024, Silent Recorders Revealed 6 Undiscovered Android & iOS Apps</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/iosandandroid-best-apps-to-create-animoji-and-memoji-videos-for-2024/"><u>IOS&Android Best Apps to Create Animoji and Memoji Videos for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/is-your-iphone-13-pro-in-security-lockout-proper-ways-to-unlock-by-drfone-ios/"><u>Is Your iPhone 13 Pro in Security Lockout? Proper Ways To Unlock</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-unlocking-creative-potential-a-deep-dive-into-screenflow-for-mac/"><u>[New] Unlocking Creative Potential A Deep Dive Into ScreenFlow for Mac</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-channel-success-metrics-subscriber-and-play-buttons/"><u>[Updated] Channel Success Metrics Subscriber & Play Buttons</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-verified-vids-the-reality-of-instas-self-validation/"><u>[Updated] Verified Vids The Reality of Insta’s Self-Validation</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-secure-social-screen-avoid-facebook-vids/"><u>2024 Approved Secure Social Screen Avoid Facebook Vids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enter-the-world-of-endless-languages-mondly-introduces-vr-learning-platform/"><u>Enter the World of Endless Languages - Mondly Introduces VR Learning Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-reading-list-for-learning-to-read-in-french/"><u>Essential Reading List for Learning to Read in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/eternal-access-to-mondly-premium-for-free/"><u>Eternal Access to Mondly Premium for Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/excellent-platforms-boosting-language-mastery/"><u>Excellent Platforms Boosting Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-best-16-german-phrases-to-thank-someone-profusely/"><u>Explore The Best 16 German Phrases To Thank Someone Profusely</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/express-your-gratitude-essential-phrases-for-travelers/"><u>Express Your Gratitude: Essential Phrases for Travelers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-monolingualism-to-multilingualism-how-long/"><u>From Monolingualism To Multilingualism - How Long?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-proficient-russian-numeral-acquisition/"><u>From Novice to Proficient: Russian Numeral Acquisition</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-successfully-update-your-pcs-webcam-driver-for-windows-11/"><u>How To Successfully Update Your PC's Webcam Driver for Windows 11</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/is-microsofts-new-controversial-release-windows-11-already-under-fire/"><u>Is Microsoft's New Controversial Release: Windows 11 Already Under Fire?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tackling-windows-selecting-issue-on-double-click-folders/"><u>Tackling Windows' Selecting Issue on Double-Click Folders</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-apples-smart-technology-in-ios-181-beta-version-learn-how-to-participate-today/"><u>Unveiling Apple's Smart Technology in iOS 18.1 Beta Version – Learn How to Participate Today!</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-mp4-file-editor-for-windows-8-quick-and-easy-video-editing-for-2024/"><u>Updated MP4 File Editor for Windows 8 Quick and Easy Video Editing for 2024</u></a></li>
 </ul></div>
 

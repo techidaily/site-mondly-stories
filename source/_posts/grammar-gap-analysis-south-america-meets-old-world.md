@@ -1,7 +1,7 @@
 ---
 title: "Grammar Gap Analysis: South America Meets Old World"
-date: 2024-09-09T17:03:22.658Z
-updated: 2024-09-16T19:07:50.739Z
+date: 2025-01-15T17:38:49.192Z
+updated: 2025-01-22T16:05:41.583Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/0060c15904d9e0bf84f2ef3cdb5bee4a455f24656
 
  In general, those who speak either language can understand the other, but it may be difficult in some situations. That’s because there are so many nuances between the two. American linguist Albert Marckwardt coined the term “Colonial Lag” as a hypothesis that original varieties of a language (i.e., Brazilian Portuguese) change less than the variety spoken in the mother country (Portugal).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## History
 
  Countries tend to follow the linguistic developments of the mother country with a bit of delay due to the geographical distance. Portuguese was not deemed the official language in Brazil until 1758, whereas the colonization really began in the 16th century. Over time, changes occurred in the language because of increasing contact with European and [Asian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) immigrants.
@@ -32,15 +36,16 @@ thumbnail: https://thmb.techidaily.com/0060c15904d9e0bf84f2ef3cdb5bee4a455f24656
 
  The pronunciation of some consonants is also different, particularly the S at the end of a word. In Brazilian Portuguese, an S at the end of a word is pronounced as SS; in Portugal, it is pronounced as SH.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Accents
 
  Brazilian Portuguese is thought to be more phonetically pleasing to the ear thanks to its open vowels, while European Portuguese can sound somewhat garbled. Brazilian accents have a strong cadence and lift to them, making it easier to learn and understand.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Grammar and Spelling
@@ -56,18 +61,15 @@ thumbnail: https://thmb.techidaily.com/0060c15904d9e0bf84f2ef3cdb5bee4a455f24656
  European Portuguese is the more formal of the two versions. In Brazilian Portuguese, the word**você** is used for “you” in informal settings; in European Portuguese,**tu** is utilized in the same context. In Portugal, they view the você as crude and thus remove the second-person pronoun in less casual situations and instead use the verb in the third-person singular.  
  When describing actions, Brazilians use “estou fazendo” to mean “I am doing,” and the European Portuguese use the infinitive form, “estou a fazer.” The latter is less direct and translates to “I am taken to doing.”
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Should You Learn Brazilian or European Portuguese?
 
  This is a highly personal decision. This will depend on your personal motives, availability of resources, future aspirations and goals. In general, the thing that sparked your interest in the language will have a direct impact on the dialect you choose. For example, if you love classic literature, European Portuguese might be the best way to go for you. If you love Carnival and samba, Brazilian Portuguese may be best.
 
  The availability of resources will also influence your decision. _“Brazil has a larger population than Portugal with many native speakers, impacting_ availability _of content. In other words, it’s simpler to locate resources for Brazilian Portuguese learners than it is for those who study the European kind”_ says Ryan McMunn of BRIC Language Systems. Finding a professional resource that offers instruction in Brazilian Portuguese with access to native speakers will greatly improve your chances of being successful and learning both at your pace and in a way that will last.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Future Goals
 
@@ -101,6 +103,10 @@ thumbnail: https://thmb.techidaily.com/0060c15904d9e0bf84f2ef3cdb5bee4a455f24656
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Speak Portuguese fluently in just 10 minutes a day
 
  Do you want to speak Portuguese fluently fast? Get Mondly, the award-winning language learning app that will help you speak Portuguese as if it were your first language.
@@ -124,5 +130,24 @@ thumbnail: https://thmb.techidaily.com/0060c15904d9e0bf84f2ef3cdb5bee4a455f24656
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-edge-adjusting-fcpx-to-vertical-footage/"><u>[New] 2024 Approved Instagram Edge Adjusting FCPX to Vertical Footage</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-optimize-productivity-with-mematic-app/"><u>[New] 2024 Approved Optimize Productivity with Mematic App</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-capture-the-moment-live-streams-archive/"><u>[New] In 2024, Capture the Moment Live Streams Archive</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-snapshot-success-the-photographers-tale/"><u>[New] Snapshot Success The Photographer's Tale</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-ranked-linuxs-foremost-screenshot-programs/"><u>[Updated] 2024 Approved Ranked Linux's Foremost Screenshot Programs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-blitz-hone-skills-quickly-each-day/"><u>Bangla Blitz: Hone Skills Quickly Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprehensive-spanish-accent-usage-guide-for-writers/"><u>Comprehensive Spanish Accent Usage Guide for Writers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cycle-des-jours-francais/"><u>Cycle Des Jours Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-the-diversity-of-european-languages-celebrating-europe-day/"><u>Discovering The Diversity Of European Languages – Celebrating Europe Day</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/effective-obs-transitions-to-facebook-live/"><u>Effective OBS Transitions to Facebook Live</u></a></li>
+<li><a href="https://win-trending.techidaily.com/how-can-you-fix-memory-issues-on-your-windows-pc-insights-from-yl-computings-experts/"><u>How Can You Fix Memory Issues on Your Windows PC? - Insights From YL Computing's Experts</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-ways-to-send-ringtones-from-apple-iphone-13-pro-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Ways to Send Ringtones from Apple iPhone 13 Pro to iPhone Including iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/integrate-authentic-french-in-your-daily-chit-chat/"><u>Integrate Authentic French in Your Daily Chit-Chat</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580248149-master-a-new-tongue-for-just-044-today/"><u>Master a New Tongue for Just $0.44 Today</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-the-ultimate-list-of-10-image-to-video-makers-online/"><u>New In 2024, The Ultimate List of 10 Image to Video Makers Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachdiplom-10-andere-deutsche-begrussungen-neben-hallo/"><u>Sprachdiplom: 10 Andere Deutsche Begrüßungen Neben Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-complete-set-of-romance-language-nations/"><u>The Complete Set of Romance Language Nations</u></a></li>
+</ul></div>
 

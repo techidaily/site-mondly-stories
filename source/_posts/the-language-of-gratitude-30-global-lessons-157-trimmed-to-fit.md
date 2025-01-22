@@ -1,7 +1,7 @@
 ---
 title: "The Language of Gratitude: 30 Global Lessons (157) [Trimmed to Fit]"
-date: 2024-09-14T19:20:47.541Z
-updated: 2024-09-16T19:13:49.625Z
+date: 2025-01-20T16:12:57.855Z
+updated: 2025-01-22T17:18:27.652Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/5a6b81e19407a604be22bf69df443b0f8b7b5bc4d
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
 
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
 
@@ -56,7 +60,15 @@ thumbnail: https://thmb.techidaily.com/5a6b81e19407a604be22bf69df443b0f8b7b5bc4d
 
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Thanks” by Hanny Naibaho©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
 
@@ -80,6 +92,10 @@ thumbnail: https://thmb.techidaily.com/5a6b81e19407a604be22bf69df443b0f8b7b5bc4d
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
 
@@ -109,12 +125,21 @@ thumbnail: https://thmb.techidaily.com/5a6b81e19407a604be22bf69df443b0f8b7b5bc4d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-media-matrix-the-battle-of-podcasts-vs-youtube/"><u>[New] In 2024, Media Matrix The Battle of Podcasts Vs. YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-live-without-youtube-shorts/"><u>[Updated] How to Live Without YouTube Shorts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-masterful-manipulation-speedy-stylization-techniques-for-win10-apps/"><u>2024 Approved Masterful Manipulation Speedy Stylization Techniques for WIN10 Apps</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-gratitude-a-guide-in-global-languages-154/"><u>Expressing Gratitude: A Guide in Global Languages (154)</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-novels-to-start-reading-an-essential-guide-for-newcomers/"><u>French Novels to Start Reading: An Essential Guide for Newcomers</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-how-to-share-tiktok-videos-to-facebook/"><u>In 2024, How to Share TikTok Videos to Facebook?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-infinix-smart-8-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Infinix Smart 8 Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unlocks-ukrainians-global-communication-with-no-cost/"><u>Mondly Unlocks Ukrainians' Global Communication with No Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-learning-journey-with-mondly-app/"><u>Revolutionize Your Learning Journey with Mondly App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swiftly-master-colorful-french-expressions/"><u>Swiftly Master Colorful French Expressions</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-ultimate-guide-to-professional-iphoneipad-podcast-production/"><u>The Ultimate Guide to Professional iPhone/iPad Podcast Production</u></a></li>
+<li><a href="https://discover-best.techidaily.com/yl-software-guidance-preventing-unwanted-processes-in-windows-task-manager/"><u>YL Software Guidance: Preventing Unwanted Processes in Windows Task Manager</u></a></li>
+</ul></div>
 

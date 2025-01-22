@@ -1,7 +1,7 @@
 ---
 title: Mondly Collaborates with Pearson Back on Filter Feature
-date: 2025-01-09T18:23:11.243Z
-updated: 2025-01-16T00:56:08.563Z
+date: 2025-01-17T17:09:10.664Z
+updated: 2025-01-22T16:28:05.625Z
 tags:
   - speak
   - english
@@ -36,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **About Pearson**
@@ -44,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
  At Pearson, our purpose is simple: to add life to a lifetime of learning. We believe that every learning opportunity is a chance for a personal breakthrough. That’s why our c.20,000 Pearson employees are committed to creating vibrant and enriching learning experiences designed for real-life impact. We are the world’s leading learning company, serving customers in more than 200 countries with digital content, assessments, qualifications, and data. For us, learning isn’t just what we do. It’s who we are. Visit us at pearsonplc.com
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **About Mondly**
@@ -68,24 +68,20 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-youtube-shorts-a-comprehensive-marketing-tool/"><u>[New] 2024 Approved YouTube Shorts A Comprehensive Marketing Tool</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-7-best-monitors-for-photo-editing-worth-trying-top-picks-2024/"><u>[New] 7 Best Monitors for Photo Editing Worth Trying [Top Picks 2024]</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/advanced-file-clean-up-toolkit-stellar-file-eraser-5-standard-edition-tailor-settings-and-plan-file-deletion-routines-for-windows-users/"><u>Advanced File Clean-Up Toolkit: Stellar File Eraser 5 Standard Edition - Tailor Settings & Plan File Deletion Routines for Windows Users</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-15-plus-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 15 Plus without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/how-to-use-luts-to-spark-ar-and-download-free-lut-for-2024/"><u>How to Use LUTs to Spark AR & Download Free LUT for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/impact-of-grammar-on-linguistic-acquisition/"><u>Impact of Grammar on Linguistic Acquisition</u></a></li>
-<li><a href="https://techidaily.com/is-your-tecno-camon-20-pro-5g-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Tecno Camon 20 Pro 5G working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/les-systemes-du-corps-humain-introduction-et-explication-en-francais/"><u>Les Systèmes Du Corps Humain: Introduction Et Explication en Français</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lifelong-learners-never-too-late-to-expand-horizons/"><u>Lifelong Learners: Never Too Late to Expand Horizons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-labyrinths-exploring-australian-and-us-rhythmic-variations/"><u>Linguistic Labyrinths: Exploring Australian & U.S. Rhythmic Variations</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/recovering-from-fraudulent-schemes-key-advice-from-malwarefox-on-how-to-respond-after-being-scammed/"><u>Recovering From Fraudulent Schemes: Key Advice From MalwareFox on How to Respond After Being Scammed</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/snapseed-advanced-usage-insights-for-2024/"><u>Snapseed Advanced Usage Insights for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/spanish-for-the-playful-and-curious-minds-of-kids/"><u>Spanish for the Playful and Curious Minds of Kids</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/start-conversing-like-a-pro-your-language-lesson-at-5-off/"><u>Start Conversing Like a Pro – Your Language Lesson at 5% Off!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-compendium-of-basic-russian-dialogues/"><u>The Ultimate Compendium of Basic Russian Dialogues</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-recover-deleted-contacts-on-a70-without-backup-by-fonelab-android-recover-contacts/"><u>The way to recover deleted contacts on A70 without backup.</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-honor-play-40c-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Honor Play 40C IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-language-skills-buy-now-save-big/"><u>Unlock Language Skills - Buy Now, Save Big!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/vital-russian-communication-tools-for-explorers/"><u>Vital Russian Communication Tools for Explorers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-exploring-new-realms-a-detailed-jaunt-vr-review/"><u>[Updated] Exploring New Realms A Detailed Jaunt VR Review</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-enhancing-video-discoverability-with-smart-thumbnails/"><u>[Updated] In 2024, Enhancing Video Discoverability with Smart Thumbnails</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-master-the-art-of-youtube-video-sizing-shape-and-clarity/"><u>[Updated] Master the Art of YouTube Video Sizing, Shape & Clarity</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-radiant-contrast-synchronizer-for-2024/"><u>[Updated] Radiant Contrast Synchronizer for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-language-skills-through-mondlys-practical-10-strategies/"><u>Enhancing Language Skills Through Mondly's Practical 10 Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-german-thanksgiving-phrases-the-ultimate-list/"><u>Essential German Thanksgiving Phrases: The Ultimate List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-language-tools-for-international-engagement/"><u>Essential Language Tools for International Engagement</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-skills-in-handling-spanish-accented-characters-and-letters/"><u>Essential Skills in Handling Spanish Accented Characters & Letters</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/expert-advice-on-getting-your-unresponsive-alexa-back-in-action/"><u>Expert Advice on Getting Your Unresponsive Alexa Back in Action</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-linguistics-through-international-cinema/"><u>Exploring Linguistics Through International Cinema</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fortys-new-frontier-top-four-reasons-to-embrace-multilingualism-now/"><u>Forty's New Frontier: Top Four Reasons to Embrace Multilingualism Now</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-to-harness-the-power-of-gpt-3-in-your-openai-experiments/"><u>How to Harness the Power of GPT-3 in Your OpenAI Experiments</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-special-features-virtual-location-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Samsung Galaxy M54 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-vivo-y78plus-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Vivo Y78+ Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-5-notetakers-comprehensive-reviews-by-experts-techradar/"><u>Top 5 Notetakers : Comprehensive Reviews by Experts | TechRadar</u></a></li>
 </ul></div>
 

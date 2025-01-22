@@ -1,7 +1,7 @@
 ---
 title: "Viking Voices Vanished: A Linguistic Quest Through Time"
-date: 2024-09-11T18:13:44.423Z
-updated: 2024-09-16T17:35:58.293Z
+date: 2025-01-16T17:52:06.438Z
+updated: 2025-01-22T16:51:37.653Z
 tags:
   - speak
   - english
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/91d802feac954d9a2b7218b9de82c000f33944701
 
 ![Vikings english](https://media.giphy.com/media/V5474zfp6NveE/giphy.gif "What Language Did Vikings Speak? 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To tell you the truth, Vikings did not typically speak Old English. Old English was spoken by the Anglo-Saxons, who lived in England at the same time as the Vikings. However, **it is possible that some Vikings who settled in England may have learned to speak Old English.**
 
 ## What language did Vikings speak?
@@ -43,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/91d802feac954d9a2b7218b9de82c000f33944701
  Because Vikings were travelers, it is safe to assume they were multilingual. In some instances, Vikings spoke both Old Norse and the language of their relocated territory. Everywhere they went, Vikings brought their language with them. This is how, over generations, Old Norse influenced and blended with local languages. Place names in Britain and numerous other words stand proof of this.
 
  In spite of everything,**Old Norse is still considered the primary Viking language.** If you watched_The Northman_ , you must have heard it in songs and ritual settings. Apparently, they didn’t have the budget to make the entire movie in Old Norse. It does sound fittingly Viking, doesn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Old Norse: the Viking language
 
@@ -59,16 +67,11 @@ thumbnail: https://thmb.techidaily.com/91d802feac954d9a2b7218b9de82c000f33944701
 !['Viking language' by Hannah Grapp©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/viking-language-960x640.jpg "What Language Did Vikings Speak? 4")
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What language today is closest to Old Norse?
@@ -77,13 +80,6 @@ thumbnail: https://thmb.techidaily.com/91d802feac954d9a2b7218b9de82c000f33944701
 
 So yeah, you can learn Old Norse if you want to.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Is Old Norse still spoken?
 
  Old Norse is not spoken as a living language today. However, there are people who study Old Norse and speak it fluently.
@@ -91,6 +87,10 @@ So yeah, you can learn Old Norse if you want to.
  As noted previously, modern Icelandic is the most similar modern language to Old Norse. For this reason, it is considered that spending time with Icelanders can offer a glimpse into this ancient language’s contemporary iteration.
 
  Furthermore, Old Norse is still with us through the multitude of words that were borrowed into English. Some examples of Old Norse words in English are gift (_gift_), husband (_húsbóndi_), cake (_kaka_), egg (_egg_), anger (_angr_), arm (_armr_). And these are just a few. The list could go on for a while.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What language did Vikings write in?
 
@@ -134,5 +134,22 @@ So yeah, you can learn Old Norse if you want to.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-insights-making-time-move-with-your-hero-10-camera/"><u>2024 Approved Expert Insights Making Time Move with Your Hero 10 Camera</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/9-keys-to-enhancing-your-expressiveness-in-speech/"><u>9 Keys to Enhancing Your Expressiveness in Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cognitive-enrichment-in-your-forties-top-reasons-to-learn-a-language-later-in-life/"><u>Cognitive Enrichment in Your Forties: Top Reasons to Learn a Language Later in Life</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/dont-miss-out-snag-the-deal-on-apples-m2-macbook-air-for-just-749-this-october-with-amazon-prime-day-highlights-insights/"><u>Don’t Miss Out: Snag the Deal on Apple's M2 MacBook Air for Just $749 This October with Amazon Prime Day Highlights | Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhance-fluency-with-friends-through-vr-multilingualism/"><u>Enhance Fluency With Friends Through VR Multilingualism</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/forgot-your-open-lock-screen-pattern-pin-or-password-heres-what-to-do-by-drfone-android-unlock-android-unlock/"><u>Forgot your Open lock screen pattern, PIN or password? Here’s what to do</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/high-priority-on-learning-abroad-languages/"><u>High Priority on Learning Abroad Languages</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-se-2020-to-other-iphone-12-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone SE (2020) to other iPhone 12 devices? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/identificacion-de-errores-en-colores-espanol/"><u>Identificación De Errores en Colores Español</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/is-picku-the-pinnacle-of-editing-excellence-on-android-devices-in-2024/"><u>Is PickU The Pinnacle of Editing Excellence on Android Devices, In 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577142908-join-our-free-access-family-get-lifetime-mondly-pro-for-no-cost/"><u>Join Our Free Access Family - Get Lifetime Mondly Pro for No Cost !</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/loom-lens-view-unveiling-screen-record-magic-for-2024/"><u>Loom Lens View Unveiling Screen Record Magic for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-and-instagram-experience-an-overhaul-with-facebooks-latest-chat-features/"><u>Messenger & Instagram Experience an Overhaul with Facebook's Latest Chat Features</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-the-world-of-gadgets-on-toms-hardware-hub/"><u>Navigating the World of Gadgets on Tom's Hardware Hub</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nine-tricks-to-turn-you-into-a-persuasive-english-orator/"><u>Nine Tricks to Turn You Into a Persuasive English Orator</u></a></li>
+</ul></div>
 

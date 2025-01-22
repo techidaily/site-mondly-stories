@@ -1,7 +1,7 @@
 ---
 title: Dissecting Worldwide French-Speaking Populations by Country
-date: 2024-09-10T16:31:41.950Z
-updated: 2024-09-16T19:46:11.296Z
+date: 2025-01-20T17:04:18.065Z
+updated: 2025-01-22T17:01:31.894Z
 tags:
   - speak
   - english
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/85e69845f10f793c5b081e6eac45cea976095820d
 
  In fact, the French language is so popular that according to current [projections](https://www.forbes.com/sites/pascalemmanuelgobry/2014/03/21/want-to-know-the-language-of-the-future-the-data-suggests-it-could-be-french/?sh=51a894376d58) , there will be over 750 million French speakers around the world by 2050\. So it’s definitely a good idea to [start learning French](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-7067&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7067?mother%5Flang=en%5Fus?target%5Flang=fr&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-7067?mother%5Flang=en%5Fus?target%5Flang=fr) right now!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## List of French-speaking countries
 
 **French is the official language of 29 countries:** **Belgium, Benin, Burkina Faso, Burundi, Cameroon,** **Central African Republic,**   **Canada, Chad, the Ivory Coast, Comoros, Congo, the Democratic Republic of the Congo (DRC), Djibouti, Equatorial Guinea, France, Gabon, Guinea, Haiti, Luxembourg, Madagascar, Mali, Monaco, Niger, Rwanda,[Senegal](https://www.familiesgotravel.com/2016/03/africa-kids-what-to-do-in-senegal/) , Seychelles, Switzerland, Togo and Vanuatu.**
@@ -43,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/85e69845f10f793c5b081e6eac45cea976095820d
  Now let’s go into a little more detail and split the countries into continents.
 
 ![how many people speak french](https://edge.mondly.com/blog/wp-content/uploads/2022/10/how-many-people-speak-french-960x600.jpg "Top French-Speaking Countries | How Many People Speak French? 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### French-speaking countries in Europe
 
@@ -90,10 +98,7 @@ The French-speaking countries of Africa are:
  \* the number represents the percentage of the population who speak French.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### French-speaking countries in North America
@@ -104,6 +109,10 @@ Needless to say, the only French-speaking country in North America is:
 
 * Canada — 29% (percentage of the entire population speaking French).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### French-speaking countries in the Caribbean
 
 We told you that French speakers could be found everywhere in the world!
@@ -113,13 +122,6 @@ We told you that French speakers could be found everywhere in the world!
 * Haiti — 42% (percentage of the entire population speaking French).
 
 !['French speakers' by Claudia Altamimi©](https://edge.mondly.com/blog/wp-content/uploads/2022/10/french-speakers-960x720.jpg "Top French-Speaking Countries | How Many People Speak French? 5")
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### French-speaking countries in Oceania
 
@@ -140,10 +142,7 @@ We told you that French speakers could be found everywhere in the world!
  Now we finally have the full picture and we can understand why French is spoken on five continents.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A short history of the French language
@@ -192,5 +191,23 @@ We told you that French speakers could be found everywhere in the world!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-boosting-engagement-tailoring-backgrounds-on-google-meet-devices/"><u>[Updated] Boosting Engagement Tailoring Backgrounds on Google Meet Devices</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1-effortless-dvd-conversion-free-windows-10-software-for-android-iphone-and-ipad-hd-avi-mp4-h264-format/"><u>1. Effortless DVD Conversion: Free Windows 10 Software for Android, iPhone & iPad - HD AVI MP4 H264 Format</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-multilingual-journey-through-springtime-festivities/"><u>A Multilingual Journey Through Springtime Festivities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/contrasting-two-romance-cousins-spanish-and-portuguese/"><u>Contrasting Two Romance Cousins: Spanish & Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-french-communication-skills-for-your-next-french-trip/"><u>Essential French Communication Skills for Your Next French Trip</u></a></li>
+<li><a href="https://win-superb.techidaily.com/festplattengerausche-beim-booten-dekodieren-losungsansatze-fur-ungewohnliches-klicken-und-summen/"><u>Festplattengeräusche Beim Booten Dekodieren: Lösungsansätze Für Ungewöhnliches Klicken Und Summen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-english-learning-via-pearson-services/"><u>Global English Learning via Pearson Services</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/hp-laptop-silent-problem-solved-restore-sound-with-these-simple-fixes/"><u>HP Laptop Silent Problem Solved - Restore Sound with These Simple Fixes</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-infinix-smart-8-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Infinix Smart 8</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 15? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unleash-creativity-filming-and-editing-on-the-go-with-a-phone/"><u>In 2024, Unleash Creativity Filming & Editing on the Go with a Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-lineage-tracing-spanish-and-portuguese-roots/"><u>Linguistic Lineage: Tracing Spanish & Portuguese Roots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-french-expressions-enhancing-natural-language/"><u>Mastering French Expressions: Enhancing Natural Language</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/playing-halted-a6400-video-viewing-woes-for-2024/"><u>Playing Halted A6400 Video Viewing Woes for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-your-french-reading-journey-with-these-20-novels/"><u>Start Your French Reading Journey with These 20 Novels</u></a></li>
+<li><a href="https://some-tips.techidaily.com/upcoming-apple-innovations-revealed-exciting-updates-coming-to-iphone-ipad-and-mac-devices-this-autumn-with-a-focus-on-artificial-intelligence-stay-informed78/"><u>Upcoming Apple Innovations Revealed: Exciting Updates Coming to iPhone, iPad, and Mac Devices This Autumn, with a Focus on Artificial Intelligence – Stay Informed with ZDNet!</u></a></li>
+</ul></div>
 
