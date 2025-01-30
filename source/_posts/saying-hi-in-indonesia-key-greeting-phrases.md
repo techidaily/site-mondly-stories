@@ -1,7 +1,7 @@
 ---
 title: "Saying Hi in Indonesia: Key Greeting Phrases"
-date: 2025-01-16T18:00:58.851Z
-updated: 2025-01-22T16:53:23.738Z
+date: 2025-01-27T18:54:26.549Z
+updated: 2025-01-29T16:26:51.560Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
  Besides, you’ll love [learning Indonesian words](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6912&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6912?mother%5Flang=en%5Fus?target%5Flang=id) as some of them sound very cute to English speakers. Known as_Bahasa Indonesia_ to Indonesians, Indonesian calls the dolphin_lumba-lumba_ and the teeth_gigi_ . Cute. Told ‘ya!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When and how should you say hello in Indonesia
@@ -36,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -44,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
 
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
@@ -51,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/5f29ab47c82493b144af09fd3ee1e6f095ceaed40
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
@@ -67,7 +75,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -75,10 +83,6 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
 
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to say goodbye
 
@@ -90,10 +94,6 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Start learning Indonesian today
 
@@ -126,20 +126,24 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-simplifying-meeting-execution-combining-slacks-ease-with-filmora-writes/"><u>[Updated] 2024 Approved Simplifying Meeting Execution Combining Slack's Ease With Filmora' Writes</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-twin-screens-archive-capture/"><u>[Updated] In 2024, Twin Screens Archive Capture</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-best-tools-full-sphere-filming-and-photography/"><u>2024 Approved Best Tools Full Sphere Filming and Photography</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-professional-audio-tactics-achieving-excellence-without-a-microphone/"><u>2024 Approved Professional Audio Tactics Achieving Excellence without a Microphone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/catalan-language-sprint-10-minsday/"><u>Catalan Language Sprint – 10 Mins/Day</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/commanding-communicators-best-linguistic-solutions/"><u>Commanding Communicators: Best Linguistic Solutions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/connecting-teachers-across-continents/"><u>Connecting Teachers Across Continents</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/croatian-speaking-communities/"><u>Croatian Speaking Communities</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivating-conversational-british-eloquence/"><u>Cultivating Conversational British Eloquence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-mutual-understanding-turkey-and-koreas-language-journey/"><u>Discovering Mutual Understanding: Turkey & Korea's Language Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/easily-access-worldwide-languages-for-next-to-nothing/"><u>Easily Access Worldwide Languages for Next to Nothing</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/feel-good-pop-anthems-by-microsoft-a-collection-specifically-chosen-for-their-positive-cheerful-melodies-and-lyrics-designed-to-boost-your-mood/"><u>Feel Good Pop Anthems by Microsoft – A Collection Specifically Chosen for Their Positive, Cheerful Melodies and Lyrics Designed to Boost Your Mood</u></a></li>
-<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-infinix-note-30-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Infinix Note 30 5G | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-direct-mp3-download-for-fb-video-tracks/"><u>[New] Direct MP3 Download for FB Video Tracks</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-steps-for-a-never-to-return-from-tiktok-space/"><u>[New] In 2024, Steps for a Never-to-Return From TikTok Space</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-old-hollywood-techniques-for-modern-filmmakers/"><u>[Updated] In 2024, Old Hollywood Techniques for Modern Filmmakers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-quick-steps-to-efficient-zoom-meetings/"><u>2024 Approved Quick Steps to Efficient Zoom Meetings</u></a></li>
+<li><a href="https://win-community.techidaily.com/datenwiederherstellung-fur-microsoft-word-beste-strategien-erklart/"><u>Datenwiederherstellung Für Microsoft Word: Beste Strategien Erklärt!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-persian-roots-unlock-language-potential/"><u>Discover Persian Roots, Unlock Language Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empower-your-communication-skills-the-oxford-way/"><u>Empower Your Communication Skills – The Oxford Way</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-expertly-selected-asmr-tools-for-androidios/"><u>In 2024, Expertly Selected ASMR Tools for Android/iOS</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-pixels-to-power-the-ultra-hd-world-of-samsung-ue590/"><u>In 2024, From Pixels to Power The Ultra HD World of Samsung UE590</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-harvesting-hours-of-hilarity-friends-farming-favorites/"><u>In 2024, Harvesting Hours of Hilarity Friends' Farming Favorites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/januayer-resolutions-from-slogan-to-strategy/"><u>Januayer Resolutions: From Slogan To Strategy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-terms-for-fluent-communication-in-vietnam/"><u>Key Terms for Fluent Communication in Vietnam</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-on-calls-and-bows/"><u>Mastering Japanese On-Calls & Bows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-spanish-verb-forms/"><u>Navigating Through Spanish Verb Forms</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/al-7-dslr-recommendations-for-dynamic-video-content-for-2024/"><u>Optimal 7 DSLR Recommendations For Dynamic Video Content for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parisian-cupids-guide-to-sweet-talking/"><u>Parisian Cupid's Guide to Sweet Talking</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-windows-11-unable-to-install-error-code-80240020-expert-advice/"><u>Troubleshooting Windows 11 Unable to Install Error (Code 80240020) – Expert Advice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-assembly-of-hispanic-nations/"><u>Worldwide Assembly of Hispanic Nations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/young-minds-younger-fluency-kindergarten-elementary-in-espanol/"><u>Young Minds, Younger Fluency: Kindergarten-Elementary in Español</u></a></li>
 </ul></div>
 

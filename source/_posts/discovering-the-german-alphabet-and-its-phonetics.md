@@ -1,7 +1,7 @@
 ---
 title: Discovering the German Alphabet and Its Phonetics
-date: 2024-09-15T17:11:28.982Z
-updated: 2024-09-21T19:32:29.901Z
+date: 2025-01-28T20:01:30.678Z
+updated: 2025-01-29T16:50:03.796Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/6368130d53d4726baee2d761c0d301b46230227e2
 
  However, German pronunciation being difficult is just a myth._Oh ja,_ you read that right. German is actually one of the few languages where pronunciation makes sense. Once you know the rules, all you have to do is flex those pronunciation muscles and speak like a true German. It’s really not as hard as you think. Let’s break the myth together.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The basics of the German alphabet
 
  We’ll naturally start with the basics. Much like English, the German alphabet consists of 26 standard letters. In addition to that, it also features the letter ß – known as the German ligature – and umlauted forms of three vowels: ä, ö and ü. In total,_das Alphabet_ has 8 vowels and 22 consonants.
@@ -33,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/6368130d53d4726baee2d761c0d301b46230227e2
  German is the only language that uses ß and if the character is unavailable, it can be replaced with ⟨ss⟩. In fact, in Swiss Standard German (used in Switzerland and Liechtenstein), the letter was completed replaced by ⟨ss⟩ sometime in the 20th century.
 
  Eszett not having a capitalized version sparked debates for a long time, so the Council for German Orthography [officially adopted](https://www.sueddeutsche.de/bildung/rechtschreibung-das-alphabet-bekommt-einen-neuen-buchstaben-1.3566309) a capital in 2017\. The capital of ß is ẞ.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### German umlauts: ä, ö, ü
 
@@ -51,10 +59,7 @@ Now round off your lips and start practicing!
 ![german alphabet](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-alphabet-960x640.jpg "A Beginner’s Guide To The German Pronunciation &Amp; Alphabet 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## German pronunciation guide for single letters
@@ -72,10 +77,7 @@ Now round off your lips and start practicing!
 5. **E** – If you see an _e_ at the end of a German word, make sure to pronounce it like this: ‘eh’. Come on! Loud and clear: _Katze_ (‘cat’)!
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## German pronunciation guide for letter combinations
@@ -94,6 +96,10 @@ Now round off your lips and start practicing!
 10. **Z** – Don’t pronounce this like the English ‘z’. Go instead for the ‘ts’ sound in ‘cats’. Try it: _Zeitung_ (‘newspaper’).
 
  Did you recognize_ze rules_ in this example?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to pronounce long German words
 
@@ -139,5 +145,22 @@ _Tschüss!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-instagram-posting-tips-to-boost-your-podcast-exposure/"><u>[New] Instagram Posting Tips to Boost Your Podcast Exposure</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-elevate-engagement-mastering-online-presentations-via-zoom-and-youtube-for-2024/"><u>[Updated] Elevate Engagement Mastering Online Presentations via Zoom and YouTube for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-imovie-hacks-for-unique-and-memorable-youtube-openers/"><u>2024 Approved IMovie Hacks for Unique and Memorable YouTube Openers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-data-from-broken-iphone-14-pro-screen-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Data from Broken iPhone 14 Pro Screen | Stellar</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-more-than-just-likes-decoding-the-secrets-to-youtube-views/"><u>In 2024, More than Just Likes Decoding the Secrets to YouTube Views</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-language-lessons-with-mondlys-ar-features/"><u>Interactive Language Lessons with Mondly's AR Features</u></a></li>
+<li><a href="https://win11.techidaily.com/keeping-user-preferences-with-powertoys-across-devices/"><u>Keeping User Preferences with PowerToys Across Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-languages-commitment-of-2024/"><u>Learn Languages - Commitment of 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingual-distinctions-brazilian-and-eu-portuguese-contrasted/"><u>Lingual Distinctions: Brazilian & EU Portuguese Contrasted</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sparking-interest-fun-in-learning-latin/"><u>Sparking Interest: Fun in Learning Latin</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/step-by-step-transferring-your-data-around-windows-with-yl-softwares-help/"><u>Step-by-Step: Transferring Your Data Around Windows with YL Software's Help</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-accurate-ru-alphabet-pronunciations/"><u>Unlocking Accurate RU Alphabet Pronunciations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voice-command-enhancements-for-oculus-quest-with-mondly/"><u>Voice Command Enhancements for Oculus Quest with Mondly</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/whole-world-capture-vs-increased-depth-perception/"><u>Whole World Capture Vs Increased Depth Perception</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Sunrise Salutations: Exploring 10 Different Morning Expressions"
-date: 2024-09-18T16:37:16.881Z
-updated: 2024-09-21T19:57:03.946Z
+date: 2025-01-28T22:54:10.445Z
+updated: 2025-01-30T02:58:42.796Z
 tags:
   - speak
   - english
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/d599dad7b998abdf06ca417d32becc28547b33f18
 
 _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) – one of the most common travel words around the world. Nothing breaks the cultural ice like a respectful greeting in the local language. This is why the ability to say good morning in different languages is a life skill that is well worth learning. Let’s dive in!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Good morning in Spanish:_¡Buenos días!_
 
 **_Buenos días_ literally means “good days”, but it is used to say “good morning” in Spanish.** Suitable for all social contexts, this greeting can be used with both friends and strangers. If you want to mix things up, you can also add_hola_ and say “hola, buenos días” as it is a very standard and friendly salutation. If you want to say goodbye in the morning, you can say “adiós, buenos días” which is a nice way to wish someone a good day.
@@ -50,6 +54,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  To say “good morning” in German, you can use the phrase “Guten Morgen”. This is a common and polite way to greet someone until noon. It can be used with both friends and strangers which makes it appropriate in both formal and informal social contexts.
 
  As you probably know, Germans like to be efficient, so sometimes greetings tend to be kept short. Therefore, in informal situations, you can simply say “Morgen!”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Good morning in Italian:_Buongiorno!_
 
@@ -75,18 +83,15 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Additionally, if you want to go the extra mile, it is considered polite to ask about the person’s well-being after greeting them. For example, “как дела?”_(kak dela?)_ which means “how are you?” is often used in conjunction with “доброе утро”_(dobraye utro)_ . This makes the greeting more friendly and personal.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Good morning in Chinese:_早上好！_
 
  早上好_(Zǎoshang hǎo)_ is how you normally say “good morning” in Chinese. However, if you want to keep it short and sound more like a native, you can just simply say 早_(zǎo)_ .
 
  The same as the English “good morning”, 早 (zǎo) can be used in most social settings provided it’s morning, of course.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 8\. Good morning in Japanese:_おはようございます！_
 
@@ -96,13 +101,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
 !["Good morning in Spanish" by Dawid Zawiła©](https://edge.mondly.com/blog/wp-content/uploads/2023/01/good-morning-in-spanish-960x640.jpg "How To Say Good Morning In 10 Different Languages 2")
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 9\. Good morning in Arabic:_صباح الخير!_
 
  The most common way to say “good morning” in Arabic is_صباح الخير (_ _Sabah alkhayr)_ . The usual response to this is صباح النور_(Sabah an-noor)_ which means “morning of light”. Isn’t that just beautiful?
@@ -111,6 +109,10 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 
  Careful though! As beautiful as they sound, these last examples can only be used with friends or people who are very close to your heart.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10\. Good morning in Hindi:_सुप्रभात!_
 
  To say “good morning” in [Hindi](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can use the phrase सुप्रभात_(Suprabhaat) _ . This is a common and polite way to greet someone in the morning and it is appropriate for both formal and informal settings.
@@ -118,10 +120,7 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
  If you want to ask about the person’s well-being after greeting them, you can add क्या हाल है?_(kya haal hai?)_ which means “how are you?”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: Good morning in Romanian:_bună dimineața!_
@@ -134,13 +133,6 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## From “good morning” to conversational fast
 
@@ -171,5 +163,22 @@ _Good morning_ is – along with [_hello_](https://shop.mondly.com/affiliate.php
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-harmonyheed-evaluating-audio-artifacts/"><u>[New] HarmonyHeed Evaluating Audio Artifacts</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-reddits-supreme-judges-the-most-upvoted-posts-ever/"><u>[New] Reddit's Supreme Judges The Most Upvoted Posts Ever</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-channel-makeovers-made-easy-top-10-online-tools-for-artists/"><u>[Updated] 2024 Approved Channel Makeovers Made Easy - Top 10 Online Tools for Artists</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-pathway-to-online-success-building-a-new-youtube-channel/"><u>[Updated] 2024 Approved The Pathway to Online Success Building a New YouTube Channel</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-motorola-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Motorola Fingerprint Lock</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-xiaomi-14-pro-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Xiaomi 14 Pro to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-uniting-voices-how-to-speak-with-your-youtube-community/"><u>In 2024, Uniting Voices How to Speak With Your YouTube Community</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-precision-in-grammar-important-for-learners/"><u>Is Precision in Grammar Important for Learners?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-fundamentos-del-sistema-de-colores/"><u>Los Fundamentos Del Sistema De Colores</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-gratis-ukrainian-lessons-galore/"><u>Mondly: Gratis Ukrainian Lessons Galore</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-systems-empowering-grammar-enhancement/"><u>Premier Systems Empowering Grammar Enhancement</u></a></li>
+<li><a href="https://techtrends.techidaily.com/streamline-your-windows-experience-quick-guide-to-driver-upgrades-in-windows-7810/"><u>Streamline Your Windows Experience: Quick Guide to Driver Upgrades in Windows 7/8/10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-new-e-learning-standard-mondlys-german-linguistic-sovereignty/"><u>The New E-Learning Standard: Mondly’s German Linguistic Sovereignty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/two-years-one-bold-dream-mondlylanguages-story/"><u>Two Years, One Bold Dream - MondlyLanguages Story</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleashing-your-full-potential-in-english-via-mondly/"><u>Unleashing Your Full Potential in English via Mondly</u></a></li>
+</ul></div>
 

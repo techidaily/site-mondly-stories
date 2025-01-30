@@ -1,7 +1,7 @@
 ---
 title: "Ukrainian And Russian: How Similar Are These Two Slavic Languages?"
-date: 2025-01-16T16:57:56.118Z
-updated: 2025-01-22T16:26:08.435Z
+date: 2025-01-28T19:51:29.461Z
+updated: 2025-01-29T23:34:44.505Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
  Contrary to what some people believe, Ukrainian and Russian are not the same language. Despite sharing a common ancestor and the Cyrillic script, Ukrainian and Russian are two distinct languages. They are somehow similar, yes, but not one and the same. To help you understand the relationship between the two, we are going to look at their shared history and both their differences and similarities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Was Ukrainian really called Little Russian?
 
  In short, yes. The Ukrainian language was formerly called Little Russian, but the term is now considered pejorative. Let’s see how all the events leading to this name unfolded.
@@ -48,13 +52,13 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 !['Ukrainian language' by Gleb Albovsky©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/ukrainian-language-960x600.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  As a result of Ukraine’s centuries-long political subordination, Ukrainian had almost no literary expression until de 18th century when the modern literary Ukrainian language was born.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Russian language – a short history
@@ -69,6 +73,10 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
  Later, the Soviet period brought Russian worldwide prestige which declined after the 1991 collapse. Despite each USSR constituent republic having its own official language, Russian had a unified role and superior status. This is why there are so many people speaking Russian outside Russia.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How similar are Ukrainian and Russian?
 
  The misconception that Russian and Ukrainian are the same sometimes stems from the fact that Russian is widely spoken in Ukraine. The numbers can differ slightly according to various sources, but it’s generally agreed that 60% of Ukrainians consider Ukrainian their native language, while 15% consider Russian to be their native language. Moreover, 22% consider both to be their native languages.
@@ -79,17 +87,9 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
 !['Russian language' by Dimitry B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/russian-language-960x639.jpg "Ukrainian And Russian: How Similar Are These Two Languages? 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Since most Ukrainian speakers also speak Russian or have extensive exposure to it, ‘asymmetric intelligibility’ is the best term to describe the relationship between the two languages. In other words, Ukrainian speakers can often understand Russian, while Russian speaker doesn’t understand Ukrainian, especially Russian speakers from outside Ukraine.
 
  However, all three languages – Ukrainian, Russian and Belarusian – are in part mutually intelligible, and already knowing one can help a lot if you want to learn one of the others.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How different are Ukrainian and Russian?
 
@@ -100,7 +100,7 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
  Both Ukrainian and Russian use the 33-letter [Cyrillic alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but there are four letters in Ukrainian missing from Russian (ґ, є, і, ї), and four letters in Russian missing from Ukrainian (ё, ъ, ы, э).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Vocabulary
@@ -184,18 +184,20 @@ thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-free-image-savers-optimizing-video-graphics/"><u>[Updated] In 2024, FREE Image Savers Optimizing Video Graphics</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/a-new-era-for-ai-linguistics-with-googles-palm-2-model/"><u>A New Era for AI Linguistics with Google's PaLM 2 Model</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-advocacy-with-precision-in-professional-vernacular/"><u>Accelerate Advocacy with Precision in Professional Vernacular</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/anchoring-your-tongue-in-piracy-vocabulary/"><u>Anchoring Your Tongue in Piracy Vocabulary</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-foreign-flicks-to-learn-a-new-tongue/"><u>Best Foreign Flicks To Learn A New Tongue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/complete-guide-to-japanese-kanji-and-kana-systems/"><u>Complete Guide to Japanese Kanji & Kana Systems</u></a></li>
-<li><a href="https://win-info.techidaily.com/complete-guide-restoring-accidentally-deleted-documents-on-your-windows-pc-tips-by-yl-computing/"><u>Complete Guide: Restoring Accidentally Deleted Documents on Your Windows PC - Tips by YL Computing</u></a></li>
-<li><a href="https://win-special.techidaily.com/cryptocurrency-price-forecast-bitcoin-to-dogecoin-analysis-on-october-27th-by-yl-computing/"><u>Cryptocurrency Price Forecast - Bitcoin to Dogecoin Analysis on October 27Th by YL Computing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoes-of-avon-words-from-a-bygone-era-remain/"><u>Echoes of Avon: Words From a Bygone Era Remain</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effektive-deutsche-entschuldigungen/"><u>Effektive Deutsche Entschuldigungen</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/madden-20-for-pc-stability-issues-heres-how-you-can-get-things-running-smoothly-again/"><u>Madden 20 for PC Stability Issues? Here's How You Can Get Things Running Smoothly Again.</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/ram-diagnostics-explained-identifying-faulty-memory-with-help-from-yl-software-techniques/"><u>RAM Diagnostics Explained: Identifying Faulty Memory with Help From YL Software Techniques</u></a></li>
-<li><a href="https://win-able.techidaily.com/solving-game-performance-sluggishness-quick-fixes-and-tips/"><u>Solving Game Performance Sluggishness - Quick Fixes & Tips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-guide-to-prime-gopro-protectors-top-10-reviewed/"><u>[New] Guide to Prime GoPro Protectors - Top 10 Reviewed</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-swift-soundphone-tools-for-rapid-tracks/"><u>[Updated] Swift Soundphone Tools for Rapid Tracks</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-navigating-to-your-personal-youtube-collection/"><u>2024 Approved Navigating to Your Personal YouTube Collection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalog-of-linguistic-siblings-to-spain/"><u>Catalog of Linguistic Siblings to Spain</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embracing-time-2nd-year-at-mondly-languages-and-bold-dreams/"><u>Embracing Time: 2Nd Year at Mondly Languages and Bold Dreams</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-xiaomi-redmi-13c-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-alternatives-to-googles-ar-interactive-graphics/"><u>In 2024, Alternatives to Google's AR Interactive Graphics</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-stolen-apple-iphone-12-pro-max-in-different-conditionsin-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Stolen Apple iPhone 12 Pro Max In Different Conditionsin | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israelian-voyage-preparation-essential-insights-and-local-speak/"><u>Israelian Voyage Preparation: Essential Insights & Local Speak</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-on-calls-a-cultural-insight/"><u>Japanese On-Calls: A Cultural Insight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-exploration-the-top-ten-rationales-for-multilingualism/"><u>Language Exploration: The Top Ten Rationales for Multilingualism</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-samsung-galaxy-z-fold-5-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Samsung Galaxy Z Fold 5 Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swedish-sound-system-decoded-quickly/"><u>Swedish Sound System Decoded Quickly</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-retrieving-past-web-content-using-the-wayback-machine-features/"><u>The Ultimate Guide to Retrieving Past Web Content Using the Wayback Machine Features</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-ultimate-guide-top-10-places-to-download-inspiring-slideshow-designs/"><u>The Ultimate Guide Top 10 Places to Download Inspiring Slideshow Designs</u></a></li>
 </ul></div>
 

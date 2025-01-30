@@ -1,7 +1,7 @@
 ---
 title: Essential Spanish Verbal Grammar for Beginners
-date: 2024-09-15T18:00:29.420Z
-updated: 2024-09-21T19:52:56.043Z
+date: 2025-01-25T00:41:28.738Z
+updated: 2025-01-29T20:37:28.480Z
 tags:
   - speak
   - english
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/fa290563760e589f24a85fc95189dcd8b9293ad62
 ## Essential Spanish Verbal Grammar for Beginners
 
  ¡Hola, Spanish language aficionado! Welcome to another essential Spanish lesson you’ll have to learn if you want to boost your Spanish conversation skills. Today, we are talking about**Spanish verbs** , their conjugations, and some [**Spanish grammar rules**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that will naturally join the party. Are you ready? Let’s start with the basics.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish verbs: rules for regular Spanish verbs
 
@@ -60,9 +64,17 @@ Spanish verbs conjugations make sense now, don’t they?
 
 ![Mondly app screenshot verb conjugation](https://edge.mondly.com/blog/wp-content/uploads/2019/06/verb-conjugation-353x600.png "Spanish Verb Conjugation: Regular And Irregular Verbs 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In Mondly, you can quickly see a verb’s conjugation by simply tapping on it
 
  Before moving on to irregular Spanish verbs and more examples, let’s also explore**the past and future of regular Spanish verbs** . What do you think? Wouldn’t that be useful?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish Preterite Tense – Regular Preterite Verb Endings
 
@@ -139,13 +151,6 @@ And the conjugation of comer will look like this:
 * _Vosotros / Vosotras escrib**iréis**_
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Spanish verbs: how to master irregular Spanish verbs
 
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
@@ -206,6 +211,10 @@ And the conjugation of comer will look like this:
 
 _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious because to the final letter “i” of their stem, we will need to add an “e”. Thus, “I acquire” will be “Yo adquiero”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Spanish verbs with an irregular “yo” form
 
  This category includes two types of verbs:  
@@ -231,16 +240,7 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish verbs conjugation examples –_ser, estar, ir_
@@ -332,5 +332,19 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-reimagining-your-tiktok-presence-step-by-step-renaming-process/"><u>[New] 2024 Approved Reimagining Your TikTok Presence Step-by-Step Renaming Process</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-craft-a-sonic-whatsapp-update/"><u>2024 Approved Craft a Sonic WhatsApp Update</u></a></li>
+<li><a href="https://common-error.techidaily.com/combat-connectivity-problems-4-easy-remedies-for-a-non-responsive-dns/"><u>Combat Connectivity Problems: 4 Easy Remedies for a Non-Responsive DNS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-immerse-yourself-in-a-language-6-helpful-tips/"><u>How to Immerse Yourself in a Language: 6 Helpful Tips</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-quickly-download-and-update-your-logitech-g920-drivers-on-any-version-of-windows-11-1087/"><u>How to Quickly Download and Update Your Logitech G920 Drivers on Any Version of Windows (11, 10/8/7)</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-scripted-shutdown-of-stories/"><u>In 2024, The Scripted Shutdown of Stories</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-to-proper-spanish-accent-usage-in-writing/"><u>Key to Proper Spanish Accent Usage in Writing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-russian-letters-pronunciation-techniques/"><u>Learning Russian Letters Pronunciation Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-japanese-language-without-spending-money/"><u>Mastering Japanese Language Without Spending Money</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/simplified-webcam-editing-and-distribution-methods/"><u>Simplified WebCam Editing & Distribution Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swedish-alphabet-and-pronunciation-a-quick-guide/"><u>Swedish Alphabet And Pronunciation: A Quick Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-10-frame-makers-revealed-2024-edition/"><u>Top 10 Frame Makers Revealed 2024 Edition</u></a></li>
+</ul></div>
 

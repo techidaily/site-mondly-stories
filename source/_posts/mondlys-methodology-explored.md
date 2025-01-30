@@ -1,7 +1,7 @@
 ---
 title: Mondly's Methodology Explored
-date: 2024-09-19T17:33:27.203Z
-updated: 2024-09-21T17:28:56.730Z
+date: 2025-01-24T00:59:49.104Z
+updated: 2025-01-29T23:21:25.404Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/8cc2f26346852b595fe32553f266efaeb26b116a6
 
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Minimum effort, maximum results
 
  Think about those endless pages of rules you had to memorize in high school. That was no easy task. But once in a while, there was a teacher that really enjoyed the job and took the time to properly explain all the thinking behind them. Only then the rules would stick.
@@ -42,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/8cc2f26346852b595fe32553f266efaeb26b116a6
 
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
@@ -49,6 +57,10 @@ thumbnail: https://thmb.techidaily.com/8cc2f26346852b595fe32553f266efaeb26b116a6
 [Studies](https://academic.oup.com/applij/article-abstract/34/4/457/199564?redirectedFrom=fulltext) have shown that knowing as little as 100 words helps you understand 50% of any text in the language you’re learning. Surprising as it may seem, it’s true. Knowing 1,000 words will give you a high coverage of 75% of any text. Here’s how much lexical coverage you need to reach fluency in almost any language:
 
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lexical coverage overview
 
@@ -60,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/8cc2f26346852b595fe32553f266efaeb26b116a6
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
 
@@ -84,12 +100,26 @@ thumbnail: https://thmb.techidaily.com/8cc2f26346852b595fe32553f266efaeb26b116a6
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-top-6-minecraft-house-ideas-for-beginners/"><u>[New] In 2024, Top 6 Minecraft House Ideas for Beginners</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-how-to-find-your-own-tiktok-stream-key/"><u>[Updated] How to Find Your Own TikTok Stream Key</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-top-picks-crafting-mc-villages-abodes/"><u>[Updated] In 2024, Top Picks Crafting MC Villages' Abodes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-motorola-edge-40-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Motorola Edge 40 Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Xiaomi Redmi A2? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-frees-ukrainians-from-learning-boundaries/"><u>Mondly Frees Ukrainians From Learning Boundaries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/persian-languages-rich-past-and-lifelong-rewards/"><u>Persian Language's Rich Past & Lifelong Rewards</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-educational-trends-with-smart-ai-integration/"><u>Pioneering Educational Trends with Smart AI Integration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-start-to-hangul-mastery-the-korean-alphabet-unveiled/"><u>Quick Start to Hangul Mastery: The Korean Alphabet Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-bulgarian-embrace-a-new-language-10-minday/"><u>Rapid Bulgarian: Embrace a New Language, 10 Min/Day</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/screentosave-mobilepc-video-recording-for-2024/"><u>ScreenToSave Mobile/PC Video Recording for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachdiversitat-deutsche-grussworter-ohne-hallo/"><u>Sprachdiversität: Deutsche Grußwörter Ohne 'Hallo'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-english-second-language-acquisition/"><u>The Art of English Second Language Acquisition</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-homeowners-handbook-to-diagnosing-and-repairing-everyday-tv-issues/"><u>The Homeowner's Handbook to Diagnosing and Repairing Everyday TV Issues</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/the-ultimate-guide-to-fixing-persistent-windows-update-problems/"><u>The Ultimate Guide to Fixing Persistent Windows Update Problems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transparency-boost-tandc-revisions-explained/"><u>Transparency Boost: T&C Revisions Explained</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshoot-and-restore-functionality-of-faulty-hp-laptop-keys-expert-guide/"><u>Troubleshoot and Restore Functionality of Faulty HP Laptop Keys - Expert Guide!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-top-6-online-tools-for-mastering-korean/"><u>Ultimate Guide: Top 6 Online Tools for Mastering Korean</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/yosemite-video-editing-essentials-tips-and-tricks/"><u>Yosemite Video Editing Essentials Tips and Tricks</u></a></li>
+</ul></div>
 

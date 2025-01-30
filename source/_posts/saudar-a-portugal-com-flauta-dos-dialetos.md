@@ -1,7 +1,7 @@
 ---
 title: Saudar a Portugal Com Flauta Dos Dialetos
-date: 2025-01-20T16:48:07.529Z
-updated: 2025-01-22T16:05:42.497Z
+date: 2025-01-27T16:57:22.371Z
+updated: 2025-01-29T18:16:48.147Z
 tags:
   - speak
   - english
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/fb9dc69321147c58e76f643c816e11fbbc732b6fd
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### “Hello” in Portuguese – Olá
@@ -41,7 +41,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Lisbon, Portugal” by Diego García©
@@ -61,10 +61,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
@@ -79,10 +75,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
  All three of these are safe to use in any kind of interaction (formal or informal).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3.“Goodbye” in Portuguese – Adeus
 
  The most common way to say “Goodbye” in Portuguese is_Adeus_ , but you can also use_Tchau_ which simply translates to “bye”.
@@ -96,6 +88,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  Another useful phrase for bidding farewell is “have a good day”. In Portuguese, that’s_t_ _enha um bom dia_ .
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
@@ -123,6 +119,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -131,7 +131,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
@@ -165,15 +165,19 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-files.techidaily.com/new-reimagining-anime-narratives-in-trending-tiktok-creations-for-2024/"><u>[New] Reimagining Anime Narratives in Trending TikTok Creations for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/34293626-updated-closing-your-vlog-right-top-6-free-youtube-outro-tools/"><u>[Updated] Closing Your Vlog Right Top 6 Free YouTube Outro Tools</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-elevate-youtube-navigating-tweets-in-1080p-clarity-for-2024/"><u>[Updated] Elevate YouTube Navigating Tweets in 1080P Clarity for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-essential-zooming-skills-for-clearer-google-meets-for-2024/"><u>[Updated] Essential Zooming Skills for Clearer Google Meets for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagram-the-ultimate-video-editing-handbook-for-2024/"><u>[Updated] Mastering Instagram The Ultimate Video Editing Handbook for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-beginners-best-selection-top-russian-commands-and-questions/"><u>A Beginner's Best Selection: Top Russian Commands & Questions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cinematic-francophone-tales-of-love/"><u>Cinematic Francophone Tales of Love</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/croatia-mother-tongue/"><u>Croatia: Mother Tongue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dynamic-classroom-dynamics-with-latin-studies/"><u>Dynamic Classroom Dynamics with Latin Studies</u></a></li>
-<li><a href="https://blog-min.techidaily.com/winx-mediatrans-libre-de-descargar-transferencia-sin-problemas-entre-dispositivos-ios-y-iphone-control-total-sobre-archivos-ios/"><u>WinX MediaTrans Libre De Descargar - Transferencia Sin Problemas Entre Dispositivos iOS Y iPhone, Control Total Sobre Archivos iOS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-from-basics-to-blockbusters-building-an-audience-on-gaming-channels/"><u>[New] 2024 Approved From Basics to Blockbusters Building an Audience on Gaming Channels</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ratis-design-elements-for-youtube-channel-for-2024/"><u>[New] Gratis Design Elements for YouTube Channel for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-crafting-visual-stories-with-snapchat-photo-edits/"><u>[Updated] 2024 Approved Crafting Visual Stories with Snapchat Photo Edits</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-integrating-youtube-into-your-tiktok-journey-a-complete-manual/"><u>2024 Approved Integrating YouTube Into Your TikTok Journey A Complete Manual</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-radiant-registering-and-unregistering-rites/"><u>2024 Approved Radiant Registering and Unregistering Rites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-week-in-korea-one-hangul-at-a-time/"><u>A Week in Korea, One Hangul at a Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conoce-los-nombres-del-mundo-animalista-en-espanol/"><u>Conoce Los Nombres Del Mundo Animalista en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-expressions-unveiled-a-curated-list-of-the-top-25/"><u>German Expressions Unveiled: A Curated List of the Top 25</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-many-languages-does-santa-fluent-in/"><u>How Many Languages Does Santa Fluent In?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-pivot-table-field-name-is-not-valid-error-in-excel-by-stellar-guide/"><u>How to fix Pivot Table Field Name is not Valid error in Excel?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-breaking-ground-in-video-marketing-setting-up-a-review-chain/"><u>In 2024, Breaking Ground in Video Marketing Setting Up a Review Chain</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-chinas-bargain-bin-of-virtual-reality-gear/"><u>In 2024, China's Bargain Bin of Virtual Reality Gear</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-partners-up-enhanced-buttonfiltration-with-pearson/"><u>Mondly Partners Up: Enhanced ButtonFiltration With Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-seniors-guide-embracing-multilingualism-and-its-incredible-benefits-post-forty/"><u>The Senior's Guide: Embracing Multilingualism and Its Incredible Benefits Post-Forty</u></a></li>
 </ul></div>
 

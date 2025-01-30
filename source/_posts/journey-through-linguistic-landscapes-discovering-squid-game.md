@@ -1,7 +1,7 @@
 ---
 title: "Journey Through Linguistic Landscapes: Discovering Squid Game"
-date: 2024-09-19T16:41:49.081Z
-updated: 2024-09-21T18:46:10.816Z
+date: 2025-01-26T22:23:39.926Z
+updated: 2025-01-29T17:12:28.404Z
 tags:
   - speak
   - english
@@ -42,6 +42,10 @@ So what’s there to be done?
 
  Now, this global phenomenon even has its own name. **The cultural boom coming from South Korea since the 1990s is known today as the Korean wave or [hallyu](https://en.wikipedia.org/wiki/Korean%5Fwave) .** Basically, everything we love about Korean pop culture is embedded in hallyu.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Squid Game got lost in translation
 
  Not everyone will get this, but can you imagine how sad it is to be lost in translation without Scarlett Johansson and Bill Murray?
@@ -53,6 +57,10 @@ So what’s there to be done?
  The question remains: if not even Netflix, the billion-dollar streaming service, could offer viewers a top-notch translation from Korean, then who can?
 
 ![korean culture](https://edge.mondly.com/blog/wp-content/uploads/2021/10/learn-korean-960x640.jpg "Obsessed With Squid Game, But Lost In Translation? Learn Korean 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  ‘Korean women’ by zero take©
 
@@ -68,6 +76,10 @@ So there’s only one conclusion we can draw from this…
 
 ![squid game love](https://media.giphy.com/media/USVF7ZnGqVuoABCBUr/giphy.gif "Obsessed With Squid Game, But Lost In Translation? Learn Korean 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  **Would you [learn Korean](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko) out of love for hallyu?** In 2020, in his Oscar acceptance speech, ‘Parasite’ director Bong Joon Ho said something the world will never forget:
 
  Once you overcome the 1-inch-tall barrier of subtitles, you will be introduced to so many more amazing films.
@@ -77,10 +89,7 @@ So there’s only one conclusion we can draw from this…
  And you know what’s the second-best thing about this? You’ll be in great company. Since the launch of Squid Game, Mondly has seen a massive increase in people starting to learn Korean. You can join them all **[here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko)**  .
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Even the English language wants to learn Korean
@@ -95,10 +104,7 @@ So there’s only one conclusion we can draw from this…
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in Korean
@@ -127,5 +133,21 @@ So there’s only one conclusion we can draw from this…
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-master-the-art-of-sowing-and-cultivation-in-valheim/"><u>2024 Approved Master the Art of Sowing and Cultivation in Valheim</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-infinix-zero-30-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Infinix Zero 30 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/amazon-primes-top-selection-of-great-family-movies-for-summer-24-viewing/"><u>Amazon Prime's Top Selection of Great Family Movies for Summer '24 Viewing!</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-oppo-a1-5g-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Oppo A1 5G in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/keyboard-shortcut-dilemmnas-a-cross-english-comparison/"><u>Keyboard Shortcut Dilemmnas: A Cross-English Comparison</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723212019355-league-of-legends-update-woes-heres-how-you-can-fix-those-dragging-downloads/"><u>League of Legends Update Woes? Here's How You Can Fix Those Dragging Downloads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-breakthroughs-with-mondly-identifying-top-10-key-advantages/"><u>Linguistic Breakthroughs with Mondly - Identifying Top 10 Key Advantages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-where-engaging-language-apps-converge-into-one-powerhouse/"><u>Mondly: Where Engaging Language Apps Converge Into One Powerhouse</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/my-transformative-language-journey-powered-by-mondly-the-essential-10-techniques/"><u>My Transformative Language Journey Powered by Mondly - The Essential 10 Techniques</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-fcp-vs-lumafusion-choosing-the-ultimate-video-editing-software/"><u>New In 2024, FCP vs LumaFusion Choosing the Ultimate Video Editing Software</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/revolutionize-digital-diaries-with-complimentary-tools-for-2024/"><u>Revolutionize Digital Diaries with Complimentary Tools for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transforming-communication-in-the-boardroom/"><u>Transforming Communication in the Boardroom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-and-articulating-ru-alphabets/"><u>Understanding and Articulating RU Alphabets</u></a></li>
+</ul></div>
 

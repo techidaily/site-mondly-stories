@@ -1,7 +1,7 @@
 ---
 title: Assistance by Danny From Colombia for the Disadvantaged
-date: 2024-09-14T18:38:37.864Z
-updated: 2024-09-21T16:53:19.287Z
+date: 2025-01-25T01:38:56.131Z
+updated: 2025-01-29T23:31:59.946Z
 tags:
   - speak
   - english
@@ -30,11 +30,19 @@ thumbnail: https://thmb.techidaily.com/8823459ab6574b19c976d6905c67df41ee5da3519
 
  **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Unlocking the power of social good
 
  When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
 
 ![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Graduation at the Danny Foundation.
 
@@ -50,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/8823459ab6574b19c976d6905c67df41ee5da3519
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Learn a new language in just 10 minutes a day
 
@@ -76,12 +88,22 @@ thumbnail: https://thmb.techidaily.com/8823459ab6574b19c976d6905c67df41ee5da3519
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-premier-updates-facebooks-latest-gems-unearthed/"><u>[New] 2024 Approved Premier Updates Facebook's Latest Gems Unearthed</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-unlock-high-quality-audio-recording-with-these-top-5-windows-11-tips/"><u>[New] In 2024, Unlock High-Quality Audio Recording with These Top 5 Windows 11 Tips</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-voice-storage-test-report-for-2024/"><u>[New] Voice Storage Test Report for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-mastering-the-art-of-measuring-igtv-video-quality/"><u>2024 Approved Mastering the Art of Measuring IGTV Video Quality</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-tecno-camon-20-pro-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Tecno Camon 20 Pro 5G without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/addressing-dolby-tech-hiccups-successfully-launching-the-dolby-driver-for-windows-11-users/"><u>Addressing Dolby Tech Hiccups: Successfully Launching the Dolby Driver for Windows 11 Users</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-view-gpx-files-online-and-offline-solutions-of-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>How to View GPX Files Online and Offline Solutions Of Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-apple-iphone-12-pro-max-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Apple iPhone 12 Pro Max iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introductory-urdu-fundamental-words-and-phrases/"><u>Introductory Urdu: Fundamental Words & Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jeringas-linguisticos-en-ingles-espanol-conjunto-de-50/"><u>Jeringas Lingüísticos en Inglés-Español: Conjunto De 50</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/launchpad-arabic-for-new-learners/"><u>Launchpad: Arabic for New Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-celebrates-victory-as-germanys-linguistic-champion/"><u>Mondly Celebrates Victory as Germany's Linguistic Champion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/original-vocal-augmented-reality-platform/"><u>Original Vocal Augmented Reality Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-dutch-languages-ancestral-journey/"><u>The Dutch Language's Ancestral Journey</u></a></li>
+</ul></div>
 

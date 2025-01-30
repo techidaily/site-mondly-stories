@@ -1,7 +1,7 @@
 ---
 title: Celebrate with a Smile, No Words Needed
-date: 2024-09-11T18:32:53.142Z
-updated: 2024-09-16T18:15:12.971Z
+date: 2025-01-23T20:25:09.842Z
+updated: 2025-01-30T02:15:44.495Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ Different people in the world have different trends to celebrate birthdays, but 
 
 Have you ever thought about how people from other cultures sing birthday songs? Do they do it the same way we do it in English? What about gifts and cakes? How do they express emotions on a birthday? Do they use specific words? Let’s learn how other cultures say and commemorate birthdays!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Happy Birthday in Spanish: Feliz Cumpleaños**
 
 **Feliz Cumpleaños** are the [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) for **“Happy Completed Years”** or simply **“Happy Birthday”** since birthdays are considered a big day of celebration in most Spanish countries. “Feliz Cumpleaños amigo” is a commonly used phrase for wishing a happy birthday to your friends. The same as in Mexico, their popular unique birthday song is “Las Mañanitas“ meaning “Little Mornings“. The best and funniest part is that the birthday boy or girl must eat the first bite of the cake without using any utensils or hands. They have no custom of blowing out candles or making a wish. Yet, the party cannot ever finish without the famous piñata!
@@ -30,9 +34,17 @@ Have you ever thought about how people from other cultures sing birthday songs? 
 
 ![Happy Birthday in French Bon Anniversaire](https://edge.mondly.com/blog/wp-content/uploads/2018/12/Happy-Birthday-in-French-Bon-Anniversaire.png "How To Say &Quot;Happy Birthday&Quot; In Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image source: <http://www.manutention-dauphine.fr>
 
 Joyeux Anniversaire or Bon Anniversaire are the standard ways to wish someone a happy birthday in French. But if you are speaking Canadian French or Quebec, you should say Bonne fête, meaning “Good party/Birthday”. French and English birthdays are often alike. Celebrations include party time, cake, gifts and songs like ‘Joyeux Anniversaire’. Most birthday parties are thrown on Wednesdays as French have their Wednesdays off.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Happy Birthday in Chinese:** **生日快** **乐** **(Shēngrì Kuàilè)**
 
@@ -40,16 +52,13 @@ Chinese culture has an interesting concept of birthday celebrations. Depending o
 
 If you’ll check the literal meaning of Shēngrì Kuàilè, you’ll see that it translates to “Birthday is Happy.”
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Happy Birthday in Russian: С днем рождения (S Dnem Rozhdeniya)**
 
 ![happy birthday in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-russian.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 3")
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Image source: <https://tops.ua>
 
@@ -63,16 +72,13 @@ If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya
 
 ![happy birthday in swedish](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-swedish.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image source: <https://trivselkort.com>
 
 “Grattis På Födelsedagen” is translated to “Birthday congratulations!” in Swedish. The Swedish culture has a lot of love for celebrating birthdays. They often surprise the celebrated with birthday gifts and breakfast in bed while singing “Ja, ma du leva” meaning “Yes, may you live”. Their traditional party has a cake coated in green marzipan with gifts wrapped in blue and gold sheets – the colors of the Swedish flag.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Happy Birthday in Hindi: जन्मदिन की शुभकामनाएं (Janmadin Kee Shubhakaamanaen)
 
@@ -113,5 +119,24 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-prime-techniques-for-saving-app-scenes/"><u>[New] 2024 Approved Prime Techniques for Saving App Scenes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-twitch-recapture-method-restart-livestreams/"><u>[New] 2024 Approved Twitch Recapture Method Restart Livestreams</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-beginners-guide-to-zoom-breakout-rooms/"><u>2024 Approved Beginners Guide to Zoom Breakout Rooms</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/1728474720456-windows-11/"><u>解决方案经过验证：找回 Windows 11桌面上不可见的文件和目录</u></a></li>
+<li><a href="https://win-web.techidaily.com/beste-wege-yahoo-mail-auf-ihrem-computer-zu-speichern-die-obersten-vier-methoden/"><u>Beste Wege, Yahoo-Mail Auf Ihrem Computer Zu Speichern - Die Obersten Vier Methoden</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-samsung-galaxy-f04-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Samsung Galaxy F04 Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-latvian-like-a-native-a-daily-dedication/"><u>Learn Latvian Like a Native: A Daily Dedication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mandarin-characters-and-their-usage/"><u>Mandarin Characters and Their Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-language-jumpstarting-guide/"><u>Polish Language Jumpstarting Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/promoting-intercultural-understanding-through-esl/"><u>Promoting Intercultural Understanding Through ESL</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/quick-fixes-handling-absent-or-lost-propsysdll-files-on-your-pc/"><u>Quick Fixes: Handling Absent or Lost Propsys.dll Files on Your PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionizing-buttons-mondlys-partnership-with-pearson/"><u>Revolutionizing Buttons: Mondly's Partnership With Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-like-a-sea-rogue-20-words-of-the-deep/"><u>Speaking Like a Sea Rogue: 20 Words of the Deep</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-path-to-corporate-verbal-mastery-unveiled/"><u>The Path to Corporate Verbal Mastery Unveiled</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Vivo Y78+ (T1) Edition? | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-affordable-android-tablet-options-beyond-tcl-and-samsung-in-depth-review-on-zdnet/"><u>Top Affordable Android Tablet Options Beyond TCL and Samsung - In-Depth Review on ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-ais-potential-in-education-and-linguistics/"><u>Unveiling AI's Potential in Education & Linguistics</u></a></li>
+</ul></div>
 

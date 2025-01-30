@@ -1,7 +1,7 @@
 ---
 title: "Win Over Venetians: Master 20+ Italian Language Essentials"
-date: 2025-01-19T16:56:35.344Z
-updated: 2025-01-22T17:55:22.043Z
+date: 2025-01-24T16:27:02.783Z
+updated: 2025-01-29T19:18:00.443Z
 tags:
   - speak
   - english
@@ -57,13 +57,13 @@ thumbnail: https://thmb.techidaily.com/259362f05442761cee2c53bd4a987280fdd7ced53
 
 _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refers to a tough situation or impending problems. Interestingly, Italians frequently mention cabbages! For instance,_cavoli miei_ (“my cabbages”) implies something is your personal business that others shouldn’t meddle with.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Boh
 
  When you’re clueless about something or you don’t know what to say, in Italian, you can simply say “boh!”. This one is quite similar to the Italian expression_che ne so!_ meaning “how should I know?”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Dai
 
@@ -78,7 +78,7 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
  Literally “slipper-man”. Italian slang_pantofolaio_ refers to someone who prefers to stay home in their slippers rather than go out. Do you recognize yourself in this description? A_pantofolaio_ is basically the Italian equivalent of “couch potato”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Tirare il pacco
@@ -91,19 +91,11 @@ _Scialla_ is an Italian slang word that has become very popular lately, thanks t
 
  There’s a 2011 movie with the same name in case you’re looking to expand your Italian slang word repertoire further.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Figo
 
  Mostly used by younger people, this Italian slang word is the equivalent of “cool”. If you want to say that something is extraordinary, fantastic, or cool, in Italian you would say_figo_ or_che figata_ .
 
  Additionally,_figo_ (or_figa_ for women) can also be used to say that someone is very attractive. For example,_Brad Pitt è un gran figo_ translates to “Brad Pitt is very attractive”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8\. Sbronza
 
@@ -112,16 +104,24 @@ _Sbronza_ is for everything related to alcohol as it essentially describes the s
  If you have to convey the meaning of being drunk in a more formal setting, you would definitely not use_sbronza_ . Instead, you would use terms like_ubriachezza_ (“drunkness”) or_intossicazione alcolica_ (“alcohol intoxication”).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9\. Che casino
 
 _Casino_ in Italian has nothing to do with gambling because it is literally a “brothel”. So, this Italian expression actually means “what a mess!” and is used to describe a situation that’s a bit out of control, confusing, or crowded.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 10\. Beccarsi
 
 _Beccarsi_ is an Italian slang verb that comes from_beccare,_ which literally means “to peck”. However, in slang or informal language,_beccarsi_ has several meanings depending on the context. The most common is “to meet” or “to catch up” with someone. For example,_Ci becchiamo dopo la scuola?_ translates to “Shall we meet up after school?”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 11\. Americanata
 
@@ -130,7 +130,7 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 6")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Learn Italian today 🍝
@@ -140,7 +140,7 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-3415&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3415&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3415&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-3415&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-3415%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian Expressions with Deep Meaning
@@ -163,7 +163,7 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
 ![Italian slang](https://edge.mondly.com/blog/wp-content/uploads/2019/09/italian-slang-960x640.jpg "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 7")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: More Italian Slang Words and Expressions
@@ -246,18 +246,21 @@ Before you go, make sure you check out these FAQs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-essential-game-picks-ghost-of-tsushima-rival-edition/"><u>[Updated] 2024 Approved Essential Game Picks Ghost of Tsushima Rival Edition</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-amp-up-your-media-get-free-soundtracks/"><u>[Updated] Amp Up Your Media Get Free Soundtracks</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-essential-skills-for-harvesting-and-storing-gifs-from-facebooks-feed/"><u>2024 Approved Essential Skills for Harvesting and Storing GIFs From Facebook's Feed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ais-impact-on-teaching-and-linguistic-mastery/"><u>AI's Impact on Teaching and Linguistic Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aprende-a-agradecernos-con-60-nombres-hispanohablantes/"><u>Aprende a Agradecernos Con 60 Nombres Hispanohablantes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bilingualism-in-action-turkey-and-korea/"><u>Bilingualism in Action: Turkey & Korea</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/chromeos-enhancement-mimics-windows-11-features-in-latest-update-insights-from-zdnet/"><u>ChromeOS Enhancement Mimics Windows 11 Features in Latest Update - Insights From ZDNet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/common-language-pitfalls-navigating-the-top-100-mispronunciations/"><u>Common Language Pitfalls: Navigating the Top 100 Mispronunciations</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-14-plus-to-other-iphone-12-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 14 Plus to other iPhone 12 devices? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-oneplus-nord-n30-5g-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your OnePlus Nord N30 5G to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580458829-initiate-your-french-phonetic-journey-today/"><u>Initiate Your French Phonetic Journey Today!</u></a></li>
-<li><a href="https://article-posts.techidaily.com/serenade-selections-romantic-anthems-for-the-big-decision-for-2024/"><u>Serenade Selections Romantic Anthems for The Big Decision for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-directors-toolkit-youtube-lessons-on-film-making/"><u>The Director's Toolkit YouTube Lessons on Film Making</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-streamlining-the-process-of-iptv-video-recordings/"><u>[New] 2024 Approved Streamlining the Process of IPTV Video Recordings</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-a-deep-dive-into-competitive-ar-stickers-outside-google/"><u>[Updated] A Deep Dive Into Competitive AR Stickers Outside Google</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/australian-vernacular-vocabulary-compendium/"><u>Australian Vernacular Vocabulary Compendium</u></a></li>
+<li><a href="https://win-able.techidaily.com/battlefield-aturbidity/"><u>Battlefield Aturbidity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/complete-insiders-guide-to-japanese-scripts/"><u>Complete Insider’s Guide to Japanese Scripts</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-your-xiaomi-13t-pro-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Xiaomi 13T Pro Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-apple-id-verification-code-not-working-from-iphone-13-pro-by-drfone-ios/"><u>In 2024, How To Fix Apple ID Verification Code Not Working From iPhone 13 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intercultural-communication-through-turkey-and-korea/"><u>Intercultural Communication Through Turkey and Korea</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/labor-day-special-offer-secure-33-discount-on-xbox-game-pass-bundle-with-fire-tv-stick-limited-time-only-zdnet/"><u>Labor Day Special Offer! Secure 33% Discount on Xbox Game Pass Bundle with Fire TV Stick – Limited Time Only | ZDNET</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-gems-from-worldwide-cinemas/"><u>Language Gems From Worldwide Cinemas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-champions-innovation-seizes-award/"><u>Mondly Champions Innovation, Seizes Award</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-through-windows-issues-made-simple/"><u>Navigating Through Windows Issues Made Simple!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-language-essentials-10-different-greeting-phrases/"><u>Spanish Language Essentials: 10 Different Greeting Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-asian-linguistic-titans-unveiled/"><u>Top 3 Asian Linguistic Titans Unveiled</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlocking-apple-iphone-15-pro-passcode-without-a-computer-by-drfone-ios/"><u>Unlocking Apple iPhone 15 Pro Passcode without a Computer</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Worldwide Etiquette for Welcoming Others
-date: 2024-09-10T18:22:00.197Z
-updated: 2024-09-16T16:02:10.604Z
+date: 2025-01-22T17:22:01.300Z
+updated: 2025-01-29T16:22:38.778Z
 tags:
   - speak
   - english
@@ -47,10 +47,7 @@ thumbnail: https://thmb.techidaily.com/c3cb24735a325c59b374deb74baa7c6af50100c3f
  Moreover, don’t forget that the Japanese culture is a culture of respect. If you want to go all-in and immerse yourself entirely in the Japanese culture, it’s best to [study Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) etiquette before your trip.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hello in Korean — 안녕하세요 (Annyeonghaseyo)
@@ -90,10 +87,7 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 ![hello in french](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-french-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 4")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Antibes, France” by Reuben Mcfeeters©
@@ -104,15 +98,16 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
 ![hello in different languages](https://media.giphy.com/media/DqZKCC1rRht8FmnKbv/giphy.gif "How To Say &Quot;Hello&Quot; In Different Languages 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Back to seriousness, Italians are all about respecting their elders, so if you need a more formal**‘hello’ in Italian** , you can safely use **_Salve_ .**
 
  If you want to learn more about how to say**‘hi’ in Italian,** you can check out this in-depth **[guide on Italian greetings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hello in Chinese — 你好 (Nǐ hǎo)
@@ -120,6 +115,10 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
  The Chinese language is just as rich in greetings as any other language, but the most popular way to say**‘hello’ in Chinese** is definitely**你好 (Nǐ hǎo).** And when we say ‘popular’, it’s 1 billion people popular because, as you probably already know, Chinese is the [most spoken language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in the world by the total number of native speakers.
 
  Of course, like in many other languages, this is not the only way to say ‘hello’ in Chinese. To find out what are other ways to say ‘hi’ in Chinese, here’s an [in-depth guide on](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) **Chinese greetings.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Hello in Portuguese — Olá
 
@@ -134,13 +133,6 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
  Now that we’ve properly covered some of the most spoken languages in the world let’s move on to the real gold mine of**‘hello’ in different languages.** From ‘hello’ in Arabic to ‘hello’ in Catalan and even Latin, you’ll find them all here. Besides, if you want to hear them in action in real conversations, spoken by fluent speakers, you can always get Mondly. Just choose the language you always wanted to speak, and you can be conversational from day 1.
 
 ![hello in spanish](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-spanish-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 6")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Hello” by Octavian Dan©
 
@@ -208,5 +200,18 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-wizards-whisper-are-voice-changer-apps-actual-magic-unveil-other-choices/"><u>[Updated] In 2024, Wizard's Whisper Are Voice Changer Apps Actual Magic? Unveil Other Choices</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-non-rooting-methods-to-record-android-sounds/"><u>[Updated] Non-Rooting Methods to Record Android Sounds</u></a></li>
+<li><a href="https://article-files.techidaily.com/earnings-trends-in-the-digital-audio-space/"><u>Earnings Trends in the Digital Audio Space</u></a></li>
+<li><a href="https://some-tips.techidaily.com/exploring-the-next-frontier-apples-involvement-in-developing-affordable-ar-glasses-insights/"><u>Exploring the Next Frontier: Apple's Involvement in Developing Affordable AR Glasses - Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-at-unbelievable-prices-on-black-friday/"><u>Language Learning at Unbelievable Prices on Black Friday</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigate-the-world-better-with-multiple-languages/"><u>Navigate the World Better With Multiple Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-thank-you-in-chinese-xiexie-and-other-common-phrases/"><u>Saying Thank You In Chinese: Xièxiè And Other Common Phrases</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-unseen-factors-in-determining-a-videos-view-count-on-youtube-for-2024/"><u>The Unseen Factors in Determining a Video’s View Count on YouTube for 2024</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-2024-approved-searching-for-free-sports-streaming-sites-look-no-further/"><u>Updated 2024 Approved Searching for Free Sports Streaming Sites? Look No Further</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/words-unlock-new-pathways-in-the-mind/"><u>Words Unlock New Pathways in the Mind</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/yarrr-phrases-for-true-buccaneers/"><u>Yarrr! Phrases for True Buccaneers</u></a></li>
+</ul></div>
 

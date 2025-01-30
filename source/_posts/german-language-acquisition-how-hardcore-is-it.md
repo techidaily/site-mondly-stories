@@ -1,7 +1,7 @@
 ---
 title: "German Language Acquisition: How Hardcore Is It?"
-date: 2024-09-15T19:46:12.014Z
-updated: 2024-09-16T17:36:35.105Z
+date: 2025-01-23T04:14:23.042Z
+updated: 2025-01-29T22:07:03.735Z
 tags:
   - speak
   - english
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/37c258031093435d71dd94d515145542657904928
 
  We can all probably agree that German has a bad reputation for being one of the [hardest languages to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Society, entertainment, and memes in particular, always seem to maintain and even solidify our prejudices about the German language. The two most popular justifications are its neverending long words and their harsh pronunciation. Over the course of history, we had and still have a lot of preconceptions, but this one is particularly hard to break. So let’s shatter all the myths right here, right now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. German is impossible to pronounce
 
  The internet is stuffed with videos of people exaggerating the German pronunciation. So you’ll probably be surprised to find out that German is actually easy to pronounce compared to a lot of other languages. In fact, it is one of the few languages where pronunciation makes sense. Most of the time, each letter sounds the same regardless of its place inside a word. For example, unlike German, English seems to have no rule whatsoever.
@@ -39,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/37c258031093435d71dd94d515145542657904928
  However, there’s an easy trick to overcome this problem. All you have to do is to mentally separate the awfully long word into smaller bits. The more short [German words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you know, the more long German words you’ll master. Easy as that!
 
 **Verdict: true assumption, but not as scary as it seems.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Multiple genders AND formal vs. informal language
 
@@ -56,23 +64,7 @@ thumbnail: https://thmb.techidaily.com/37c258031093435d71dd94d515145542657904928
 !['German hard to learn' by Sebastian Herrmann©](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-hard-to-learn-960x640.jpg "Is German Hard To Study? 3")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. German grammar is too hard to learn
@@ -87,6 +79,10 @@ Doesn’t this sound familiar?
 
 **Verdict: false assumption.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Is German hard to learn?
 
  Yes and no. Compared to the very popular [Romance language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Spanish and French, German is regarded as hard to learn. But in truth,**German is actually easier to learn than a lot of other languages.**
@@ -94,6 +90,10 @@ Doesn’t this sound familiar?
  The answer truly lies somewhere in between. While it is closely related to English because they both belong to the West Germanic group of the [Indo-European language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) family, German is not necessarily easy to learn. It’s much easier for an English speaker to learn the Romance languages or other Germanic languages such as Afrikaans, Danish, or Dutch than to study German.
 
  However, according to [the FSI](https://www.state.gov/foreign-language-training/) (Foreign Service Institute) of the US government, which ranks languages in terms of difficulty,**German is a tier II language.** Considering that there are five tiers in total, with tier V including Arabic, Chinese, Japanese and Korean, tier II doesn’t seem so daunting. This indicates that German is not hard to learn after all.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How long does it take to study German?
 
@@ -111,13 +111,6 @@ Doesn’t this sound familiar?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Study German in just 10 minutes a day
 
@@ -146,5 +139,21 @@ Doesn’t this sound familiar?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-facetune-experience-enthusiasts/"><u>[New] The Ultimate Facetune Experience Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-playlist-wizard-youtube-music-edition/"><u>[Updated] The Playlist Wizard YouTube Music Edition</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-exclusive-selection-of-elite-race-games/"><u>2024 Approved Exclusive Selection of Elite Race Games</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-light-and-shadow-in-hdr-portraiture/"><u>2024 Approved Mastering Light and Shadow in HDR Portraiture</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/holy-stone-hs170-compact-uav-an-economical-spy-in-the-sky-detailed-review/"><u>Holy Stone HS170 Compact UAV: An Economical Spy in the Sky Detailed Review</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-effortless-embedding-techniques-for-streaming-video-in-presentations/"><u>In 2024, Effortless Embedding Techniques for Streaming Video in Presentations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-ecosystem-foreign-words-thriving-in-eng/"><u>Linguistic Ecosystem: Foreign Words Thriving in ENG</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/making-sense-of-english-language-contractions-strategies-and-tips/"><u>Making Sense of English Language Contractions: Strategies and Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-hopes-for-the-resurrection-festival/"><u>Multilingual Hopes for the Resurrection Festival</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-threads-weaving-into-english-vocabulary/"><u>Multilingual Threads Weaving Into English Vocabulary</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-the-top-trio-of-virtual-mp3-intensity-maximizers-for-2024/"><u>New The Top Trio of Virtual MP3 Intensity Maximizers for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oui-bienvenue-en-france-une-douceur-exprimee/"><u>Oui, Bienvenue! En France: Une Douceur Exprimée</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-with-confidence-learn-tagalog-each-day/"><u>Speak with Confidence: Learn Tagalog Each Day</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-7-common-blunders-in-leveraging-generative-ai-technologies/"><u>The 7 Common Blunders in Leveraging Generative AI Technologies</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Time Optimization for Numerical Japanese
-date: 2025-01-16T16:17:10.635Z
-updated: 2025-01-22T17:20:22.569Z
+date: 2025-01-27T21:56:44.432Z
+updated: 2025-01-30T01:21:58.013Z
 tags:
   - speak
   - english
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 ## Time Optimization for Numerical Japanese
 
  Japanese people don’t always use the**Japanese numbers.** Like the rest of the world, they rely a lot on Arabic numerals for writing (lucky for us, Japanese disciples). However, this does not diminish the importance of learning how to**count in Japanese.** There are contexts, such as traditional ceremonies, where Japanese numbers are still written in kanji. Besides, you still need to learn how to say numbers in Japanese. Ready?_Ichi, ni, san_ … go!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Basic Japanese Counting: Japanese Numbers 1-10
 
@@ -49,10 +45,6 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
  Do you need to hear the proper pronunciation of the Japanese numbers 1-10? Play this short video below. 👇
 
  That wasn’t so hard, was it? Besides, if you learn to count to 10, the numbers in Japanese 1-100 will become a piece of cake! It’s easier than you’d expect.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Master Bigger Japanese Numbers 1-100
 
@@ -126,6 +118,10 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
  As you can see, the rule you learned for the first 100 Japanese numbers is still valid. To count further than 100 in Japanese, you just continue to stack numbers. Then, when you get to 1,000,_hyaku_ becomes_sen_ and so on.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to count in Japanese Hiragana?
 
  To count in Japanese Hiragana, you use specific symbols for each number, as follows:
@@ -160,14 +156,10 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
 ![hatchi](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdDQ0cHlhYjkxb2QwaTd1MWh1aDYyc3U3am05dnAzcnAxaGxkZWJsaiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/bzoD9WOiU1wAg/giphy.gif "Counting In Japanese From 1 To 10000 10")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  On the other hand, you probably noticed that 4, 7, and 9 have two different readings each. As we, in the Western world, consider the number 13 to bring bad luck, the Japanese people consider the numbers 4 and 9 to be unlucky because し (_shi_ – 4_)_ ) and く (_ku_ – 9) sound the same as the words for “death” (死, shi) and “suffering, agony or torture” (苦, ku). Thus, Japanese people avoid using these unlucky numbers as much as possible. If you ever travel to Japan, pay close attention to the prices. Chances are you won’t see prices like 9.99 or 4.99 anywhere.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Japanese Counters List
@@ -178,12 +170,16 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
  There are over 500 counters in the Japanese language; however, not all are commonly used. Read on to discover the most frequently used counters.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Japanese counters for time
 
  o clearly indicate that you are referring to seconds, minutes, hours, months, or years, you must use specific counters in Japanese. Seconds are expressed with \~秒_(_ _byou)_ , minutes with \~分_(fun or pun)_ , hours with \~時_(ji)_ , months with \~月_(getsu)_ , and years with \~年_(nen)_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Japanese counters for people
@@ -200,6 +196,10 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 
  For small animals like insects, fish, dogs or cats, you need to use the counter \~匹_(_ _hiki_ _)._ For larger animals, such as elephants, the appropriate counter \~頭_(tou)_ .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Japanese counters for food
 
  To count sliced items (especially foods like meat), you can use the counter 切れ_(kire)_ . For parts of a meal or courses, use 品_(hin_ or_pin)_ . Meanwhile, for food portions, the counter 人前_(ninmae)_ is suitable.
@@ -207,7 +207,7 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
 ![Japanese numbers kanji](https://edge.mondly.com/blog/wp-content/uploads/2019/11/japanese-numbers-kanji-960x640.jpeg "Counting In Japanese From 1 To 10000 11")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Japanese counters for cars or bicycles
@@ -215,6 +215,10 @@ thumbnail: https://thmb.techidaily.com/7dc3242cad7286db6d769fcd34b1b78d40476e1df
  If you’re not overwhelmed yet, for cars, machines, and all types of household appliances, the counter \~台_(dai)_ is necessary.
 
  Not ready to dive into**Japanese counters** yet? Then consider using the general-purpose counter based on the Native-Japanese reading (一つ_hitotsu ,_ 二つ_futatsu_ and so on). This system allows you to count almost any kind of object up to ten without worrying about using the incorrect counter.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Special Number Zero in Japanese
 
@@ -229,10 +233,6 @@ Before you go, make sure you check out these FAQs.
 ### How to say numbers in Japanese?
 
  To say numbers in Japanese, start by learning the numbers up to 10: ichi (1), ni (2), san (3), yon (4), go (5), roku (6), nana (7), hatchi (8), kyu (9) and juu (10). If you're not familiar with the Japanese writing system, you may have to rely heavily on the Romanized version (Romaji) to learn the correct pronunciation of each number. Once you've mastered the numbers 1-10 in Japanese, counting up to 100 becomes straightforward.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to write Japanese numbers?
 
@@ -274,19 +274,22 @@ Before you go, make sure you check out these FAQs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-fb-soundbank-freeness-central-for-2024/"><u>[Updated] FB Soundbank Freeness Central for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ace-the-language-game-find-success-with-these-6-effective-techniques/"><u>Ace the Language Game - Find Success with These 6 Effective Techniques</u></a></li>
-<li><a href="https://techtrends.techidaily.com/apple-watch-lacks-signal-heres-how-to-restore-and-improve-your-cellular-service/"><u>Apple Watch Lacks Signal? Here's How to Restore and Improve Your Cellular Service!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bangla-journey-easy-daily-practice-for-mastery/"><u>Bangla Journey: Easy Daily Practice for Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bulbarian-bootcamp-daily-10-min-lessons/"><u>Bulbarian Bootcamp: Daily 10-Min Lessons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoes-from-ancient-persia-future-benefits-in-language/"><u>Echoes From Ancient Persia, Future Benefits in Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/educational-innovation-mondly-kids-a-2017-google-play-gem/"><u>Educational Innovation: Mondly Kids, A 2017 Google Play Gem</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576630083-exclusive-offer-alert-lifetime-free-up-to-96-off-mondly-pro/"><u>Exclusive Offer Alert: Lifetime Free, Up to 96% Off Mondly Pro!</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723006121114-experience-the-reimagined-bioshock-2-remaster-with-improved-graphics/"><u>Experience the Reimagined BioShock 2 Remaster with Improved Graphics!</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Asus ROG Phone 7 Ultimate? | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-innovative-image-transformation-hacks/"><u>In 2024, Innovative Image Transformation Hacks</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/inaudible-audio-assemblers-6-low-profile-recorders-for-smartphones/"><u>Inaudible Audio Assemblers 6 Low-Profile Recorders for Smartphones</u></a></li>
-<li><a href="https://extra-information.techidaily.com/pulling-puzzled-listeners-intros-that-involve/"><u>Pulling Puzzled Listeners Intros That Involve</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-essential-tips-for-fbx-based-game-recording/"><u>[New] In 2024, Essential Tips for FBX-Based Game Recording</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/avigating-playlist-creation-on-youtube-easily-for-2024/"><u>[New] Navigating Playlist Creation on YouTube Easily for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-smooth-strategy-perfecting-your-instagram-grid/"><u>[New] Smooth Strategy Perfecting Your Instagram Grid</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-fb-video-aspect-ratio-varieties/"><u>[Updated] 2024 Approved FB Video Aspect Ratio Varieties</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-no-cost-audio-archives-for-professional-youtube-makers-for-2024/"><u>[Updated] No-Cost Audio Archives for Professional YouTube Makers for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-unraveling-the-complexities-of-firefox-split-screen-for-2024/"><u>[Updated] Unraveling the Complexities of Firefox Split Screen for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apples-worldwide-trendsetter-todays-app/"><u>Apple's Worldwide Trendsetter: Today's App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-croatian-language-skills-for-cultural-immersion-success/"><u>Essential Croatian Language Skills for Cultural Immersion Success!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/how-asmr-can-enhance-your-physical-and-mental-health/"><u>How ASMR Can Enhance Your Physical & Mental Health</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-depth-look-at-lg-27uhd68-4k-sync-technology/"><u>In-Depth Look at LG 27UHD68, 4K Sync Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-korean-at-your-fingertips-discover-6-online-goldmines/"><u>Mastering Korean at Your Fingertips - Discover 6 Online Goldmines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pasos-para-saber-los-dias-de-la-semana-en-espanol/"><u>Pasos Para Saber Los Días De La Semana en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/primary-speaking-language-of-croatia/"><u>Primary Speaking Language of Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-native-slovak-lesson-quick-fixes-online/"><u>Speak Like a Native - Slovak Lesson Quick Fixes Online!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-advantages-of-acquiring-new-tongues-post-50/"><u>The Advantages of Acquiring New Tongues Post-50</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/trash-emptying-errors-on-a-mac-explained/"><u>Trash Emptying Errors on a Mac Explained</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-israeli-odyssey-8-vital-phrases-and-travel-advice/"><u>Your Israeli Odyssey: 8 Vital Phrases and Travel Advice</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Overcoming the Silence: Speaking Each Other's Languages"
-date: 2025-01-21T18:02:19.169Z
-updated: 2025-01-22T16:15:55.023Z
+date: 2025-01-27T21:52:46.093Z
+updated: 2025-01-29T16:09:16.895Z
 tags:
   - speak
   - english
@@ -31,14 +31,10 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![dating a foreigner](https://media.giphy.com/media/CmqNynXoenYnm/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  And it’s all fun and games until someone asks, “what are you thinking about?”. If answering this mythical question was hard before, imagine how challenging it becomes now that you are dating someone with bad English or no English at all. So take it from me and don’t go there! Abort mission! Practice some more and only then you’ll be ready for this quest. But you knew that already, didn’t you?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. You never run out of things to say to each other
 
@@ -49,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![multilingual relantionship](https://media.giphy.com/media/AelF2ps5xLKo/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You either go through the entire dictionary or use the brilliance of Mondly to learn the language before one can say Jack Robinson.
@@ -63,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![dating language barrier](https://media.giphy.com/media/xUA7aYMO79CzQNMfJe/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. You eventually become bilingual
@@ -75,6 +71,10 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ## 5\. Your fights are… sooo fun to watch
 
  Well… obviously! Do you know what a [hullabaloo](https://dictionary.cambridge.org/dictionary/english/hullabaloo) is? Because that’s how you’ll look like if you fight in public. What can I say?! An absolute delight for strangers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. The idea of meeting “the friends” suddenly becomes way more intimidating
 
@@ -91,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![dating bad english](https://media.giphy.com/media/6tNOhcNvvynPa/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 7")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. You focus less on words and more on action
@@ -99,10 +99,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
  Language barriers are not actually barriers. You know that, don’t you? They are actually the absolute and ultimate cure for overthinking. “What did he or she mean by that?” becomes “well, I can’t put up with all that thinking now. Let’s make up… or out?”
 
 ![flirting language barrier](https://media.giphy.com/media/LoJjkPAVF8UH6/giphy.gif "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 8")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 9\. You absolutely love hearing him or her speak
 
@@ -119,6 +115,10 @@ Watch at your own risk! They might steal your heart!
  Being in a multilingual relationship is a hard business. You either go big or go home. There’s no in-between. If he or she is still there, there must be an enormous quantity of love involved. That’s your reassurance.
 
 ![multilingual relationship](https://edge.mondly.com/blog/wp-content/uploads/2019/04/multilingual-relationship-960x640.jpg "10 Relatable Situations You'Ll Understand Only If You Ever Dated A Foreigner 9")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Sunset lovers” by Stéphane Delval©
 
@@ -156,18 +156,20 @@ Watch at your own risk! They might steal your heart!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-ultimate-8-photo-montage-synthesizer-online/"><u>[New] 2024 Approved Ultimate 8 Photo Montage Synthesizer Online</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-secrets-for-successful-live-streams-on-youtube-with-a-tiny-fanbase/"><u>[Updated] 2024 Approved Secrets for Successful Live Streams on YouTube with a Tiny Fanbase</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-quick-guide-to-chinese-greetings-how-to-say-hello-in-chinese/"><u>A Quick Guide To Chinese Greetings: How To Say Hello In Chinese</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bestappcom-names-mondly-the-best-language-learning-app-of-2022back-buttonfilter-button/"><u>BestApp.com Names Mondly The Best Language Learning App Of 2022Back ButtonFilter Button</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581348580-black-friday-deals-dive-into-language-learning-at-a-steal/"><u>Black Friday Deals: Dive Into Language Learning at a Steal</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/can-you-unlock-iphone-6s-after-forgetting-the-passcode-by-drfone-ios/"><u>Can You Unlock iPhone 6s After Forgetting the Passcode?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/croatian-communicative-language/"><u>Croatian Communicative Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-slovak-language-instant-proficiency/"><u>Daily Dose of Slovak Language, Instant Proficiency!</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-airdrop-issues-quick-solutions-for-iphoneipadmac-users/"><u>In 2024, Mastering AirDrop Issues Quick Solutions for iPhone/iPad/Mac Users</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-editing-game-changer-fcps-best-10-plugins/"><u>In 2024, The Editing Game Changer FCP's Best 10 Plugins</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-apple-iphone-12-mini-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 5 Tracking Apps to Track Apple iPhone 12 mini without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/optimizing-system-settings-for-seamless-samurai-warriors-5-gaming-experience-on-pc/"><u>Optimizing System Settings for Seamless Samurai Warriors 5 Gaming Experience on PC</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-encryption-errors-for-safe-browsing-on-mozillas-firewall/"><u>Overcoming Encryption Errors for Safe Browsing on Mozilla's Firewall</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-perfecting-your-content-a-comprehensive-guide-to-instagram-video-enhancement/"><u>[New] In 2024, Perfecting Your Content A Comprehensive Guide to Instagram Video Enhancement</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-art-of-hiding-hashtags-on-social-media-platforms/"><u>[New] In 2024, The Art of Hiding Hashtags on Social Media Platforms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-designing-a-spectacular-snapshot-of-cinema/"><u>[Updated] 2024 Approved Designing a Spectacular Snapshot of Cinema</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-androids-photo-editor-showdown-can-pickup-claim-victory-in-2024/"><u>[Updated] Android's Photo Editor Showdown Can PickUp Claim Victory, In 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-starting-an-engaging-instagram-live-session/"><u>2024 Approved Starting an Engaging Instagram Live Session</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-watching-social-network-vids-through-the-television-glass/"><u>2024 Approved Watching Social Network Vids Through the Television Glass?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-french-guide-learning-the-basics-of-friendly-salutations/"><u>Beginner’s French Guide: Learning the Basics of Friendly Salutations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-button-differences-between-european-and-brazilian-pt/"><u>Decoding Button Differences Between European and Brazilian PT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dias-del-mes-aprende-de-lunes-a-domingos-en-espanol/"><u>Días Del Mes: Aprende De Lunes a Domingos en Español</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/guide-to-identifying-and-contacting-private-calls/"><u>Guide to Identifying and Contacting Private Calls</u></a></li>
+<li><a href="https://win11.techidaily.com/innovating-windows-11-6-changes-that-could-revolutionize-the-taskbar/"><u>Innovating Windows 11: 6 Changes that Could Revolutionize the Taskbar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-german-verbal-artistry-the-best-25/"><u>Journey Through German Verbal Artistry: The Best 25</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unites-cultures-and-minds-educating-a-global-family-of-70-millions/"><u>Mondly Unites Cultures & Minds - Educating a Global Family of 70 Millions</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/most-effective-ways-to-log-youtube-live-events/"><u>Most Effective Ways to Log YouTube Live Events</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-confidently-with-mondly-the-language-learning-champion-2022/"><u>Speak Confidently with Mondly - The Language Learning Champion, 2022</u></a></li>
 </ul></div>
 

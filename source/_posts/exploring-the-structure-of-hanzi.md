@@ -1,7 +1,7 @@
 ---
 title: Exploring the Structure of Hanzi
-date: 2024-09-20T18:34:33.397Z
-updated: 2024-09-21T16:15:43.434Z
+date: 2025-01-28T02:35:43.358Z
+updated: 2025-01-29T22:02:04.468Z
 tags:
   - speak
   - english
@@ -24,9 +24,17 @@ thumbnail: https://thmb.techidaily.com/51c8c0f8bc5e38b3222968b9d07888b2af3d71ae1
 
  Here’s a quick example of how ingenious Chinese characters can be. While **电_diàn_**  translates to**“electric”** ,**“brain”** is **脑_nǎo_**  and if you put these two characters together, you get**电脑** _**diànnǎo**_ which means**“computer”** . Electric brain = computer! See what they did there? Absolutely fascinating! Let’s find out what exactly you should expect if you want to learn Chinese.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Chinese language in a nutshell
 
  As you probably already know,[Chinese](https://en.wikipedia.org/wiki/Chinese%5Flanguage) (汉语 or_Hànyǔ_) is not necessarily a single language – Mandarin, but more of a macrolanguage or a family of East Asian languages spoken by 1.3 billion people all around the world. Can you imagine? **Roughly 17% of the world’s population speak some variety of Chinese as their native language.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Varieties of Chinese
 
@@ -70,13 +78,6 @@ thumbnail: https://thmb.techidaily.com/51c8c0f8bc5e38b3222968b9d07888b2af3d71ae1
 
  Despite the obvious differences between the two systems, literate native speakers generally have no problem reading either of them.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Don’t forget about pronunciation
 
  All Chinese varieties or languages – however you want to refer to them – are tonal languages. In other terms, the meaning of a word depends on the tone or the tones that you say it with. Unfortunately for us, those not used to tonal languages, if you change the tone, the meaning of the word can change entirely. That’s why it is always important to give some context.
@@ -94,10 +95,7 @@ thumbnail: https://thmb.techidaily.com/51c8c0f8bc5e38b3222968b9d07888b2af3d71ae1
 ![written Chinese](https://edge.mondly.com/blog/wp-content/uploads/2020/06/written-chinese-600x450.jpg "Quick Introduction To The Chinese Alphabet, Chinese Characters And Pinyin 3")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Written Chinese” by Cherry Lin
@@ -105,6 +103,10 @@ thumbnail: https://thmb.techidaily.com/51c8c0f8bc5e38b3222968b9d07888b2af3d71ae1
  But how many Chinese characters really are there? Well, this is a whole other story. The Great Compendium of Chinese Characters or the_Hànyǔ dà zìdiǎn_ (汉语大字典) has**54,678 characters** . Absolutely incredible number. But wait because The Dictionary of Chinese Variant Form or the_Zhōnghuá zì hǎi_ (中华字海) has no less than…**106,230 characters!**
 
  Don’t let those numbers scare you though. If you really want to do this and you are passionate enough, learning Chinese won’t be about numbers, but about how accomplished you’ll feel when you’ll learn something new.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What is Pinyin?
 
@@ -132,33 +134,17 @@ thumbnail: https://thmb.techidaily.com/51c8c0f8bc5e38b3222968b9d07888b2af3d71ae1
 
  Now that you know what to expect if you do decide to learn Chinese, let’s move from theory to practice with a quick Chinese lesson. Here are ten of the most commonly used Chinese characters:
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 的 de – used to indicate possession
 
  这是我**的** 朋友。- _Zhè shì wǒ**de** péngyou_ – This is**my** friend.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 一 yī – “one”, “once”, “single”, “first, ”best“, “a little”
 
  再来**一** 轮酒！- _Zàilái**yī** lún jiǔ!_ –**One** more round!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 是 shì – to be (used to link two nouns together)
 
@@ -168,11 +154,19 @@ thumbnail: https://thmb.techidaily.com/51c8c0f8bc5e38b3222968b9d07888b2af3d71ae1
 
  今天我**不** 工作。- _Jīntiān wǒ**bù** gōngzuò._ – I am**not** working today.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 了 le – modal verb particle
 
  Used to indicate the completion of an activity or the change in a situation. It doesn’t really have an equivalent in English.
 
  现在太晚**了** 。- _Xiànzài tài wǎn**le** ._ – Now it’s not too late.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 人 rén – man, person, people
 
@@ -182,13 +176,6 @@ thumbnail: https://thmb.techidaily.com/51c8c0f8bc5e38b3222968b9d07888b2af3d71ae1
 
 **我** 准备好要点菜了。- _**Wǒ** zhǔnbèi hǎo yàodiǎn càile._ –**I** am ready to order.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 在 zài – located (at), in
 
  你**在** 哪里生活？- _Nǐ**zài** nǎlǐ shēnghuó?_ – Where do you live?
@@ -196,6 +183,10 @@ thumbnail: https://thmb.techidaily.com/51c8c0f8bc5e38b3222968b9d07888b2af3d71ae1
 ### 有 yǒu – to have, there is, there are, to exist
 
  你**有** 一张城市地图吗？- _Nǐ**yǒu** yī zhāng chéngshì dìtú ma?_ – Do you**have** a city map?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 他 tā – he, him, his
 
@@ -229,5 +220,21 @@ thumbnail: https://thmb.techidaily.com/51c8c0f8bc5e38b3222968b9d07888b2af3d71ae1
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-thumbnail-artistry-for-engaging-youtube-channels/"><u>[New] 2024 Approved Thumbnail Artistry for Engaging YouTube Channels</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-reassessing-the-updates-to-sonys-s6500-bdhd-player/"><u>[New] Reassessing the Updates to Sony's S6500 BD/HD Player</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-the-ultimate-list-best-screencasting-apps-free/"><u>[Updated] 2024 Approved The Ultimate List Best Screencasting Apps (Free)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-discover-the-ultimate-path-to-boundless-space-with-20-no-cost-services/"><u>[Updated] Discover The Ultimate Path to Boundless Space with 20 No-Cost Services</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-driven-paperclip-maximization-exploring-new-possibilities/"><u>AI-Driven Paperclip Maximization: Exploring New Possibilities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/happiness-transcends-language-on-74/"><u>Happiness Transcends Language on 7/4</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-california-drivers-can-securely-link-licenses-to-apple-wallet-or-google-pay-a-step-by-step-guide-zdnet/"><u>How California Drivers Can Securely Link Licenses to Apple Wallet or Google Pay: A Step-by-Step Guide - ZDNet</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-honor-90-pro-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Honor 90 Pro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-secures-title-germanys-best-virtual-linguistic-hub/"><u>Mondly Secures Title: Germany's Best Virtual Linguistic Hub</u></a></li>
+<li><a href="https://win11.techidaily.com/screenshots-secure-stow-in-windows/"><u>Screenshots' Secure Stow in Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-speaking-filipino-today-with-easy-10-minute-lessons/"><u>Start Speaking Filipino Today with Easy 10-Minute Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/terms-and-conditions-updated-clarity/"><u>Terms & Conditions: Updated Clarity</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-ultimate-guide-to-enriching-youtube-videos-with-harmonics-for-2024/"><u>The Ultimate Guide to Enriching YouTube Videos with Harmonics for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-languages-at-the-peak/"><u>World Languages at the Peak</u></a></li>
+</ul></div>
 

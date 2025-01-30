@@ -1,7 +1,7 @@
 ---
 title: "Tänk Om Sverige: Svenska Försalar"
-date: 2024-09-17T17:42:58.975Z
-updated: 2024-09-21T16:50:32.272Z
+date: 2025-01-29T04:29:52.393Z
+updated: 2025-01-29T22:39:40.000Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/13fc80b5d967307ffa59212655cd04104762f09d1
 
  Swedish people are sociable, and they care about traditions, so any foreigner should know how to, at least, properly introduce themselves and start a conversation. Learn more about all the Swedish greetings, and maybe you’ll feel inspired to try something new and [start learning the Nordic language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Here’s some to start with:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What you should know
 
  Swedes are respectful, but they rarely use last names or Mr. and Mrs in rather formal conversations as well. They like to call themselves by their first name, even in some professional circles. Equality and the lack of hierarchies in the workplace is a specific trait of the Swedish society. If you want to move to Sweden or visit the country, you must get accustomed to all these little details. This will make it easier for you to become “one of them” and meet new people
@@ -35,10 +39,7 @@ thumbnail: https://thmb.techidaily.com/13fc80b5d967307ffa59212655cd04104762f09d1
  Even if you’re just visiting, you might have to answer the phone at the hotel or when you’re expecting a call from the embassy, for example. The easiest way to do this is to say “Hello” followed by introducing yourself. This sounds something like : **“** **Hallå! Det här är \[your name\].”**  This will not only impress the person on the other end, but they might mistake you for a local. That would be a good thing, but you need to let them know you don’t speak Swedish fluently before they start talking faster.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Good Morning!” in Swedish
@@ -49,19 +50,24 @@ thumbnail: https://thmb.techidaily.com/13fc80b5d967307ffa59212655cd04104762f09d1
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say “Goodnight!” in Swedish
 
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
@@ -90,5 +96,23 @@ thumbnail: https://thmb.techidaily.com/13fc80b5d967307ffa59212655cd04104762f09d1
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-precision-playback-aligning-video-views-in-real-time/"><u>[Updated] Precision Playback Aligning Video Views in Real-Time</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-upgrade-samsung-bdplus-k850-review-update-2023-for-2024/"><u>[Updated] The Ultimate Upgrade Samsung BD+ K850 Review Update 2023 for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-audiovisual-fusion-incorporating-songs-in-ig-media/"><u>2024 Approved Audiovisual Fusion Incorporating Songs in IG Media</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-craftsmanship-redefined-leading-photo-frame-apps/"><u>2024 Approved Craftsmanship Redefined Leading Photo Frame Apps</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/b500s-wi-fi-capability-a-missed-marking/"><u>B500's Wi-Fi Capability, a Missed Marking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-landscapes-comparing-british-canadian-and-southern-us-pronunciation/"><u>Linguistic Landscapes: Comparing British, Canadian, and Southern U.S. Pronunciation</u></a></li>
+<li><a href="https://win-answers.techidaily.com/mastering-fifa-20-performance-eliminating-game-crashes-for-pc-users-a-full-instructional-guide/"><u>Mastering FIFA 20 Performance: Eliminating Game Crashes for PC Users - A Full Instructional Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-mother-tongue-20-a-modern-guide-to-linguistic-growth/"><u>Mastering Mother Tongue 2.0: A Modern Guide to Linguistic Growth</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mental-agility-boosted-by-diving-into-new-language-studies-post-fifty/"><u>Mental Agility Boosted by Diving Into New Language Studies Post-Fifty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pinnacle-programs-for-efficient-polyglotism/"><u>Pinnacle Programs for Efficient Polyglotism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rallying-colombo-support-with-dannys-foundation/"><u>Rallying Colombo Support with Danny's Foundation</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/streamlining-your-personal-library-from-spotify-to-youtube-music-for-2024/"><u>Streamlining Your Personal Library From Spotify, To YouTube Music for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tailored-tips-for-leveraging-mondly-to-its-fullest/"><u>Tailored Tips for Leveraging Mondly to Its Fullest</u></a></li>
+<li><a href="https://win-dash.techidaily.com/transform-boundaries-can-cause-dynamic-metamorphism-along-fault-zones/"><u>Transform Boundaries Can Cause Dynamic Metamorphism Along Fault Zones.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-korean-your-portal-into-squid-game/"><u>Understanding Korean: Your Portal Into Squid Game</u></a></li>
+</ul></div>
 

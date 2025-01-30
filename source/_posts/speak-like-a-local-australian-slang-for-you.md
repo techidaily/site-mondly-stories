@@ -1,7 +1,7 @@
 ---
 title: "Speak Like a Local: Australian Slang for You"
-date: 2024-09-15T18:30:01.121Z
-updated: 2024-09-21T20:04:32.898Z
+date: 2025-01-23T23:12:05.172Z
+updated: 2025-01-30T01:01:22.672Z
 tags:
   - speak
   - english
@@ -40,13 +40,6 @@ thumbnail: https://thmb.techidaily.com/e72d3325cc82dd8ab836962e9def246da610dd4ef
 
 _“So… what did you have for brekkie today?”_
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3._Barbie_ – Barbecue
 
 Well, I don’t mind if you call me a “barbie girl” now.
@@ -63,6 +56,10 @@ Well, I don’t mind if you call me a “barbie girl” now.
 
 It can also refer to a small, aggressive dog like a chihuahua.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7._Bogan_ – An Uncultured or Unsophisticated Person
 
  A “bogan” is an uncouth or unrefined person regarded as being of low social status. The term is usually pejorative, but it can also be regarded as a joke between friends.
@@ -71,6 +68,10 @@ It can also refer to a small, aggressive dog like a chihuahua.
 
  You heard “telly” before, but “bush telly”? That’s a new one. Basically, when you are camping, you can’t watch traditional television, so you watch the “bush telly”: the campfire, the stars or just… the bush.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9._Bikkie_ – Biscuit
 
 You’ll ask for a “bikkie” just to hear yourself say it.
@@ -78,10 +79,7 @@ You’ll ask for a “bikkie” just to hear yourself say it.
  There’s also the very cute expression “to cost big bikkies”, meaning that something is very expensive.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10._Mate_ – Friend
@@ -93,13 +91,6 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
  Australian slang
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ Australian Slang Words To Help You Speak Like A True Aussie 7")
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Improve your English, mate
 
@@ -204,11 +195,23 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
 ![australian slang terms](https://edge.mondly.com/blog/wp-content/uploads/2020/05/australian-slang-terms-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 8")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Aussie slang
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Funny Australian Slang Phrases
 
  If it weren’t for this list, you’d need an Australian slang translator when you hear these Australian slang phrases! Use them in your day-to-day conversations and Aussies might think you’re one of their own.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. What’s the John Dory?
 
@@ -262,6 +265,10 @@ It seems that this phrase has had a lot of variations:
 
 Some say he “did the bolt” from his responsibilities as a prime minister.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8\. No worries, mate, she’ll be apples
 
 **Everything will be fine.**
@@ -284,13 +291,6 @@ Coming Soon
 
 ![sheila bloke](https://edge.mondly.com/blog/wp-content/uploads/2020/05/sheila-bloke-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 9")
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Australian slang
 
 ## What You Need to Know About Aussie Slang
@@ -305,15 +305,16 @@ Coming Soon
 Before you go, let’s answer some frequently asked questions.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What does ‘Aussie’ mean?
 
  Aussie means Australian, also known as a person from Australia. Remember that “Aussie” is an informal word and you should use it accordingly.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What is the most common Australian slang?
 
@@ -323,6 +324,10 @@ Before you go, let’s answer some frequently asked questions.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Crikey, mate! This language learnin’ app is bonzer
 
@@ -345,5 +350,22 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-countdown-configuration-guide-for-obs-enthusiasts/"><u>[New] Countdown Configuration Guide for OBS Enthusiasts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/1715859727483-new-pixel-perfect-windows-recorder-free/"><u>[New] Pixel Perfect Windows Recorder, Free!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/trategic-timing-for-virality-in-video-content-sharing/"><u>[New] Strategic Timing for Virality in Video Content Sharing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-perfecting-your-reel-integrating-music-on-instagram-for-2024/"><u>[Updated] Perfecting Your Reel Integrating Music on Instagram for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-step-by-step-process-for-acquiring-moviemaker-6-on-pcs/"><u>In 2024, Step-by-Step Process for Acquiring Moviemaker 6 on PCs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-collaborates-with-pearson-academic-union/"><u>Mondly Collaborates With Pearson Academic Union</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-learning-revolution-the-gateway-to-knowledge-for-70-million/"><u>Mondly’s Learning Revolution – The Gateway to Knowledge for 70 Million</u></a></li>
+<li><a href="https://fox-links.techidaily.com/photoshops-role-in-crafting-stunning-hdr-visuals/"><u>Photoshop's Role in Crafting Stunning HDR Visuals</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semana-hispana-descifrando-los-dias-en-espanol/"><u>Semana Hispana: Descifrando Los Días en Español</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/tech-alert-alleged-perfect-crash-rate-for-intels-recent-processors-accusations-fly-from-alderon-games/"><u>Tech Alert: Alleged Perfect Crash Rate for Intel's Recent Processors, Accusations Fly From Alderon Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-echoing-languages-of-asias-elite-top-3/"><u>The Echoing Languages of Asia's Elite: Top 3</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-journey-through-a-decade-with-mondly/"><u>The Journey Through a Decade with Mondly</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-honor-100-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Honor 100 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/where-is-thanksgiving-celebrated-globally/"><u>Where Is Thanksgiving Celebrated Globally?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wordcraft-wisdom-how-shakespeare-shapes-our-speech/"><u>Wordcraft Wisdom: How Shakespeare Shapes Our Speech</u></a></li>
+</ul></div>
 

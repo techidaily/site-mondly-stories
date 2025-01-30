@@ -1,7 +1,7 @@
 ---
 title: Worldwide Words Shaping English Identity
-date: 2025-01-19T17:09:44.368Z
-updated: 2025-01-22T16:15:18.625Z
+date: 2025-01-25T02:11:06.296Z
+updated: 2025-01-30T05:37:03.438Z
 tags:
   - speak
   - english
@@ -27,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
  When the English language started to expand its vocabulary, the process seemed like a wedding ceremony. Do you know how they say brides need something old, something new, something borrowed and something blue? Well, English had all of that except the blue. Anglo-Saxon words were old,[Shakespeare’s words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) were new and all the loanwords from other languages were borrowed. If you can’t put your finger on the **English words borrowed from other languages, think_café, ballet, fiancé, spaghetti, espresso, pretzel._**  You got the point.
 
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Where did English Come From?
 
@@ -77,10 +73,6 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
 * **Transcription,** which means borrowing words while preserving their original pronunciation in the borrowed language;
@@ -94,11 +86,7 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -130,7 +118,7 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish loanwords: English words that are actually Spanish
@@ -154,6 +142,10 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 | Guacamole  |
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
 
@@ -183,6 +175,10 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## German loanwords: English words that are actually German
 
 | Pretzel      |
@@ -206,6 +202,10 @@ thumbnail: https://thmb.techidaily.com/014d79402613effc6daacc66a3f2a300ba2df5a4c
 | Diesel       |
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
 
@@ -265,24 +265,16 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-tackle-missing-thumbnails-on-youtube-shorts/"><u>[Updated] In 2024, How to Tackle Missing Thumbnails on YouTube Shorts</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-transform-your-images-with-easy-color-changes/"><u>2024 Approved Transform Your Images with Easy Color Changes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/4-expressions-francaises-de-bienvenue/"><u>4 Expressions Françaises De Bienvenue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/93-essential-spanish-travel-phrases-for-your-next-vacation/"><u>93 Essential Spanish Travel Phrases For Your Next Vacation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-novices-blueprint-for-pronunciation-and-alphabet-mastery/"><u>A Novice’s Blueprint for Pronunciation and Alphabet Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/borrowing-beyond-borders-enriched-english-lexicon/"><u>Borrowing Beyond Borders: Enriched English Lexicon</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-the-turko-hanguk-intercultural-enigma/"><u>Deciphering the Turko-Hanguk Intercultural Enigma</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/durch-das-deutsche-wochenjahr-lernen/"><u>Durch Das Deutsche Wochenjahr Lernen</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embracing-germanys-linguistic-culture-top-25-phrases/"><u>Embracing Germany's Linguistic Culture: Top 25 Phrases</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/explore-the-best-dvd-players-for-your-portable-laptop-for-2024/"><u>Explore the Best DVD Players for Your Portable Laptop for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/front-runners-graphic-cards-for-4k-games-for-2024/"><u>Front-Runners Graphic Cards for 4K Games for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-breaking-the-mold-revolutionary-methods-to-boost-your-fb-page-rank/"><u>In 2024, Breaking the Mold Revolutionary Methods to Boost Your FB Page Rank</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-xiaomi-civi-3-disney-100th-anniversary-edition-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Xiaomi Civi 3 Disney 100th Anniversary Edition Phone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/interactive-realities-face-off-metaverse-and-omniverse-guide-for-2024/"><u>Interactive Realities Face-Off Metaverse & Omniverse Guide for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576550079-mondly-is-now-available-on-huawei-appgallery/"><u>Mondly Is Now Available On Huawei AppGallery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576157624-no-more-language-barriers-your-95-off-lifetime-pass/"><u>No More Language Barriers - Your 95% Off Lifetime Pass!</u></a></li>
-<li><a href="https://win-dash.techidaily.com/optimize-visual-performance-intel-hd-graphics-610-driver-compatible-with-windows-11/"><u>Optimize Visual Performance: Intel® HD Graphics 610 Driver Compatible with Windows 11</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/solving-the-dilemma-effective-solutions-to-prevent-apples-itunes-from-crashing-on-windows-11-during-device-connection-and-beyond/"><u>Solving the Dilemma: Effective Solutions to Prevent Apple's iTunes From Crashing on Windows 11 During Device Connection and Beyond</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unleashing-the-full-capabilities-of-the-m4-ipad-pro-how-ai-elevates-its-power-at-apples-wwdc-zdnet/"><u>Unleashing the Full Capabilities of the M4 iPad Pro: How AI Elevates Its Power at Apple's WWDC | ZDNet</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-maximizing-roi-with-snapchat-for-biz-leaders/"><u>[Updated] 2024 Approved Maximizing ROI with Snapchat for Biz Leaders</u></a></li>
+<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-samsung-galaxy-f54-5g-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/comprehensive-solutions-for-msvcr80dll-not-found-or-missing-issues/"><u>Comprehensive Solutions for MSVCR80.DLL Not Found or Missing Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-ru-language-sound-structure/"><u>Decoding RU Language Sound Structure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortless-norsk-acquisition-short-sessions/"><u>Effortless Norsk Acquisition - Short Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580459475-lechange-bienveillant-en-francais-merci/"><u>L'Echange Bienveillant en Français: Merci!</u></a></li>
+<li><a href="https://win-great.techidaily.com/schritt-fur-schritt-anleitung-zum-einrichten-einer-windows-11-bootbaren-festplatte-oder-herstellen-eines-bootfahigen-usb-fur-den-pc/"><u>Schritt-Für-Schritt-Anleitung Zum Einrichten Einer Windows 11 Bootbaren Festplatte Oder Herstellen Eines Bootfähigen USB Für Den PC</u></a></li>
+<li><a href="https://program-issues.techidaily.com/step-by-step-fix-when-extraordinary-characters-cause-computer-malfunctions/"><u>Step-by-Step Fix: When Extraordinary Characters Cause Computer Malfunctions</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-sanctuaries-of-steams-visual-data/"><u>The Sanctuaries of Steam's Visual Data</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/this-innovative-virtual-reality-app-helps-you-learn-a-foreign-language/"><u>This Innovative Virtual Reality App Helps You Learn A Foreign Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timeless-voices-earths-most-venerable-languages/"><u>Timeless Voices: Earth’s Most Venerable Languages</u></a></li>
 </ul></div>
 

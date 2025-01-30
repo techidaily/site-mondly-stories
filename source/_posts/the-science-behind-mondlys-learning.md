@@ -1,7 +1,7 @@
 ---
 title: The Science Behind Mondly's Learning
-date: 2025-01-20T17:55:09.600Z
-updated: 2025-01-22T16:46:52.889Z
+date: 2025-01-28T00:03:00.799Z
+updated: 2025-01-30T04:41:49.877Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -102,24 +102,14 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-restoring-macos-sierra-to-os-x-10101-environment-for-2024/"><u>[New] Restoring MacOS Sierra to OS X 10.10.1 Environment for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-elevate-your-listening-experience-with-these-6-premier-android-apps/"><u>[Updated] 2024 Approved Elevate Your Listening Experience with These 6 Premier Android Apps</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-top-five-revolutionary-facebook-enhancements/"><u>[Updated] Top Five Revolutionary Facebook Enhancements</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aprende-a-agradecernos-a-los-animales-60-nombres/"><u>Aprende a Agradecernos a Los Animales: 60 Nombres</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beginning-languages-adventure-resolution-of-2024/"><u>Beginning Languages Adventure: Resolution of 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brain-games-that-build-bilingual-brilliance/"><u>Brain Games That Build Bilingual Brilliance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breeze-through-basic-numbers-in-japanese/"><u>Breeze Through Basic Numbers in Japanese!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/celebrating-a-full-circle-mondlys-jubilee-year/"><u>Celebrating a Full Circle: Mondly’s Jubilee Year</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquer-english-mondlys-pathway-for-proficiency/"><u>Conquer English: Mondly's Pathway for Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/crafting-your-personalized-language-learning-plan/"><u>Crafting Your Personalized Language Learning Plan</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-culture-through-language-learn-hangul-understand-squid-game/"><u>Decoding Culture Through Language: Learn Hangul, Understand Squid Game</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577017353-enjoy-the-best-of-both-worlds-get-free-mondly-plus-for-life/"><u>Enjoy the Best of Both Worlds - Get Free Mondly Plus for Life!</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-nubia-red-magic-8s-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-accelerating-learning-on-tiktok-changing-your-profile-number/"><u>In 2024, Accelerating Learning on TikTok Changing Your Profile Number</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-mastering-3gp-video-cutting-tips-and-tricks/"><u>New 2024 Approved Mastering 3GP Video Cutting Tips and Tricks</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/resolving-realtek-hd-audio-manager-problems-in-the-modern-windows-environments/"><u>Resolving Realtek HD Audio Manager Problems in the Modern Windows Environments</u></a></li>
-<li><a href="https://windows11.techidaily.com/steps-to-solve-error-0x80370102-during-windows-subsystem-for-linux-installation/"><u>Steps to Solve Error 0X80370102 During Windows Subsystem for Linux Installation</u></a></li>
-<li><a href="https://discover-help.techidaily.com/top-rated-dvd-to-avi-converter-software-of-2024-for-windows-11-users/"><u>Top Rated DVD to AVI Converter Software of 2024 for Windows 11 Users</u></a></li>
-<li><a href="https://techtrends.techidaily.com/webp-para-jpeg-facil-transformacao-com-a-ferramenta-de-conversao-da-movavi/"><u>WebP Para JPEG: Fácil Transformação Com a Ferramenta De Conversão Da Movavi</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-dawn-of-new-horizons-lighten-up-your-android-vids/"><u>[Updated] 2024 Approved Dawn of New Horizons Lighten Up Your Android Vids</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-essential-knowledge-unmarked-photo-accumulation/"><u>2024 Approved Essential Knowledge Unmarked Photo Accumulation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-strategies-for-perfecting-english-grammar-with-esl-insight/"><u>8 Strategies for Perfecting English Grammar with ESL Insight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/flirting-in-german-success-strategies/"><u>Flirting in German: Success Strategies</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gratis-download-professionelle-dvd-dekodierung-software-fur-alle-arten-von-dvds/"><u>Gratis Download: Professionelle DVD-Dekodierung Software Für Alle Arten Von DVDs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/hasty-hacks-for-enhancing-personal-movie-making-for-2024/"><u>Hasty Hacks for Enhancing Personal Movie Making for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hellenic-heirs-language-legacy-and-current-usage/"><u>Hellenic Heirs: Language Legacy & Current Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-premium-lifetime-no-cost-plan/"><u>Mondly Premium: Lifetime, No-Cost Plan</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/total-circles-capture-systems/"><u>Total Circles Capture Systems</u></a></li>
 </ul></div>
 

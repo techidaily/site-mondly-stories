@@ -1,7 +1,7 @@
 ---
 title: How to Tell Time in Spanish – A Complete Guide for Beginners
-date: 2024-09-20T17:47:45.260Z
-updated: 2024-09-21T19:09:06.266Z
+date: 2025-01-27T17:43:33.604Z
+updated: 2025-01-29T23:08:44.004Z
 tags:
   - speak
   - english
@@ -26,11 +26,19 @@ But first things first.
 
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ¿Que hora es? – how to ask for the time in Spanish
 
  In order to tell the time in Spanish, you’ll first have to learn how to properly ask for the time in Spanish. You can never be too cautious. I’m just making sure you’re not missing that_fiesta española_ you spent weeks thinking about!
 
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The basics of Spanish time
 
@@ -87,10 +95,7 @@ Here are some examples:
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Different ways of telling time in Spanish
@@ -102,6 +107,10 @@ Here are some examples:
 * _es/son_ +_las_ \+ hour + con + number of minutes –**_Son las tres con diez_**
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
 
@@ -153,10 +162,7 @@ Here are some examples:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Speak Spanish fluently in just 10 minutes a day
@@ -182,5 +188,20 @@ Here are some examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-speed-kings-guide-to-fast-frame-gathering/"><u>[New] In 2024, Speed King's Guide to Fast Frame Gathering</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-digital-chronicles-cutting-edge-methods-for-saving-your-vr-gaming-journey/"><u>[Updated] Digital Chronicles Cutting-Edge Methods for Saving Your VR Gaming Journey</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/1715860861922-updated-securing-perfect-images-on-pc-check-out-these-top-5-tools/"><u>[Updated] Securing Perfect Images on PC? Check Out These Top 5 Tools!</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-overcoming-common-airdrop-failures-on-ios-and-macos-systems/"><u>2024 Approved Overcoming Common Airdrop Failures on iOS and macOS Systems</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/learn-how-to-lock-stolen-your-iphone-14-properly-by-drfone-ios/"><u>Learn How To Lock Stolen Your iPhone 14 Properly</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-the-craft-of-epic-gopro-time-lapse-video-for-2024/"><u>Mastering the Craft of Epic GoPro Time Lapse Video for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parallel-linguistic-proficiency/"><u>Parallel Linguistic Proficiency</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/pixel-perfection-leading-ps5-compatible-hdmi-21-monitors/"><u>Pixel Perfection Leading PS5 Compatible HDMI 2.1 Monitors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/save-big-on-mondlys-ultimate-offering/"><u>Save Big on Mondly's Ultimate Offering!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-eloquent-enthusiasts-handbook-to-french-greeting-expressions/"><u>The Eloquent Enthusiast's Handbook to French Greeting Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-saying-hello-in-spanish-with-top-10-methods/"><u>The Ultimate Guide To Saying 'Hello' In Spanish With Top 10 Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-benefits-with-these-10-german-lessons/"><u>Unlock Benefits with These 10 German Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/win-over-venetians-master-20plus-italian-language-essentials/"><u>Win Over Venetians: Master 20+ Italian Language Essentials</u></a></li>
+</ul></div>
 

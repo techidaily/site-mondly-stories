@@ -1,7 +1,7 @@
 ---
 title: "Latin Lingo for Leaders: Best 50 Expressions to Impress All"
-date: 2025-01-19T16:48:10.749Z
-updated: 2025-01-22T16:04:29.487Z
+date: 2025-01-26T20:33:36.218Z
+updated: 2025-01-29T20:41:37.784Z
 tags:
   - speak
   - english
@@ -40,12 +40,16 @@ These are nearly as famous as Julius Caesar himself.
 
  What Descartes doesn’t know is that nowadays people prefer the_bibo, ergo sum_ version which literally means “I drink, therefore I am”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **In vino veritas. —_In wine, there is truth._**
 
  Be careful if you_carpe vinum_ on that Friday night out we talked about. This Latin saying suggests that you’ll probably spill all your secrets if you drink too much alcohol.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Et tu, Brute? —** _“And you, Brutus?”_
@@ -55,22 +59,22 @@ These are nearly as famous as Julius Caesar himself.
  That scene is very tragic indeed, but nowadays, the phrase can be used jokingly to condemn a friend’s change of heart.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Acta, non verba. —** _Deeds, not words._
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Carthago delenda est. —** _Carthage must be destroyed._
 
  Prior to the Third Punic War between Rome and Carthage, Cato the Censor, a Roman politician, used to conclude all his speeches to the Senate with this phrase. While he did this in an attempt to push for the war, nowadays the expression can be used figuratively as a way to express your absolute support for an idea.
 
 ![latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-phrases.jpg "50 Popular Latin Phrases To Impress Your Friends 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Using some Latin phrases here and there will automatically make you look smarter.
 
@@ -138,14 +142,10 @@ Every student’s favorite. We all know what this one means, don’t we?
 
 ![in vino veritas](https://edge.mondly.com/blog/wp-content/uploads/2021/07/in-vino-veritas-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 7")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “In vino veritas” by Daniel Vogel©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cool Latin that are still used today
@@ -175,6 +175,10 @@ Get ready to bring your Roman alter ego to life in 3… 2… 1\. Go!
  Or so Lucretius said. Originally meaning “work is required to succeed”, the modern reinterpretation suggests that “everything has its origins in something”.
 
 ![common latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/common-latin-phrases-960x720.jpg "50 Popular Latin Phrases To Impress Your Friends 8")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Laughing” by Peter Lloyd©
 
@@ -276,6 +280,10 @@ Different phrase, same story. You’re welcome.
 
  “Roman statue” by engin akyurt©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Latin Words and Phrases for Love
 
  To conclude our exploration of the Latin phrases in a positive tone, let’s see what the Romans had to say about love. It’s true they talked more about wars, but you don’t need that kind of negativity in your life, do you? Why [learn Latin phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) about war, when love wins no matter what?
@@ -300,10 +308,6 @@ Different phrase, same story. You’re welcome.
 
 From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Why should you learn these cool Latin phrases?
 
  In all seriousness, Latin phrases, words and sayings are a fun way to boost your vocabulary and learn more about the origin of the words we use every day. While Latin is the common ancestor of the Romance languages, it has also influenced the Germanic languages (of which English is a part). So it might prove most illuminating to take inspiration from the master orators and use Latin words and phrases in your day-to-day conversations.
@@ -315,10 +319,6 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 ### Why are Latin words used in law?
 
  Latin words are used in law because of the historical influence Roman law has on the legal system of many countries. As the lingua franca of the Roman Empire, Latin not only shaped the empire's legal constructs but also left a lasting imprint on the evolution of legal systems, especially within Europe. As Roman law became the foundation for many modern legal codes, Latin legal words were passed on throughout history until the present day. This incorporation of Latin words in law ensures a degree of precision and continuity, bridging legal concepts across different eras and jurisdictions.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Why are Latin words powerful?
 
@@ -356,17 +356,14 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-how-to-angle-videos-for-improved-viewership-for-2024/"><u>[New] How to Angle Videos for Improved Viewership for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-from-raw-footage-to-cinematic-success-in-your-youtube-channel/"><u>[Updated] From Raw Footage to Cinematic Success in Your YouTube Channel</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/6-essential-scandinavian-flicks-for-danish-learning/"><u>6 Essential Scandinavian Flicks for Danish Learning</u></a></li>
-<li><a href="https://article-helps.techidaily.com/amplify-your-videos-impact-with-strategically-placed-time-markers/"><u>Amplify Your Video's Impact with Strategically Placed Time Markers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/asias-linguistic-elite-the-top-3-titans/"><u>Asia's Linguistic Elite: The Top 3 Titans</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-through-turkish-and-korean-tongues/"><u>Bridging Cultures Through Turkish & Korean Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-each-korean-day-your-quick-reference/"><u>Discovering Each Korean Day: Your Quick Reference</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-resolve-vivo-y56-5g-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Vivo Y56 5G Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-15-techniques-to-ensure-facebook-videos-are-spotlighted/"><u>In 2024, 15 Techniques to Ensure Facebook Videos Are Spotlighted</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-unlock-the-art-of-snapchat-pins/"><u>In 2024, Unlock the Art of Snapchat Pins</u></a></li>
-<li><a href="https://win-latest.techidaily.com/microsoft-launches-copilot-lab-enhancing-user-experience-with-advanced-ai-assistance-technews/"><u>Microsoft Launches Copilot Lab, Enhancing User Experience with Advanced AI Assistance - TechNews</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/unveiling-the-total-ram-on-your-android-smartphone-easy-methods-explored/"><u>Unveiling the Total RAM on Your Android Smartphone: Easy Methods Explored</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-15-online-audio-haven-sites-for-video-content-makers/"><u>[New] 15 Online Audio Haven Sites for Video Content Makers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unleash-creativity-learning-snapseeds-power-tools-for-2024/"><u>[New] Unleash Creativity Learning Snapseed's Power Tools for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-samsung-galaxy-a05s-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Samsung Galaxy A05s Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-motorola-defy-2-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Motorola Defy 2 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-spanish-diacritics-and-accented-typography/"><u>Mastering Spanish Diacritics & Accented Typography</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unlocks-ukrainians-global-communication-with-no-cost/"><u>Mondly Unlocks Ukrainians' Global Communication with No Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swiftly-master-colorful-french-expressions/"><u>Swiftly Master Colorful French Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-respectful-addresses-in-japan/"><u>The Art of Respectful Addresses in Japan</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/twitch-reversion-made-simple-top-ten-instructions-at-hand-for-2024/"><u>Twitch Reversion Made Simple Top Ten Instructions at Hand for 2024</u></a></li>
 </ul></div>
 

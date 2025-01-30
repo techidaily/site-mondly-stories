@@ -1,7 +1,7 @@
 ---
 title: Witches & Warlocks in World Cultures
-date: 2024-09-16T18:40:44.934Z
-updated: 2024-09-21T19:59:37.197Z
+date: 2025-01-26T03:18:44.905Z
+updated: 2025-01-29T22:51:12.370Z
 tags:
   - speak
   - english
@@ -18,11 +18,19 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
 
  The leaves have all turned yellow, red and brown. Everywhere in the neighborhood smells like pumpkin pie, roasted chestnuts and mulled wine. Everyone is wearing warmer clothes and brighter smiles. Kids are carrying their heavy schoolbags back home to a delicious lunch and scary jack-o’-lanterns have begun popping up here and there. It’s glaringly obvious:**Halloween is almost here!** Soon enough houses will be covered in black and orange decorations and children will shout excitedly:**“Trick or treat?! Give me something good to eat!”.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Origins of Halloween
 
  Celebrated yearly on October 31, Halloween, Hallowe’en or All Hallows’ Eve is a world-old holiday whose origins date back to the ancient Celtic festival of Samhain that took place on the lands that are now Ireland, the United Kingdom, and northern France. For hundreds – or even thousands – of years, people have celebrated this holiday, but it was never as loved and as notorious as it is today.
 
  Nevertheless, there are many countries around the world that have their own Halloween-like traditions celebrating the afterlife. For example, in some parts of the world, on All Hallows’ Eve, people visit the graveyards of their loved ones to pray and place flowers. But let’s dive in already and look at **four of the most fascinating Halloween-like traditions from different corners of the world.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Halloween-like Traditions Worldwide
 
@@ -34,9 +42,17 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
 
 ![Colorful ofrendas and calaveras during Día de Muertos in Mexico](https://edge.mondly.com/blog/wp-content/uploads/2019/09/dia-de-muertos-960x639.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Calaveras” by Valeria Almaraz©
 
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### China: The Hungry Ghost Festival
 
@@ -45,13 +61,6 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
  Celebrated yearly during the seventh month in the lunar calendar (September, also known as the Ghost Month) with a peak on the 15th day (also known as Ghost Day), one of the most interesting traditions of the Hungry Ghost Festival is serving meals (often vegetarian) with empty seats for each deceased in the family and treating the deceased as if they are still living.
 
 ![Traditional practices during the Hungry Ghost Festival in China](https://edge.mondly.com/blog/wp-content/uploads/2019/09/9609227445_5a2c7c2f90_o-960x640.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 7")
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “The Hungry Ghost Festival” by Matthew Kang©
 
@@ -62,13 +71,6 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
  _The Hungry Ghost Festival is not only celebrated in China but also in other parts of Southeast Asia, with each region having its unique customs._
 
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
 
@@ -87,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
  Thanks to Dracula, Romania is now one of the most well-known Halloween destinations. Everyone dreams of partying at Dracula’s Castle. In reality, both Catholic and Orthodox churches in Romania discourage Halloween celebrations. Instead, they advocate for the celebrations of the Day of the Dead on 1 November, when special religious ceremonies are held for the souls of the deceased.
 
 ![dracula's castle](https://edge.mondly.com/blog/wp-content/uploads/2019/09/draculas-castle-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 9")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Dracula’s Castle in Romania” by Nomadic Julien©
 
@@ -128,5 +134,26 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-skype-recording-techniques-for-pc-mac-users/"><u>[New] 2024 Approved Skype Recording Techniques for PC, Mac Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-optimizing-online-content-delivery-to-key-social-media-channels/"><u>[New] Optimizing Online Content Delivery to Key Social Media Channels</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-guide-to-action-hunting-gear/"><u>[New] The Ultimate Guide to Action Hunting Gear</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-top-8-factors-in-choosing-a-4k-cam-lens-upgrade/"><u>2024 Approved Top 8 Factors in Choosing a 4K Cam Lens Upgrade</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1729455-9781501100680-angeles-de-luz-divina-angels-of-divine-light-spanish-edition/"><u>Ángeles de Luz Divina (Angels of Divine Light Spanish edition) | Free Book</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/guide-de-recuperation-des-informations-dans-votre-stockage-western-digital-easystore/"><u>Guide De Récupération Des Informations Dans Votre Stockage Western Digital EasyStore</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-make-the-most-of-your-apple-iphone-8-plus-lock-screen-with-notifications-by-drfone-ios/"><u>How to Make the Most of Your Apple iPhone 8 Plus Lock Screen with Notifications?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-realme-12plus-5g-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Realme 12+ 5G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-the-language-of-respectful-communication-in-japan/"><u>Learn the Language of Respectful Communication in Japan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ready-to-connect-the-next-gen-ai-conversationalist/"><u>Ready to Connect: The Next-Gen AI Conversationalist</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/salutations-francaises-pour-accueillir/"><u>Salutations Françaises Pour Accueillir</u></a></li>
+<li><a href="https://some-tips.techidaily.com/simplify-your-inbox-how-one-simple-email-strategy-can-clear-the-chaos-without-extra-accounts-or-rigid-regulations-zdnet/"><u>Simplify Your Inbox: How One Simple Email Strategy Can Clear the Chaos Without Extra Accounts or Rigid Regulations | ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-up-the-initial-ar-language-companion/"><u>Speaking Up: The Initial AR Language Companion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/taking-flight-in-russian-numeral-recognition/"><u>Taking Flight in Russian Numeral Recognition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transforming-pedagogy-through-ai-intervention/"><u>Transforming Pedagogy Through AI Intervention</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-world-through-new-languages-anytime/"><u>Unlocking the World Through New Languages Anytime</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unravel-the-power-of-multilingual-tools-in-business/"><u>Unravel the Power of Multilingual Tools in Business</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-victory-demystifying-difficult-phonetics-and-lexicon/"><u>Vocal Victory: Demystifying Difficult Phonetics and Lexicon</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>What is Geo-Blocking and How to Bypass it On Apple iPhone 8? | Dr.fone</u></a></li>
+</ul></div>
 

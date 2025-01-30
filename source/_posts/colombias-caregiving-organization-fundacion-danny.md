@@ -1,7 +1,7 @@
 ---
 title: Colombia’s Caregiving Organization - Fundacion Danny
-date: 2024-09-17T17:44:20.015Z
-updated: 2024-09-21T17:02:54.288Z
+date: 2025-01-22T19:50:29.650Z
+updated: 2025-01-29T17:03:18.643Z
 tags:
   - speak
   - english
@@ -30,11 +30,19 @@ thumbnail: https://thmb.techidaily.com/c2931b7c0e4d12082380cc3ad2ba8216e12e1526e
 
  **DANNY stands for Developing Aptitudes for a New Nation and Youth.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Unlocking the power of social good
 
  When Andrés Rodríguez, the director of Danny Foundation, first came for our help, we knew right away we had to do it. For the children and adolescents that attend the foundations’ courses, language learning is not just a hobby, but the key to success. This is why we wanted to give them the opportunity to experience the transformational power of learning English with Mondly.
 
 ![danny foundation mondly](https://edge.mondly.com/blog/wp-content/uploads/2020/03/danny-foundation-mondly-468x600.jpg "Helping Those Who Need It Most: Fundación Danny From Colombia 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Graduation at the Danny Foundation.
 
@@ -50,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/c2931b7c0e4d12082380cc3ad2ba8216e12e1526e
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Learn a new language in just 10 minutes a day
 
@@ -76,18 +88,21 @@ thumbnail: https://thmb.techidaily.com/c2931b7c0e4d12082380cc3ad2ba8216e12e1526e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-nes-switch-brawlers-the-ultimate-10-game-guide/"><u>[New] In 2024, NES Switch Brawlers The Ultimate 10-Game Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-escalate-your-content-reach-leveraging-synergistic-youtube-outros/"><u>[Updated] In 2024, Escalate Your Content Reach Leveraging Synergistic YouTube Outros</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-innovative-5-websites-eclipsing-twitter/"><u>[Updated] Innovative 5 Websites Eclipsing Twitter</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-activation-lock-on-mac-for-iphone-12-pro-by-drfone-ios/"><u>In 2024, How To Bypass iCloud Activation Lock on Mac For iPhone 12 Pro?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-the-mechanics-keeping-genshin-impact-stable-and-crash-free-on-windowsmacos/"><u>Mastering the Mechanics: Keeping Genshin Impact Stable and Crash-Free on Windows/MacOS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-dominates-germanys-choice-for-language-mastery/"><u>Mondly Dominates: Germany's Choice for Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-named-app-of-the-day-by-apple-in-157-countries/"><u>Mondly Named App Of The Day By Apple In 157 Countries</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-a-language-learning-revolution-backed-by-googles-choice/"><u>Mondly: A Language Learning Revolution, Backed by Google's Choice</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-the-animators-toolkit-a-detailed-list-of-the-best-cartoon-sounds-available-online-for-2024/"><u>New The Animators Toolkit A Detailed List of the Best Cartoon Sounds Available Online for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/risks-of-crafting-windows-11-keys-via-ai-bots/"><u>Risks of Crafting Windows 11 Keys via AI Bots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-pro-the-top-6-digital-tools-for-learning-korean/"><u>Speak Like a Pro: The Top 6 Digital Tools for Learning Korean</u></a></li>
+<li><a href="https://win11.techidaily.com/understanding-windows-11-interface-elements/"><u>Understanding Windows 11 Interface Elements</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unearthing-the-roots-of-human-verbal-expression/"><u>Unearthing the Roots of Human Verbal Expression</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-apple-iphone-6-plus-without-passcode-easily-by-drfone-ios/"><u>Unlock Apple iPhone 6 Plus Without Passcode Easily</u></a></li>
+</ul></div>
 

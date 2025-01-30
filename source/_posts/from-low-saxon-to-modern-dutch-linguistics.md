@@ -1,7 +1,7 @@
 ---
 title: From Low Saxon to Modern Dutch Linguistics
-date: 2024-09-14T19:11:46.333Z
-updated: 2024-09-21T16:53:41.300Z
+date: 2025-01-25T22:50:38.130Z
+updated: 2025-01-29T22:18:33.355Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/92035b859f2a33cbba619018ad1ce9e04183738fe
 
 **The Dutch people are from the Netherlands.** As unrelated as that may seem, there is a whole history to it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why are Dutch people called Dutch?
 
  It seems that the confusion stems from the English-speaking people and the reason can be found by studying **the [etymology](https://www.etymonline.com/word/dutch) of the word ‘dutch’** . I won’t bore you with all the details, but the bottom line is that in the late 14th century the word referred to ‘a German language’ or to ‘German, non-Scandinavian continental Germanic’. Additionally, the word corresponds to the Old English adjective_þeodisc_ (‘belonging to the people’) which was used to refer to the common language of Germanic people (as opposed to Latin).
@@ -50,6 +54,10 @@ Okay, bare with me. There’s more.
 
 ![netherlands vs holland](https://edge.mondly.com/blog/wp-content/uploads/2022/02/netherlands-vs-holland.png "Where Are Dutch People From? Discover The Dutch Language 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The Netherlands vs Holland
 
  It all goes back (again) to Old English. Originally referring to the people from the northern region of the Netherlands, ‘Holland’ literally meant ‘wood-land’. But over time, English speakers began to mistakenly associate it with the entire country.
@@ -71,19 +79,13 @@ Okay, bare with me. There’s more.
 ![language in the netherlands](https://edge.mondly.com/blog/wp-content/uploads/2022/02/language-in-the-netherlands-960x573.jpg "Where Are Dutch People From? Discover The Dutch Language 3")
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  ‘Tulip fields in the Netherlands’ by redcharlie©
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What other countries speak Dutch?
@@ -93,13 +95,6 @@ Okay, bare with me. There’s more.
  The Dutch language is also spoken in a small part of France and on the islands of Curaçao, Sint Maarten, Aruba (all three part of the Kingdom of the Netherlands), Bonaire, Saba, and Sint Eustatius.
 
  If you travel to South Africa, you may think people speak Dutch, but they actually speak [Afrikaans](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , a language that evolved from Dutch.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Is German Dutch?
 
@@ -113,6 +108,10 @@ Okay, bare with me. There’s more.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Start learning Dutch today
 
@@ -141,5 +140,20 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ed-creative-freedom-the-best-9-online-editors-for-beginners-for-2024/"><u>[Updated] Creative Freedom The Best 9 Online Editors for Beginners for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-fixing-freeze-problems-in-fb-livestreams/"><u>[Updated] Fixing Freeze Problems in FB Livestreams</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-rank-your-download-preferences-with-our-top-5-list/"><u>[Updated] Rank Your Download Preferences with Our Top 5 List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-impact-on-eng-linguistic-adoption-and-lexicon-expansion/"><u>Global Impact on Eng: Linguistic Adoption and Lexicon Expansion</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-from-your-apple-iphone-12-pro-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID From your Apple iPhone 12 Pro?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-tecno-pova-5-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Tecno Pova 5 Phone that is Locked?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-earnings-scenarios-for-aspiring-podcasters/"><u>In 2024, Earnings Scenarios for Aspiring Podcasters</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-win10s-video-call-ecosystem-a-guide-to-using-zoom/"><u>In 2024, Navigating Win10's Video Call Ecosystem A Guide to Using Zoom</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-lexicon-influx-enriching-the-english-language/"><u>International Lexicon Influx: Enriching the English Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-languages-effortlessly-with-mondly-googles-choice/"><u>Master Languages Effortlessly with Mondly, Google's Choice</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/minute-magic-numbers-in-the-land-of-the-rising-sun/"><u>Minute Magic: Numbers in the Land of the Rising Sun</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-syncs-up-with-pearson-education-circle/"><u>Mondly Syncs Up With Pearson Education Circle</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-shared-lexicon-ukraine-and-russias-speech/"><u>The Shared Lexicon: Ukraine & Russia's Speech</u></a></li>
+</ul></div>
 

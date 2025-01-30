@@ -1,7 +1,7 @@
 ---
 title: 9 English Grammar Tips From an ESL Speaker
-date: 2024-09-14T17:03:33.241Z
-updated: 2024-09-21T19:44:00.758Z
+date: 2025-01-24T03:15:44.142Z
+updated: 2025-01-30T01:57:34.915Z
 tags:
   - speak
   - english
@@ -63,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/1e8ed7d03244990645b268803c3dbd7e538910f87
 
  At first glance, there is a lot of information you need to remember. But rest assured: you won’t always have to analyze the situation over and over again in order to choose the correct tense. In time, you will get used to using the correct form naturally.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Learn the English irregular verbs
 
  There are about 200 [irregular verbs](https://en.wikipedia.org/wiki/English%5Firregular%5Fverbs) (and significantly more if prefixed forms are counted) in English. In most cases, the irregularity concerns the past tense or the past participle.
@@ -70,13 +74,6 @@ thumbnail: https://thmb.techidaily.com/1e8ed7d03244990645b268803c3dbd7e538910f87
  Again, 200 may seem like a lot, but learning the English irregular verbs is like learning the periodic table. Once you know it, you just… know it. Especially if used regularly.
 
  Don’t forget that this is a central part of English grammar and mastering it will help you sound like a true native fast. Besides, mistaking one verb form for another is something you should avoid at all costs!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Focus on context instead of rules
 
@@ -88,6 +85,10 @@ thumbnail: https://thmb.techidaily.com/1e8ed7d03244990645b268803c3dbd7e538910f87
 
  The experts behind Mondly know how amazing the human brain is. This is why they carefully selected the content so that you’ll practice and the brain will make the connections itself. You don’t focus on the process but on the final result: speaking English like a native.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Learn the most common exceptions
 
  Forget about rules. Focus on the most common exceptions. Once you begin using the inductive learning method, rules will follow naturally. So it’s the exception you need to study and master.
@@ -95,10 +96,7 @@ thumbnail: https://thmb.techidaily.com/1e8ed7d03244990645b268803c3dbd7e538910f87
  Whether we are talking about adjective forms, irregular verbs, or nouns without plurals, exceptions are fewer and can help you achieve the level of English fluency and correctness you always dreamed you’d have.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Practice English Grammar with Oxford
@@ -111,11 +109,19 @@ thumbnail: https://thmb.techidaily.com/1e8ed7d03244990645b268803c3dbd7e538910f87
 
  “Find your favorite book” by 🇸🇮 Janko Ferlič©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Don’t overthink it
 
  Go with the flow and let the inductive method work. Trust your instinct. In time, once you get used to the language, you’ll be able to speak English as easily as you speak your native language.
 
  Don’t calculate your next ten moves. Instead, think directly in English and just speak. If you overthink a phrase now, you’ll overthink it forever.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Read your favorite books in English
 
@@ -124,13 +130,6 @@ thumbnail: https://thmb.techidaily.com/1e8ed7d03244990645b268803c3dbd7e538910f87
  But you can choose any book you want. Just make sure it matches your proficiency level.
 
  Seeing the English grammar in context will help you assimilate the information faster and learn to use it successfully yourself.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 9\. Make English grammar your friend
 
@@ -164,5 +163,26 @@ thumbnail: https://thmb.techidaily.com/1e8ed7d03244990645b268803c3dbd7e538910f87
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-able.techidaily.com/solved-blender-keeps-crashing-on-pc/"><u>[SOLVED] Blender Keeps Crashing on PC</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-capturing-sounds-audacity-tutorial-for-mac-users-for-2024/"><u>[Updated] Capturing Sounds Audacity Tutorial for Mac Users for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-mobile-cinema-app-assessment-review-for-2024/"><u>[Updated] Mobile Cinema App Assessment Review for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unravel-the-revenue-riddle-googles-guided-triple-steps-to-youtube-income-analysis/"><u>[Updated] Unravel the Revenue Riddle Google's Guided Triple Steps to YouTube Income Analysis</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210909700-9781952491580-can-i-be-honest/"><u>Can I Be Honest? | Free Book</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/enhance-your-sea-of-thieves-adventure-essential-tips-to-repair-micspeakers-on-windows-computers/"><u>Enhance Your Sea of Thieves Adventure - Essential Tips to Repair Mic/Speakers on Windows Computers</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/exploring-better-options-ranking-the-best-gmail-competing-services-of-2024/"><u>Exploring Better Options: Ranking the Best Gmail Competing Services of 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/impress-lombard-locals-dive-into-the-world-of-italian-expressions/"><u>Impress Lombard Locals: Dive Into the World of Italian Expressions</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-technical-treasure-trove-mastering-the-art-of-capturing-roblox-adventures-on-apple-devices/"><u>In 2024, Technical Treasure Trove Mastering the Art of Capturing Roblox Adventures on Apple Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interstellar-idioms-understanding-colloquialisms-from-space-characters/"><u>Interstellar Idioms: Understanding Colloquialisms From Space Characters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/joyous-july-4th-festivities-around-the-world/"><u>Joyous July 4Th Festivities Around The World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-borrowing-a-global-perspective-on-english/"><u>Language Borrowing: A Global Perspective on English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leveraging-mondly-to-master-multiple-languages-top-10-strategies-unveiled/"><u>Leveraging Mondly to Master Multiple Languages: Top 10 Strategies Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-basics-oxford-and-mondly-collaboration/"><u>Mastering the Basics: Oxford & Mondly Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oratory-oasis-overcoming-difficult-word-sounds-and-structures/"><u>Oratory Oasis: Overcoming Difficult Word Sounds and Structures</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/spice-up-instagram-discussions-with-eye-catching-gif-emojis-and-memes/"><u>Spice Up Instagram Discussions with Eye-Catching GIF Emojis and Memes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sundial-of-success-mondlylanguages-two-year-visionary-quest/"><u>Sundial of Success: MondlyLanguages' Two-Year Visionary Quest</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/ultimate-kids-camera-companion-for-aquatic-exploration/"><u>Ultimate Kids' Camera Companion for Aquatic Exploration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-languages-in-macau-cantonese-and-more/"><u>Unraveling Languages in Macau: Cantonese & More</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unlock Swedish Phonetics with Flair & Speed
-date: 2025-01-20T17:39:26.892Z
-updated: 2025-01-22T18:03:55.230Z
+date: 2025-01-23T22:49:26.116Z
+updated: 2025-01-30T05:21:13.004Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
  Now, this doesn’t mean there isn’t a thing or two you need to know about the [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) alphabet. Although complex when it comes to pronunciation, Swedish is an absolutely fascinating language. So don’t let Viking stories or famous horror Midsommar scare you. I’m sure you’ll love learning everything about the Swedish language and its alphabet so let’s get to it!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The modern Swedish alphabet
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
  The current alphabet is considered modern because it arrived in Sweden together with the Christianization of Scandinavia that took place between the 8th and the 12th centuries. As a matter of fact, the translation of the New Testament into Swedish in 1526 actually marks the beginning of modern Swedish.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How was Swedish written before the Latin script?
 
  **Swedish used runes before the arrival of the Latin script in Scandinavia.** The [runic alphabet](https://www.britannica.com/topic/runic-alphabet) , also known as Futhark, was the first writing system the Norse and other Germanic people used for centuries. As it happens, isolated communities in a remote part of Sweden only [stopped using runes](https://sciencenordic.com/language-linguistics-runes/isolated-people-in-sweden-only-stopped-using-runes-100-years-ago/1418110) 100 years ago. To this day, the runic alphabet is considered a writing system of uncertain origin as scholars cannot find solid proof to support its ancestry.
@@ -40,19 +44,11 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
 ![swedish runes on stones](https://edge.mondly.com/blog/wp-content/uploads/2021/11/swedish-runic-alphabet-960x686.jpg "Quick Introduction To The Swedish Alphabet And Its Fascinating History 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Swedish runes” by petr sidorov©
 
 ## The Swedish language in a nutshell
 
  Known in Swedish as**Svenska,** the [Swedish language](https://www.britannica.com/topic/Swedish-language) belongs to the East Scandinavian group of North Germanic languages and is the official language of Sweden and Finland. According to Ethnologue, the total number of Swedish speakers worldwide is over 13 million (both native and non-native speakers).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Mutual intelligibility with the other Scandinavian languages
 
@@ -61,6 +57,10 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
  The languages that are mutually intelligible with Swedish to a larger extent are Norwegian and Danish. Due to their shared history, these three languages are quite similar, particularly in their written form.
 
  Similar to the transformation the [Romance languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) went through over time, Old East Norse dialects were influenced by numerous factors. For example, between 800 and 1100 AD, Runic Swedish was only slightly different from Runic Danish, but they began to diverge during the 12th century. However, some aspects stayed the same. That’s why is easier to learn Swedish when you already know Danish and vice versa.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Pronunciation rules and usage
 
@@ -79,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
  Though officially in the Swedish alphabet, there are two other letters you’ll probably see in Swedish: ü and è. But again, these letters are only common in some loanwords.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### General pronunciation rules
@@ -103,7 +103,7 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in Swedish
@@ -136,18 +136,17 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-skyrocket-mobile-images-flawlessly-free/"><u>[New] Skyrocket Mobile Images Flawlessly, Free</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-ultimate-iphone-video-editor-comparison-cameo-or-filmorago/"><u>2024 Approved Ultimate iPhone Video Editor Comparison Cameo or FilmoraGo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/anthems-of-acquisition-melodic-methods-for-mastery-in-languages/"><u>Anthems of Acquisition: Melodic Methods for Mastery in Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aprendizaje-diario-nombres-y-significados-de-los-dias-de-la-semana-en-espanol/"><u>Aprendizaje Diario: Nombres Y Significados De Los Días De La Semana en Español</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/are-there-any-potential-risks-associated-with-using-chatgpt/"><u>Are There Any Potential Risks Associated With Using ChatGPT?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/articulate-advantage-exceptional-language-learning-programs/"><u>Articulate Advantage: Exceptional Language Learning Programs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/byzantine-legacy-greek-languages-timeframe-and-continuity/"><u>Byzantine Legacy: Greek Language's Timeframe and Continuity</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/champions-of-3d-spatial-displays-for-2024/"><u>Champions of 3D Spatial Displays for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-and-latest-update-for-canon-printer-model-mg3022/"><u>Download & Latest Update for Canon Printer Model: MG3022</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/early-language-learning-spanish-tots-to-fifth-graders/"><u>Early Language Learning: Spanish Tots to Fifth Graders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/easy-romanian-mastery-in-your-pocket/"><u>Easy Romanian: Mastery in Your Pocket</u></a></li>
-<li><a href="https://win-blog.techidaily.com/enhance-your-elden-ring-adventure-quick-fixes-for-improved-frame-rates-and-smoother-gameplay/"><u>Enhance Your Elden Ring Adventure - Quick Fixes for Improved Frame Rates and Smoother Gameplay</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-unlock-apple-id-activation-lock-from-apple-iphone-15-pro-max-by-drfone-ios/"><u>How to Unlock Apple ID Activation Lock From Apple iPhone 15 Pro Max?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-echo-archives-digital-sound-recording-for-2024/"><u>[Updated] Echo Archives Digital Sound Recording for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unveiling-15-superior-action-camera-replacements-to-gopro/"><u>[Updated] Unveiling 15 Superior Action Camera Replacements to GoPro</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fix-it-a-guide-to-addressing-an-unresponsive-iphone-display/"><u>Fix It! A Guide to Addressing an Unresponsive iPhone Display</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-word-goliaths-uncovering-the-longest-title/"><u>Global Word Goliaths: Uncovering the Longest Title</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hofliches-aussprechen-von-reue-in-deutsch/"><u>Höfliches Aussprechen Von Reue in Deutsch</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-insider-tips-for-ffxp-functionality/"><u>In 2024, Insider Tips for FFXP Functionality</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-stealthy-sound-suppression-techniques-for-fade-out/"><u>In 2024, Stealthy Sound Suppression Techniques for Fade-Out</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-israel-top-5-tips-and-vital-language-skills/"><u>Navigating Israel: Top 5 Tips and Vital Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579349765-new-year-new-linguistic-skills-with-nearly-free-lessons-available/"><u>New Year, New Linguistic Skills – With Nearly Free Lessons Available!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/prime-directors-cut-trailers/"><u>Prime Director's Cut Trailers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-best-asmr-youtube-channels-for-2024/"><u>The Best ASMR YouTube Channels for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-guide-to-instantly-diminish-audio-volume-gently-for-2024/"><u>Updated Guide to Instantly Diminish Audio Volume Gently for 2024</u></a></li>
 </ul></div>
 

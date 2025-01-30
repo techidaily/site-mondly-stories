@@ -1,7 +1,7 @@
 ---
 title: Grammar's Presence in the Quest for Fluency
-date: 2025-01-15T16:38:05.911Z
-updated: 2025-01-22T17:01:22.781Z
+date: 2025-01-26T04:18:37.274Z
+updated: 2025-01-29T16:16:59.792Z
 tags:
   - speak
   - english
@@ -18,15 +18,15 @@ thumbnail: https://thmb.techidaily.com/8852f9f0dff99dd98034c53ca9e7b84a75b979ac3
 
 Language learning is one of the best ways to broaden your horizons and better yourself as a person. It can also be intimidating. Many people would like to learn a foreign language, but they feel the task would be too hard. This is unfortunate because with a little effort and a commitment to the goal, learning a language can happen sooner than most people think.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **The Old Methods: Do They Make It More Difficult to Learn a Foreign Language
 
 Chances are that you probably took language classes at some point in your educational history. Anywhere you live, school curriculums include the study of foreign languages, but the average high-school student does not graduate with fluency in another language.
 
 Many students can manage reading and writing in a foreign language, but they struggle to understand it in conversational form. These situations make it clear that the past methods of language education are lacking. What is the solution?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Language Learning: What Holds People Back?**
 
@@ -34,12 +34,16 @@ One of the best ways to learn a language is to practice both writing the languag
 
 This is why a focus on grammar is the wrong way to teach and learn a language. Grammar is the art of perfecting the use of a language you already know. When learning a language, it can hold students back in a variety of ways.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **1\. Complexity**
 
 There is a lot to take in when learning a language. The last thing a student needs is to get bogged down in a sea of confusing grammar rules. Of course, there are languages with simpler rules. For example, the [French grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is more difficult than [the German grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875), but unless you’re naturally gifted at learning languages, realizing there are so many grammar rules to figure out might leave you so discouraged that you give up.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **2\. Incorrect Focus**
@@ -52,10 +56,6 @@ The goal for a language student is to become fluent as quickly as possible. Flue
 
 Most of us don’t speak in the exact same way that we write. We choose different words, use slang and sometimes even say things in a different order than we would when writing them down. How many people do you know who speak using perfect grammar? Sure, some might exist, but it isn’t very common regardless what language we are discussing. For this reason, if you insist on studying grammar first and conversational language second, you might struggle to understand people as they speak. Luckily, nowadays, there are [modern solutions available that immerse you in conversations](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) from day 1\.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **4\. A Major Lack of Fun**
 
 This might seem like a crazy concept to some, but learning a language should be an enjoyable experience! Too much focus on perfecting grammar can suck all the joy out of learning. Instead, students should make language learning about having pleasant conversations and social interactions. The [new breed of language apps](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-717&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-717%26utm%5Fsource%3Dblog-post-id-717&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-717%26mt%3D8) made the process fun and even [VR apps that help you learn languages](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) have made their way to the market.
@@ -63,7 +63,7 @@ This might seem like a crazy concept to some, but learning a language should be 
 ![Learn grammar with Mondly: French grammar, German Grammar, Spanish Grammar and more](https://edge.mondly.com/blog/wp-content/uploads/2017/10/Webp.net-compress-image-1.jpg "Is Grammar Holding You Back From Learning A Language? 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Returning to Our Roots: Learning with the Mind of a Child**
@@ -79,7 +79,7 @@ Do you feel that grammar holds you back from learning a language? Share your sto
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Speak a new language in just 10 minutes a day
@@ -107,16 +107,18 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unleashing-creativity-writing-scripts-for-youtube-content-excellence/"><u>[Updated] In 2024, Unleashing Creativity Writing Scripts for YouTube Content Excellence</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-lightweightscreencapture-no-fuss-just-fun/"><u>2024 Approved LightweightScreenCapture - No Fuss, Just Fun</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-multilingualism-in-europe-a-celebration-journey/"><u>Exploring Multilingualism in Europe - A Celebration Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exuberant-echoes-of-july-4th-joy/"><u>Exuberant Echoes of July 4Th Joy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/forties-fluency-the-joy-and-wisdom-found-in-multilingualism/"><u>Forties Fluency: The Joy and Wisdom Found in Multilingualism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/forty-plus-fluency-unleashing-the-power-of-multilingualism-today/"><u>Forty-Plus Fluency: Unleashing the Power of Multilingualism Today</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/foundation-of-hope-dannys-colombia-support-initiative/"><u>Foundation of Hope: Danny's Colombia Support Initiative</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-nokia-c32-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Nokia C32 to iPad | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/ranked-9-iphone-applications-to-add-watermarks-on-photos/"><u>Ranked 9 iPhone Applications to Add Watermarks on Photos</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/secure-your-advance-order-on-iphone-15-and-apple-watch-series-9ultra-2-with-top-savings-insights-from-zdnet/"><u>Secure Your Advance Order on iPhone 15 & Apple Watch Series 9/Ultra 2 with Top Savings - Insights From ZDNet</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-full-ps4-capture-tutorial-using-obs-for-2024/"><u>[New] Full PS4 Capture Tutorial Using OBS for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-elevate-your-instagram-presence-with-these-9-game-changing-tips/"><u>[New] In 2024, Elevate Your Instagram Presence with These 9 Game-Changing Tips</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-echoguard-audio-deterrent-sticker/"><u>[Updated] 2024 Approved EchoGuard Audio Deterrent Sticker</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-flashfreeze-video-cut-out-instruction-for-2024/"><u>[Updated] FlashFreeze Video Cut-Out Instruction for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/movavi-m4a-mp4/"><u>自由在線Movavi工具下，將 M4A 影片轉化為 MP4 - 免費版本</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficient-polish-language-strategy/"><u>Efficient Polish Language Strategy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578795871-german-vs-french-which-language-is-more-useful-to-learn/"><u>German vs French: Which Language Is More Useful to Learn</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-the-most-out-of-culinary-classes-with-these-essential-study-tips/"><u>Get the Most Out of Culinary Classes with These Essential Study Tips</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-decoding-revenue-how-much-do-creators-earn-on-youtube/"><u>In 2024, Decoding Revenue How Much Do Creators Earn on Youtube?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-transforming-the-way-we-learn-languages/"><u>Mondly: Transforming the Way We Learn Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-lifetime-plan-zero-price/"><u>Mondly's Lifetime Plan: Zero Price</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/skyrocket-your-portuguese-proficiency-with-these-six-steps/"><u>Skyrocket Your Portuguese Proficiency with These Six Steps</u></a></li>
+<li><a href="https://win11.techidaily.com/transitioning-to-the-future-swapping-aged-window-drivers/"><u>Transitioning to the Future: Swapping Aged Window Drivers</u></a></li>
 </ul></div>
 

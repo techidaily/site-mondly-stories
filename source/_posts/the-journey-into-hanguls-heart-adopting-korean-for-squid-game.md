@@ -1,7 +1,7 @@
 ---
 title: The Journey Into Hangul's Heart - Adopting Korean for Squid Game
-date: 2024-09-14T18:47:41.294Z
-updated: 2024-09-21T18:02:38.536Z
+date: 2025-01-25T20:42:32.925Z
+updated: 2025-01-30T04:30:32.596Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ So what’s there to be done?
 
  Easy. What everybody else has been doing:**learn Korean and never get lost in translation ever again.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## There’s an entire ‘Korean wave’ behind Squid Game, Parasite and BTS
 
  This is not the first time Korean culture blew our minds. If you haven’t lived under a rock, you already know that there’s so much more to it. Just two years ago, we marveled at the brilliance of Parasite, the Korean masterpiece that won four Oscars.
@@ -35,6 +39,10 @@ So what’s there to be done?
  The list could go on and on with the **fascinating craze around Korean skincare products, the K-dramas, the K-pop songs and the Korean comics also known as manhwa.**
 
 ![squid game korean netflix](https://edge.mondly.com/blog/wp-content/uploads/2021/10/squid-game-korean-960x539.jpg "Obsessed With Squid Game, But Lost In Translation? Learn Korean 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  ‘Squid Game on Netflix’ by Jonas Augustin©
 
@@ -62,6 +70,10 @@ So there’s only one conclusion we can draw from this…
 
 **Like Thanos, getting lost in translation is inevitable.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Learn Korean and overcome the one-inch-tall barrier of subtitles
 
  It’s amazing how people learn languages for love. There’s no greater drive than love. And I’m not talking just about romantic love. The fact that so many people are learning Korean after they watched Squid Game, it’s an act of love. All these people learn Korean out of love for this show. Others have been learning the language out of love for BTS. You could even go so far as to say that love makes us smarter. Or better.
@@ -77,10 +89,7 @@ So there’s only one conclusion we can draw from this…
  And you know what’s the second-best thing about this? You’ll be in great company. Since the launch of Squid Game, Mondly has seen a massive increase in people starting to learn Korean. You can join them all **[here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko)**  .
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Even the English language wants to learn Korean
@@ -95,16 +104,7 @@ So there’s only one conclusion we can draw from this…
 ---
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in Korean
@@ -133,5 +133,22 @@ So there’s only one conclusion we can draw from this…
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ocial-media-broadcast-battle-facebook-vs-youtube-and-twitvision/"><u>[New] Social Media Broadcast Battle FACEbook Vs. YOUTube & TWITVision</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-twitch-time-warp-strategies-for-2024/"><u>[New] Twitch Time Warp Strategies for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-top-7-free-apps-to-record-screens-of-budget-pcs/"><u>2024 Approved Top 7 Free Apps to Record Screens of Budget PCs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/echoes-of-engagement-the-subtle-aspects-of-story-viewing-for-2024/"><u>Echoes of Engagement The Subtle Aspects of Story Viewing for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-easycap-device-ready-instant-access-to-compatible-drivers-downloads/"><u>Get Your EasyCap Device Ready - Instant Access to Compatible Drivers Downloads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-play-honors-mondly-kids-for-ease-of-use/"><u>Google Play Honors Mondly Kids for Ease of Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hace-un-mes-hace-un-dia-un-curso-semanal-en-espanol/"><u>Hace Un Mes, Hace Un Dia: Un Curso Semanal en Español</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-top-8-validated-youtube-growth-solutions/"><u>In 2024, Top 8 Validated Youtube Growth Solutions</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/lustrous-frameworks-structuring-illumination-in-film-for-2024/"><u>Lustrous Frameworks Structuring Illumination in Film for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-indonesian-salutations-quickly/"><u>Mastering Indonesian Salutations Quickly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-treats-guide-child-health-champion-in-2017s-top-apps/"><u>Mondly Kids Treats Guide: Child Health Champion in 2017'S Top Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prominent-non-english-languages-in-american-institutions/"><u>Prominent Non-English Languages in American Institutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seamlessly-speak-spanish-17-versatile-colloquialisms/"><u>Seamlessly Speak Spanish: 17 Versatile Colloquialisms</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-gamers-crossroads-oculus-or-playstation-vr/"><u>The Ultimate Gamer’s Crossroads Oculus or PlayStation VR?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-mondlys-power-for-peak-performance/"><u>Unleash Mondly's Power for Peak Performance</u></a></li>
+</ul></div>
 

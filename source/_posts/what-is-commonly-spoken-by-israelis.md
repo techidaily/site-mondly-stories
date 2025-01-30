@@ -1,7 +1,7 @@
 ---
 title: What Is Commonly Spoken by Israelis?
-date: 2024-09-16T18:33:54.432Z
-updated: 2024-09-21T19:28:00.381Z
+date: 2025-01-23T21:50:27.617Z
+updated: 2025-01-29T17:56:37.485Z
 tags:
   - speak
   - english
@@ -20,11 +20,19 @@ thumbnail: https://thmb.techidaily.com/a0ef80ac09da601c17c19d2364d2f47007347e6d2
 
  Following a tumultuous and often violent history, the nation of Israel now has a [population](https://en.wikipedia.org/wiki/Israel#Demographics) of more than 9 million people. Out of this, 74.2% are Jews, 20.9% Arabs and 4.8% are Christians and people who have no religion listed in the civil registry. Despite the cultural diversity, almost the entire population speaks Hebrew, the country’s official language, either as a first or second language. However, this is not the full story of the languages of Israel. Let’s take a closer look at the country’s current linguistic landscape.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Israel language mosaic – what language is spoken in Israel?
 
  **Hebrew is the everyday and official language of Israel and roughly everyone speaks it, but the Arab minority which accounts for about one-fifth of the population, also speaks Arabic. Additionally, a high percentage of Israelis know English and over a million of them speak Russian as a result of immigration from the Soviet Union.**
 
  Although Hebrew can be seen and heard everywhere, Israel’s laws are officially published in Arabic and English as well. The same is true for most road signs, food labels, medicine brochures, safety regulations and messages published by the government.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hebrew
 
@@ -33,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/a0ef80ac09da601c17c19d2364d2f47007347e6d2
  What’s fascinating about [Hebrew](https://books.google.ro/books?id=EZCgpaTgLm0C&pg=PA1&redir%5Fesc=y#v=onepage&q&f=false) is that it ceased to be an everyday spoken language somewhere between the 2nd and 4th century CE. During the medieval period it survived only as a sacred language of Jewish liturgy and rabbinic literature. But then, toward the end of the 19th century and into the 20th century, with the rise of Zionism, it was revived as a spoken and literary language. Its renaissance is considered by many a linguistic miracle.
 
  Modern Hebrew is what you’ll hear on [the streets of Israel](https://link.springer.com/referenceworkentry/10.1007%2F978-3-030-02438-3%5F125) (and what you can [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5614&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he) ) and premodern Hebrew is now used only for prayer or study in Jewish communities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Arabic
 
@@ -45,10 +57,7 @@ thumbnail: https://thmb.techidaily.com/a0ef80ac09da601c17c19d2364d2f47007347e6d2
  “Dome of the Rock, Jerusalem, Israel” by Stacey Franco©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Russian
@@ -58,6 +67,10 @@ thumbnail: https://thmb.techidaily.com/a0ef80ac09da601c17c19d2364d2f47007347e6d2
  Apart from the fact that the government and businesses often provide information in Russian as well, there is also an Israeli television broadcast channel in Russian. Naturally, Russian immigrants and their children speak Hebrew, but the majority of them still use Russian with family and friends.
 
 So, as you can see, Russian is surprisingly widespread in Israel.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Other languages
 
@@ -77,13 +90,6 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Speak Hebrew or Arabic fluently in just 10 minutes a day
 
@@ -108,5 +114,16 @@ So, as you can see, Russian is surprisingly widespread in Israel.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-new-era-of-racing-vr-bike-selection-guide/"><u>[New] New Era of Racing VR Bike Selection Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-ultimate-screen-recorders-handbook-by-zd-soft-professionals/"><u>[New] The Ultimate Screen Recorder’s Handbook by ZD Soft Professionals</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-perfecting-live-social-media-facebook-livestream-tutorials-for-tech/"><u>2024 Approved Perfecting Live Social Media Facebook Livestream Tutorials for Tech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lure-and-lovesickness-through-french-phrases/"><u>Lure and Lovesickness Through French Phrases</u></a></li>
+<li><a href="https://discover-data.techidaily.com/mastering-pc-speaker-settings-a-comprehensive-tutorial-by-yl-software/"><u>Mastering PC Speaker Settings: A Comprehensive Tutorial by YL Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-into-the-future-meet-an-advanced-ai-partner/"><u>Step Into the Future: Meet an Advanced AI Partner</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-best-language-app-mondlys-acclaimed-journey/"><u>The Best Language App : Mondly’s Acclaimed Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timeless-lines-everyday-words-from-the-bards-vocabulary/"><u>Timeless Lines: Everyday Words From the Bard's Vocabulary</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-oppo-reno-11-pro-5g-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Oppo Reno 11 Pro 5G Users</u></a></li>
+</ul></div>
 

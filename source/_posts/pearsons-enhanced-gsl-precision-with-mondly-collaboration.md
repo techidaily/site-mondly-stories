@@ -1,7 +1,7 @@
 ---
 title: Pearson's Enhanced GSL Precision with Mondly Collaboration
-date: 2024-09-15T17:58:50.815Z
-updated: 2024-09-21T19:51:28.870Z
+date: 2025-01-27T01:43:55.059Z
+updated: 2025-01-29T19:47:33.860Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/f47c079fa1fce90a8221b9c2c003a393b4231e2fb
 
  The Global Scale of Languages (GSL) helps educators and language learners know where they are, where they need to go and how they can get there.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Starting with the Global Scale of English (GSE)**
 
  Before we delve deeper into the GSL, it’s crucial to understand its roots: the GSE.
@@ -29,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/f47c079fa1fce90a8221b9c2c003a393b4231e2fb
  The Global Scale of English (GSE) is not just another language framework; it’s an evolution in understanding linguistic proficiency.
 
  Unlike other frameworks that describe language proficiency in broad bands, the GSE offers a finely-grained scale. It identifies what a learner can accomplish at each point across speaking, listening, reading, and writing skills. This unique approach motivates learners by offering a more detailed view of their progression.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Introducing the Global Scale of Languages (GSL)**
 
@@ -38,15 +46,16 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **How Pearson created the GSL**
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Why the GSL stands out**
@@ -75,10 +84,7 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Fast-track your progress with Mondly by Pearson**
@@ -100,5 +106,17 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-a-step-by-step-approach-to-mastering-the-background-eraser-tool/"><u>[New] A Step-by-Step Approach to Mastering the Background Eraser Tool</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-quicksnap-win10-recording-master/"><u>[Updated] 2024 Approved QuickSnap Win10 Recording Master</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-direct-screen-capture-chrome-os-tool/"><u>[Updated] In 2024, Direct Screen Capture Chrome OS Tool</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-navigating-mac-preview-with-ease-ultimate-guide/"><u>2024 Approved Navigating Mac Preview with Ease Ultimate Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lexicon-origins-shakespearean-words-in-modern-chatter/"><u>Lexicon Origins: Shakespearean Words in Modern Chatter</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/orators-oasis-premier-training-for-verbal-proficiency/"><u>Orator’s Oasis: Premier Training for Verbal Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pioneering-filters-the-mondly-pearson-collaboration/"><u>Pioneering Filters: The Mondly-Pearson Collaboration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-policy-just-updated/"><u>Privacy Policy Just Updated</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ssential-checklist-for-yt-creator-mastery-for-2024/"><u>The Essential Checklist for YT Creator Mastery for 2024</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/1728504212739-windows-10-5/"><u>Windows 10 失去系统还原点 - 探索5种修复手段</u></a></li>
+</ul></div>
 

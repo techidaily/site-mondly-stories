@@ -1,7 +1,7 @@
 ---
 title: Speedy Fluency in Secondary Communication
-date: 2024-09-18T17:59:26.144Z
-updated: 2024-09-21T18:16:36.172Z
+date: 2025-01-22T22:46:51.834Z
+updated: 2025-01-30T01:04:55.309Z
 tags:
   - speak
   - english
@@ -40,6 +40,10 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  The reason behind this “trick” is that the**most common 1000 words account for 75% of all spoken communication** , while the**most common 3000 words account for 85% of it** . If this doesn’t feel real, just ask yourself if you know and use all the words in your mother tongue. You will soon realize that the answer is “no”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Use mnemonics
 
  I know this sounds complicated, but you may have used this learning tactic before when repetition alone wasn’t enough.
@@ -64,6 +68,10 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  Use this information in your own best interest and**learning a new language** can happen a lot faster than you think.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Train your ears and muscles for the new language
 
  When one of my friends moved to Denmark to study computer science, her biggest problem was learning Danish. Classes didn’t help much. Four months later and she still didn’t have a clue about the Danish language and its mysterious ways. So, she started learning by herself using language learning apps – like [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-1322&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1322&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-1322) – and other learning strategies that I have shared with her.
@@ -71,13 +79,6 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
  The first step was to train her speech muscles in order to master pronunciation. You won’t believe it, but that was exactly like going to the gym. My friend’s mother tongue is Romanian. Naturally, the Danish language uses different speech muscles that begin to hurt when you first start practicing. In other words, we call this muscle soreness, but who would have thought that you could get it from**speaking another language** ? It’s funny but also true for my friend!
 
  Therefore, it’s always necessary to train your speech muscles and ears. Any foreign language may sound weird in the beginning. The secret is to hold on to it and exercise with common sounds until it becomes familiar.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Study pronunciation rules and practice
 
@@ -88,19 +89,6 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
  Besides, if you master pronunciation, you can start speaking faster. It’s a win-win situation.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Tips And Techniques For Fast And Effective Language Learning 7")
-
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Best way to learn a language?
 
@@ -115,10 +103,7 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
  People often claim that speaking in another language changes your personality. The process resembles the idea of having an alter ego. If this works the same for you, let your foreign language alter ego speak. It may be frustrating in the beginning, but it’s super-efficient.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. Enjoy local movies and music
@@ -132,16 +117,7 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
  Just as effective,[music will give a new perspective on the language you’re learning](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Learn the lyrics, sing along and enjoy one of the best ways to learn a language.
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Read only what matters
@@ -166,14 +142,11 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
 !['Learning a new language' by Sam Lion©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/learning-a-new-language-960x620.jpg "Tips And Techniques For Fast And Effective Language Learning 9")
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  So what’s to be done? The cheapest way is to create an immersion environment at home. Basically, apply all the above-mentioned tips at once. Surround yourself with books in the language you want to learn, listen to music, learn the lyrics and sing along, read books and articles in your target language – everything all at once. The idea is to bring the new language into your environment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Bonus tip: Stay optimistic
 
@@ -200,6 +173,10 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### From 0 to conversational fast
 
@@ -230,5 +207,16 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-elevating-your-medical-ad-game-secrets-to-success-on-facebook/"><u>[New] Elevating Your Medical Ad Game Secrets to Success on Facebook</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-lava-blaze-2-5g-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Lava Blaze 2 5G Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fixing-sm-bus-controllers-on-win1011/"><u>Fixing SM Bus Controllers on WIN10/11</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-capturing-every-victory-pro-gaming-tips-for-w11-users/"><u>In 2024, Capturing Every Victory Pro Gaming Tips for W11 Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-agility-6-benefits-for-a-multilingual-life/"><u>Linguistic Agility: #6 Benefits for a Multilingual Life</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/milestones-achieved-mondlybacks-filters-in-the-decade/"><u>Milestones Achieved: MondlyBack's Filters in the Decade</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/obs-studio-masterclass-for-ps4-screen-capture/"><u>Obs Studio Masterclass for PS4 Screen Capture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapid-czech-acquisition-strategies-web-based/"><u>Rapid Czech Acquisition Strategies, Web-Based</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saudacoes-em-portugues-todas-as-avispasidades-da-bencao/"><u>Saudações Em Português: Todas as Avispasidades Da Bênção</u></a></li>
+</ul></div>
 

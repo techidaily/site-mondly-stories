@@ -1,7 +1,7 @@
 ---
 title: Compreender Expressões Do Carinho No Português
-date: 2024-09-11T20:02:25.276Z
-updated: 2024-09-16T19:20:40.421Z
+date: 2025-01-24T00:56:35.585Z
+updated: 2025-01-29T19:36:40.256Z
 tags:
   - speak
   - english
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/de7e32da454b1a64d1a9e174bd2f0af6c1c09ee74
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
@@ -35,6 +39,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  Friendly and very informal,_Oi!_ is one of the most common ways to greet your friends in Brazil (people from Portugal use it as well, but not as much as_olá)_ . This is how you could greet your mates and close colleagues, but never the people you don’t really know. Don’t stress it tough! When the time comes, you will feel and just know what’s the required Portuguese greeting for that particular situation.
 
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Lisbon, Portugal” by Diego García©
 
@@ -68,10 +76,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  All three of these are safe to use in any kind of interaction (formal or informal).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
@@ -89,10 +94,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
@@ -121,19 +123,16 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
 
@@ -164,5 +163,24 @@ _Olá_ is the best choice for most social situations regardless of the person yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-achieving-comprehensive-participant-visualization-on-meet/"><u>[New] 2024 Approved Achieving Comprehensive Participant Visualization on Meet</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-digital-disarmament-regaining-fb-power/"><u>[New] 2024 Approved Digital Disarmament Regaining FB Power</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-locating-and-unveiling-your-personalized-melodic-repository-on-youtube/"><u>[New] 2024 Approved Locating and Unveiling Your Personalized Melodic Repository on Youtube</u></a></li>
+<li><a href="https://games-able.techidaily.com/discover-next-gen-displays-ifa-2023s-prowess/"><u>Discover Next-Gen Displays - IFA 2023'S Prowess</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-fix-the-remote-device-or-resource-wont-accept-the-connection-on-windows/"><u>How to Fix The Remote Device or Resource Won’t Accept the Connection on Windows</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/implementing-luts-in-photoshop-cs6cc-an-in-depth-analysis-for-2024/"><u>Implementing LUTs in Photoshop CS6/CC An In-Depth Analysis for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridge-salutations-across-nations/"><u>Language Bridge: Salutations Across Nations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-in-flux-popular-slang-words-and-their-meanings/"><u>Language in Flux: Popular Slang Words and Their Meanings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-playfully-unlocked-through-education/"><u>Latin Playfully Unlocked Through Education</u></a></li>
+<li><a href="https://os-tips.techidaily.com/mastering-mobile-payments-on-windows-with-the-official-dearmob-security-guide/"><u>Mastering Mobile Payments on Windows with the Official DearMob Security Guide</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimizing-web-pages-for-maximum-search-engine-visibility/"><u>Optimizing Web Pages for Maximum Search Engine Visibility</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhythmic-recall-enhancing-memory-with-musical-language-lessons/"><u>Rhythmic Recall: Enhancing Memory with Musical Language Lessons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/secrets-for-successful-linguistic-assessments/"><u>Secrets for Successful Linguistic Assessments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-dance-of-dialogues-across-dialectal-divides/"><u>The Dance of Dialogues Across Dialectal Divides</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/traveling-to-israel-tips-and-phrases-for-your-trip/"><u>Traveling To Israel? Tips And Phrases For Your Trip</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/ultimate-list-of-the-8-greatest-mobile-video-games/"><u>Ultimate List of the 8 Greatest Mobile Video Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-future-of-user-assistance-with-mondlys-qanda-update/"><u>Unveiling the Future of User Assistance with Mondly’s Q&A Update</u></a></li>
+</ul></div>
 

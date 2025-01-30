@@ -1,7 +1,7 @@
 ---
 title: "Vielschichtigkeit Der Sprache: Deutsche Begrüßungen, Die Nicht Hallo Lauten"
-date: 2024-09-19T17:57:37.501Z
-updated: 2024-09-21T18:53:29.204Z
+date: 2025-01-22T23:23:12.274Z
+updated: 2025-01-30T02:11:53.410Z
 tags:
   - speak
   - english
@@ -52,6 +52,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -59,13 +63,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Literally meaning “how does it go to you?”,_wie geht es dir?_ is an informal way of asking your friend how are things going. If you want to move up the formality scale, you can use the formal_wie geht es Ihnen_ ._Dir_ and_Ihnen_ both mean ‘you’, but unlike English, German uses formal and informal pronouns.
 
  If you want to be as word-efficient as a native, you can also just say the shortened_wie geht’s?_ version.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Alles klar? – “Everything alright?”
 
@@ -82,15 +79,16 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
 
@@ -110,10 +108,7 @@ _– Na._ (“Fine. Thanks!”)
 **Localization:** mostly northern Germany.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Moin moin – “Hi”
@@ -130,13 +125,6 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
 
 **Localization:** Switzerland.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Grüß Gott – “God bless you”
 
  Mainly used by the older generations,_Grüß Gott_ is a very formal greeting that literally means “greetings (from) God” or “God greets you”.
@@ -144,6 +132,10 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
  A variation of this is_Grüß dich,_ which can be interpreted as “greetings to you”. This one is less formal, but it is still mostly used by seniors.
 
 **Localization:** Bavaria (south-eastern Germany) and Austria.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Servus – “At your service”
 
@@ -191,5 +183,24 @@ _Tschüss!_ (‘Goodbye!’)
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-navigating-networks-generating-social-media-sensations/"><u>[New] In 2024, Navigating Networks Generating Social Media Sensations</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-television-archive-advanced-techniques-for-online-streams-for-2024/"><u>[New] Television Archive Advanced Techniques for Online Streams for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-a-comprehensive-guide-to-penning-appealing-vlog-narratives/"><u>[Updated] A Comprehensive Guide to Penning Appealing Vlog Narratives</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-essential-checklist-archiving-internet-music-with-ease/"><u>[Updated] The Essential Checklist Archiving Internet Music with Ease</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-stars-in-the-outer-worlds-an-epic-sci-fi-rpg-combining-fun-storytelling-and-intense-action/"><u>Exploring the Stars in 'The Outer Worlds': An Epic Sci-Fi RPG Combining Fun Storytelling and Intense Action</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-gratitude-for-american-birthday/"><u>Global Gratitude for American Birthday</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-tecno-spark-10c-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Tecno Spark 10C To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Motorola G24 Power? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/iberian-language-puzzle-solving-spanish-and-portuguese-distinctions/"><u>Iberian Language Puzzle: Solving Spanish and Portuguese Distinctions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-contractions-a-comprehensive-walkthrough/"><u>Mastering English Contractions: A Comprehensive Walkthrough</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rediscovering-the-original-forms-of-human-speech/"><u>Rediscovering the Original Forms of Human Speech</u></a></li>
+<li><a href="https://discover-great.techidaily.com/ssd-schijven-fabricatie-hoe-je-eigen-schone-data-herhaalt-op-snelle-wijze/"><u>SSD Schijven Fabricatie: Hoe Je Eigen Schone Data Herhaalt Op Snelle Wijze!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-shared-language-puzzle-of-anatolia-and-hanguk/"><u>The Shared Language Puzzle of Anatolia & Hanguk</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-vietnamese-dialogue/"><u>The Ultimate Guide to Vietnamese Dialogue</u></a></li>
+<li><a href="https://driver-download.techidaily.com/troubleshooting-and-resolving-errors-with-your-lg-devices-usb-drivers-on-windows-operating-systems/"><u>Troubleshooting and Resolving Errors with Your LG Device's USB Drivers on Windows Operating Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-secrets-of-successful-portuguese-learning-strategies/"><u>Unveiling the Secrets of Successful Portuguese Learning Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/poiothta-eygnwmwn-klisma-gkreman/"><u>Ποιότητα Ευγνώμων Κλίσμα Γκρεμάν</u></a></li>
+</ul></div>
 

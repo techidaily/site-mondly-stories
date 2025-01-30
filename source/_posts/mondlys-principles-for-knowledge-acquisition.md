@@ -1,7 +1,7 @@
 ---
 title: Mondly's Principles for Knowledge Acquisition
-date: 2025-01-21T16:45:46.865Z
-updated: 2025-01-22T16:05:23.040Z
+date: 2025-01-22T22:47:40.545Z
+updated: 2025-01-29T19:57:55.505Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Minimum effort, maximum results
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lexical coverage: focus on the most common words
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lexical coverage overview
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
@@ -102,22 +102,14 @@ thumbnail: https://thmb.techidaily.com/e7e8dd516afa1923591eaf41c5af1b183e6c455af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-m1-macbook-air-video-editors-dream-machine/"><u>[New] M1 MacBook Air Video Editor's Dream Machine?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-perfecting-online-presence-screen-sharing-techniques-for-2024/"><u>[New] Perfecting Online Presence Screen Sharing Techniques for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-ultimate-guide-how-to-download-podcasts-on-iphone/"><u>[New] Ultimate Guide How to Download Podcasts on iPhone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-the-professionals-guide-to-innovative-360-cams-2023/"><u>2024 Approved The Professionals’ Guide to Innovative 360° Cams, 2023</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/4-reasons-why-you-should-learn-a-language-in-your-fortiesback-buttonfilter-button/"><u>4 Reasons Why You Should Learn A Language In Your FortiesBack ButtonFilter Button</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerated-learning-lithuanias-language-online/"><u>Accelerated Learning: Lithuania's Language Online</u></a></li>
-<li><a href="https://win-dash.techidaily.com/amd-drivers-at-your-fingertips-quick-and-effortless-auto-installation-guide/"><u>AMD Drivers at Your Fingertips - Quick and Effortless Auto-Installation Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/basic-guide-to-french-language-sounds-and-rhythms/"><u>Basic Guide to French Language Sounds and Rhythms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparing-iberian-romance-spains-spanish-and-portugals-portuguese/"><u>Comparing Iberian Romance: Spain's Spanish and Portugal's Portuguese</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/corporate-language-training-for-business-success-top-5-tips-to-enhance-communication-skills/"><u>Corporate Language Training for Business Success: Top 5 Tips to Enhance Communication Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/croatias-dominant-dialect/"><u>Croatia's Dominant Dialect</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/echoing-voices-for-educators-in-multilingual-praise/"><u>Echoing Voices for Educators in Multilingual Praise</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embark-on-an-enlightening-journey-in-hindi-top-8-reasons-to-select-mondlys-learning-platform/"><u>Embark on an Enlightening Journey in Hindi: Top 8 Reasons to Select Mondly's Learning Platform</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Samsung Galaxy F54 5G? | Dr.fone</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/top-5-tracking-apps-to-track-apple-iphone-8-plus-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>Top 5 Tracking Apps to Track Apple iPhone 8 Plus without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ate-streaming-hits-for-movie-lovers/"><u>Ultimate Streaming Hits for Movie Lovers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-understanding-what-makes-a-comment-noteworthy-on-youtube/"><u>[New] Understanding What Makes a Comment Noteworthy on YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/como-decir-dias-del-mes-en-espanol/"><u>Cómo Decir 'Días Del Mes' En Español</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-4-things-you-must-know-about-apple-iphone-12-mini-activation-lock-by-drfone-ios/"><u>In 2024, 4 Things You Must Know About Apple iPhone 12 mini Activation Lock</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-polska-accelerated-learning/"><u>Mastering Polska: Accelerated Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mixed-language-acquisition-method/"><u>Mixed-Language Acquisition Method</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/premium-kostenloses-software-zur-schutz-und-wiederherstellung-der-windows-sicherheit-freeware-fuhrende-losungen-zum-schutzen-and-wiederherstellen-in-windows37/"><u>Premium Kostenloses Software Zur Schutz Und Wiederherstellung Der Windows #Sicherheit: Freeware Führende Lösungen Zum Schützen & Wiederherstellen in Windows 7</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/proficiency-in-global-communication-german-or-french/"><u>Proficiency in Global Communication: German Or French?</u></a></li>
+<li><a href="https://win-news.techidaily.com/techniques-pour-securiser-votre-cle-usb-contre-les-virus-guide-pratique/"><u>Techniques Pour Sécuriser Votre Clé USB Contre Les Virus - Guide Pratique</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unraveling-style-and-smart-choices-the-definitive-guide-to-the-michael-kors-access-gen-5e/"><u>Unraveling Style and Smart Choices: The Definitive Guide to the Michael Kors Access Gen 5E</u></a></li>
 </ul></div>
 

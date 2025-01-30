@@ -1,7 +1,7 @@
 ---
 title: "Navigating Non-Verbal Nuances: Italian Gestures"
-date: 2025-01-19T18:04:14.827Z
-updated: 2025-01-22T17:47:21.814Z
+date: 2025-01-23T03:19:43.182Z
+updated: 2025-01-30T02:43:55.997Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 
  For example, did you know that Italians use about 250 hand gestures on a daily basis? And no, that’s not a typo. Italians’ hands don’t like to keep still. However, only a handful_(wink)_ of these are [essential to most Italian](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) conversations. And even though it’s not entirely correct, many online charts combine together both popular and obscure gestures. For this reason, I took it upon myself to make**the real top 10 most popular Italian gestures** – a top that includes only signs or gestures that Italians use regularly.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Italian hand gestures meaning and usage
 
  The following Italian gestures are the key to a better understanding of colloquial Italian. To help you fully comprehend their meaning, I also included their origin and the proper context in which they should be used. Let’s start with the least popular gesture and build our way up to the most popular one.
@@ -36,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 
 ![are you afraid italian gesture](https://edge.mondly.com/blog/wp-content/uploads/2022/01/are-you-afraid-italian-gesture-960x833.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 12")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The ‘Are you afraid?’ gesture
 
 **When to do it:** when you challenge someone to do something dangerous or when someone is afraid to do something and you want to tease them.
@@ -44,15 +44,15 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 
 **Origin:** funnily enough, the most common theory could be considered inappropriate and I shall not disclose it here. Google is a big place, though. I’m sure you’ll manage 🤭.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\. The “stealing” gesture
 
 **How to do it:** lower the palm and move all your fingers towards the palm, starting with the little finger and finishing with the index while also slowly moving the wrist.
 
 ![stealing sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/stealing-sign-960x831.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 13")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The ‘stealing’ gesture
 
@@ -84,25 +84,21 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 
 ![prayer clasp](https://edge.mondly.com/blog/wp-content/uploads/2022/01/prayer-clasp-960x729.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 15")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The ‘prayer clasp’
 
 **What to say:** _Ti prego!_ (“Oh, please!”),_Ma dai!_ (“Come on!”),_Ma fammi il piacere!_ (“Be serious!”)
 
 **Origin:** you are basically praying or hoping for something to happen or someone to stop doing something. It’s a very common gesture. The word ‘please’ in Italian is translated with_(ti) prego_ which literally means “I pray”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. The “I don’t know” hands
 
 **How to do it:** open your arms and show both palms usually while also raising your shoulders.
 
 ![i don't know italian gesture](https://edge.mondly.com/blog/wp-content/uploads/2022/01/i-dont-know-italian-gesture-960x785.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 16")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The ‘I don’t know’ gesture
 
@@ -111,6 +107,10 @@ thumbnail: https://thmb.techidaily.com/4552dd09d3248cdc2d2f0b5a8866485e28d07f676
 **What to say:** _Io non c’entro (niente), boh!_ (“I got nothing to do with it!”),_Io non ne so niente!_ (“I know nothing!”),_Non lo so_ (“I know nothing”),_E che ne so io?_ (“what do I know?”)
 
 **Origin:** showing the palms of both hands symbolizes a person who has nothing to hide.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. The outstretched arm
 
@@ -128,6 +128,10 @@ This is a pretty common gesture among angry drivers and football players.
 
 **Origin:** we can’t know for sure, but it probably refers to an unspecified direction where you want the person talking to you to go (so he/she will leave you alone).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. The “I don’t care” gesture (the ‘chin flick’)
 
  This gesture generally means “get lost” in Northern Italy, whereas in Southern Italy, it simply means “no”.
@@ -135,6 +139,10 @@ This is a pretty common gesture among angry drivers and football players.
 **How to do it:** flatten all your fingers with the palm facing your body and flick them out from under your chin with indifference.
 
 ![chin flick](https://edge.mondly.com/blog/wp-content/uploads/2022/01/chin-flick-960x942.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 18")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The ‘chin flick’
 
@@ -163,10 +171,6 @@ This is a pretty common gesture among angry drivers and football players.
 
 **Origin:** several [sources](https://www.ipersoap.com/2019/11/04/il-vero-significato-e-lorigine-di-alcuni-dei-gesti-piu-diffusi/) agree that the horns are theoretically pointed toward bad luck the same way an animal would strike something with its horns.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. The “get out” gesture
 
 **How to do it:** Flatten all fingers but the thumb, keep your wrist steady and move your other hand up and down at least 3 times (it should be a 90-degree movement). Be careful, though: if done very energetically and accompanied by an angry face, this gesture could be considered rude.
@@ -174,6 +178,10 @@ This is a pretty common gesture among angry drivers and football players.
  Additionally, you can also use the other hand to tap the one with the four flattened fingers, or you can raise the entire arm while keeping the four fingers flattened. These variants emphasize the gesture even further, but they could be considered offensive.
 
 ![get out sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/get-out-sign-960x738.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 20")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The ‘let’s get out of here’ gesture
 
@@ -191,10 +199,6 @@ This is a pretty common gesture among angry drivers and football players.
 
 ![finger purse](https://edge.mondly.com/blog/wp-content/uploads/2022/01/finger-purse-960x720.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 21")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The ‘finger purse’ gesture
 
 **When to do it:** when the person you’re talking to says something silly or asks you to do something stupid or dangerous.
@@ -202,10 +206,6 @@ This is a pretty common gesture among angry drivers and football players.
 **What to say:** _Ma cosa stai dicendo?_ (“What are you talking about?”),_Ma cosa vuoi \[da me\]?_ (“What do you want \[from me\]?”),_Dici sul serio?_ (“Are you serious?”) and actually many more.
 
 **Origin:** no one knows, but the most common theory is that the hand is trying to grab something but fails to do so. This symbolizes a person who tries to grasp a meaning but can’t.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why do Italians talk with their hands?
 
@@ -219,7 +219,7 @@ The rest is history.
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in Italian
@@ -254,18 +254,24 @@ The rest is history.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-honor-x9b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Honor X9b | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beginners-primer-on-turkey-written-and-spoken-language-patterns/"><u>Beginner's Primer on Turkey' Written & Spoken Language Patterns</u></a></li>
-<li><a href="https://games-able.techidaily.com/changing-the-lingual-basis-in-steam-ui/"><u>Changing the Lingual Basis in Steam UI</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/chinese-alphabet-introduction-to-chinese-letters/"><u>Chinese Alphabet: Introduction To Chinese Letters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/converse-with-confidence-in-italy-the-essential-phrases-list/"><u>Converse with Confidence in Italy: The Essential Phrases List</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/descubrimiento-divertido-del-cuerpo-humano-en-espanol-del-pelo-al-rinon/"><u>Descubrimiento Divertido Del Cuerpo Humano en Español: Del Pelo Al Riñón</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/difficulty-levels-studying-german/"><u>Difficulty Levels: Studying German</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-realme-gt-5-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Realme GT 5 Pattern Lock Screen</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-how-to-facetime-with-your-android-phone/"><u>In 2024, How To Facetime with Your Android Phone ?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/key-reasons-im-holding-off-on-the-new-m4-mac-mini-in-favor-of-the-revolutionary-mac-studio-insights-from-zdnet/"><u>Key Reasons I'm Holding Off on the New M4 Mac Mini in Favor of the Revolutionary Mac Studio - Insights From ZDNet</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581844423-mondly-kids-edition-smart-filter-feature-2017/"><u>Mondly Kid's Edition: Smart Filter Feature, 2017!</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/quick-fix-guide-mending-glitched-gaming-detection-on-pc-discord/"><u>Quick Fix Guide: Mending Glitched Gaming Detection on PC Discord</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/ultimate-guide-to-free-hd-video-downloaders-secure-reliable-and-easy-to-use-software-options/"><u>Ultimate Guide to FREE HD Video Downloaders – Secure, Reliable & Easy to Use Software Options!</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-elite-video-call-and-chat-service-selections/"><u>[New] Elite Video Call & Chat Service Selections</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-easy-steps-to-the-top-gaming-video-editing-programs/"><u>[Updated] 2024 Approved Easy Steps to the Top Gaming Video Editing Programs</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-engaging-audiences-with-smart-instavideo-marketing-tactics/"><u>[Updated] 2024 Approved Engaging Audiences with Smart InstaVideo Marketing Tactics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamlined-collaborations-amplifying-your-video-impact/"><u>[Updated] Streamlined Collaborations Amplifying Your Video Impact</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-easy-guide-moving-tunes-from-pc-or-mac-to-your-new-iphone-1415/"><u>1. Easy Guide: Moving Tunes From PC or Mac to Your New iPhone (14/15)</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>10 Best Fake GPS Location Spoofers for Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-chaos-unleashed-to-organized-oasis-edit-your-hefty-tiktoks/"><u>2024 Approved From Chaos Unleashed to Organized Oasis Edit Your Hefty TikToks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/anatomie-introductive-les-differentes-parties-corporelles-en-francais/"><u>Anatomie Introductive: Les Différentes Parties Corporelles en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bitten-ohne-respekt-aussprechen-alternativen-in-deutsch/"><u>Bitten Ohne Respekt Aussprechen – Alternativen in Deutsch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-comprehensive-guide-to-linguistic-immersion/"><u>Bridging Cultures: Comprehensive Guide to Linguistic Immersion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/byzantine-babel-tracing-the-transformation-of-greek/"><u>Byzantine Babel: Tracing the Transformation of Greek</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-diversity-top-reasons-to-learn-a-new-tongue-in-your-golden-years/"><u>Embrace Diversity: Top Reasons to Learn a New Tongue in Your Golden Years</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-communication-starts-with-you-10-whys-for-learning-another-language/"><u>Global Communication Starts with You: 10 Why's for Learning Another Language?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ideal-danish-films-to-practice-danish-speech/"><u>Ideal Danish Films to Practice Danish Speech</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/programa-de-imagens-daisy-disk-v40-em-compatibilidade-com-windows-1111-versao-aberta-e-gratuita/"><u>Programa De Imagens Daisy Disk V4.0 Em Compatibilidade Com Windows 11/11, Versão Aberta E Gratuita</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-list-of-italian-greets-speak-with-warmth-and-ease/"><u>The Ultimate List of Italian Greets: Speak with Warmth and Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tongue-twisting-techniques-for-pronunciation-prowess/"><u>Tongue-Twisting Techniques for Pronunciation Prowess</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-apples-marketing-secret-the-reason-behind-the-absence-of-exclamation-points/"><u>Unveiling Apple's Marketing Secret: The Reason Behind the Absence of Exclamation Points!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/your-roadmap-for-seamless-tech-transitions/"><u>Your Roadmap for Seamless Tech Transitions</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Art of International Birthday Kudos
-date: 2025-01-17T17:40:20.586Z
-updated: 2025-01-22T16:07:01.724Z
+date: 2025-01-26T20:01:40.387Z
+updated: 2025-01-30T05:03:30.653Z
 tags:
   - speak
   - english
@@ -22,10 +22,6 @@ Different people in the world have different trends to celebrate birthdays, but 
 
 Have you ever thought about how people from other cultures sing birthday songs? Do they do it the same way we do it in English? What about gifts and cakes? How do they express emotions on a birthday? Do they use specific words? Let’s learn how other cultures say and commemorate birthdays!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Happy Birthday in Spanish: Feliz Cumpleaños**
 
 **Feliz Cumpleaños** are the [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) for **“Happy Completed Years”** or simply **“Happy Birthday”** since birthdays are considered a big day of celebration in most Spanish countries. “Feliz Cumpleaños amigo” is a commonly used phrase for wishing a happy birthday to your friends. The same as in Mexico, their popular unique birthday song is “Las Mañanitas“ meaning “Little Mornings“. The best and funniest part is that the birthday boy or girl must eat the first bite of the cake without using any utensils or hands. They have no custom of blowing out candles or making a wish. Yet, the party cannot ever finish without the famous piñata!
@@ -34,13 +30,13 @@ Have you ever thought about how people from other cultures sing birthday songs? 
 
 ![Happy Birthday in French Bon Anniversaire](https://edge.mondly.com/blog/wp-content/uploads/2018/12/Happy-Birthday-in-French-Bon-Anniversaire.png "How To Say &Quot;Happy Birthday&Quot; In Different Languages 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image source: <http://www.manutention-dauphine.fr>
 
 Joyeux Anniversaire or Bon Anniversaire are the standard ways to wish someone a happy birthday in French. But if you are speaking Canadian French or Quebec, you should say Bonne fête, meaning “Good party/Birthday”. French and English birthdays are often alike. Celebrations include party time, cake, gifts and songs like ‘Joyeux Anniversaire’. Most birthday parties are thrown on Wednesdays as French have their Wednesdays off.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Happy Birthday in Chinese:** **生日快** **乐** **(Shēngrì Kuàilè)**
 
@@ -49,7 +45,7 @@ Chinese culture has an interesting concept of birthday celebrations. Depending o
 If you’ll check the literal meaning of Shēngrì Kuàilè, you’ll see that it translates to “Birthday is Happy.”
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Happy Birthday in Russian: С днем рождения (S Dnem Rozhdeniya)**
@@ -57,16 +53,12 @@ If you’ll check the literal meaning of Shēngrì Kuàilè, you’ll see that i
 ![happy birthday in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-russian.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image source: <https://tops.ua>
 
 If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya”. And if you feel like memorizing a longer phrase, add “pozdravlyayu” in the start and it will transform to “I congratulate you on your birthday”. Russians have a funny tradition of celebrating. The guests pull the celebrated’s ears for a number of times equal to his or her age. The phrase “Grow up – don’t be noodles,” is considered as a sign of good omen for the growth of children. It means the child will grow up strong and healthy. Birthday songs are not common am0ng them, but if the person has survived after a severe accident, that day is celebrated as another birthday.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Happy Birthday in Dutch: Gefeliciteerd Met Je Verjaardag**
 
@@ -76,9 +68,17 @@ If you want to say “happy birthday” in Russian, you say “S Dnem Rozhdeniya
 
 ![happy birthday in swedish](https://edge.mondly.com/blog/wp-content/uploads/2018/12/happy-birthday-in-swedish.jpg "How To Say &Quot;Happy Birthday&Quot; In Different Languages 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image source: <https://trivselkort.com>
 
 “Grattis På Födelsedagen” is translated to “Birthday congratulations!” in Swedish. The Swedish culture has a lot of love for celebrating birthdays. They often surprise the celebrated with birthday gifts and breakfast in bed while singing “Ja, ma du leva” meaning “Yes, may you live”. Their traditional party has a cake coated in green marzipan with gifts wrapped in blue and gold sheets – the colors of the Swedish flag.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Happy Birthday in Hindi: जन्मदिन की शुभकामनाएं (Janmadin Kee Shubhakaamanaen)
 
@@ -121,14 +121,15 @@ Start using Mondly for free on your computer or tablet or, better yet, download 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-quick-guide-mastering-screenshot-and-screen-record-on-mac-for-2024/"><u>[New] Quick Guide Mastering Screenshot & Screen Record on Mac for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-ultimate-guide-to-virtual-reality-gaming-gear/"><u>2024 Approved Ultimate Guide to Virtual Reality Gaming Gear</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/amd-gpu-revival-suite-for-2024/"><u>AMD GPU Revival Suite for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beyond-earthly-words-discovering-the-multifaceted-languages-in-star-wars/"><u>Beyond Earthly Words: Discovering the Multifaceted Languages in Star Wars</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/demystifying-english-punctuation-getting-to-grips-with-contractions/"><u>Demystifying English Punctuation: Getting to Grips with Contractions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/digital-romance-language-learning/"><u>Digital Romance Language Learning</u></a></li>
-<li><a href="https://extra-information.techidaily.com/from-silence-to-sounds-windows-10-recorder-use/"><u>From Silence to Sounds Windows 10 Recorder Use</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Sony Xperia 5 V | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581347739-the-ultimate-guide-to-english-contractions/"><u>The Ultimate Guide to English Contractions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-embedding-youtube-videos-tips-for-a-smooth-ppt-transition/"><u>[New] 2024 Approved Embedding YouTube Videos Tips for a Smooth PPT Transition</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-expert-strategies-for-vocal-identity-on-instagram/"><u>[New] 2024 Approved Expert Strategies for Vocal Identity on Instagram</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-avoid-risks-secure-paths-to-get-gratis-vlc-for-mac-os-x/"><u>[Updated] Avoid Risks Secure Paths to Get Gratis VLC for Mac OS X</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-do-live-streaming-with-periscope/"><u>2024 Approved How to Do Live Streaming with Periscope</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-unique-thumbnails-for-youtube-content-for-2024/"><u>Crafting Unique Thumbnails for YouTube Content for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expanding-cultural-horizons-through-language-past-fifty/"><u>Expanding Cultural Horizons Through Language Past Fifty</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-secrets-to-fluent-afrikaans-in-just-7-strategic-steps/"><u>Mondly's Secrets to Fluent Afrikaans in Just 7 Strategic Steps</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-in-2024-best-10-hindi-video-translators-with-step-by-step-guidance/"><u>New In 2024, Best 10 Hindi Video Translators with Step-by-Step Guidance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578566177-revolutionary-3-language-schools-speak-new-words-effortlessly/"><u>Revolutionary 3 Language Schools: Speak New Words, Effortlessly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-neurological-ease-of-kids-learning-new-linguistics/"><u>The Neurological Ease of Kids Learning New Linguistics</u></a></li>
 </ul></div>
 

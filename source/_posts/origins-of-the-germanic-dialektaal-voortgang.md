@@ -1,7 +1,7 @@
 ---
 title: Origins of the Germanic Dialektaal Voortgang
-date: 2025-01-20T16:58:44.106Z
-updated: 2025-01-22T18:00:25.827Z
+date: 2025-01-26T01:34:37.617Z
+updated: 2025-01-29T17:49:56.464Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/19cc3daca0ae766efaf5a0d940f51eeacf8f63806
 
 **The Dutch people are from the Netherlands.** As unrelated as that may seem, there is a whole history to it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why are Dutch people called Dutch?
 
  It seems that the confusion stems from the English-speaking people and the reason can be found by studying **the [etymology](https://www.etymonline.com/word/dutch) of the word ‘dutch’** . I won’t bore you with all the details, but the bottom line is that in the late 14th century the word referred to ‘a German language’ or to ‘German, non-Scandinavian continental Germanic’. Additionally, the word corresponds to the Old English adjective_þeodisc_ (‘belonging to the people’) which was used to refer to the common language of Germanic people (as opposed to Latin).
@@ -42,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/19cc3daca0ae766efaf5a0d940f51eeacf8f63806
 
  So where exactly in Western Europe is the Netherlands? The country borders Germany to the east,[Belgium](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to the south, and the North Sea to the northwest. Its largest city and capital is Amsterdam.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The Netherlands vs Holland
 
 Okay, bare with me. There’s more.
@@ -55,7 +55,7 @@ Okay, bare with me. There’s more.
 ![netherlands vs holland](https://edge.mondly.com/blog/wp-content/uploads/2022/02/netherlands-vs-holland.png "Where Are Dutch People From? Discover The Dutch Language 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The Netherlands vs Holland
@@ -65,7 +65,7 @@ Okay, bare with me. There’s more.
  Formerly the County of Holland (the most important county in the Low Countries region), Holland now consists of North and South Holland. These are two of the nation’s twelve provinces.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What language do they speak in the Netherlands?
@@ -83,10 +83,14 @@ Okay, bare with me. There’s more.
 ![language in the netherlands](https://edge.mondly.com/blog/wp-content/uploads/2022/02/language-in-the-netherlands-960x573.jpg "Where Are Dutch People From? Discover The Dutch Language 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  ‘Tulip fields in the Netherlands’ by redcharlie©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What other countries speak Dutch?
 
@@ -108,10 +112,6 @@ Okay, bare with me. There’s more.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Start learning Dutch today
 
@@ -142,18 +142,19 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-spin-innovator-pack/"><u>[New] Spin Innovator Pack</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-world-in-words-why-learn-another-tongue/"><u>A World in Words: Why Learn Another Tongue?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-teaching-aid-top-5-language-learning-mobile-apps/"><u>Best Teaching Aid: Top 5 Language Learning Mobile Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-with-words-immersion-techniques-demystified/"><u>Breaking Barriers with Words: Immersion Techniques Demystified</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cognitive-conditioning-for-quick-quality-linguistic-proficiency/"><u>Cognitive Conditioning for Quick, Quality Linguistic Proficiency</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/expert-critique-is-the-sony-65-inch-4k-oled-model-xb930f-worth-its-price/"><u>Expert Critique: Is the Sony 65-Inch 4K OLED (Model XB930F) Worth Its Price?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ss-thumbnails-for-epic-battle-royale-for-2024/"><u>Express Thumbnails for Epic Battle Royale for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/find-out-if-chatgpt-is-offline/"><u>Find Out if ChatGPT Is Offline</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/giggle-gang-exploring-the-best-memetic-apps/"><u>Giggle Gang Exploring the Best Memetic Apps</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/huawei-nova-y91-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Huawei Nova Y91 Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-optimized-storage-analysis-how-many-videos-on-a-64128gb-drive/"><u>In 2024, Optimized Storage Analysis How Many Videos on a 64/128GB Drive?</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/schritt-fur-schritt-guide-aktivierung-des-uefi-secure-boot-fur-das-windows-11-update/"><u>Schritt-Für-Schritt-Guide: Aktivierung Des UEFI Secure Boot Für Das Windows 11-Update</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/writing-top-notch-resumes-chatgpt-guide/"><u>Writing Top-Notch Resumes: ChatGPT Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-money-making-masters-youtubes-financial-kings/"><u>[New] In 2024, Money-Making Masters YouTube's Financial Kings</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-transcription-mastery-for-office-productivity-using-microsoft-words-voice-recognition-features-for-2024/"><u>[New] Transcription Mastery for Office Productivity Using Microsoft Word's Voice Recognition Features for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-mastering-tiktokenas-a-game-changer-top-30-unique-username-suggestions/"><u>[Updated] In 2024, Mastering TikTok'enas a Game Changer Top 30 Unique Username Suggestions</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-enhancing-m4a-listening-pleasure-advanced-tips-for-android-users/"><u>2024 Approved Enhancing M4A Listening Pleasure Advanced Tips for Android Users</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Motorola Edge 2023 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-forward-fastest-to-learn-global-languages/"><u>Language Leap Forward: Fastest-to-Learn Global Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-monde-interne-explique-anatomie-et-physiologie-des-parties-corporelles-en-francais/"><u>Le Monde Interne Expliqué: Anatomie Et Physiologie Des Parties Corporelles en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-meets-with-the-global-community-of-educators-at-bett-2022/"><u>Mondly Meets With the Global Community of Educators At BETT 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/teachers-united-the-bett-2022-edition/"><u>Teachers United: The BETT 2022 Edition</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-realme-v30-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mystery-behind-snapchat-messenger-and-instagram-outages/"><u>The Mystery Behind Snapchat, Messenger & Instagram Outages</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-oneplus-nord-n30-se-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace OnePlus Nord N30 SE Location | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turbocharge-your-turkish-learning-with-this-phonetic-and-orthographic-guide/"><u>Turbocharge Your Turkish Learning With This Phonetic & Orthographic Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-8-engaging-reasons-to-master-hindi-with-mondly-online/"><u>Unveiling 8 Engaging Reasons to Master Hindi with Mondly Online</u></a></li>
 </ul></div>
 

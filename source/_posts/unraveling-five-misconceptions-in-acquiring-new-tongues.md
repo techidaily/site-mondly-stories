@@ -1,7 +1,7 @@
 ---
 title: Unraveling Five Misconceptions in Acquiring New Tongues
-date: 2025-01-15T16:58:24.610Z
-updated: 2025-01-22T17:13:45.509Z
+date: 2025-01-27T01:56:11.306Z
+updated: 2025-01-29T20:32:57.895Z
 tags:
   - speak
   - english
@@ -20,20 +20,20 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
 
  Here are the most common myths and the way in which reality comes to the rescue:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Not everyone can learn a foreign language
 
  False! Everyone with the right motivation can learn a foreign language. The amount of effort and time invested is different for experienced learners and beginners, but the fact remains that anyone can do it. Once you ‘learn how to learn’, certain patterns become visible, especially with grammar, and this makes learning much faster.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Language learning requires a high IQ
 
  So untrue! There are so many smart people who only speak one language. This is because a high IQ doesn’t make anyone a natural-born [polyglot](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . An average IQ combined with persuasiveness, sensitivity and lots of practice is a much better recipe for becoming fluent in another language.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Failing to learn a language in school makes the student incompetent
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
  There are so many stories of students who left school thinking that they were incapable of learning French or Spanish, and later in life, they became fluent within a few months of living in Latin countries. The reason why students fail to learn a language in school is mostly due to the professor’s incompetence.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Grammar is difficult
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
  Here’s a fun fact: grammar is a language’s least difficult element and it takes the least time to master. Every language, no matter how remote, is built on clear grammar rules and the experienced learner can easily figure out patterns that he or she can use to accelerate the learning process.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Conversations require fluency
@@ -78,7 +78,7 @@ Thank YOU, Alan!
 Get Mondly now and speak any language like you never dreamed you would ![Learn a new language](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-72&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-72%26utm%5Fsource%3Dblog-post-id-72&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-72%26mt%3D8 "Learn a new language")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -96,24 +96,18 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-the-complete-guide-to-voice-overs-in-multimedia-projects/"><u>[New] 2024 Approved The Complete Guide to Voice-Overs in Multimedia Projects</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-swiftly-assemble-a-stunning-google-image-mosaic-with-ease/"><u>[Updated] 2024 Approved Swiftly Assemble a Stunning Google Image Mosaic with Ease</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-blueprint-of-successful-video-endorsements/"><u>[Updated] 2024 Approved The Blueprint of Successful Video Endorsements</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-95-sharp-humor-in-tiktoks-best-joke-threads-for-2024/"><u>[Updated] 95 Sharp Humor in TikTok's Best Joke Threads for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-iphone-android-premier-tiktok-overlay-removers/"><u>[Updated] IPhone, Android - Premier TikTok Overlay Removers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/100-tongue-twisting-challenges-for-exceptional-accent/"><u>100 Tongue-Twisting Challenges for Exceptional Accent</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579707441-accelerate-latvian-skills-10-minutes-per-day-maximum-effort/"><u>Accelerate Latvian Skills - 10 Minutes Per Day, Maximum Effort!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brazilian-vs-european-pt-back-and-filter-buttons-insight/"><u>Brazilian Vs. European PT: Back & Filter Buttons Insight</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparing-german-and-french-language-applications/"><u>Comparing German and French Language Applications</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/discover-the-leading-free-ipad-media-player-apps-expert-reviews-of-compatible-hd-and-4k-players/"><u>Discover the Leading Free iPad Media Player Apps: Expert Reviews of Compatible HD and 4K Players</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-santas-language-proficiency/"><u>Discovering Santa's Language Proficiency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effektiver-anfang-deutsche-zahlen-von-eins-bis-hundert-erklaren/"><u>Effektiver Anfang: Deutsche Zahlen Von Eins Bis Hundert Erklären</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-aussie-vernacular-100plus-essential-terms/"><u>Embrace Aussie Vernacular: 100+ Essential Terms</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-identify-malfunctioning-your-hardware-drivers-with-windows-device-manager-in-windows-11-by-drivereasy-guide/"><u>How to identify malfunctioning your hardware drivers with Windows Device Manager in Windows 11</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-panorama-pro-network-partnership-guide/"><u>In 2024, Panorama Pro Network Partnership Guide</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/incremental-diminution-strategies-for-fl-studio-enthusiasts-for-2024/"><u>Incremental Diminution Strategies for FL Studio Enthusiasts for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581829341-master-tagalog-in-under-an-hour-join-today/"><u>Master Tagalog in Under an Hour - Join Today</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/roblox-performance-check-identifying-if-the-issue-is-with-you-or-the-game-server/"><u>Roblox Performance Check – Identifying if the Issue Is With You or the Game Server.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578312799-the-16-best-ways-to-say-thank-you-in-german/"><u>The 16 Best Ways To Say Thank You In German</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-frame-loss-enigma-why-are-videos-cropped-by-imovie/"><u>[Updated] In 2024, Frame Loss Enigma Why Are Videos Cropped by iMovie?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-online-workshop-replay/"><u>[Updated] Online Workshop Replay</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/2022-start-fluently-with-a-95-off-language-quest/"><u>2022: Start Fluently with a 95% Off Language Quest</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/avoid-regrets-8-must-know-considerations-for-purchasing-the-right-tablet/"><u>Avoid Regrets: 8 Must-Know Considerations for Purchasing the Right Tablet</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/d-indexation-understanding-youtubes-unlisted-mechanism/"><u>Beyond Indexation Understanding YouTube's Unlisted Mechanism</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/bringing-retro-tech-jargon-back-to-life-with-affordable-laptops-a-closer-look-by-zdnet/"><u>Bringing Retro Tech Jargon Back to Life with Affordable Laptops - A Closer Look by ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/career-advantages-with-cognition-the-top-4-reasons-to-learn-languages-later-in-life/"><u>Career Advantages with Cognition: The Top 4 Reasons to Learn Languages Later in Life</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ensure-that-the-tone-remains-supportive-and-encouraging-without-diminishing-any-treatment-options-value/"><u>Ensure that the Tone Remains Supportive and Encouraging without Diminishing Any Treatment Options' Value.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-essential-japenese-greetings/"><u>Learn Essential Japenese Greetings</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pinnacle-cloud-solutions-highest-rated-reviewed-for-2024/"><u>Pinnacle Cloud Solutions Highest-Rated Reviewed for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/soviet-speech-the-common-thread-of-uk-and-russ/"><u>Soviet Speech: The Common Thread of Uk & Russ</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-success-essential-ai-enhanced-digital-twin-components-every-modern-enterprise-needs/"><u>Unlocking Success: Essential AI-Enhanced Digital Twin Components Every Modern Enterprise Needs</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/zdnet-reveals-the-4-iphone-and-macbook-models-best-to-skip-this-year/"><u>ZDNet Reveals the 4 iPhone & MacBook Models Best to Skip This Year!</u></a></li>
 </ul></div>
 

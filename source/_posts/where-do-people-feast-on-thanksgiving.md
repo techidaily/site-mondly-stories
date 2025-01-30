@@ -1,7 +1,7 @@
 ---
 title: Where Do People Feast on Thanksgiving?
-date: 2025-01-19T17:39:33.731Z
-updated: 2025-01-22T17:26:18.412Z
+date: 2025-01-29T03:11:14.915Z
+updated: 2025-01-29T20:23:11.831Z
 tags:
   - speak
   - english
@@ -38,25 +38,21 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  Other sources trace the Canadian Thanksgiving to the French settlers who came to North America in the 17th century and held feasts to celebrate their successful harvests.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Germany, Austria, and Switzerland
 
  In Europe, the idea of Thanksgiving generally involves the celebration of the autumn harvests. Largely religious in nature, the celebration occurs around the time of the main harvest – early October in this situation. In German-speaking countries, the event is called Erntedankfest.
 
  Unlike the North American festivities, in rural Germany, Austria, and Switzerland, Erntedankfest is a more public celebration with musical performances, dancing, fireworks, and – you guessed it: food. In some places, churches are decored with autumn crops and during the day, people participate in religious processions or parades.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. The Netherlands
 
  Ok, this is not entirely true. Not all Dutch people celebrate Thanksgiving, just this city called Leiden.
 
  The interesting thing is that the Thanksgiving celebration in Leiden has everything to do with the United States celebration. According to the [Smithsonian Magazine](https://www.smithsonianmag.com/smart-news/they-celebrate-american-thanksgiving-in-the-netherlands-140671441/) , the well-known Pilgrims that feasted with the Wampanoags in 1621, started as a group of English religious separatists that fled England following king James’ persecution. Before heading to the New World, many of these Pilgrims lived in Leiden for about 11 years, until 1620\. The rest is history.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Grenada
 
@@ -67,18 +63,22 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 ![thanksgiving turkey](https://edge.mondly.com/blog/wp-content/uploads/2021/11/canadian-thanksgiving-960x641.jpg "What Countries Celebrate Thanksgiving? 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanksgiving turkey” by Claudio Schwarz©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Japan
 
  勤労感謝の日 (’Kinrō Kansha no Hi’) has roots in 新嘗祭 (Niiname-sai), the ancient Shinto rice harvest ceremony and it’s celebrated annually on the 23rd of November. Known today as ‘Labor Thanksgiving Day’, the celebration has lost some of its original meaning and is regarded now as an occasion for commemorating labor and reflecting on issues that impact the community, such as the environment and human rights.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Liberia
 
@@ -93,7 +93,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
  During pre-Christian times in Britain, the Saxons would offer the first sheaf of cereals to fertility gods then come together and celebrate the harvest with a supper. Many traditions remained even though Christianity arrived in Britain so the present-day Harvest Festival is celebrated even by churches.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Brazil
@@ -137,15 +137,15 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-mastering-handp-a-comprehensive-strategy-for-fb-health-marketing/"><u>[New] 2024 Approved Mastering H&P A Comprehensive Strategy for FB Health Marketing</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-selecting-peak-performance-lipo-cells-for-drones/"><u>[New] 2024 Approved Selecting Peak Performance LiPo Cells for Drones</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-step-into-stardom-building-starry-eyed-tiktok-dances-on-macos/"><u>[New] In 2024, Step Into Stardom Building Starry-Eyed TikTok Dances on MacOS</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-ultimate-mac-guide-to-saving-roblox-adventures/"><u>[Updated] Ultimate Mac Guide to Saving Roblox Adventures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expedited-pathway-to-turkeys-language-a-comprehensible-alphabet-and-pronunciation-guide/"><u>Expedited Pathway to Turkey's Language: A Comprehensible Alphabet & Pronunciation Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-home-methods-for-fluent-french-speakers/"><u>Exploring Home Methods for Fluent French Speakers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-steps-in-spanish-numerals/"><u>First Steps in Spanish Numerals</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fond-expressions-love-languages-of-tuscany/"><u>Fond Expressions: Love Languages of Tuscany</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Motorola Moto G14 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Nokia C02 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-expert-advice-incorfluttering-web-pages-into-ig-stories-and-posts/"><u>[New] Expert Advice Incorfluttering Web Pages Into IG Stories & Posts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/chinese-writing-fundamentals/"><u>Chinese Writing Fundamentals</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-upcoming-us-antitrust-reforms-and-impact-on-tech-titans/"><u>Decoding Upcoming US Antitrust Reforms & Impact on Tech Titans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descobrindo-o-portugues-saudacoes-para-todos-os-tempos/"><u>Descobrindo O Português: Saudações Para Todos Os Tempos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/find-your-voice-flawlessly-choose-mondly/"><u>Find Your Voice Flawlessly – Choose Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heres-how-you-can-learn-japanese-on-your-own-online-and-for-free/"><u>Here’s How You Can Learn Japanese on Your Own, Online & for Free</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-gionee-f3-pro-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Gionee F3 Pro PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ignite-your-artistic-spirit-find-the-premier-android-drawing-tools/"><u>Ignite Your Artistic Spirit Find the Premier Android Drawing Tools</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-chromatic-ingenuity-from-concept-to-creation/"><u>In 2024, Chromatic Ingenuity From Concept to Creation</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/uploading-avchd-content-on-youtube-a-step-by-step-guide-to-format-conversion/"><u>Uploading AVCHD Content on YouTube: A Step-by-Step Guide to Format Conversion</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Breaking Down the Jargon: Top 10 Slang Words Explained"
-date: 2024-09-18T16:33:32.515Z
-updated: 2024-09-21T16:54:41.847Z
+date: 2025-01-23T16:29:22.061Z
+updated: 2025-01-29T21:44:34.514Z
 tags:
   - speak
   - english
@@ -36,9 +36,17 @@ thumbnail: https://thmb.techidaily.com/4b7359aaf8e940a96bfa42de92bb50e50f03e20d4
 6. [How to use slang words in conversation](#useslang)
 7. [How to learn English slang words](#learnslang)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **What are English slang words?**
 
  According to Oxford,**“slang”** is **“a type of language consisting of words and phrases that are regarded as very informal, are more common in speech than writing, and are typically restricted to a particular context or group of people”.** For example, the slang words and phrases we are going to talk about today are defining for two generations known as “millennials” and “gen z” – but mostly “gen z” because – let’s face it – today’s teenagers have come up with tons of new slang terms that even I, as a millennial, have trouble understanding. Praised be the mighty internet for slang dictionaries!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why is it important to learn English slang words?
 
@@ -47,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/4b7359aaf8e940a96bfa42de92bb50e50f03e20d4
  But besides being understood only within a particular group, slang can also be general. For instance, almost every native English speaker knows that to be “filthy rich” doesn’t mean to be dirty, but to have a lot of money. In this situation, as [Eric Partridge observes](https://archive.org/details/in.ernet.dli.2015.58766/page/n8) , slang changes its objective of being limited to a certain group to easing social intercourse and to reducing the solemnity, pomposity, and excessive seriousness of a conversation.
 
  **Thus, it’s important to know English slang words because they bring us closer and while also enriching the language.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **History of English slang words**
 
@@ -77,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/4b7359aaf8e940a96bfa42de92bb50e50f03e20d4
 
 ![slang terms](https://media.giphy.com/media/1Qdp4trljSkY8/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  But enough history. Let’s travel to the present. Does Gen Z slang sometimes look like some secret unbreakable code to you? Well, you are not alone. But TBH (To Be Honest), once you get the hang of it and realize how relatable and fun it is, it becomes quite addictive to use in daily conversations.
 
  So get ready to hear new meanings for words you thought you knew and prepare for heavy eye-rolling every time you’ll use your newly acquired lingo around teens. **Here are some of the most common slang words used in the English language today:**
@@ -87,18 +103,15 @@ thumbnail: https://thmb.techidaily.com/4b7359aaf8e940a96bfa42de92bb50e50f03e20d4
 
 _Dude, the party last night was lit! Where were you?_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Extra
 
  When someone is “extra”, it means they are unnecessarily dramatic, excessive, over the top or a “drama queen”.
 
 _She invited the entire school to her birthday. She’s so extra!_
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Salty
 
@@ -148,13 +161,6 @@ _What happened at Jessica’s birthday party? Come on, spill the tea!_
 
 ![english slang](https://edge.mondly.com/blog/wp-content/uploads/2019/11/english-slang-1024x810.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 5")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Teenagers” by Jed Villejo©
 
 ## To clap back
@@ -191,6 +197,10 @@ Not Gonna Lie. Another way of saying “to tell you the truth”.
 
 _NGL, I’m not in the mood to go out tonight._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Slay
 
  To do something very well. To impress someone very much or to be very good or impressive.
@@ -214,10 +224,7 @@ Something that is questionable, dishonest or suspicious.
 _Ok, now you’re just sus. I don’t believe you!_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## OK Boomer
@@ -226,6 +233,10 @@ _Ok, now you’re just sus. I don’t believe you!_
 
  _– Boomer: Kids nowadays never go out. Back in my day we played outside the entire day._
 _– Non-boomer: OK boomer._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Woke
 
@@ -249,24 +260,15 @@ _– Whoa, don’t be such a stan._
 
 ![jon](https://media.giphy.com/media/3o7qE2fiT5seO2lIre/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 7")
 
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  **Other_lit_ mentions:** _gucci_ (good, doing well, feeling fine),_TFW_ (that feeling when),_squad_ (a group of friends),_JOMO_ (Joy Of Missing Out),_fam_ (a group of friends that feels like family),_dank_ (really cool),_basic_ (interested in mainstream or very popular things),_woke_ (being aware of current events).
 
 ## **Regional variations in English slang**
 
  English slang, like languages in general, can’t be entirely homogenous. With native speakers dispersed across the globe, slang evolves differently depending on factors such as culture, dialect, and more. That’s why [Aussie slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is so different from [British slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and British slang is so different than American slang. Different cultures make different slang, just like different countries make different languages.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Differences in words and phrases across English-speaking countries**
 
@@ -278,10 +280,7 @@ _– Whoa, don’t be such a stan._
 * **Culture:** For example, Australian slang is heavily influenced by surfing and beach culture, while American slang has been influenced by hip-hop and African American Vernacular English.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Examples of popular slang words in different regions**
@@ -400,5 +399,18 @@ Okay, so what did we learn so far? Let’s recap:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-prime-cloud-storage-contenders-of-the-new-year/"><u>[Updated] In 2024, The Prime Cloud Storage Contenders of the New Year</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-film-guide-top-15-timeless-stop-motion-classics/"><u>2024 Approved The Ultimate Film Guide - Top 15 Timeless Stop Motion Classics</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/a-beginners-pathway-to-running-a-product-evaluation-podcast-for-2024/"><u>A Beginner's Pathway to Running a Product Evaluation Podcast for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-tecno-phantom-v-fold-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Tecno Phantom V Fold Location Settings | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-languages-preferred-by-americans/"><u>Global Languages Preferred by Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grammars-presence-in-the-quest-for-fluency/"><u>Grammar's Presence in the Quest for Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/immerse-in-languages-unite-cultures-with-mondlys-revolutionary-vr-experience/"><u>Immerse in Languages, Unite Cultures with Mondly's Revolutionary VR Experience</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-honor-magic-vs-2-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfect-your-pronunciation-with-these-100-english-tongue-twistersback-buttonfilter-button/"><u>Perfect Your Pronunciation With These 100 English Tongue TwistersBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/phi-beta-jove-from-classical-to-modern-greek/"><u>Phi Beta Jove: From Classical to Modern Greek</u></a></li>
+<li><a href="https://fox-access.techidaily.com/sketch-like-a-pro-top-10-drawing-apps-for-android-artists-for-2024/"><u>Sketch Like a Pro Top 10 Drawing Apps for Android Artists for 2024</u></a></li>
+</ul></div>
 

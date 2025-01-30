@@ -1,7 +1,7 @@
 ---
 title: "Deutsch: Eine Auswahl an Verabschiedungsformen"
-date: 2024-09-09T16:31:23.396Z
-updated: 2024-09-16T19:44:02.139Z
+date: 2025-01-25T05:01:20.053Z
+updated: 2025-01-29T17:49:41.960Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/986874e17643e7ae409323b1b4781d84760454bfa
 
  Similarly,_Auf Wiederhören_ can be used at the end of a conversation that took place over the phone. It means “until we hear each other again”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Tschüss – ‘Bye’ in German
 
 **_Tschüss_ is the most popular informal goodbye in German.** It’s short, sweet, and casual and you’ll usually hear it used among friends and family.
@@ -43,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/986874e17643e7ae409323b1b4781d84760454bfa
  One such variation is_Schönen Tag,_ which can be used with or without the_noch_ . It is a friendly way of wishing someone a good or a nice day!
 
  In the same manner, you’ll say_Schönes Wochenende_ to wish someone a good weekend.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Einen schönen Tag noch – ‘Have a nice day’
 
@@ -62,13 +70,6 @@ thumbnail: https://thmb.techidaily.com/986874e17643e7ae409323b1b4781d84760454bfa
 
  However, it’s way more common to take your leave by saying_Bis bald_ , which means “see you soon” in German. For the next three goodbyes, it will be useful to know that_bis_ is the German equivalent of “till”.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 8\. Bis später – ‘See you later’
 
  If you enjoy getting creative with your goodbyes in German,_Bis später_ is another great option for a casual farewell.
@@ -76,19 +77,6 @@ thumbnail: https://thmb.techidaily.com/986874e17643e7ae409323b1b4781d84760454bfa
  Additionally, you can also say_Bis dann_ , which conveys the same “see you later” message in a slightly different way.
 
  If you want to say “see you tomorrow”, you guessed it! You will say_Bis morgen_ .
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 9\. Bis Montag – ‘Until Monday’
 
@@ -103,10 +91,7 @@ thumbnail: https://thmb.techidaily.com/986874e17643e7ae409323b1b4781d84760454bfa
 * _Bis Sonntag_ – “Until Sunday”
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## basic german words
@@ -114,10 +99,11 @@ thumbnail: https://thmb.techidaily.com/986874e17643e7ae409323b1b4781d84760454bfa
 ![basic german words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/basic-german-words-960x960.png "15 Ways To Say Goodbye In German 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10\. Gute Nacht – ‘Good night’ in German
@@ -128,16 +114,13 @@ thumbnail: https://thmb.techidaily.com/986874e17643e7ae409323b1b4781d84760454bfa
 
  If you want to say goodbye to someone you regularly see, like a coworker or a classmate,_Bis zum nächsten Mal_ is the most suitable choice.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 12\. Wir sehen uns dann – ‘See you then’
 
 _Wir sehen uns_ is another nice way to say “see ya later” if you are making plans with someone. Add_dann_ to that and it will mean something more along the lines of “see you then”.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 13\. Viel Spaß – ‘Have fun’ in German
 
@@ -187,5 +170,24 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-crafting-a-pathway-to-instagram-affordability-through-partnerships/"><u>[New] Crafting a Pathway to Instagram Affordability Through Partnerships</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-windows-11-feature-highlight-reel/"><u>[New] Windows 11 Feature Highlight Reel</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-isyncslideshow-integrate-ios-plus-sierra-images/"><u>[Updated] In 2024, ISyncSlideshow Integrate iOS + Sierra Images</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-the-dual-purpose-lenovo-device-with-windows-and-android-capabilities-a-comprehensive-review/"><u>Exploring the Dual-Purpose Lenovo Device with Windows & Android Capabilities - A Comprehensive Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-english-variants-unveiling-american-irish-and-indian-tones/"><u>Global English Variants: Unveiling American, Irish, and Indian Tones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/halloween-around-the-world-unique-traditions-and-celebrations/"><u>Halloween Around The World: Unique Traditions And Celebrations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harnessing-mondlys-full-capabilities-for-success/"><u>Harnessing Mondly's Full Capabilities for Success</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-photographic-journey-to-cinematic-expression-using-pixizs-tools/"><u>In 2024, Photographic Journey to Cinematic Expression Using Pixiz's Tools</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-latin-the-least-complicated-method-online/"><u>Mastering Latin: The Least Complicated Method Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-fuses-with-pearson-knowledge-collective/"><u>Mondly Fuses with Pearson Knowledge Collective</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-pictures-after-meizu-21-has-been-deleted-by-fonelab-android-recover-pictures/"><u>Recover your pictures after Meizu 21 has been deleted.</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/reel-in-the-solution-to-instagram-video-glitches-for-2024/"><u>Reel in the Solution to Instagram Video Glitches for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-magsafe-wallets-comprehensive-reviews-by-industry-experts/"><u>Top-Rated MagSafe Wallets : Comprehensive Reviews by Industry Experts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transatlantic-communication-unraveling-differences/"><u>Transatlantic Communication: Unraveling Differences</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-communication-potential-with-mondly-top-10-ways-for-success/"><u>Unlocking Communication Potential with Mondly - Top 10 Ways for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-varieties-comparing-american-drawl-with-british-cockney-and-australian-swagger/"><u>Vocal Varieties: Comparing American Drawl with British Cockney & Australian Swagger</u></a></li>
+</ul></div>
 

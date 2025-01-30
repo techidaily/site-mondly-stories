@@ -1,7 +1,7 @@
 ---
 title: "Japenese Expressions: Friendliness & Respect on Display"
-date: 2025-01-16T16:39:44.573Z
-updated: 2025-01-22T16:48:54.740Z
+date: 2025-01-26T19:47:03.737Z
+updated: 2025-01-29T21:06:24.838Z
 tags:
   - speak
   - english
@@ -35,10 +35,6 @@ thumbnail: https://thmb.techidaily.com/e5643a5ff8d74b4fe59c3561d40554a2f62dd8947
 
 ![honnichiwa](https://edge.mondly.com/blog/wp-content/uploads/2019/08/honnichiwa-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Kyoto, Japan” by Sorasak©
 
  If you have to write**“hello” in Japanese,** there are two ways to do it (three if you also count in Romaji – the romanization of the [Japanese writing](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) system):
@@ -50,12 +46,16 @@ thumbnail: https://thmb.techidaily.com/e5643a5ff8d74b4fe59c3561d40554a2f62dd8947
  Curious about why there are multiple types of characters in Japanese? Here’s everything there is to know about the [Japanese writing system](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **How to say “hello” on the phone in Japanese: moshi moshi (もしもし)**
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Good morning in Japanese and other relevant greetings
 
@@ -75,10 +75,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3.“Goodbye” in Japanese
 
  Another greeting we borrowed from the Japanese and sometimes use in our day-to-day conversations in English is**_Sayōnara_** (さよなら), a greeting that carries the connotation of farewell and translates to “goodbye”.
@@ -97,7 +93,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “See you soon, human” by Alain Pham©
@@ -145,7 +141,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
@@ -168,6 +164,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -201,22 +201,20 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-unlocking-creative-potential-a-deep-dive-into-screenflow-for-mac/"><u>[New] Unlocking Creative Potential A Deep Dive Into ScreenFlow for Mac</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-channel-success-metrics-subscriber-and-play-buttons/"><u>[Updated] Channel Success Metrics Subscriber & Play Buttons</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-verified-vids-the-reality-of-instas-self-validation/"><u>[Updated] Verified Vids The Reality of Insta’s Self-Validation</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-secure-social-screen-avoid-facebook-vids/"><u>2024 Approved Secure Social Screen Avoid Facebook Vids</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enter-the-world-of-endless-languages-mondly-introduces-vr-learning-platform/"><u>Enter the World of Endless Languages - Mondly Introduces VR Learning Platform</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-reading-list-for-learning-to-read-in-french/"><u>Essential Reading List for Learning to Read in French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/eternal-access-to-mondly-premium-for-free/"><u>Eternal Access to Mondly Premium for Free</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/excellent-platforms-boosting-language-mastery/"><u>Excellent Platforms Boosting Language Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-the-best-16-german-phrases-to-thank-someone-profusely/"><u>Explore The Best 16 German Phrases To Thank Someone Profusely</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/express-your-gratitude-essential-phrases-for-travelers/"><u>Express Your Gratitude: Essential Phrases for Travelers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-monolingualism-to-multilingualism-how-long/"><u>From Monolingualism To Multilingualism - How Long?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-novice-to-proficient-russian-numeral-acquisition/"><u>From Novice to Proficient: Russian Numeral Acquisition</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/how-to-successfully-update-your-pcs-webcam-driver-for-windows-11/"><u>How To Successfully Update Your PC's Webcam Driver for Windows 11</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/is-microsofts-new-controversial-release-windows-11-already-under-fire/"><u>Is Microsoft's New Controversial Release: Windows 11 Already Under Fire?</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tackling-windows-selecting-issue-on-double-click-folders/"><u>Tackling Windows' Selecting Issue on Double-Click Folders</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unveiling-apples-smart-technology-in-ios-181-beta-version-learn-how-to-participate-today/"><u>Unveiling Apple's Smart Technology in iOS 18.1 Beta Version – Learn How to Participate Today!</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-mp4-file-editor-for-windows-8-quick-and-easy-video-editing-for-2024/"><u>Updated MP4 File Editor for Windows 8 Quick and Easy Video Editing for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-economical-pc-screen-grab-utilities/"><u>[New] Economical PC Screen Grab Utilities</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-comprehensive-fb-messenger-recordings-explained/"><u>[New] In 2024, Comprehensive FB Messenger Recordings Explained</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-secure-screenshots-without-intrusions/"><u>[New] In 2024, Secure Screenshots Without Intrusions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-under-200-high-speed-action-cameras-for-captivating-shots/"><u>[New] In 2024, Under $200 High-Speed Action Cameras for Captivating Shots</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-vivo-s18-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-samsung-galaxy-a14-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Samsung Galaxy A14 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-journey-through-dutch-languages-past/"><u>A Journey Through Dutch Language's Past</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/articulate-your-way-to-fluency-engaging-100-twisters/"><u>Articulate Your Way to Fluency: Engaging 100 Twisters</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/bypass-tools-to-bypass-lock-screen-v27-by-drfone-android-unlock-android-unlock/"><u>Bypass Tools to Bypass Lock Screen(V27)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-vs-french-usability-in-international-business/"><u>German Vs French Usability in International Business</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Vivo V27? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-secure-video-communication-made-simple-with-top-10-safe-apps-on-mobile-devices/"><u>In 2024, Secure Video Communication Made Simple with Top 10 Safe Apps on Mobile Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languagequest-immersive-vr-for-linguistic-journeys/"><u>LanguageQuest: Immersive VR for Linguistic Journeys</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/orthographic-odyssey-comparing-brazilian-and-european/"><u>Orthographic Odyssey: Comparing Brazilian and European</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575317148-revolutionize-language-learning-8-impactful-reasons-to-study-hindi-with-mondly/"><u>Revolutionize Language Learning: 8 Impactful Reasons to Study Hindi with Mondly</u></a></li>
 </ul></div>
 

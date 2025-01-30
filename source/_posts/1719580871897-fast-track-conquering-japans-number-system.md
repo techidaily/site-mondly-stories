@@ -1,7 +1,7 @@
 ---
 title: "Fast Track: Conquering Japan's Number System!"
-date: 2024-09-16T19:39:18.146Z
-updated: 2024-09-21T17:54:17.034Z
+date: 2025-01-25T00:33:18.381Z
+updated: 2025-01-29T22:23:48.588Z
 tags:
   - speak
   - english
@@ -92,6 +92,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Counting In Japanese From 1 To 10000 8")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Do you want to learn Japanese? 🗻
 
  Get started with Mondly, the award-winning language app that makes learning Japanese a breeze.
@@ -145,10 +149,7 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 ![numbers in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/11/numbers-in-japanese-960x647.jpeg "Counting In Japanese From 1 To 10000 9")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Japanese Lucky Numbers
@@ -159,7 +160,15 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
 ![hatchi](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdDQ0cHlhYjkxb2QwaTd1MWh1aDYyc3U3am05dnAzcnAxaGxkZWJsaiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/bzoD9WOiU1wAg/giphy.gif "Counting In Japanese From 1 To 10000 10")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  On the other hand, you probably noticed that 4, 7, and 9 have two different readings each. As we, in the Western world, consider the number 13 to bring bad luck, the Japanese people consider the numbers 4 and 9 to be unlucky because し (_shi_ – 4_)_ ) and く (_ku_ – 9) sound the same as the words for “death” (死, shi) and “suffering, agony or torture” (苦, ku). Thus, Japanese people avoid using these unlucky numbers as much as possible. If you ever travel to Japan, pay close attention to the prices. Chances are you won’t see prices like 9.99 or 4.99 anywhere.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Japanese Counters List
 
@@ -173,36 +182,15 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  o clearly indicate that you are referring to seconds, minutes, hours, months, or years, you must use specific counters in Japanese. Seconds are expressed with \~秒_(_ _byou)_ , minutes with \~分_(fun or pun)_ , hours with \~時_(ji)_ , months with \~月_(getsu)_ , and years with \~年_(nen)_ .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Japanese counters for people
 
  To count people in Japanese, use the counter ひとり_(hitori)_ for one person, ふたり_(futari)_ for two people, and \~人_(nin)_ for three or more people.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Japanese objects counters
 
  Long and thin objects, such as pencils, bottles, chopsticks, umbrellas, rivers, train tracks, or roads, have their own Japanese counter: \~本_(hon)_ . When counting these objects, all numbers end in_\-hon_ , except for 3, which ends in –_bon_ , and the numbers 1, 6, 8, and 10, which end in_\-pon_ . Although this might seem overwhelming initially, practice will help you master these exceptions more quickly.
 
  To count small and round objects like apples or tennis balls, you must use the \~個_(ko)_ counter. Conversely, to count thin and flat objects (such as sheets of paper, plates, or articles of clothing), you should use the まい_(mai)_ counter.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Japanese counters for animals
 
@@ -214,18 +202,15 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
 ![Japanese numbers kanji](https://edge.mondly.com/blog/wp-content/uploads/2019/11/japanese-numbers-kanji-960x640.jpeg "Counting In Japanese From 1 To 10000 11")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Japanese counters for cars or bicycles
 
  If you’re not overwhelmed yet, for cars, machines, and all types of household appliances, the counter \~台_(dai)_ is necessary.
 
  Not ready to dive into**Japanese counters** yet? Then consider using the general-purpose counter based on the Native-Japanese reading (一つ_hitotsu ,_ 二つ_futatsu_ and so on). This system allows you to count almost any kind of object up to ten without worrying about using the incorrect counter.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Special Number Zero in Japanese
 
@@ -237,9 +222,17 @@ In conclusion,  while the prevalence of Arabic numerals in Japan offers a famili
 
 Before you go, make sure you check out these FAQs.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to say numbers in Japanese?
 
  To say numbers in Japanese, start by learning the numbers up to 10: ichi (1), ni (2), san (3), yon (4), go (5), roku (6), nana (7), hatchi (8), kyu (9) and juu (10). If you're not familiar with the Japanese writing system, you may have to rely heavily on the Romanized version (Romaji) to learn the correct pronunciation of each number. Once you've mastered the numbers 1-10 in Japanese, counting up to 100 becomes straightforward.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to write Japanese numbers?
 
@@ -279,5 +272,16 @@ Before you go, make sure you check out these FAQs.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ssential-video-equipment-for-successful-youtube-channels-for-2024/"><u>[New] Essential Video Equipment for Successful YouTube Channels for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-powered-nutrition-success-how-to-design-and-stick-to-a-healthy-meal-plan/"><u>ChatGPT-Powered Nutrition Success: How to Design and Stick to a Healthy Meal Plan</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/easier-ways-to-transform-mp4-files-into-mov-format/"><u>Easier Ways to Transform MP4 Files Into MOV Format</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/leading-apps-for-flawless-android-screenshots-and-recording/"><u>Leading Apps for Flawless Android Screenshots & Recording</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-counting-1-10-for-starters/"><u>Spanish Counting 1-10 For Starters</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/step-by-step-instruction-on-downloading-installing-and-using-ez-grabber/"><u>Step-by-Step Instruction on Downloading, Installing & Using EZ Grabber</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-pronunciation-practice-for-beginners-in-germany/"><u>Step-by-Step Pronunciation Practice for Beginners in Germany</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/united-learners-unstoppable-mondly/"><u>United Learners, Unstoppable Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-the-mysteries-of-russian-phonology/"><u>Unraveling the Mysteries of Russian Phonology</u></a></li>
+</ul></div>
 

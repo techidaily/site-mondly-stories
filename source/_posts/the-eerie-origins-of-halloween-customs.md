@@ -1,7 +1,7 @@
 ---
 title: The Eerie Origins of Halloween Customs
-date: 2025-01-21T17:40:49.846Z
-updated: 2025-01-22T17:32:48.980Z
+date: 2025-01-27T23:59:48.392Z
+updated: 2025-01-30T01:12:11.541Z
 tags:
   - speak
   - english
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 
  The leaves have all turned yellow, red and brown. Everywhere in the neighborhood smells like pumpkin pie, roasted chestnuts and mulled wine. Everyone is wearing warmer clothes and brighter smiles. Kids are carrying their heavy schoolbags back home to a delicious lunch and scary jack-o’-lanterns have begun popping up here and there. It’s glaringly obvious:**Halloween is almost here!** Soon enough houses will be covered in black and orange decorations and children will shout excitedly:**“Trick or treat?! Give me something good to eat!”.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Origins of Halloween
 
  Celebrated yearly on October 31, Halloween, Hallowe’en or All Hallows’ Eve is a world-old holiday whose origins date back to the ancient Celtic festival of Samhain that took place on the lands that are now Ireland, the United Kingdom, and northern France. For hundreds – or even thousands – of years, people have celebrated this holiday, but it was never as loved and as notorious as it is today.
@@ -29,10 +25,14 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
  Nevertheless, there are many countries around the world that have their own Halloween-like traditions celebrating the afterlife. For example, in some parts of the world, on All Hallows’ Eve, people visit the graveyards of their loved ones to pray and place flowers. But let’s dive in already and look at **four of the most fascinating Halloween-like traditions from different corners of the world.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Halloween-like Traditions Worldwide
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Mexico: Día de Muertos (Day of the Dead)
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### China: The Hungry Ghost Festival
@@ -69,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
@@ -91,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 ![dracula's castle](https://edge.mondly.com/blog/wp-content/uploads/2019/09/draculas-castle-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 9")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Dracula’s Castle in Romania” by Nomadic Julien©
@@ -136,19 +136,21 @@ thumbnail: https://thmb.techidaily.com/23623c6c9024303daa060bc641efd6507d7732a1f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-maximizing-visual-impact-with-extra-camera-work/"><u>[Updated] 2024 Approved Maximizing Visual Impact with Extra Camera Work</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-premium-pickers-best-websites-to-secure-snapalert-music/"><u>[Updated] In 2024, Premium Pickers Best Websites to Secure SnapAlert Music</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-honor-magic-5-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Honor Magic 5 via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/comment-recuperer-un-gros-fichier-efface-a-jamais-methodes-simples-et-efficaces/"><u>Comment Récupérer Un Gros Fichier Effacé À Jamais : Méthodes Simples Et Efficaces</u></a></li>
-<li><a href="https://fox-making.techidaily.com/datensicherung-per-festplattenbefehl-erfolgreich-in-4-schritten/"><u>Datensicherung per Festplattenbefehl - Erfolgreich in 4 Schritten</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-us-uk-language-differences/"><u>Exploring US-UK Language Differences</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/facing-the-goliath-studying-german/"><u>Facing the Goliath: Studying German</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-footsteps-toward-fluency-in-arabic/"><u>First Footsteps Toward Fluency in Arabic</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-quills-to-keystrokes-enduring-elizabethan-expressions/"><u>From Quills to Keystrokes: Enduring Elizabethan Expressions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gepflegte-gute-auftaktsatze-im-deutschen/"><u>Gepflegte Gute-Auftaktsätze Im Deutschen</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-honor-x50i-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Honor X50i Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://win-blog.techidaily.com/latest-fixes-for-stable-playthroughs-of-lego-star-wars-the-skywalker-saga-on-pc-what-to-expect/"><u>Latest Fixes for Stable Playthroughs of Lego Star Wars: The Skywalker Saga on PC - What to Expect</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/understanding-claude-3-functions-and-applications-explained/"><u>Understanding Claude 3 - Functions and Applications Explained</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-sustainable-screen-tech-best-picks-reviewed/"><u>[New] 2024 Approved Sustainable Screen Tech Best Picks Reviewed</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-honor-magic-5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-croatia-with-ease-top-110-essential-expressions-and-their-uses/"><u>Explore Croatia with Ease: Top 110 Essential Expressions and Their Uses</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/flip-to-impress-the-instagram-video-guide/"><u>Flip to Impress The Instagram Video Guide</u></a></li>
+<li><a href="https://fox-that.techidaily.com/get-swift-browsing-speedy-solutions-for-lagging-safari-apps-on-the-iphone/"><u>Get Swift Browsing: Speedy Solutions for Lagging Safari Apps on the iPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/halloweens-haunts-international-view/"><u>Halloween's Haunts: International View</u></a></li>
+<li><a href="https://games-able.techidaily.com/hot-swap-excellence-in-the-razer-blackwidow-v4-review/"><u>Hot Swap Excellence in the Razer BlackWidow V4 Review</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-shifting-gender-identity-in-online-profile-pictures/"><u>In 2024, Shifting Gender Identity in Online Profile Pictures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-local-language-speak-like-an-aussie/"><u>Learn Local Language: Speak Like an Aussie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-latin-through-creative-methods/"><u>Learning Latin Through Creative Methods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-danish-key-film-selections-and-linguistic-paths/"><u>Mastering Danish: Key Film Selections and Linguistic Paths</u></a></li>
+<li><a href="https://review-topics.techidaily.com/online-signatures-for-rtf-file-by-ldigisigner-sign-a-word-sign-a-word/"><u>Online signatures for .rtf file</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/seamless-blend-inserting-music-into-fb-video-posts/"><u>Seamless Blend Inserting Music Into FB Video Posts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-up-speak-out-australian-lingo-handbook/"><u>Speak Up, Speak Out: Australian Lingo Handbook</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/system-patch-up-reviving-synapse-in-latest-windows/"><u>System Patch-Up: Reviving Synapse in Latest Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-future-is-now-vr-and-ar-meet-mondlys-linguistic-challenge/"><u>The Future Is Now - VR & AR Meet Mondly's Linguistic Challenge</u></a></li>
 </ul></div>
 

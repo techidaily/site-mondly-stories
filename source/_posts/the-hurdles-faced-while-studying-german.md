@@ -1,7 +1,7 @@
 ---
 title: The Hurdles Faced While Studying German
-date: 2024-09-15T18:56:36.016Z
-updated: 2024-09-16T20:18:26.534Z
+date: 2025-01-23T04:16:50.870Z
+updated: 2025-01-29T21:23:18.581Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/4be59755ae7994bb626513b3614a3ec947be3b564
 
  Like people, languages are very different but also sometimes similar. This doesn’t mean you can’t be friends. Read on to discover a fair evaluation of the complexity of the German language. If_Deutsch_ is as hard as they say, we will reveal a safe method to make it easy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why is German considered hard to learn?
 
  We can all probably agree that German has a bad reputation for being one of the [hardest languages to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Society, entertainment, and memes in particular, always seem to maintain and even solidify our prejudices about the German language. The two most popular justifications are its neverending long words and their harsh pronunciation. Over the course of history, we had and still have a lot of preconceptions, but this one is particularly hard to break. So let’s shatter all the myths right here, right now.
@@ -31,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/4be59755ae7994bb626513b3614a3ec947be3b564
  So rest assured, German pronunciation doesn’t really require twisting your tongue like a pretzel.
 
 **Verdict: false assumption.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. German words are neverending
 
@@ -56,16 +64,7 @@ thumbnail: https://thmb.techidaily.com/4be59755ae7994bb626513b3614a3ec947be3b564
 !['German hard to learn' by Sebastian Herrmann©](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-hard-to-learn-960x640.jpg "Is German Hard To Study? 3")
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. German grammar is too hard to learn
@@ -80,6 +79,10 @@ Doesn’t this sound familiar?
 
 **Verdict: false assumption.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Is German hard to learn?
 
  Yes and no. Compared to the very popular [Romance language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Spanish and French, German is regarded as hard to learn. But in truth,**German is actually easier to learn than a lot of other languages.**
@@ -88,31 +91,11 @@ Doesn’t this sound familiar?
 
  However, according to [the FSI](https://www.state.gov/foreign-language-training/) (Foreign Service Institute) of the US government, which ranks languages in terms of difficulty,**German is a tier II language.** Considering that there are five tiers in total, with tier V including Arabic, Chinese, Japanese and Korean, tier II doesn’t seem so daunting. This indicates that German is not hard to learn after all.
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How long does it take to study German?
 
  According to the FSI (Foreign Service Institute) of the US government, an English speaker would need about **750 class hours or 30 weeks of practice to [become fluent in German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .** Of course, this is not 100% accurate for every individual. Some people have a knack for learning languages, and others don’t. It all depends on your determination and passion for the task at hand.
 
  Moreover, your progress can also be influenced by the learning method you’re using. While dry memorization techniques used to be the norm until a few years ago, nowadays learning German can be much more enjoyable.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Can German be easy to learn?
 
@@ -124,6 +107,10 @@ Doesn’t this sound familiar?
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Study German in just 10 minutes a day
 
@@ -152,5 +139,22 @@ Doesn’t this sound familiar?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-essential-5-online-video-capture-apps/"><u>[New] Essential 5 Online Video Capture Apps</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-convert-your-webcam-to-vlc-clip/"><u>[Updated] 2024 Approved Convert Your Webcam to VLC Clip</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-vivo-v30-lite-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Vivo V30 Lite 5G</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/from-theory-to-practice-mastering-instagram-livestreams-through-obs/"><u>From Theory to Practice Mastering Instagram Livestreams Through OBS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honterus-a-man-of-purpose-and-passion/"><u>Honterus: A Man of Purpose and Passion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-that-shape-macaus-identity/"><u>Languages That Shape Macau’s Identity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-integrates-with-pearson-education-hub/"><u>Mondly Integrates with Pearson Education Hub</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-download-adobe-premiere-pro-cs6-mac-free-trial-2023-version/"><u>New In 2024, Download Adobe Premiere Pro CS6 Mac Free Trial (2023 Version)</u></a></li>
+<li><a href="https://win-special.techidaily.com/protecting-against-cybersecurity-risks-preventative-measures-for-malware-defense-with-yl-software-solutions/"><u>Protecting Against Cybersecurity Risks: Preventative Measures for Malware Defense with YL Software Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reconhecidos-gritos-de-alegria-em-portugal-todas-as-variedades/"><u>Reconhecidos Gritos De Alegria Em Portugal - Todas as Variedades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/serenades-of-solitude-intimate-italian-invitations/"><u>Serenades of Solitude: Intimate Italian Invitations</u></a></li>
+<li><a href="https://network-issues.techidaily.com/solving-graphics-driver-woes-of-r9-on-windows-10/"><u>Solving Graphics Driver Woes of R9 on Windows 10</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-oppo-find-x6-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Oppo Find X6 Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcending-tongues-the-key-to-romantic-success/"><u>Transcending Tongues: The Key to Romantic Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-truths-how-to-successfully-learn-new-languages/"><u>Unveiling Truths: How to Successfully Learn New Languages</u></a></li>
+</ul></div>
 

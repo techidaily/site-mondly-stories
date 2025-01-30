@@ -1,7 +1,7 @@
 ---
 title: Impress Neapolitan Friends, Learn 20 Slang Terms Fast
-date: 2024-09-15T18:12:35.934Z
-updated: 2024-09-16T19:06:55.246Z
+date: 2025-01-22T22:09:12.652Z
+updated: 2025-01-29T21:02:14.269Z
 tags:
   - speak
   - english
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/db4e48751ba30895c50ceb8d3925c537e54172648
 ## Impress Neapolitan Friends, Learn 20 Slang Terms Fast
 
  When in Rome, do as Romans do, and use Italian slang words and expressions. No, really. If you’re learning the language and want the full Italian experience, Italian slang is a great way to get it. Slang and even expressions are like the “secret code” of a language, so they can make you feel right at home when you use them. Moreover, if you aim to learn Italian – and truly master it – you should embrace it all: slang words, expressions, idioms, and proverbs. So, let’s dive in!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Most Common Italian Expressions
 
@@ -51,25 +55,19 @@ thumbnail: https://thmb.techidaily.com/db4e48751ba30895c50ceb8d3925c537e54172648
 
 ![Italian expressions](https://edge.mondly.com/blog/wp-content/uploads/2019/09/italian-expressions-960x640.jpg "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Funny Italian Slang Words & Phrases
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Cavoli amari
 
 _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refers to a tough situation or impending problems. Interestingly, Italians frequently mention cabbages! For instance,_cavoli miei_ (“my cabbages”) implies something is your personal business that others shouldn’t meddle with.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Boh
 
@@ -91,18 +89,15 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
 
  “To throw the package”. Contrary to what some may think, this has nothing to do with the delivery man. Instead, it means to stand someone up. So, Italians don’t just skip a meeting or a date, they “throw the package”.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\. Schialla
 
 _Scialla_ is an Italian slang word that has become very popular lately, thanks to Gen Z. It basically means “to relax”, “to chill out” or to “keep calm”. It is generally used as an encouragement to “don’t worry”.
 
  There’s a 2011 movie with the same name in case you’re looking to expand your Italian slang word repertoire further.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. Figo
 
@@ -111,10 +106,7 @@ _Scialla_ is an Italian slang word that has become very popular lately, thanks t
  Additionally,_figo_ (or_figa_ for women) can also be used to say that someone is very attractive. For example,_Brad Pitt è un gran figo_ translates to “Brad Pitt is very attractive”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Sbronza
@@ -123,9 +115,17 @@ _Sbronza_ is for everything related to alcohol as it essentially describes the s
 
  If you have to convey the meaning of being drunk in a more formal setting, you would definitely not use_sbronza_ . Instead, you would use terms like_ubriachezza_ (“drunkness”) or_intossicazione alcolica_ (“alcohol intoxication”).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\. Che casino
 
 _Casino_ in Italian has nothing to do with gambling because it is literally a “brothel”. So, this Italian expression actually means “what a mess!” and is used to describe a situation that’s a bit out of control, confusing, or crowded.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 10\. Beccarsi
 
@@ -162,13 +162,6 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
 
 ![Italian slang](https://edge.mondly.com/blog/wp-content/uploads/2019/09/italian-slang-960x640.jpg "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 7")
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Bonus: More Italian Slang Words and Expressions
 
 | Italian slang words and expressions          | Translation                          | Comments                                                              |
@@ -200,6 +193,10 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
  In conclusion, Italian slang and expressions are more than just linguistic flourishes; they are key to truly experiencing Italian culture. By judiciously incorporating them into your conversations, you not only enrich your language skills but also deepen your connection with Italy’s rich heritage. Remember, the goal is to sprinkle these expressions like seasoning – enough to enhance but not to overpower. This careful balance will not only make your speech more authentic but also open doors to more meaningful interactions. Ciao!
 
 Before you go, make sure you check out these FAQs.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Is it okay to use slang when speaking Italian?
 
@@ -247,5 +244,24 @@ Before you go, make sure you check out these FAQs.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-speech-logging-made-easy-on-mac-the-top-5-tools-tested-and-ranked-for-2024/"><u>[New] Speech Logging Made Easy on Mac The Top 5 Tools Tested & Ranked for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-recording-titans-duel/"><u>[Updated] 2024 Approved Recording Titans Duel</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-overwatch-playback-techniques-explained/"><u>[Updated] Overwatch Playback Techniques Explained</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-perfect-dimension-formula-for-youtube-videos/"><u>[Updated] The Perfect Dimension Formula for YouTube Videos</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/capturing-your-screen-on-asus-zenfone-models-a-step-by-step-guide/"><u>Capturing Your Screen on ASUS ZenFone Models: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-chronicles-seeking-pages-groups-in-fb-realm/"><u>Connectivity Chronicles: Seeking Pages, Groups in FB Realm</u></a></li>
+<li><a href="https://fox-where.techidaily.com/descubra-como-localizar-imagens-em-um-hd-externo-com-estas-quatro-estrategicas-tecnicas/"><u>Descubra Como Localizar Imagens Em Um HD Externo Com Estas Quatro Estratégicas Técnicas</u></a></li>
+<li><a href="https://win-dash.techidaily.com/enhance-your-gameplay-quick-and-simple-guide-to-updating-amd-vega-drivers/"><u>Enhance Your Gameplay: Quick and Simple Guide to Updating AMD Vega Drivers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/korean-alphabet-a-quick-guide-to-hangul/"><u>Korean Alphabet – A Quick Guide to Hangul</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-of-love-a-global-valentines-day-guide/"><u>Language of Love: A Global Valentine’s Day Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-french-efficiently-from-home-guide/"><u>Learn French Efficiently From Home Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/majority-mother-tongues-the-15-summit/"><u>Majority Mother Tongues – The #15 Summit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multicultural-mastery-the-art-of-interacting-across-borders/"><u>Multicultural Mastery: The Art of Interacting Across Borders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pace-yourself-learn-japans-counting-quickly/"><u>Pace Yourself, Learn Japan's Counting Quickly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleashing-potential-with-johannes-honterus/"><u>Unleashing Potential with Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-dialect-flourishes-in-israeli-territory/"><u>Which Dialect Flourishes in Israeli Territory?</u></a></li>
+</ul></div>
 

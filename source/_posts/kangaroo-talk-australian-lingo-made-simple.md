@@ -1,7 +1,7 @@
 ---
 title: "Kangaroo Talk: Australian Lingo Made Simple"
-date: 2025-01-16T17:11:01.024Z
-updated: 2025-01-22T16:14:38.703Z
+date: 2025-01-26T18:54:37.737Z
+updated: 2025-01-29T18:42:26.164Z
 tags:
   - speak
   - english
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/84a4620f422e4279d6cc9c20449448701c42416df
  You can also use “thanks heaps” when you are really grateful to someone for doing something for you or “cheers” to combine both “thank you”‌ and “goodbye” ‌in a single word. For example, “cheers” is a perfect choice for leaving the shop after the barista gives you your coffee.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2._Brekkie_ – Breakfast
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/84a4620f422e4279d6cc9c20449448701c42416df
 _“So… what did you have for brekkie today?”_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3._Barbie_ – Barbecue
@@ -60,10 +60,6 @@ Well, I don’t mind if you call me a “barbie girl” now.
 
  There’s no better replacement for the word “mouth”. Why isn’t everybody using this?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6._Ankle-Biter_ – A Small or Young Child
 
 It can also refer to a small, aggressive dog like a chihuahua.
@@ -72,9 +68,17 @@ It can also refer to a small, aggressive dog like a chihuahua.
 
  A “bogan” is an uncouth or unrefined person regarded as being of low social status. The term is usually pejorative, but it can also be regarded as a joke between friends.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8._Bush Telly_ – What You Watch at Night When You Are Camping
 
  You heard “telly” before, but “bush telly”? That’s a new one. Basically, when you are camping, you can’t watch traditional television, so you watch the “bush telly”: the campfire, the stars or just… the bush.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9._Bikkie_ – Biscuit
 
@@ -83,7 +87,7 @@ You’ll ask for a “bikkie” just to hear yourself say it.
  There’s also the very cute expression “to cost big bikkies”, meaning that something is very expensive.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10._Mate_ – Friend
@@ -96,11 +100,19 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ Australian Slang Words To Help You Speak Like A True Aussie 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Improve your English, mate
 
  Oi, this language learnin’ app is fair dinkum! Give it a try.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4765&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4765%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Australian Slang Phrases Only Local Aussies Know
 
@@ -211,19 +223,11 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
  John Dory is an edible fish found on the coasts of Africa, Southeast Asia, New Zealand, and – of course – Australia. There’s no secret story to it apart from the fact that it just rhymes with ‘story’. So, instead of asking,_“what’s the story?”_ , in Australian slang, you ask_“what’s the John Dory?”_ .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Chuck a sickie
 
 **Call in sick without actually being sick.**
 
  If you ever took a day off work pretending to be sick, you’re guilty of chucking a sickie._“I’m chucking a sickie to go to the beach. Wanna join?”_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Fair dinkum
 
@@ -231,15 +235,15 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
  Popular Australian exclamation often used to emphasize or seek confirmation (if used with the proper intonation) of the genuineness or truth of something._“This pork barbie is fair dinkum!”_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Wrap your laughing gear ‘round that
 
 **Eat that.**
 
  What’s your laughing gear? Your mouth, of course. So, when you wrap your laughing gear ‘round something, you… eat it. It can be used in either a friendly or threatening way.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Carrying on like a pork chop
 
@@ -260,10 +264,6 @@ It seems that this phrase has had a lot of variations:
 **Complete chaos, mess.**
 
  You can think of it this way: what does a dog’s breakfast consist of? Leftovers. Chicken bones or maybe a half-eaten pizza from last night. So, if something is really messy or disordered, then it looks like a dog’s breakfast.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\. Do the Harry
 
@@ -296,13 +296,13 @@ Coming Soon
 ![sheila bloke](https://edge.mondly.com/blog/wp-content/uploads/2020/05/sheila-bloke-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 9")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Australian slang
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What You Need to Know About Aussie Slang
@@ -352,20 +352,24 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-bp550-revamped-the-ultimate-2023-examination/"><u>[New] BP550 Revamped - The Ultimate 2023 Examination</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-secrets-of-successful-twitch-stream-capturing-for-2024/"><u>[New] Secrets of Successful Twitch Stream Capturing for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-elevate-video-calls-browse-through-our-top-5-hd-webcams-and-mics/"><u>[Updated] 2024 Approved Elevate Video Calls - Browse Through Our Top 5 HD Webcams & Mics</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unlock-the-secrets-of-facebook-live-a-beginners-manual/"><u>[Updated] 2024 Approved Unlock the Secrets of Facebook Live A Beginner's Manual</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-testimonials-on-screen-marketings-best-friend/"><u>[Updated] Testimonials on Screen Marketing's Best Friend</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhancing-grammar-mastery-with-9-wisdom-points-shared-by-an-esl-storyteller/"><u>Enhancing Grammar Mastery with 9 Wisdom Points, Shared by an ESL Storyteller</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/esl-teaching-for-immigrant-integration/"><u>ESL Teaching for Immigrant Integration</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-french-expressions-a-journey-through-language-mastery/"><u>Essential French Expressions: A Journey Through Language Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/european-harmony-in-hearing-diverse-dialects-celebrate/"><u>European Harmony in Hearing: Diverse Dialects Celebrate</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explora-la-voces-animalistas-con-espanol/"><u>Explora La Voces Animalistas Con Español</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-the-distinctive-aspects-of-pt-buttons-worldwide/"><u>Exploring the Distinctive Aspects of PT Buttons Worldwide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/foreign-tongues-sharper-minds/"><u>Foreign Tongues, Sharper Minds</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-cyberspace-screenplays-virtual-movie-journeys/"><u>In 2024, Cyberspace Screenplays Virtual Movie Journeys</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-merge-wmv-videos-without-cost-top-free-tools/"><u>New Merge WMV Videos Without Cost Top Free Tools</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-the-premier-platforms-for-live-chat-and-screen-sharing-alternatives-to-omegle/"><u>New The Premier Platforms for Live Chat and Screen Sharing Alternatives to Omegle</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ringtone-archive-iphone-2024-edition/"><u>[New] Ringtone Archive IPhone 2024 Edition</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-taking-screenshots-on-mac-5-methods/"><u>[Updated] Taking Screenshots on Mac [5 Methods]</u></a></li>
+<li><a href="https://fox-links.techidaily.com/a-step-by-step-guide-to-masterful-editing-for-2024/"><u>A Step-by-Step Guide to Masterful Editing for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/commemorating-1500-no-cost-everyday-learning-sessions/"><u>Commemorating 1,500 No-Cost Everyday Learning Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-travel-experiences-with-language-mastery/"><u>Enhanced Travel Experiences with Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-teach-english-as-a-second-language/"><u>How to Teach English as a Second Language</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-hds-radiance-reviewed-does-it-merit-the-hdr-label/"><u>In 2024, HD's Radiance Reviewed Does It Merit the HDR Label?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/joint-endeavor-mondly-pearson-button-filters-elevation/"><u>Joint Endeavor: Mondly-Pearson Button Filters Elevation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-connectivity-pearsons-online-hub/"><u>Language Connectivity: Pearson's Online Hub</u></a></li>
+<li><a href="https://network-issues.techidaily.com/minimal-adjustment-guide-inactive-gpu-wnvidia/"><u>Minimal Adjustment Guide: Inactive GPU W/NVIDIA</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577339220-norwegian-skills-surge-10-minute-mini-marathons/"><u>Norwegian Skills Surge, 10-Minute Mini-Marathons!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-the-challenge-of-non-automatic-airpod-switching-amongst-apple-electronics/"><u>Overcoming the Challenge of Non-Automatic AirPod Switching Amongst Apple Electronics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/privacy-innovation-new-terms-and-usage-guide/"><u>Privacy Innovation: New Terms & Usage Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-patchwork-unraveling-irish-aussie-and-us-accents/"><u>Pronunciation Patchwork: Unraveling Irish, Aussie, and U.S. Accents</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/setting-up-your-google-meet-profile/"><u>Setting Up Your Google Meet Profile</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/tackling-tricky-feed-issues-hidden-youtubefacebook-videos/"><u>Tackling Tricky Feed Issues Hidden YouTube/Facebook Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/together-we-learn-mondlys-language-course-drive/"><u>Together, We Learn: Mondly’s Language Course Drive</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-11-no-cost-movies-downloads-best-free-film-websites/"><u>Top 11 No-Cost Movies Downloads: Best Free Film Websites</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-tecno-camon-20-premier-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Tecno Camon 20 Premier 5G? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

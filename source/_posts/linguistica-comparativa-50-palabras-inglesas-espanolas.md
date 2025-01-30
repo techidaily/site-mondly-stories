@@ -1,7 +1,7 @@
 ---
 title: "Lingüística Comparativa: 50 Palabras Inglesas-Españolas"
-date: 2024-09-15T18:07:29.023Z
-updated: 2024-09-16T19:52:25.034Z
+date: 2025-01-22T18:47:29.063Z
+updated: 2025-01-30T02:03:09.267Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/59c3843adcf6e65abddadc6ccd38abd83d01c0755
 
  Luckily, we are coming to your aid with a comprehensive list of some of the most common English-Spanish cognates and false Spanish cognates. Read on to understand the differences and choose the correct words for your next conversation in Spanish.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What are cognates, false cognates and false friends?
 
  In linguistics,**cognates** are known as words from different languages that have the same root or origin and share the same meaning. For example, when it comes to English-Spanish cognates, the common root comes from Latin and/or Greek.
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/59c3843adcf6e65abddadc6ccd38abd83d01c0755
  Last, but definitely not least,**false friends** are the trouble-makers that sound and look similar, but have completely different meanings. This is obviously the case of the Spanish word_embarazada_ which may look like the English “embarrassed” but actually translates to “pregnant”.
 
  Do not worry though! In the following paragraphs, we will cover all the Spanish-English false friends you absolutely need to know in order to avoid… embarrassing situations.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Perfect English-Spanish cognates
 
@@ -61,6 +69,10 @@ thumbnail: https://thmb.techidaily.com/59c3843adcf6e65abddadc6ccd38abd83d01c0755
 * erup**tion** and   _erup**ción**_
 * addi**tion** and   _adi**ción**_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Spanish Cognates that change “-nt” to “-nte”
 
 * abunda**nt** and   _abunda**nte**_
@@ -73,19 +85,6 @@ thumbnail: https://thmb.techidaily.com/59c3843adcf6e65abddadc6ccd38abd83d01c0755
 * ignora**nt** and   _ignora**nte**_
 * evide**nt** and   _evide**nte**_
 * preside**nt** and   _preside**nte**_
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Spanish cognates that change “-ate” to “ar”
 
@@ -104,13 +103,6 @@ thumbnail: https://thmb.techidaily.com/59c3843adcf6e65abddadc6ccd38abd83d01c0755
 
  “Mommy, what are cognates?” by Josh Applegate©
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Spanish cognates that add an “-o”
 
 * academic and   _académic**o**_
@@ -123,6 +115,10 @@ thumbnail: https://thmb.techidaily.com/59c3843adcf6e65abddadc6ccd38abd83d01c0755
 * basic and   _básic**o**_
 * artistic and   _artístic**o**_
 * dynamic and   _dinámic**o**_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish cognates that add an “-ar” or an “-ir”
 
@@ -138,13 +134,6 @@ thumbnail: https://thmb.techidaily.com/59c3843adcf6e65abddadc6ccd38abd83d01c0755
 * limit and   _limit**ar**_
 * calm and   _calm**ar**_
 * control and   _control**ar**_
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Spanish cognates that change “-ly” to “-mente”
 
@@ -189,6 +178,10 @@ thumbnail: https://thmb.techidaily.com/59c3843adcf6e65abddadc6ccd38abd83d01c0755
 
 ![false cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/false-cognates-600x400.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Haha! Gotcha!” by olio creative©
 
 * **_enviar_ and to envy**
@@ -220,13 +213,6 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Speak Spanish in just 10 minutes a day
 
  All these funny little examples convinced you it’s high time you learned Spanish, didn’t they? Lucky for you, we have the perfect tool for learning Spanish: Mondly, the award-winning language learning app that makes language learning fun, fast and easy.
@@ -252,5 +238,23 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-expert-mac-system-for-high-definition-screen-plus-audio-recording/"><u>[Updated] 2024 Approved Expert Mac System for High Definition Screen + Audio Recording</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-optimizing-audio-transition-from-cds-using-wmp/"><u>[Updated] 2024 Approved Optimizing Audio Transition From Cds Using WMP</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-leverage-free-luts-to-upgrade-your-obs-video-production-quality/"><u>[Updated] Leverage Free LUTs to Upgrade Your OBS Video Production Quality</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-warmth-amidst-cold-selecting-perfect-winter-backdrops/"><u>[Updated] Warmth Amidst Cold Selecting Perfect Winter Backdrops</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/sound-mastery-selecting-the-ideal-microphone-for-2024/"><u>ASMR Sound Mastery Selecting the Ideal Microphone for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/demystifying-instagrams-videography-restrictions-for-2024/"><u>Demystifying Instagram's Videography Restrictions for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-learning-an-adventure-or-a-nightmare/"><u>German Learning: An Adventure or a Nightmare?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-basica-declarar-la-hora-en-espanol/"><u>Guía Básica: Declarar La Hora en Español</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-samsung-galaxy-a54-5g-screen-sharing-drfone-by-drfone-android/"><u>How To Do Samsung Galaxy A54 5G Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-honor-magic-5-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Honor Magic 5? Fixed | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingualism-in-the-north-pole-santas-secret/"><u>Multilingualism in the North Pole – Santa’s Secret</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-common-language-learning-fallacies/"><u>Navigating Through Common Language Learning Fallacies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/passionate-prose-effective-german-verbal-tactics/"><u>Passionate Prose: Effective German Verbal Tactics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rhetoric-romance-pickup-line-playbook/"><u>Rhetoric Romance: Pickup Line Playbook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-bards-impact-vocabulary-that-never-dies/"><u>The Bard's Impact: Vocabulary That Never Dies</u></a></li>
+<li><a href="https://driver-download.techidaily.com/unlock-enhanced-performance-with-your-logitech-extreme-3d-pros-newest-driver-version/"><u>Unlock Enhanced Performance with Your Logitech Extreme 3D Pro's Newest Driver Version |</u></a></li>
+</ul></div>
 

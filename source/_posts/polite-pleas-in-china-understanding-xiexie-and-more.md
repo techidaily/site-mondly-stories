@@ -1,7 +1,7 @@
 ---
 title: "Polite Pleas in China: Understanding Xièxiè and More"
-date: 2024-09-14T18:19:41.991Z
-updated: 2024-09-21T20:10:35.620Z
+date: 2025-01-25T04:47:29.136Z
+updated: 2025-01-30T00:15:42.797Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/4f70f650b6f9e154154b14a23a923935cddb729dc
 
  **So here are 12 of the most important ways to say thank you in Chinese.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Xièxiè – the most common Chinese thanks
 
  As already mentioned, **the most common way to say “thanks” or “thank you” in Chinese is_xièxiè_ (谢谢) or_xièxie._**  A rough [Chinese pronunciation](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) of that is_syeh-syeh,_ but while it sounds like the same words repeated twice, there is actually a very subtle difference between the two. Because the first syllable is a fourth tone and the second is a neutral, you should start the pronunciation high with the first syllable and then say the second one more lightly and without any emphasis.
@@ -40,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/4f70f650b6f9e154154b14a23a923935cddb729dc
 
  “Xiangxi, China” by Theodor Lundqvist©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Thank you very much in Chinese
 
  Just like in any other language, the way you say “thank you” in Chinese can alter its meaning. If you say it harshly and keep a straight face, Chinese speakers may perceive your attitude as sarcastic. So smile, act as you would in your native country and nod respectfully (don’t bow as you would do in Japan). Even if your pronunciation is not perfect, your message will certainly be conveyed correctly.
@@ -57,6 +65,10 @@ Other variations include:
 * (I’m) really grateful! – 非常感谢你!_Fēi cháng gǎn xiè nǐ!_ (slightly more formal than the previous)
 * Thank you SO much! – 太谢谢你了! –_Tài xiè xiè nǐ le!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Thank you for… in Chinese
 
  Just as important as the simple, plain “thank you” is the “thank you for something” thank you. Because sometimes you need to be more specific. What are you thanking them for? So here’s how to thank someone in Chinese for the gift they gave you and some more [Chinese phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that might come in handy next time you visit China.
@@ -72,6 +84,10 @@ Other variations include:
 
 ![xiexie chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/10/xiexie-chinese-1024x682.jpg "Thank You In Chinese: Xièxiè And 12 Other Thank You Chinese Phrases 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Jiaxing, China” by Jay©
 
 ## 4\. Other ways to express your gratitude in Chinese
@@ -79,13 +95,6 @@ Other variations include:
  Depending on the social context, in some cases, you might want to vary your answers. For example, when someone compliments you, instead of saying 谢谢_xièxiè_ – which may sound a little arrogant, you could say 哪里哪里_nǎlǐ nǎlǐ_ . In English, that translates to “no, no” or “where, where” as in “you’re flattering me” or “you’re too kind”.
 
  In fact, Chinese culture is known for its preference for modesty and humility. Deflecting a compliment rather than accepting it with a plain “thank you” is much more appreciated. Thus, another way to deflect a compliment (while secretly enjoying it) is to say 没有没有_méiyǒu méiyǒu_ – meaning “no, no, that’s nonsense”.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## BONUS: You’re welcome in Chinese
 
@@ -101,10 +110,7 @@ Other variations include:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s how to speak Chinese in just 10 minutes a day
@@ -132,5 +138,20 @@ Other variations include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-learning-the-art-of-soundshaping-in-audacity/"><u>[New] Learning the Art of Soundshaping in Audacity</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-best-options-ultimate-guide-to-macs-video-capturing-tools/"><u>[Updated] 2024 Approved Best Options Ultimate Guide to Mac's Video Capturing Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-infinix-hot-40-pro-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Infinix Hot 40 Pro to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/gratis-imgburn-professional-edition-per-masterizzare-e-scaricare-dvd-anti-copy-protected-iso-file/"><u>Gratis ImgBurn Professional Edition per Masterizzare E Scaricare DVD Anti-Copy Protected ISO File</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-get-broadcom-bluetooth-drivers-installed-on-your-windows-pc-windows-1187/"><u>How to Get Broadcom Bluetooth Drivers Installed on Your Windows PC (Windows 11/8/7)</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-honor-magic-vs-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-top-5-avchd-video-editing-software/"><u>In 2024, Top 5 AVCHD Video Editing Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/philosophical-phonology-from-classical-to-contemporary/"><u>Philosophical Phonology: From Classical to Contemporary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-catalan-mastery-daily-10-minute-routine/"><u>Quick Catalan Mastery: Daily 10-Minute Routine</u></a></li>
+<li><a href="https://review-topics.techidaily.com/reinstall-drivers-with-device-manager-on-windows-1110-by-drivereasy-guide/"><u>Reinstall drivers with Device Manager on Windows 11/10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-balance-between-accuracy-and-understanding/"><u>The Balance Between Accuracy and Understanding</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-breakfast-banter-how-to-say-good-morning/"><u>Worldwide Breakfast Banter: How to Say 'Good Morning'</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-studio-for-beginners-basic-to-pro-editing-guide/"><u>YouTube Studio for Beginners Basic to Pro Editing Guide</u></a></li>
+</ul></div>
 

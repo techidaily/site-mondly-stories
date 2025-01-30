@@ -1,7 +1,7 @@
 ---
 title: Building a French Foundation at Home
-date: 2024-09-14T18:54:46.543Z
-updated: 2024-09-21T18:08:00.751Z
+date: 2025-01-24T00:27:39.461Z
+updated: 2025-01-30T04:08:35.674Z
 tags:
   - speak
   - english
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/6ab11e94b8a02777808e732d5f2080be3cb5bc04d
 
 ![french lessons](https://edge.mondly.com/blog/wp-content/uploads/2019/10/french-lessons-1024x682.jpg "The Best Way To Learn French At Home 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Read books in French” by Aliis Sinisalu©
 
  There, the secret has been revealed! All you have to do is download the app and learn French daily, step by step, at your own pace. It’s easy and in a matter of days, you’ll include “[learn French at home with Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ” naturally in your routine.
@@ -39,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/6ab11e94b8a02777808e732d5f2080be3cb5bc04d
  Soon enough you’ll find yourself speaking French like you never knew you could. How so? Well, Mondly doesn’t fill your head with unnecessary information that won’t get you conversational. Instead, it focuses on getting you fluent in French using the inductive method – learn by doing, context and example, and extrapolate to rules.
 
  It worked for millions of other people that learned French at home with Mondly. And now it will work for you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Read books in French
 
@@ -50,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/6ab11e94b8a02777808e732d5f2080be3cb5bc04d
 
 ![learn french](https://edge.mondly.com/blog/wp-content/uploads/2019/10/learn-french-1024x709.jpg "The Best Way To Learn French At Home 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Jardin des Curiosités, Lyon, France” by Léonard Cotte©
 
 ## 3\. Use flashcards for those French words that don’t stick
@@ -57,13 +69,6 @@ thumbnail: https://thmb.techidaily.com/6ab11e94b8a02777808e732d5f2080be3cb5bc04d
  Some French words just – won’t – stick. It’s crazy how stubborn they are! Lucky for you, there are ways to literally glue these words into your brain and one of the handiest ideas is flashcards.
 
  Start by identifying the words or [phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that won’t stick and write them down on sticky notes (ironic!). Then put them by the bed, in the kitchen, in the bathroom or wherever you spend the most time during a day. Next thing you know, the same French words you used to forget will now follow you everywhere.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Train your ears with French movies, music or videos
 
@@ -79,11 +84,19 @@ thumbnail: https://thmb.techidaily.com/6ab11e94b8a02777808e732d5f2080be3cb5bc04d
 
  If you don’t have any fluent French friends to practice with, use your imagination! This will help you understand your limits and work more exactly where you need it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus tip: Stay positive and book a trip to France ASAP
 
  These methods will work ten times better if you remain positive. Now you know what’s the best way to learn French. The rest is up to you and you can do it! Start by saying_Je peux le faire! Je peux commencer à parler le français couramment!_ (“I can do it! I can start speaking French fluently!”).
 
 ![best way to learn French online](https://edge.mondly.com/blog/wp-content/uploads/2019/10/best-way-to-learn-french-online-1024x554.jpg "The Best Way To Learn French At Home 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Valloire, France” by Marc Guellerin
 
@@ -95,13 +108,6 @@ thumbnail: https://thmb.techidaily.com/6ab11e94b8a02777808e732d5f2080be3cb5bc04d
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ready to get your French to the next level?
 
@@ -124,5 +130,26 @@ _Bonne chance!_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-exclusive-list-of-best-video-chat-apps-for-iphone-and-android/"><u>[New] Exclusive List of Best Video Chat Apps for iPhone and Android</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-mastering-instagram-storytelling-integrating-fun-custom-emojis-for-2024/"><u>[New] Mastering Instagram Storytelling Integrating Fun, Custom Emojis for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-soundtracks-for-snickers-ringtones-best-online-sources/"><u>2024 Approved Soundtracks for Snickers Ringtones' Best Online Sources</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/apples-latest-leap-in-innovation-comparing-performance-and-value-of-m3-vs-m1-macbook-pro-what-you-need-to-know-before-upgrading-zdnet/"><u>Apple's Latest Leap in Innovation: Comparing Performance and Value of M3 vs M1 MacBook Pro - What You Need to Know Before Upgrading | ZDNet</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/sive-access-top-8-platforms-for-free-green-screen-scenery-files/"><u>Exclusive Access Top 8 Platforms for Free Green Screen Scenery Files</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/how-to-recover-display-savings-error-on-win-710-resolved/"><u>How to Recover Display Savings Error on WIN 7/10 [Resolved]</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/iphone-16-upgrades-with-ai-vision-capabilities-inspired-by-google-lens-the-next-level-of-smartphone-photography-insights-from-zdnet/"><u>IPhone 16 Upgrades with AI Vision Capabilities Inspired by Google Lens: The Next Level of Smartphone Photography - Insights From ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-a-man-who-matters/"><u>Johannes Honterus: A Man Who Matters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-russian-greetings-for-easy-language-conversations/"><u>Key Russian Greetings for Easy Language Conversations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lifelong-learners-guide-to-the-perks-of-multilingual-adulthood/"><u>Lifelong Learners' Guide to the Perks of Multilingual Adulthood</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/minutes-to-master-catalan-effortless-way/"><u>Minutes to Master Catalan, Effortless Way</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-ar-journey-transforming-language-acquisition/"><u>Mondly's AR Journey: Transforming Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-social-etiquette-in-chinese-dialogues/"><u>Navigating Social Etiquette in Chinese Dialogues</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/pewdiepie-financial-overview-monetary-metrics/"><u>PewDiePie Financial Overview – Monetary Metrics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-greetings-common-phrases-and-basic-words/"><u>Russian Greetings: Common Phrases and Basic Words</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solving-lag-and-freezing-problems-in-pubg-mobile-on-your-smartphone/"><u>Solving Lag and Freezing Problems in PUBG Mobile on Your Smartphone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-catalan-comprehension-minutes-only/"><u>Speedy Catalan Comprehension, Minutes Only</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unveiling-the-top-5-pioneering-ai-processor-technologies/"><u>Unveiling the Top 5 Pioneering AI Processor Technologies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocal-voyage-irish-scottish-and-aussie-rhythmic-riffs-uncovered/"><u>Vocal Voyage: Irish, Scottish, and Aussie Rhythmic Riffs Uncovered</u></a></li>
+</ul></div>
 

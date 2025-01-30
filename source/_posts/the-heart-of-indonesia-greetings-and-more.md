@@ -1,7 +1,7 @@
 ---
 title: "The Heart of Indonesia: Greetings and More"
-date: 2025-01-16T16:47:40.148Z
-updated: 2025-01-22T17:40:16.376Z
+date: 2025-01-24T05:34:56.675Z
+updated: 2025-01-29T17:04:36.106Z
 tags:
   - speak
   - english
@@ -32,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -44,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
 
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/44b00e7ceffa68921ecf622a184f48a9d902f80a5
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
@@ -67,7 +67,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
@@ -77,7 +77,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say goodbye
@@ -92,7 +92,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Start learning Indonesian today
@@ -126,19 +126,19 @@ Get Mondly today and learn Indonesian naturally with the following:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-a-glimpse-at-the-best-curating-a-list-of-5-exceptional-book-tts/"><u>[New] 2024 Approved A Glimpse at the Best Curating a List of 5 Exceptional Book TTs</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-techniques-for-gh-video-logging/"><u>[Updated] 2024 Approved Techniques for GH Video Logging</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-experiential-playground-vr-innovations/"><u>2024 Approved Experiential Playground VR Innovations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/age-is-just-a-number-learning-new-languages-after-fifty/"><u>Age Is Just a Number: Learning New Languages After Fifty</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/charting-the-course-to-fluency-a-comparative-analysis/"><u>Charting the Course to Fluency: A Comparative Analysis</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquering-vietnamese-a-beginners-phrasebook/"><u>Conquering Vietnamese: A Beginner's Phrasebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/design-thinking-for-social-media-timelines/"><u>Design Thinking for Social Media Timelines</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/early-access-get-the-samsung-t5-solid-state-drive-for-nearly-half-price-on-amazon-ahead-of-octobers-prime-shopping-extravaganza-zdnet/"><u>Early Access: Get the Samsung T5 Solid State Drive for Nearly Half Price On Amazon Ahead of October's Prime Shopping Extravaganza | ZDNET</u></a></li>
-<li><a href="https://network-issues.techidaily.com/eliminating-low-brightness-lenovo-issue/"><u>Eliminating Low-Brightness Lenovo Issue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-german-a-list-of-convincing-reasons/"><u>Embrace German: A List of Convincing Reasons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/emotive-epics-celebrating-french-romance/"><u>Emotive Epics: Celebrating French Romance</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/grasping-basics-your-guide-to-av1-encoding/"><u>Grasping Basics Your Guide to AV1 Encoding</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577021074-top-ranked-non-native-language-classes-us/"><u>Top Ranked Non-Native Language Classes U.S.</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/ultimate-tutorial-customizing-your-macs-command-key-functionality-with-ease/"><u>Ultimate Tutorial: Customizing Your Mac's Command Key Functionality with Ease</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-economical-action-filmmaking-gear-for-the-aspiring-pro/"><u>[Updated] 2024 Approved Economical Action Filmmaking Gear for the Aspiring Pro</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-perfecting-instagrams-audio-emoji-placement/"><u>[Updated] In 2024, Perfecting Instagram's Audio Emoji Placement</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unveiling-underground-favorites-in-the-world-of-memes/"><u>[Updated] In 2024, Unveiling Underground Favorites in the World of Memes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-quick-hacks-for-ensuring-visual-discretion-in-photos/"><u>2024 Approved Quick Hacks for Ensuring Visual Discretion in Photos</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/elite-selection-of-oled-laptops-expertly-tested-and-reviewed-insights/"><u>Elite Selection of OLED Laptops : Expertly Tested and Reviewed Insights</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-samsung-galaxy-a23-5g-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Samsung Galaxy A23 5G? Try These Fixes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-giggle-guild-imgur-memomaker/"><u>In 2024, Giggle Guild Imgur MemoMaker</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-spanish-expressions-for-convenient-and-confident-touring/"><u>Key Spanish Expressions for Convenient and Confident Touring</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-squelette-humain-une-introduction-a-ses-composants-en-francais/"><u>Le Squelette Humain: Une Introduction À Ses Composants en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oxford-3000-revolutionized-by-mondly-for-learning/"><u>Oxford 3000, Revolutionized by Mondly for Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oxford-unlocks-english-essentials-with-mondly/"><u>Oxford Unlocks English Essentials with Mondly</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/podcasts-vs-youtube-which-one-is-the-right-choice-for-2024/"><u>Podcasts Vs. YouTube Which One Is the Right Choice for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/teaching-english-as-a-second-language/"><u>Teaching English As A Second Language</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Discovering Worldwide Loving Sentiments Today
-date: 2024-09-19T18:18:59.031Z
-updated: 2024-09-21T16:02:52.495Z
+date: 2025-01-26T00:51:31.971Z
+updated: 2025-01-30T02:44:06.817Z
 tags:
   - speak
   - english
@@ -56,11 +56,19 @@ Here are some more ways to say “I love you” in other languages:
 
  Is this still not enough? Here’s how saying “I love you” different languages can be fun:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say I love you – a quick guide for “I love you”s in 30 most common languages
 
  Modern society makes us feel so much and express so little! We’ve become shallow. Just like [the song](https://www.youtube.com/watch?v=bo%5FefYhYU2A) says, many of us aren’t probably happy in this modern world. We bury ourselves every day under mountains of unexpressed feelings often because of social media. We’re afraid to show our inner, deeper selves. We put on masks. We don’t dare to be romantic anymore. And still, our loved ones are the ones that get to discover more of ourselves. More than just a pretty face and a cool Instagram account. That’s because they drown us in authentic, real love. They see the best in us and stick around even the hardest times. And they deserve the same back. Always. Not just on Valentine’s Day. But every single day! Wine for him, flowers for her, little gifts for the both of them. Today. This is a reminder.
 
 ![i love you in french](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-french.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Now back to expressing your love in different languages. If you feel like the video above wasn’t enough for you, here’s how to write “I love you” in different languages – with transliterations where it’s needed. **Keep in mind that these aren’t always the most commonly used in their home country.** They are, instead, the most complete and grammatically correct – which is what you really need in the beginning.
 
@@ -107,11 +115,19 @@ Here are some more ways to say “I love you” in other languages:
 
 **Here’s a short recap with only the correct pronunciations:**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## “I love you” in sign language
 
  To sign “I love you”, put up your thumb, index finger and pinkie finger while keeping your ring finger and your middle finger down. Like this:
 
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
 
@@ -119,20 +135,11 @@ Here are some more ways to say “I love you” in other languages:
 
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
- When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
-
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
 ### A love poem for your loved one
 
@@ -186,13 +193,6 @@ _With you, my heart will forever blend._
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### From “I love you” to conversational fast
 
  Do you want to go the extra mile and learn a new language for someone you love? Try Mondly, the award-winning language app that can help you master languages in record time.
@@ -222,5 +222,19 @@ _With you, my heart will forever blend._
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unforgettable-visuals-key-elements-in-podcast-logo-creation/"><u>[New] 2024 Approved Unforgettable Visuals Key Elements in Podcast Logo Creation</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-masterclass-the-different-faces-of-hand-tracker/"><u>[Updated] Masterclass The Different Faces of Hand Tracker</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-save-money-on-titles-exclusive-list-of-11-free-creators-for-2024/"><u>[Updated] Save Money on Titles - Exclusive List of 11 Free Creators for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-x-recorder-plus-professional-edition-for-2024/"><u>[Updated] X-Recorder Plus - Professional Edition for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-identifying-the-best-on-the-market-for-hdr-photography/"><u>2024 Approved Identifying the Best on the Market for HDR Photography</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-lava-storm-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Lava Storm 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-unlock-a-resource-removing-occupied-files-message-on-windows-154-chars/"><u>How to Unlock a Resource: Removing Occupied Files Message on Windows (154 Chars)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/insta-flip-fundamentals-rotating-videos-for-maximum-engagement-and-reach-for-2024/"><u>Insta-Flip Fundamentals Rotating Videos for Maximum Engagement and Reach for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jours-francais-de-lannee/"><u>Jours Français De L'Année</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-leaders-pioneers-of-21st-century-education/"><u>Language Learning Leaders: Pioneers of 21St Century Education</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/online-linguistic-landscape-mondlys-triumph-in-germany/"><u>Online Linguistic Landscape: Mondly’s Triumph in Germany</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/startende-deutsche-nummerierung-von-eins-bis-hundert-schrittweise-lernen/"><u>Startende Deutsche Nummerierung: Von Eins Bis Hundert Schrittweise Lernen</u></a></li>
+</ul></div>
 

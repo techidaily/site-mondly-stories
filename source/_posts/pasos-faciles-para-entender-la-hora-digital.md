@@ -1,7 +1,7 @@
 ---
 title: Pasos Fáciles Para Entender La Hora Digital
-date: 2024-09-15T16:03:38.126Z
-updated: 2024-09-21T20:06:01.224Z
+date: 2025-01-25T17:52:45.113Z
+updated: 2025-01-29T19:36:49.846Z
 tags:
   - speak
   - english
@@ -32,6 +32,10 @@ But first things first.
 
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The basics of Spanish time
 
  To_decir la hora_ (“tell the time”) in Spanish, there are a few simple rules you’ll have to know.
@@ -57,6 +61,10 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -73,14 +81,11 @@ Here are some examples:
 
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
- Telling time in Spanish – a visual guide
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Telling time in Spanish – a visual guide
 
 ### Hour + minutes in Spanish time
 
@@ -93,6 +98,10 @@ Here are some examples:
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Different ways of telling time in Spanish
 
  There are three formulas of telling time in Spanish. Here are different ways of telling it’s 3:10:
@@ -102,6 +111,10 @@ Here are some examples:
 * _es/son_ +_las_ \+ hour + con + number of minutes –**_Son las tres con diez_**
 
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
 
@@ -152,13 +165,6 @@ Here are some examples:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -182,5 +188,16 @@ Here are some examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-intriguing-stories-flourishing-channels-top-3-techniques/"><u>[New] Intriguing Stories, Flourishing Channels Top 3 Techniques</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Tecno Spark 10 4G? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ingenious-ways-to-refuel-your-phones-battery-when-you-dont-have-the-right-cable/"><u>Ingenious Ways to Refuel Your Phone's Battery When You Don't Have the Right Cable</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/map-all-nations-with-latin-roots/"><u>Map: All Nations with Latin Roots</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/seamless-mov-to-wma-transformation-guide-for-pc-users/"><u>Seamless MOV to WMA Transformation Guide for PC Users</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1691963-9780804152358-shamanism-as-a-spiritual-practice-for-daily-life/"><u>Shamanism As a Spiritual Practice for Daily Life | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sign-up-now-enjoy-96-off-on-lifetime-mondly-access/"><u>Sign Up Now, Enjoy 96% OFF on Lifetime Mondly Access!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-latvian-like-a-pro-master-in-just-under-an-hour/"><u>Speak Latvian Like a Pro: Master in Just Under an Hour</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-jargon-jungle-navigating-todays-casual-speech/"><u>The Jargon Jungle: Navigating Today's Casual Speech</u></a></li>
+</ul></div>
 

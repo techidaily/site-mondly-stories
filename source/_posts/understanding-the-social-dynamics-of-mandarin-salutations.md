@@ -1,7 +1,7 @@
 ---
 title: Understanding the Social Dynamics of Mandarin Salutations
-date: 2024-09-15T18:24:05.841Z
-updated: 2024-09-16T17:07:16.179Z
+date: 2025-01-28T23:28:31.982Z
+updated: 2025-01-29T21:35:02.246Z
 tags:
   - speak
   - english
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/d9427c61032284cb88ab156d6c103f9d31f7d2686
 ## Understanding the Social Dynamics of Mandarin Salutations
 
  How should we say “hello” in Chinese? 你好 nǐ hǎo is maybe the most well-known Chinese greeting. But surely, like in many other languages, 你好 nǐ hǎo is not_the only way_ to greet someone in Chinese. There must be different kinds of greetings you can use with friends and other people you are close to, formal greetings that are suitable for business meetings, slightly formal “hello”s you can say when entering a store and so on. Well, indeed, there are! The [Chinese language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is just as rich in greetings as any other language. So, let’s dive in and learn the best ways to say “hello” in Mandarin like a fluent speaker.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Let’s learn how to actually say “hello” in Mandarin Chinese
 
@@ -44,6 +48,10 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
@@ -54,25 +62,11 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  To answer to this greeting, you can say “chī le, nǐ ne?” which means “I’ve eaten, how about you?”.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. 久仰 (jiǔyǎng) – a very formal Chinese greeting
 
  On your way to a business meeting where you’ll meet someone for the first time? Well, that’s the perfect moment to use this very formal Mandarin greeting.
 
  If you want something even MORE‌ formal than that, go with 久闻大名 (jiǔwéndàmíng) literally meaning “your name is famous” – a phrase which could translate to something like “I have heard much about you”. But only use this on very special occasions like meeting the president or a person you hold in very high regard.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. 最近好吗？(zuì jìn hào mǎ) – “How are you these days?”
 
@@ -80,18 +74,19 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
 
- “Hello there!” by Theodor Lundqvist©
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ “Hello there!” by Theodor Lundqvist©
 
 ## 7\. 大家好 (dàjiā hǎo) – say “hello” to a crowd in Chinese
 
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. 下午好 (xiàwǔ hǎo) – “Good afternoon” in Chinese
 
@@ -100,6 +95,10 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
@@ -135,5 +134,22 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-explore-prime-cardboard-compatible-vr-adventures-for-2024/"><u>[New] Explore Prime Cardboard-Compatible VR Adventures for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-visionary-logo-tactics-elevating-your-podcasts-look/"><u>[Updated] 2024 Approved Visionary Logo Tactics Elevating Your Podcast's Look</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevating-your-visual-storytelling-techniques-and-strategies-for-shooting-compelling-slow-motion-content-for-instagram/"><u>[Updated] Elevating Your Visual Storytelling Techniques and Strategies for Shooting Compelling Slow Motion Content for Instagram</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-leading-third-place-ipad-recording-software-guide/"><u>[Updated] In 2024, Leading Third-Place iPad Recording Software Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-essential-recording-gear-for-environmentalists/"><u>In 2024, Essential Recording Gear for Environmentalists</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-unveiled-with-googled-editors-choice-mondly/"><u>Language Learning Unveiled with Googled Editors' Choice - Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-spectrum-of-the-maritime-city/"><u>Language Spectrum of the Maritime City</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-liberation-via-mondly-for-ukrainians/"><u>Linguistic Liberation via Mondly for Ukrainians</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-your-guide-to-the-top-6-fee-free-digital-soundscape-editors-on-the-web-for-2024/"><u>New Your Guide to the Top 6 Fee-Free Digital Soundscape Editors on the Web for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-respectfulness-perfecting-excusez-moi-in-french/"><u>The Language of Respectfulness: Perfecting 'Excusez-Moi' In French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-advanced-english-skills-with-mondly/"><u>Unlocking Advanced English Skills with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-mysteries-of-affection-in-hungarian-tongue/"><u>Unveiling the Mysteries of Affection in Hungarian Tongue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/welcome-an-ai-companion-revolutionizing-chat/"><u>Welcome an AI Companion Revolutionizing Chat</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210840498-9781960892034-who-you-callin-crazy/"><u>Who You Callin' Crazy?! | Free Book</u></a></li>
+</ul></div>
 

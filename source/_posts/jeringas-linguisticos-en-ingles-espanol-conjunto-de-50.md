@@ -1,7 +1,7 @@
 ---
 title: "Jeringas Lingüísticos en Inglés-Español: Conjunto De 50"
-date: 2025-01-16T17:25:08.720Z
-updated: 2025-01-22T16:28:16.815Z
+date: 2025-01-23T17:10:12.630Z
+updated: 2025-01-30T04:04:42.206Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
 ![false friends words](https://edge.mondly.com/blog/wp-content/uploads/2020/04/false-friends-words-600x399.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “We are not false friends!” by Alvan Nee©
 
  Last, but definitely not least,**false friends** are the trouble-makers that sound and look similar, but have completely different meanings. This is obviously the case of the Spanish word_embarazada_ which may look like the English “embarrassed” but actually translates to “pregnant”.
@@ -48,6 +52,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
  But before going there, we have one more type of English-Spanish cognates: near-perfect cognates or words that have the same meaning in both languages, but slightly different spelling.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Spanish Cognates that change “-tion” to “-ción”
 
 * ac**tion** and   _ac**ción**_
@@ -61,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * erup**tion** and   _erup**ción**_
 * addi**tion** and   _adi**ción**_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Spanish Cognates that change “-nt” to “-nte”
 
 * abunda**nt** and   _abunda**nte**_
@@ -77,10 +81,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * ignora**nt** and   _ignora**nte**_
 * evide**nt** and   _evide**nte**_
 * preside**nt** and   _preside**nte**_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Spanish cognates that change “-ate” to “ar”
 
@@ -97,10 +97,6 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 
 ![english spanish cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-spanigh-cognates-600x399.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Mommy, what are cognates?” by Josh Applegate©
 
 ### Spanish cognates that add an “-o”
@@ -115,6 +111,10 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * basic and   _básic**o**_
 * artistic and   _artístic**o**_
 * dynamic and   _dinámic**o**_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish cognates that add an “-ar” or an “-ir”
 
@@ -132,7 +132,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 * control and   _control**ar**_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Spanish cognates that change “-ly” to “-mente”
@@ -179,7 +179,7 @@ thumbnail: https://thmb.techidaily.com/a2e90f9c59ddfc76d24d52ddf99c58f1453c310ce
 ![false cognates](https://edge.mondly.com/blog/wp-content/uploads/2020/04/false-cognates-600x400.jpg "50+ Most Popular English-Spanish Cognates And False Cognates 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Haha! Gotcha!” by olio creative©
@@ -240,24 +240,20 @@ _Realizar_ in Spanish means “to do” or “to perform” and not “to realiz
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-how-to-optimize-your-social-media-presence-post-facebook-change/"><u>[New] How to Optimize Your Social Media Presence Post-Facebook Change</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tep-by-step-guide-to-background-dimming-in-videos/"><u>[New] Step-by-Step Guide to Background Dimming in Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-expert-list-of-websites-ease-up-on-youtube-videos-and-templates/"><u>2024 Approved Expert List of Websites Ease Up on Youtube Videos and Templates</u></a></li>
-<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-xiaomi-civi-3-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Xiaomi Civi 3 to iPhone | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/diy-fixes-for-a-usb-tethering-connection-that-wont-start/"><u>DIY Fixes for a USB Tethering Connection That Won't Start</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/english-word-error-primer-100-most-frequently-misused-vocabulary/"><u>English Word Error Primer - 100 Most Frequently Misused Vocabulary</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/erstklassiges-wissen-uber-deutsche-wochenabschnitte/"><u>Erstklassiges Wissen Über Deutsche Wochenabschnitte</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/experience-cultural-integration-through-hindi-discover-8-engaging-advantages-with-mondly/"><u>Experience Cultural Integration Through Hindi - Discover 8 Engaging Advantages with Mondly!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explorando-ofertas-de-boas-vindas-no-portugues/"><u>Explorando Ofertas De Boas-Vindas No Português</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-and-exploit-mondly-to-perfection/"><u>Explore and Exploit Mondly to Perfection</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressoes-de-alegria-e-felicidade-em-portugal/"><u>Expressões De Alegria E Felicidade Em Portugal</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fusion-of-foreign-fluency/"><u>Fusion of Foreign Fluency</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gentlemans-guide-to-spanish-charm-offenses/"><u>Gentleman's Guide to Spanish Charm Offenses</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-language-labyrinth-how-hard-is-it/"><u>German Language Labyrinth: How Hard Is It?</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2641099-9780750955362-haunted-north-cornwall/"><u>Haunted North Cornwall | Free Book</u></a></li>
-<li><a href="https://common-error.techidaily.com/solution-gain-admin-privileges-needed-for-successful-operations-on-windows-11-10-and-7/"><u>Solution: Gain Admin Privileges Needed for Successful Operations on Windows 11, 10 & 7</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/top-5-from-sony-xperia-10-v-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Sony Xperia 10 V to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/unleash-creativity-in-videos-with-quick-trims-on-windows-11/"><u>Unleash Creativity in Videos with Quick Trims on Windows 11</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-8-best-stop-motion-animation-software-for-mac-and-windows/"><u>Updated In 2024, 8 Best Stop Motion Animation Software for Mac and Windows</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-vivo-y17s-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Vivo Y17s to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/diy-a-simple-guide-for-deactivating-and-deleting-your-tiktok-username/"><u>DIY: A Simple Guide for Deactivating and Deleting Your TikTok Username</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-installation-finding-and-setting-up-new-acer-aspire-driver-software-in-windows-environment/"><u>Easy Installation: Finding and Setting Up New Acer Aspire Driver Software in Windows Environment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartfelt-internationalism-for-a-special-valentine/"><u>Heartfelt Internationalism for a Special Valentine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honoring-ten-years-mondlybacks-filter-innovation/"><u>Honoring Ten Years: MondlyBack's Filter Innovation</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-factory-reset-ipad-or-iphone-15-without-icloud-password-or-apple-id-by-drfone-ios/"><u>How to Factory Reset iPad or iPhone 15 without iCloud Password or Apple ID?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-streamline-your-content-with-these-20-essential-youtube-hacks/"><u>In 2024, Streamline Your Content with These 20 Essential YouTube Hacks</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Sony Xperia 10 V? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-lava-yuva-2-pro-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Lava Yuva 2 Pro without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/intuitive-guide-to-hangul-speedy-script-comprehension/"><u>Intuitive Guide to Hangul: Speedy Script Comprehension</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/investigating-the-evolution-of-back-and-filter-buttons-in-pt/"><u>Investigating the Evolution of Back & Filter Buttons in PT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-excellence-in-english-via-mondly/"><u>The Ultimate Guide to Excellence in English via Mondly</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/understanding-imovies-editing-edge-for-2024/"><u>Understanding iMovie's Editing Edge for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unending-education-odyssey-the-1500th-of-no-cost-sessions-celebration/"><u>Unending Education Odyssey: The 1500Th of No-Cost Sessions Celebration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-of-words-at-your-fingertips-with-mondly/"><u>World of Words at Your Fingertips with Mondly</u></a></li>
 </ul></div>
 

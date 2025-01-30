@@ -1,7 +1,7 @@
 ---
 title: "German Examination: Tough or Easy?"
-date: 2024-09-19T18:51:18.156Z
-updated: 2024-09-21T18:44:48.843Z
+date: 2025-01-28T19:53:57.523Z
+updated: 2025-01-29T21:17:44.766Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/32c4cc7803fd0fa7e8699abcd5e09dfd5773975b7
 
  Like people, languages are very different but also sometimes similar. This doesn’t mean you can’t be friends. Read on to discover a fair evaluation of the complexity of the German language. If_Deutsch_ is as hard as they say, we will reveal a safe method to make it easy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why is German considered hard to learn?
 
  We can all probably agree that German has a bad reputation for being one of the [hardest languages to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Society, entertainment, and memes in particular, always seem to maintain and even solidify our prejudices about the German language. The two most popular justifications are its neverending long words and their harsh pronunciation. Over the course of history, we had and still have a lot of preconceptions, but this one is particularly hard to break. So let’s shatter all the myths right here, right now.
@@ -32,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/32c4cc7803fd0fa7e8699abcd5e09dfd5773975b7
 
 **Verdict: false assumption.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. German words are neverending
 
  Or so they seem. The German language is famous for having some of the [longest words in the world](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . But did you know that these words are, in fact, compounds? This means that German puts different words together to create a new word. In turn, English uses spaces or hyphens to make everything much easier to read. German, unfortunately, spells everything together. For example,_rindfleischetikettierungsüberwachungsaufgabenübertragungsgesetz_ (63 letters) means “law delegating beef label monitoring”.
@@ -39,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/32c4cc7803fd0fa7e8699abcd5e09dfd5773975b7
  However, there’s an easy trick to overcome this problem. All you have to do is to mentally separate the awfully long word into smaller bits. The more short [German words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) you know, the more long German words you’ll master. Easy as that!
 
 **Verdict: true assumption, but not as scary as it seems.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Multiple genders AND formal vs. informal language
 
@@ -56,10 +68,7 @@ thumbnail: https://thmb.techidaily.com/32c4cc7803fd0fa7e8699abcd5e09dfd5773975b7
 !['German hard to learn' by Sebastian Herrmann©](https://edge.mondly.com/blog/wp-content/uploads/2022/04/german-hard-to-learn-960x640.jpg "Is German Hard To Study? 3")
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. German grammar is too hard to learn
@@ -74,13 +83,6 @@ Doesn’t this sound familiar?
 
 **Verdict: false assumption.**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Is German hard to learn?
 
  Yes and no. Compared to the very popular [Romance language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) Spanish and French, German is regarded as hard to learn. But in truth,**German is actually easier to learn than a lot of other languages.**
@@ -89,18 +91,15 @@ Doesn’t this sound familiar?
 
  However, according to [the FSI](https://www.state.gov/foreign-language-training/) (Foreign Service Institute) of the US government, which ranks languages in terms of difficulty,**German is a tier II language.** Considering that there are five tiers in total, with tier V including Arabic, Chinese, Japanese and Korean, tier II doesn’t seem so daunting. This indicates that German is not hard to learn after all.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How long does it take to study German?
 
  According to the FSI (Foreign Service Institute) of the US government, an English speaker would need about **750 class hours or 30 weeks of practice to [become fluent in German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .** Of course, this is not 100% accurate for every individual. Some people have a knack for learning languages, and others don’t. It all depends on your determination and passion for the task at hand.
 
  Moreover, your progress can also be influenced by the learning method you’re using. While dry memorization techniques used to be the norm until a few years ago, nowadays learning German can be much more enjoyable.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Can German be easy to learn?
 
@@ -140,5 +139,26 @@ Doesn’t this sound familiar?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-exploring-the-reasons-behind-instagram-disconnections/"><u>[New] 2024 Approved Exploring the Reasons Behind Instagram Disconnections</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-perfect-your-tiktok-presence-with-siri-commands-and-features/"><u>[New] 2024 Approved Perfect Your TikTok Presence with Siri Commands and Features</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-brief-cinematic-chronicle/"><u>[New] Brief Cinematic Chronicle</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-elevate-iphone-imaging-with-premium-camera-gear/"><u>[New] In 2024, Elevate iPhone Imaging with Premium Camera Gear</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-premier-video-breakdown-fifa-analysis-graphs/"><u>[Updated] Premier Video Breakdown FIFA Analysis Graphs</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-open-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on Open</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-swedish-all-the-swedish-greetings/"><u>Hello In Swedish: All The Swedish Greetings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-many-people-speak-french-a-look-at-the-top-french-speaking-countries/"><u>How Many People Speak French? A Look At The Top French-Speaking Countries</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-samsung-galaxy-m54-5g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Samsung Galaxy M54 5G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/in-2024-video-marketing-mastery-for-affiliate-success/"><u>In 2024, Video Marketing Mastery for Affiliate Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-vocabularia-animalista-en-espanol-continua/"><u>La Vocabularia Animalista en Español Continua</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-beginnings-in-learning-arabic/"><u>New Beginnings in Learning Arabic</u></a></li>
+<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-samsung-galaxy-s23-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Samsung Galaxy S23 Black and White | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/resolutions-for-a-successful-new-year/"><u>Resolutions for a Successful New Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/support-system-danny-from-colombia-for-the-needy/"><u>Support System: Danny From Colombia for the Needy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/teachers-crossroads-bett-2022-connectivity/"><u>Teacher's Crossroads: BETT 2022 Connectivity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-to-spanish-counting/"><u>The Essential Guide to Spanish Counting</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-into-a-korean-speaker-in-no-time-these-tools-will-help/"><u>Transform Into a Korean Speaker in No Time - These Tools Will Help</u></a></li>
+</ul></div>
 

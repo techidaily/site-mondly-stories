@@ -1,7 +1,7 @@
 ---
 title: Speedy Catalan Learning, 10-Minute Sprints
-date: 2024-09-11T17:45:40.658Z
-updated: 2024-09-16T16:11:29.074Z
+date: 2025-01-27T04:03:30.206Z
+updated: 2025-01-30T03:16:37.284Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
 _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Your voice has been heard. **You can now learn Catalan online with Mondly in just 10 minutes a day and speak Catalan like a veritable Catalan for life!**
 
  Consisting of super fun, efficient and accessible language lessons, the new Catalan course is now available on [iOS](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4538&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca) ,[Android](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4538&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca) and [web](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4538&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4538?mother%5Flang=en%5Fus?target%5Flang=ca) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Catalan language in a nutshell
 
@@ -38,7 +42,15 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
 
 ![learn catalan language](https://edge.mondly.com/blog/wp-content/uploads/2020/03/learn-catalan-language-1-277x600.jpg "Learn Catalan Online In Just 10 Minutes A Day 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Learn Catalan with Mondly
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Where is Catalan spoken?
 
@@ -47,6 +59,10 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
  Yet, if you want to have real conversations with real Catalan people, you should aim to travel to destinations where [the Catalan language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is spoken; destinations like the Principality of Andorra and three communities of Spain (Balearic Islands, Catalonia, Valencia) where it is also an official language.
 
  Additionally, the Catalan language is also recognized as a minority language in Alghero (Sardinia, Italy), Aragon (Spain) and in the Pyrénées-Orientales department of France. These regions are often called Països Catalans (Catalan Countries).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Catalan vs Spanish
 
@@ -64,16 +80,7 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
 ---
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn Catalan online with Mondly
@@ -99,5 +106,23 @@ _Hola!_ Exciting news, Catalan language enthusiasts from around the world!‌ Yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-earnings-expertise-on-streaming-services-the-ultimate-guide/"><u>[New] 2024 Approved Earnings Expertise on Streaming Services The Ultimate Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-linkedin-luminaries-chatting-with-snapchat/"><u>[New] 2024 Approved LinkedIn Luminaries Chatting with Snapchat</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-tiktok-number-modification-easy-to-follow-steps/"><u>2024 Approved TikTok Number Modification Easy to Follow Steps</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-oneplus-ace-2v-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your OnePlus Ace 2V Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/comprehensive-tutorial-on-accessingexiting-iphone-recovery-mode/"><u>Comprehensive Tutorial on Accessing/Exiting iPhone Recovery Mode</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/how-to-restore-erased-files-on-iphone-through-stellar-application/"><u>How to Restore Erased Files on iPhone Through Stellar Application</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-a-new-language-by-jan-2024/"><u>Master a New Language by Jan 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-offering-free-language-courses-for-millions-of-ukrainiansback-buttonfilter-button/"><u>Mondly Is Offering Free Language Courses For Millions Of UkrainiansBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-in-your-40s-and-beyond-the-social-and-cognitive-boosts-you-deserve/"><u>Multilingual Mastery in Your 40S & Beyond: The Social and Cognitive Boosts You Deserve</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-10-eloquent-spanish-salutations-and-greetings/"><u>Navigating 10 Eloquent Spanish Salutations & Greetings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-youtube-seo-tricks-boosting-video-reach-and-visibility-for-2024/"><u>Proven YouTube SEO Tricks Boosting Video Reach and Visibility for 2024</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/solution-rapide-pour-le-dysfonctionnement-denvoi-de-courriels-dans-microsoft-outlook-guide-facile/"><u>Solution Rapide Pour Le Dysfonctionnement D'Envoi De Courriels Dans Microsoft Outlook : Guide Facile</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-anywhere-now-leading-trio-of-language-learning-aids/"><u>Speak Anywhere, Now: Leading Trio of Language Learning Aids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachprobe-deutsche-tagesstruktur-erfassen/"><u>Sprachprobe: Deutsche Tagesstruktur Erfassen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-9-tips-and-tricks-that-will-help-improve-your-spoken-english/"><u>Top 9 Tips and Tricks That Will Help Improve Your Spoken English</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Motorola Moto G84 5G? | Dr.fone</u></a></li>
+</ul></div>
 

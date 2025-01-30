@@ -1,7 +1,7 @@
 ---
 title: "Vielfältig Sein: Eine Auswahl Deutscher Begrüßungen Ohne Hallo"
-date: 2025-01-15T17:43:09.484Z
-updated: 2025-01-22T17:43:51.632Z
+date: 2025-01-25T05:05:21.849Z
+updated: 2025-01-29T22:31:41.308Z
 tags:
   - speak
   - english
@@ -28,10 +28,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  First, some good news! As it turns out, Germans use_hi_ too. Careful though: as you already know,_hi_ is more informal than_hallo_ so you should keep this one between friends.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Hallöchen – ‘Hello’ (lit. ‘little hello’)
 
  If you want to avoid repetition and diversify your vocabulary, you can also say_hallöchen,_ which is literally a ‘little hello’. It’s best to use_hallöchen_ to greet… whoever says German is a harsh language 🤭.
@@ -41,7 +37,7 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Since we’re discussing diminutives, let’s also mention that_tschüss_ (‘bye’) can become_tschüssi_ . How cute!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Guten Tag – “Hello” or “Good day”
@@ -74,6 +70,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Was ist los? – “What’s up?”
 
  Very similar to_alles klar?_ ,_was ist los?_ is appropriate for very casual conversations.
@@ -83,16 +83,12 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
 
@@ -125,6 +121,10 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
 
 **Localization:** Switzerland.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Grüß Gott – “God bless you”
 
  Mainly used by the older generations,_Grüß Gott_ is a very formal greeting that literally means “greetings (from) God” or “God greets you”.
@@ -134,7 +134,7 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
 **Localization:** Bavaria (south-eastern Germany) and Austria.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Servus – “At your service”
@@ -185,19 +185,24 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-navigating-your-path-as-a-first-time-youtuber-sidestep-these-8-common-mistakes/"><u>[Updated] In 2024, Navigating Your Path as a First-Time YouTuber Sidestep These 8 Common Mistakes</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-snicker-spinner-picture-editor/"><u>[Updated] In 2024, Snicker Spinner Picture Editor</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-best-microphone-for-youtuber/"><u>2024 Approved Best Microphone for YouTuber</u></a></li>
-<li><a href="https://win-lab.techidaily.com/comment-effacer-correctement-les-donnees-de-votre-ordinateur-portable-avant-vente-guide-etape-par-etape/"><u>Comment Effacer Correctement Les Données De Votre Ordinateur Portable Avant Vente : Guide Étape Par Étape</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-tactics-mastering-a-second-or-third-language-online/"><u>Essential Tactics: Mastering a Second (or Third) Language Online</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/everyday-language-explained-slang-terms-uncovered/"><u>Everyday Language Explained: Slang Terms Uncovered</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expotonguequest-discovering-the-future-of-language/"><u>ExpoTongueQuest: Discovering the Future of Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/frases-amigas-aqui-vai-a-melhor-maneira-de-dizer-ola/"><u>Frases Amigas: Aqui Vai a Melhor Maneira De Dizer Olá</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-the-land-down-under-top-100-terms/"><u>From the Land Down Under: Top 100 Terms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fundacion-danny-en-colombia-solidaridad-con-pobres/"><u>Fundacion Danny en Colombia: Solidaridad Con Pobres</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-vivo-y78-5g-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Vivo Y78 5G Safely | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-xr-to-other-iphone-14-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone XR To Other iPhone 14 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Oppo A58 4G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ase-your-channels-reach-with-these-2-tricks-for-2024/"><u>Increase Your Channel's Reach with These 2 Tricks for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-creating-a-seamless-virtual-workspace-slack-filmora-combo-for-teams/"><u>[New] 2024 Approved Creating a Seamless Virtual Workspace Slack-Filmora Combo for Teams</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-guide-to-equipment-selection-for-youtube-creators/"><u>[New] In 2024, Guide to Equipment Selection for YouTube Creators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-conveniently-connect-with-others-via-your-playlist/"><u>[Updated] Conveniently Connect with Others via Your Playlist</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-understanding-cultural-influences-on-consumer-behavior-in-global-markets/"><u>[Updated] In 2024, Understanding Cultural Influences on Consumer Behavior in Global Markets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/15-ways-to-say-goodbye-in-german/"><u>15 Ways to Say Goodbye in German</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/balancing-acts-in-youtube-music-mixes-for-2024/"><u>Balancing Acts in YouTube Music Mixes for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-an-aussie-speaker-with-ease/"><u>Become an Aussie Speaker with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-speaking-with-these-17-authentic-spanish-idioms/"><u>Conquer Speaking with These 17 Authentic Spanish Idioms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-croatian-language-phrases-a-preparatory-checklist-before-you-go/"><u>Essential Croatian Language Phrases – A Preparatory Checklist Before You Go</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exclusive-notice-updated-legal-info/"><u>Exclusive Notice: Updated Legal Info</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fix-obs-buffering-problems-steps-to-resolve-stream-and-record-delays-efficaciously/"><u>Fix OBS Buffering Problems: Steps to Resolve Stream & Record Delays Efficaciously</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-how-quicktime-screen-recording-with-audio/"><u>In 2024, [How] QuickTime Screen Recording with Audio</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-boost-your-reach-tips-and-tricks-for-uploading-to-instagram-desktop/"><u>In 2024, Boost Your Reach Tips & Tricks for Uploading to Instagram Desktop</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-phone-number-from-your-apple-id-from-your-iphone-6s-by-drfone-ios/"><u>In 2024, How To Remove Phone Number From Your Apple ID from Your iPhone 6s?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-oppo-reno-8t-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Oppo Reno 8T to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/invest-in-communication-mastery-lifetime-access-at-unbeatable-rates/"><u>Invest in Communication Mastery - Lifetime Access at Unbeatable Rates</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-connections-ukranian-and-russian-linguistics/"><u>Language Connections: Ukranian & Russian Linguistics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lithuanias-language-unlocked-effective-online-techniques/"><u>Lithuania's Language Unlocked: Effective Online Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-languages-easier-mondlys-innovative-guidebook/"><u>Navigating Languages Easier: Mondly’s Innovative Guidebook</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "From Novice to Expert: The Journey with English Contractions"
-date: 2024-09-14T17:16:39.987Z
-updated: 2024-09-21T16:59:23.769Z
+date: 2025-01-23T22:32:15.118Z
+updated: 2025-01-29T19:45:55.895Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/4aaf8bbfbdfb57b83b54a7e30f7b8f03d80755a12
 
  Contraction words are generally easy enough to sort out, but there are situations where they can get tricky. For all those situations, it’s necessary to keep an eye out for rules. That’s why**we are** – or let’s say_**we’re**_ – going to explain everything you need to know about the rules of contractions in English. And while we’re at it, we will also add a contraction word list to go perfectly with the explanations.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is a contraction?
 
 **A contraction is** a type of abbreviation formed by combining two or more words and dropping one or more letters. In writing, the missing letters are replaced by an apostrophe. Sometimes called ‘short forms’, English contractions usually join a subject pronoun and a verb, an interrogative adverb and a verb, or a verb and the word_not_ .
@@ -37,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/4aaf8bbfbdfb57b83b54a7e30f7b8f03d80755a12
  The main advantage of contractions in English is that they save time in both writing and speaking. Besides, their informal nature gives your discourse a more friendly, accessible, and approachable tone.
 
  Careful, though! It’s**best to avoid contractions in highly formal contexts,** like academic papers, grant proposals, formal speeches, or any materials requiring a professional appearance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Understanding English contractions
 
@@ -70,6 +78,14 @@ Coming Soon
 **Fun fact:** Did you know that_o’clock_ is the contraction word for_of the clock_ ? In this particular case, the contraction is more popular than the actual phrase and it’s considered fine to use even in formal writing.
 
 ![contractions in English](https://edge.mondly.com/blog/wp-content/uploads/2023/11/contractions-in-english-960x960.png "The Ultimate Guide To English Contractions 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Grammar rules for English contractions
 
@@ -213,6 +229,10 @@ Coming Soon
 | you will                     | you’ll      |
 | you will; you shall          | you’ll      |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Contractions in writing and their importance
 
  If you write in English on a daily basis, you probably use contractions quite a lot. And that’s perfectly fine if you talk to your family or friends. English contractions save time and space and make your daily communications sound friendlier.
@@ -222,19 +242,6 @@ Coming Soon
  Therefore, the rule of thumb for anything formal is to**limit the use of contractions in writing.** An ideal situation would involve you knowing the other person’s expectations. But if you do not, it is best to shy away from using contractions, just like I did with this sentence.
 
  However, if what you’re writing is semi-formal, you can use a couple of very popular contractions. The only condition is to not forget about the apostrophe, as the entire text will look unprofessional.
-
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Examples of contractions in everyday language
 
@@ -269,13 +276,6 @@ Coming Soon
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Improve your English fast
 
  Do you want to get better at speaking English? Try Mondly, the award-winning language app that is serious about making learning English fun.
@@ -305,5 +305,24 @@ Coming Soon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-roku-meets-social-media-watching-facebook-live-effortlessly/"><u>[New] In 2024, Roku Meets Social Media Watching Facebook Live Effortlessly</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-enhancing-imagery-a-step-by-step-guide-to-crop-videos-on-instagram/"><u>[Updated] 2024 Approved Enhancing Imagery A Step-by-Step Guide to Crop Videos on Instagram</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-master-the-art-of-gameye-and-webcam-recordings/"><u>2024 Approved Master the Art of GamEye and WebCam Recordings</u></a></li>
+<li><a href="https://windows11.techidaily.com/a-list-of-frustrations-with-windows-11/"><u>A List of Frustrations with Windows 11</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/apply-photo-motion-blur-in-adobe-photoshop/"><u>Apply Photo Motion Blur in Adobe Photoshop</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhance-your-broadcasts-with-manycam-leading-live-video-software-for-customizable-virtual-cameras/"><u>Enhance Your Broadcasts with ManyCam: Leading Live Video Software for Customizable Virtual Cameras</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/in-depth-analysis-of-the-ipad-airs-exceptional-performance-that-nearly-makes-me-wish-i-had-stuck-with-my-old-model-insights/"><u>In-Depth Analysis of the iPad Air's Exceptional Performance That Nearly Makes Me Wish I Had Stuck with My Old Model - Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-choice-spotlight-apples-app/"><u>International Choice Spotlight: Apple's App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-adoption-the-integration-of-foreign-words-into-english/"><u>Language Adoption: The Integration of Foreign Words Into English</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/loves-lexicon-french-cinematic-masterpieces/"><u>Love's Lexicon: French Cinematic Masterpieces</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-finnish-language-from-anywhere-better-way/"><u>Mastering Finnish Language From Anywhere, Better Way!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nombre-a-entender-60-animales-en-espanol/"><u>Nombre a Entender: 60 Animales en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-romanian-with-our-app/"><u>Speak Like a Romanian with Our App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-absorption-essential-tips-for-language-lovers/"><u>The Art of Absorption: Essential Tips for Language Lovers</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-updated-method-to-bypass-realme-12-pro-5g-frp-by-drfone-android/"><u>The Updated Method to Bypass Realme 12 Pro 5G FRP</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/tiktok-vs-snapchat-a-comprehensive-comparison-guide/"><u>TikTok Vs. Snapchat A Comprehensive Comparison Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/triad-of-asias-favorite-speeches-prioritize-and-archive/"><u>Triad of Asia's Favorite Speeches: Prioritize & Archive</u></a></li>
+</ul></div>
 

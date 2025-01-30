@@ -1,7 +1,7 @@
 ---
 title: Sail Into Squid Game's Linguistic Depths with Korean
-date: 2024-09-09T17:51:23.090Z
-updated: 2024-09-16T18:11:21.414Z
+date: 2025-01-27T00:22:45.318Z
+updated: 2025-01-29T22:06:49.358Z
 tags:
   - speak
   - english
@@ -36,11 +36,19 @@ So what’s there to be done?
 
 ![squid game korean netflix](https://edge.mondly.com/blog/wp-content/uploads/2021/10/squid-game-korean-960x539.jpg "Obsessed With Squid Game, But Lost In Translation? Learn Korean 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  ‘Squid Game on Netflix’ by Jonas Augustin©
 
  So with Squid Game, all that the Korean culture did was to prove once again its hypnotic power over us. If you think about it, this is a whole new world beyond our own. Beyond the pop culture we already know. A whole new world we’re all eager to explore. For me, it’s all about the movies. My passion for cinema has never been the same again after watching the Korean film Oldboy. And this is just an example. Korean cinema is more than rich in masterpieces.
 
  Now, this global phenomenon even has its own name. **The cultural boom coming from South Korea since the 1990s is known today as the Korean wave or [hallyu](https://en.wikipedia.org/wiki/Korean%5Fwave) .** Basically, everything we love about Korean pop culture is embedded in hallyu.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Squid Game got lost in translation
 
@@ -53,6 +61,10 @@ So what’s there to be done?
  The question remains: if not even Netflix, the billion-dollar streaming service, could offer viewers a top-notch translation from Korean, then who can?
 
 ![korean culture](https://edge.mondly.com/blog/wp-content/uploads/2021/10/learn-korean-960x640.jpg "Obsessed With Squid Game, But Lost In Translation? Learn Korean 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  ‘Korean women’ by zero take©
 
@@ -77,10 +89,7 @@ So there’s only one conclusion we can draw from this…
  And you know what’s the second-best thing about this? You’ll be in great company. Since the launch of Squid Game, Mondly has seen a massive increase in people starting to learn Korean. You can join them all **[here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6194&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6194?mother%5Flang=en%5Fus?target%5Flang=ko)**  .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Even the English language wants to learn Korean
@@ -95,10 +104,7 @@ So there’s only one conclusion we can draw from this…
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in Korean
@@ -127,5 +133,22 @@ So there’s only one conclusion we can draw from this…
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-5-must-have-mkv-tools-for-macos/"><u>[New] In 2024, 5 Must-Have MKV Tools for macOS</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-premium-and-basic-win-driven-design-applications-guide-for-2024/"><u>[New] Premium & Basic Win-Driven Design Applications Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-conveying-cinematic-dreams-through-screenwriting-for-2024/"><u>[Updated] Conveying Cinematic Dreams Through Screenwriting for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/guide-to-diagnosing-and-repairing-a-non-responsive-paradox-launcher/"><u>Guide to Diagnosing & Repairing a Non-Responsive Paradox Launcher</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/i-mille-numero-italiani-conoscenze-per-la-superiorita/"><u>I Mille Numero Italiani: Conoscenze per La Superiorità</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-one-step-at-a-time-how-to-create-a-skype-group-on-both-platforms/"><u>In 2024, One Step at a Time How to Create a Skype Group on Both Platforms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-exams-and-certifications-your-path-to-proficiency/"><u>Language Exams and Certifications: Your Path to Proficiency</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/maximizing-value-the-incredible-opportunity-to-score-a-discount-on-apples-latest-ipad-pro-just-in-time-for-prime-day-expert-analysis-by-zdnet/"><u>Maximizing Value: The Incredible Opportunity to Score a Discount on Apple's Latest iPad Pro Just in Time for Prime Day – Expert Analysis by ZDNet</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-instructions-on-connecting-your-bose-soundlink-devices/"><u>Step-by-Step Instructions on Connecting Your Bose Soundlink Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-bard-redux-everyday-language-roots-unearthed/"><u>The Bard Redux: Everyday Language Roots Unearthed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-language-of-gratitude-basic-xiexie-and-more/"><u>The Language of Gratitude: Basic Xièxiè and More</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-value-of-english-mastery-insights/"><u>The Value of English Mastery: Insights</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Nokia C12 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ultimate-software-selection-for-effective-study-habits/"><u>Ultimate Software Selection for Effective Study Habits</u></a></li>
+</ul></div>
 

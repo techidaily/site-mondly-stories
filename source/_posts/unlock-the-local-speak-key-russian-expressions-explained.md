@@ -1,7 +1,7 @@
 ---
 title: "Unlock the Local Speak: Key Russian Expressions Explained"
-date: 2024-09-17T18:55:14.630Z
-updated: 2024-09-21T19:31:42.152Z
+date: 2025-01-23T05:19:56.155Z
+updated: 2025-01-29T17:32:01.383Z
 tags:
   - speak
   - english
@@ -80,6 +80,10 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 
 ![useful russian phrases scaled](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-phrases-scaled-640x960.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Photo by Tom Barrett
 
 * Is the flight delayed? –_Рейс откладывается? – Reys otkladyvayetsya?_
@@ -107,6 +111,10 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 
 ![learn russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/learn-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Photo by A.L.
 
 * Where can I buy tickets? –_Где здесь можно купить билеты? – Gde zdes mozhno kupit bilety?_
@@ -119,6 +127,10 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 * Please wait a moment. – _Пожалуйста, подождите чуть-чуть. – Pozhaluysta, podozhdite chut-chut._
 * I’ll be back immediately. –_Я скоро вернусь. – Ya skoro vernus._
 * Drive me to this address. –_Отвезите меня по этому адресу. – Otvezite menya po etomu adresu_ .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Advanced Russian phrases for different hotel situations
 
@@ -163,13 +175,6 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 
 ![useful-russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-words-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 7")
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Photo by Henrique Félix
 
 * I would like a dessert. –_Я хотел бы десерт. Ya hotel by desert._
@@ -177,13 +182,6 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 * We would like to have lunch. –_Мы хотели бы пообедать. – My hoteli by poobedat._
 * We would like to have dinner. –_Мы хотели бы поужинать. – My hoteli by pouzhynat._
 * What would you like for breakfast? –_Что бы вы хотели на завтрак? – Chto by vy hoteli na zavtrak?_
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Russian for travelers who want to have fun
 
@@ -209,6 +207,10 @@ Just joking. Still is an amazing drink, though!
 * Let’s have some fun. –_Повеселимся! – Poveselimsya!_
 * Are there seats available? –_Ещё остались свободные места? – Yeshcho ostalis svobodnyye mesta?_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Basic Russian phrases for shopping sprees
 
  This is the cruelest drudgery our loved ones from home put us through while on holiday. _Should I buy a matryoshka doll? Or some vodka? Maybe a refrigerator magnet? But when? What if I don’t buy anything? Will they hate me for life?_ Funny or not, these are all questions that haunt us while on holiday. The best solution? Schedule two hours tops and just get it over with. The same way you would do with a bandage.
@@ -219,10 +221,7 @@ Just joking. Still is an amazing drink, though!
 ![basic-russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/bassic-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 9")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Photo by Alina Grubnyak
@@ -231,13 +230,6 @@ Just joking. Still is an amazing drink, though!
 * Can I have a receipt? –_Дайте мне, пожалуйста, чек. – Dayte mne, pozhaluysta, chek._
 * What would you like? –_Что вы предпочитаете? – Chto vy predpochitayete?_
 * Can I have some ice cream? –_Можно мне мороженого? – Mozhno mne morozhenogo?_
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 8\. Russia Travel Guide – how to say that you have fallen in love?
 
@@ -268,6 +260,10 @@ Just joking. Still is an amazing drink, though!
 ## Bonus: Basic Russian phrases for football lovers
 
 ![russian-phrases-world-cup](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-phrases-world-cup-1024x576.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 11")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Photo by Fauzan Saari
 
@@ -305,5 +301,20 @@ Just joking. Still is an amazing drink, though!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-quick-setup-installing-snapchat-on-your-mac/"><u>[New] 2024 Approved Quick Setup Installing Snapchat on Your Mac</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-cutting-edge-strategies-for-fb-live-broadcasts-and-recordings-for-2024/"><u>[New] Cutting-Edge Strategies for FB Live Broadcasts and Recordings for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-playflixapp-user-feedback-synopsis-for-2024/"><u>[New] PlayFlixApp User Feedback Synopsis for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-discover-best-android-picture-tools/"><u>[Updated] 2024 Approved Discover Best Android Picture Tools</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/customized-ad-experience-with-the-help-of-advanced-ai-cookiebot-power/"><u>Customized Ad Experience with the Help of Advanced AI - Cookiebot Power</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-96-off-now-begin-a-global-language-adventure/"><u>Get 96% Off Now: Begin a Global Language Adventure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/glorious-gratitude-for-us-national-day/"><u>Glorious Gratitude for U.S. National Day</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guida-rapida-alla-sincronizzazione-delle-cartelle-in-windows-11-metodi-semplificati/"><u>Guida Rapida Alla Sincronizzazione Delle Cartelle in Windows 11: Metodi Semplificati</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-succeed-in-german-study-top-10-strategies/"><u>How to Succeed in German Study (Top 10 Strategies)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-and-smart-brain-boosts/"><u>Language Mastery and Smart Brain Boosts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/age-editing-to-boost-youtube-profile-impact-for-2024/"><u>Leverage Editing to Boost YouTube Profile Impact for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/optimize-your-gaming-session-a-2-step-guide-to-detecting-android-fps/"><u>Optimize Your Gaming Session: A 2-Step Guide to Detecting Android FPS</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-reverting-nvidia-graphics-driver-on-windows-10/"><u>Step-by-Step Guide: Reverting Nvidia Graphics Driver on Windows 10</u></a></li>
+</ul></div>
 

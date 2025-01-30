@@ -1,7 +1,7 @@
 ---
 title: "Conquering Hangul: Your Pathway to Language Excellence"
-date: 2024-09-15T18:20:11.512Z
-updated: 2024-09-21T19:54:48.587Z
+date: 2025-01-25T00:45:20.193Z
+updated: 2025-01-29T18:21:21.216Z
 tags:
   - speak
   - english
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/5cbaf66469602d9e14b1e36573f2e9339160b8c34
 
 ![hangul sejong](https://edge.mondly.com/blog/wp-content/uploads/2020/05/hangul-sejong-600x400.jpg "Korean Alphabet – A Quick Guide To Hangul 8")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “King Sejong the Great, creator of Hangul” by Mathew Schwartz©
 
  A document published in 1446 and discovered in 1940 explains that the design of the Korean consonants mimics their articulator’s shape and phonetic features when pronouncing them and the vowels are based on the principles of vowel harmony and yin and yang.
@@ -55,6 +59,10 @@ thumbnail: https://thmb.techidaily.com/5cbaf66469602d9e14b1e36573f2e9339160b8c34
  Then, thanks to Korean nationalism and Western missionaries’ promotion of the Korean alphabet,**Hangul** (a term coined by linguist Ju Si-gyeong in 1912)**was adopted in official documents for the first time in 1894.**
 
  The use of Hangul met even more opposition and reforms under Japanese rule, but it eventually became the exclusive writing system in both North and South Korea after 1950.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Guide to the Korean Alphabet
 
@@ -77,11 +85,19 @@ thumbnail: https://thmb.techidaily.com/5cbaf66469602d9e14b1e36573f2e9339160b8c34
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Korean Alphabet – A Quick Guide To Hangul 9")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Do you want to learn Korean? 🫰
 
  Get started with Mondly, the award-winning language app that makes learning Korean a breeze.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-5015&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-5015&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-5015&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-5015&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-5015%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Step-by-Step Guide to Korean Consonant Pronunciation
 
@@ -124,10 +140,7 @@ thumbnail: https://thmb.techidaily.com/5cbaf66469602d9e14b1e36573f2e9339160b8c34
 ![bts](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdHFmbmtibDFnOHU4YnM0YnQ5Y2VxNDBtbW9sMXZ5MGRodTY3bWI3dCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/McOXfLCpYA6mAQkKDj/giphy-downsized-large.gif "Korean Alphabet – A Quick Guide To Hangul 12")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Korean Letters Design
@@ -135,6 +148,10 @@ thumbnail: https://thmb.techidaily.com/5cbaf66469602d9e14b1e36573f2e9339160b8c34
  The alphabetic order of the Korean alphabet is called_ganada_ (가나다 순) and it does not mix consonants and vowels. Rather, consonants come first and vowels come next.
 
  Now, when you’re learning Korean for beginners, it is sometimes useful to know the names of the Korean letters. If you don’t know how to pronounce a word, you could spell it using these names. However, they should only be used as a guide in the beginning. Don’t rely on this kind of trick for a long period of time, or you’ll risk never mastering the art of the Hangul.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Korean Alphabet Chart: Consonant Names
 
@@ -228,19 +245,6 @@ Moving to vowels, their design is based on three elements:
 
 ![korean alphabet hangul](https://edge.mondly.com/blog/wp-content/uploads/2020/05/korean-alphabet-hangul-e1590392634824-600x600.jpg "Korean Alphabet – A Quick Guide To Hangul 13")
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Additional Tips for Learning Hangul
 
  Another thing you need to master in Korean writing is**letter placement within block shapes.** It’s been said that there are around 11,000 block shapes possible in the Korean alphabet. So, how do you place a letter within a block? Do you have to remember them all by heart?
@@ -255,22 +259,12 @@ Moving to vowels, their design is based on three elements:
 Before you go, make sure you check out these frequently asked questions.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How long does it take to learn Hangul?
 
  Hangul can be learned in as little as a couple of hours. According to a popular Korean saying about Hangul and its characters, “a wise man can acquaint himself with them \[the characters\] before the morning is over; a stupid man can learn them in the space of ten days”.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What are the benefits of learning Hangul?
 
@@ -284,13 +278,6 @@ Before you go, make sure you check out these frequently asked questions.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Speak Korean fluently in just 10 minutes a day
 
@@ -315,5 +302,19 @@ Before you go, make sure you check out these frequently asked questions.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-10-swift-growing-youtube-sources-for-inspiration/"><u>[New] 2024 Approved Discover 10 Swift-Growing YouTube Sources for Inspiration</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unveiling-our-exclusive-package-of-free-youtube-adornments/"><u>[New] In 2024, Unveiling Our Exclusive Package of Free YouTube Adornments!</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-top-music-livestream-providers-for-2024/"><u>[New] Top Music Livestream Providers for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-professional-cine-tools-discover-the-top-15-luts-for-action-cams/"><u>[Updated] 2024 Approved Professional Cine Tools Discover the Top 15 LUTs for Action Cams</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-play-recognizes-mondly-a-top-choice-for-families-in-2017/"><u>Google Play Recognizes: Mondly - A Top Choice for Families in 2017</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-melody-filled-visuals-the-fusion-project/"><u>In 2024, Melody-Filled Visuals The Fusion Project</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-a-statement-the-most-influential-50-latin-quotes/"><u>Make a Statement - The Most Influential 50 Latin Quotes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-edition-smart-filter-feature-2017/"><u>Mondly Kid's Edition: Smart Filter Feature, 2017</u></a></li>
+<li><a href="https://games-able.techidaily.com/nvidia-driver-updates-unlock-your-computers-potential-immediately/"><u>Nvidia Driver Updates: Unlock Your Computer's Potential Immediately!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-catalan-corner-learn-every-day/"><u>Quick Catalan Corner – Learn Every Day</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tips-and-tricks-to-tell-if-your-apple-iphone-11-is-unlocked-by-drfone-ios/"><u>Tips And Tricks To Tell if Your Apple iPhone 11 Is Unlocked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/urdu-essentials-for-new-learners-a-starting-packet/"><u>Urdu Essentials for New Learners: A Starting Packet</u></a></li>
+</ul></div>
 

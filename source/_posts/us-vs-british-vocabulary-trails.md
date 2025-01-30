@@ -1,7 +1,7 @@
 ---
 title: US vs British Vocabulary Trails
-date: 2024-09-13T20:06:56.203Z
-updated: 2024-09-16T17:49:05.904Z
+date: 2025-01-26T19:33:35.367Z
+updated: 2025-01-30T02:45:04.952Z
 tags:
   - speak
   - english
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/f567a9fec699d773d0b269b2abfaf091f129a875a
  Before we go on… you’ve just realized, didn’t you? **The “sweater weather” is actually the “jumper weather” or the “pullover weather” in the UK.** Oh my God, this can’t be right, is it?
 
 ![British vs American](https://media.giphy.com/media/SqmkZ5IdwzTP2/giphy.gif "British English Vs American English Differences: Spelling, Pronunciation And More 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The English language in the Americas
 
@@ -91,16 +95,13 @@ thumbnail: https://thmb.techidaily.com/f567a9fec699d773d0b269b2abfaf091f129a875a
 
  If you speak English as a second language and you are not sure which is the correct spelling for the type of English you use, install a spell checker and let it do the job for you. In time, you’ll get used to the fitting spelling and learn to write correctly on your own.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Grammar differences
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Collective nouns
 
@@ -114,13 +115,6 @@ thumbnail: https://thmb.techidaily.com/f567a9fec699d773d0b269b2abfaf091f129a875a
 
  Many verbs that are irregular in the past tense in British English (_dreamt, burnt, learnt_), have been made regular in American English (_dreamed, burned, learned_).
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Got or gotten?
 
  In the UK, the past participle of “get” – “gotten” – is considered archaic and was replaced with “got” some time ago. Americans, on the other hand, still use “gotten” as the past participle of “get”.
@@ -128,6 +122,10 @@ thumbnail: https://thmb.techidaily.com/f567a9fec699d773d0b269b2abfaf091f129a875a
 **British English:** get – got – got
 
 **American English:** get – got – gotten
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tenses
 
@@ -142,10 +140,7 @@ thumbnail: https://thmb.techidaily.com/f567a9fec699d773d0b269b2abfaf091f129a875a
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  British English vs American English
@@ -157,10 +152,7 @@ thumbnail: https://thmb.techidaily.com/f567a9fec699d773d0b269b2abfaf091f129a875a
  Additionally, in Britain, you are likely to hear “needn’t” a lot and in the US not at all. In its place, Americans use “don’t need to”.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## British accent vs American accent
@@ -207,5 +199,22 @@ thumbnail: https://thmb.techidaily.com/f567a9fec699d773d0b269b2abfaf091f129a875a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-essential-guide-non-commercial-android-recorder-choice/"><u>[New] 2024 Approved Essential Guide Non-Commercial Android Recorder Choice</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-capturing-with-snap-zoom-guide-for-2024/"><u>[New] Capturing with Snap Zoom Guide for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-complete-overview-screenflow-v4-for-macos-for-2024/"><u>[Updated] Complete Overview ScreenFlow v4 for macOS for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-humor-harvesters-making-memes-without-a-price-tag/"><u>[Updated] Humor Harvesters Making Memes Without a Price Tag</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-leading-ai-photographic-composer/"><u>2024 Approved Leading AI Photographic Composer</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/evolving-videography-redefining-social-sharing-with-periscope-alternatives-for-2024/"><u>Evolving Videography Redefining Social Sharing with Periscope Alternatives for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-htc-u23-pro-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From HTC U23 Pro to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Itel A05s? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-a-collection-of-9-key-grammar-techniques/"><u>Mastering English: A Collection of 9 Key Grammar Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-saying-hello-in-spanish-dive-into-these-top-10-phrases/"><u>Mastering the Art of Saying 'Hello' In Spanish - Dive Into These Top 10 Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-leads-with-excellence-at-2021-gala/"><u>Mondly Leads with Excellence at 2021 Gala</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-recognized-as-2021-excellence-champion/"><u>Mondly Recognized as 2021 Excellence Champion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-german-colloquialisms-with-confidence-top-25/"><u>Navigating German Colloquialisms with Confidence (Top 25)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearson-your-gateway-to-international-communication/"><u>Pearson: Your Gateway to International Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-from-zero-pronunciation-and-the-german-alphabet-demystified/"><u>Starting From Zero: Pronunciation & The German Alphabet Demystified</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Thankful Talk: Multilingual Manners and Phrases (155)"
-date: 2025-01-19T17:16:42.542Z
-updated: 2025-01-22T16:36:27.340Z
+date: 2025-01-27T18:09:15.119Z
+updated: 2025-01-29T17:49:31.802Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
@@ -61,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -127,15 +127,17 @@ thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e226191710
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-conveniently-connect-friends-across-os-platforms-using-skype-chats/"><u>[Updated] In 2024, Conveniently Connect Friends Across OS Platforms Using Skype Chats</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-tribute-to-lifelong-daily-learning/"><u>A Tribute to Lifelong Daily Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cut-through-red-tape-easy-to-access-latino-schools/"><u>Cut Through Red Tape: Easy-to-Access Latino Schools</u></a></li>
-<li><a href="https://driver-error.techidaily.com/dealing-with-older-generations-of-usb-composite-devices-identifying-and-fixing-problems/"><u>Dealing With Older Generations of USB Composite Devices: Identifying and Fixing Problems</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/fix-your-graphics-drivers-easily-expert-troubleshooting-advice-by-yl-software-professionals/"><u>Fix Your Graphics Drivers Easily! Expert Troubleshooting Advice by YL Software Professionals</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/hearken-hearth-tracing-viking-speech-patterns/"><u>Hearken, Hearth: Tracing Viking Speech Patterns</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-vivo-y36i-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Vivo Y36i FRP</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-era-of-filters-mondly-and-pearson-unite/"><u>New Era of Filters: Mondly and Pearson Unite</u></a></li>
-<li><a href="https://fox-info.techidaily.com/timeless-tech-posed-shots-of-old-iphone-x/"><u>Timeless Tech Posed Shots of Old iPhone X</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-code-28-a-step-by-step-guide-for-device-manager-in-windows/"><u>Troubleshooting Code 28 – A Step-by-Step Guide for Device Manager in Windows</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-master-quick-red-eye-correction-with-this-free-ios-tool-for-2024/"><u>[Updated] Master Quick Red-Eye Correction with This Free iOS Tool for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-capturing-lessons-with-ease-top-screen-recorders/"><u>2024 Approved Capturing Lessons with Ease Top Screen Recorders</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/2024s-ultimate-lenovo-laptop-guide-elite-ratings-and-in-depth-analysis-digital-trends/"><u>2024'S Ultimate Lenovo Laptop Guide: Elite Ratings and In-Depth Analysis | Digital Trends</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/elevate-your-communication-skills-fastest-way-7-ways-through-mondlys-afrikaans-lessons/"><u>Elevate Your Communication Skills Fastest Way - 7 Ways Through Mondly's Afrikaans Lessons</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fixes-to-overcome-remote-connection-errors-on-windows/"><u>Fixes to Overcome Remote Connection Errors on Windows</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-intelligence-revealed-10-insights-behind-auto-dimming-screens/"><u>IPhone Intelligence Revealed: 10 Insights Behind Auto-Dimming Screens</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/los-dias-pasan-aprende-su-nombre-en-espanol/"><u>Los Días Pasan, Aprende Su Nombre en Español</u></a></li>
+<li><a href="https://win11.techidaily.com/making-win1011-recycle-bin-error-free-quick-solutions/"><u>Making Win10/11 Recycle Bin Error-Free: Quick Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581905222-norwegian-mastery-unlocked-in-brief-bursts/"><u>Norwegian Mastery Unlocked in Brief Bursts!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essence-of-the-swedish-phonetic-system/"><u>The Essence of the Swedish Phonetic System</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-multilingual-potential-with-google-endorsed-mondly/"><u>Unlock Multilingual Potential with Google-Endorsed Mondly</u></a></li>
 </ul></div>
 

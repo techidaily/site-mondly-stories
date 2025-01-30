@@ -1,7 +1,7 @@
 ---
 title: The Contrast Between Brazilian & European Keyboard Features
-date: 2024-09-15T20:00:41.219Z
-updated: 2024-09-16T19:46:49.329Z
+date: 2025-01-25T21:20:52.177Z
+updated: 2025-01-29T22:42:52.308Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/c9bde50ffc9a9a68a0d89e0f0e5e46cd2e144cb4e
 
  The other countries colonized by Portugal speak a Portuguese more akin to the [mother language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Why? Many of them are [African](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) countries, so they don’t have external contact from other cultures that could have impacted their way of speaking. Secondly, compared to Brazil, those countries gained their independence much later and had more contact with Portugal during their early development.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Differences in the Pronunciation
 
  Pronunciation is one of the main differences between the languages. Brazilians speak vowels longer and wider, while Portuguese pronounce the words with a more closed mouth, without pronouncing the vowels as much.
@@ -36,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/c9bde50ffc9a9a68a0d89e0f0e5e46cd2e144cb4e
 
  Brazilian Portuguese is thought to be more phonetically pleasing to the ear thanks to its open vowels, while European Portuguese can sound somewhat garbled. Brazilian accents have a strong cadence and lift to them, making it easier to learn and understand.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Grammar and Spelling
 
  Some words are spelled differently. For instance, reception in European Portuguese is “receção”, but in Brazilian Portuguese, there is an audible p to the spelling of “recepção.” In other words, the letter p is audible in Brazilian Portuguese and silent in European Portuguese.
@@ -45,16 +53,17 @@ thumbnail: https://thmb.techidaily.com/c9bde50ffc9a9a68a0d89e0f0e5e46cd2e144cb4e
  Sometimes, Brazilian Portuguese takes words from American English, ignoring its Latin roots. European Portuguese usually adopts words from Latin roots, keeping the original spelling. Overall, European Portuguese is more resistant to change and assimilation of foreign words.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Formal and Informal Speech
 
  European Portuguese is the more formal of the two versions. In Brazilian Portuguese, the word**você** is used for “you” in informal settings; in European Portuguese,**tu** is utilized in the same context. In Portugal, they view the você as crude and thus remove the second-person pronoun in less casual situations and instead use the verb in the third-person singular.  
  When describing actions, Brazilians use “estou fazendo” to mean “I am doing,” and the European Portuguese use the infinitive form, “estou a fazer.” The latter is less direct and translates to “I am taken to doing.”
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Should You Learn Brazilian or European Portuguese?
 
@@ -63,10 +72,7 @@ thumbnail: https://thmb.techidaily.com/c9bde50ffc9a9a68a0d89e0f0e5e46cd2e144cb4e
  The availability of resources will also influence your decision. _“Brazil has a larger population than Portugal with many native speakers, impacting_ availability _of content. In other words, it’s simpler to locate resources for Brazilian Portuguese learners than it is for those who study the European kind”_ says Ryan McMunn of BRIC Language Systems. Finding a professional resource that offers instruction in Brazilian Portuguese with access to native speakers will greatly improve your chances of being successful and learning both at your pace and in a way that will last.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Future Goals
@@ -124,5 +130,19 @@ thumbnail: https://thmb.techidaily.com/c9bde50ffc9a9a68a0d89e0f0e5e46cd2e144cb4e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-brief-snippet-analysis-for-beginners/"><u>[New] Brief Snippet Analysis for Beginners</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aptivating-content-the-basics-of-removing-background-from-videos-for-2024/"><u>[New] Captivating Content The Basics of Removing Background From Videos for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-interactive-content-the-key-to-boosted-facebook-pages/"><u>[Updated] Interactive Content The Key to Boosted Facebook Pages</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-viewers-perspectives-on-instagram-stories-not-known-for-2024/"><u>[Updated] Viewers' Perspectives on Instagram Stories Not Known for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-best-mobile-and-desktop-apps-adjusting-audio-playback-speed/"><u>2024 Approved Best Mobile & Desktop Apps Adjusting Audio Playback Speed</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-honor-magic5-ultimate-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Honor Magic5 Ultimate Quickly | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/huawei-p10-analysis-unveiling-performance-and-design-for-2024/"><u>Huawei P10 Analysis Unveiling Performance & Design for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovating-intelligence-tomorrows-tools-for-today-writers/"><u>Innovating Intelligence: Tomorrow's Tools for Today' Writers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-social-interactions-in-a-new-world-essentials-of-latam-languages/"><u>Mastering Social Interactions in a New World: Essentials of LatAm Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pasos-simples-para-aprender-a-leer-el-tiempo-en-espanol/"><u>Pasos Simples Para Aprender a Leer El Tiempo en Español</u></a></li>
+<li><a href="https://techtrends.techidaily.com/roku-your-way-through-trips-and-studies-seamless-connectivity-for-schoolgoers-and-wanderers/"><u>Roku Your Way Through Trips & Studies: Seamless Connectivity for Schoolgoers & Wanderers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-simplicity-of-babels-next-generation-learners/"><u>The Simplicity of Babel's Next Generation Learners</u></a></li>
+</ul></div>
 

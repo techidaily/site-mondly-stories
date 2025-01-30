@@ -1,7 +1,7 @@
 ---
 title: Learn the Language of Respectful Communication in Japan
-date: 2025-01-16T17:48:09.455Z
-updated: 2025-01-22T16:08:13.838Z
+date: 2025-01-27T23:51:26.611Z
+updated: 2025-01-29T18:26:30.951Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
 
  Learning as much as a simple **_Konnichiwa_ (“hello” in Japanese)** or **_Arigato_ (“thank you” in Japanese)** can work wonders. So here’s a guide to all the**Japanese greetings** you’ll need in your Japanese adventure: from**“hello” in Japanese** to**_Moshi Moshi_** (used to say “hello” on the phone), goodbye and other**common Japanese greetings.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. “Hello” in Japanese
 
  If you ever watched at least one anime series, you probably already know this: **“hello” in Japanese is_Konnichiwa_ .** Rings any bell? It most probably does since**_Konnichiwa_** is undeniably the most**common Japanese greeting.** Thanks to some of the most influential anime of all time such as Dragon Ball Z, Death Note, and Naruto, a lot of people living outside Japan know at least a few [**words in Japanese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and_Konnichiwa_ is definitely one of them.
@@ -34,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/32a49341dcd2e3ff58b1a58ec7c331011d71244cd
 * _yaho_ – extremely informal, typically used by girls (boys more often say_yo_) but suitable for all the young people
 
 ![honnichiwa](https://edge.mondly.com/blog/wp-content/uploads/2019/08/honnichiwa-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Kyoto, Japan” by Sorasak©
 
@@ -65,14 +73,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![hi in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-japanese-960x639.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Japanese
@@ -92,10 +96,14 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “See you soon, human” by Alain Pham©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
@@ -122,10 +130,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Kyoto, Japan” by Andre Benz©
 
 ## Don’t forget about the Japanese bow
@@ -143,10 +147,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -201,22 +201,18 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-mastering-screen-capture-for-google-meet-talks/"><u>[New] 2024 Approved Mastering Screen Capture for GooGle Meet Talks</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-enhancing-photos-with-chronological-details-for-2024/"><u>[New] Enhancing Photos with Chronological Details for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-navigating-the-maze-fb-messengers-a-video-downloading-guide/"><u>[New] Navigating the Maze FB Messengers - A Video Downloading Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-crafting-impeccable-crossfades-with-premiere-pro-for-2024/"><u>[Updated] Crafting Impeccable Crossfades with Premiere Pro for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-the-depths-of-video-talks-on-youtube-for-2024/"><u>[Updated] Exploring the Depths of Video Talks on YouTube for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/70-years-of-europes-lexicon-diverse-dialects-unite/"><u>70 Years of Europe's Lexicon: Diverse Dialects Unite</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/8-unexpected-ways-language-expands-your-horizons/"><u>8 Unexpected Ways Language Expands Your Horizons</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridge-cultures-effortlessly-mondlys-revamped-phrase-compendium/"><u>Bridge Cultures Effortlessly: Mondly’s Revamped Phrase Compendium</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/career-advancement-through-fluency-across-languages/"><u>Career Advancement Through Fluency Across Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparative-study-on-english-grammar-patterns/"><u>Comparative Study on English Grammar Patterns</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/desde-lunes-a-domingo-espanol-avanzado/"><u>Desde Lunes a Domingo, Español Avanzado</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dessert-dialogues-discovering-chocolate-across-cultures/"><u>Dessert Dialogues: Discovering 'Chocolate' Across Cultures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dominant-dialects-of-croatia/"><u>Dominant Dialects of Croatia</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/filming-flexibility-talent-distribution-license/"><u>Filming Flexibility Talent Distribution License</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-is-the-docooler-usb-20-and-12-megapixel-quality-worth-it/"><u>In-Depth Review: Is The Docooler USB 2.0 and 12 Megapixel Quality Worth It?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/tivizing-engagement-for-a-robust-subscription-base/"><u>Incentivizing Engagement for a Robust Subscription Base</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/ultimate-quicktime-lapse-setup-for-5/"><u>Ultimate Quicktime-Lapse Setup for #5</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-best-camcorder-selections-for-snowboardingskiing/"><u>[New] Best Camcorder Selections for Snowboarding/Skiing</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exclusive-list-the-best-websites-for-ringtone-grabs/"><u>[Updated] Exclusive List The Best Websites for Ringtone Grabs</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726030336463-dvd/"><u>携帯電話へのDVDオーディオコンバート手順:スマホ用にテープ音を変換する</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-tale-of-two-portoguese-back-and-filter-buttons/"><u>A Tale of Two Portoguese: Back and Filter Buttons</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beyond-salut-advanced-french-greetings-you-need-to-know/"><u>Beyond 'Salut': Advanced French Greetings You Need to Know</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conversational-crescendo-korean-turkish-blend/"><u>Conversational Crescendo: Korean-Turkish Blend</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/could-affordable-macbook-models-be-next-apples-strategy-against-chromebook-dominance-unveiled/"><u>Could Affordable MacBook Models Be Next? Apple's Strategy Against Chromebook Dominance Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effortlessly-learn-new-languages-with-these-innovative-mobile-solutions/"><u>Effortlessly Learn New Languages with These Innovative Mobile Solutions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-demystifying-and-decollecting-gopros-fish-eye-photos/"><u>In 2024, Demystifying & Decollecting GoPro's Fish Eye Photos</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/just-scored-the-latest-ipad-9th-gen-for-an-unbeatable-price-of-250-after-apples-new-release-shop-today-at-zdnet/"><u>Just Scored the Latest iPad (9Th Gen) for an Unbeatable Price of $250 After Apple's New Release | Shop Today at ZDNet</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209815503-9781789041385-the-energetic-dimension/"><u>The Energetic Dimension | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-16-expressions-of-gratitude-in-deutsch/"><u>Top 16 Expressions Of Gratitude in Deutsch</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updates-from-apple-restructuring-policies-for-personal-computer-emulators-in-app-store/"><u>Updates From Apple: Restructuring Policies for Personal Computer Emulators in App Store</u></a></li>
 </ul></div>
 

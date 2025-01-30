@@ -1,7 +1,7 @@
 ---
 title: Unlocking Essential Expressions for Daily Conversations in China
-date: 2025-01-15T17:34:30.917Z
-updated: 2025-01-22T16:25:15.422Z
+date: 2025-01-25T00:33:19.715Z
+updated: 2025-01-29T22:49:27.148Z
 tags:
   - speak
   - english
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
  How should we say “hello” in Chinese? 你好 nǐ hǎo is maybe the most well-known Chinese greeting. But surely, like in many other languages, 你好 nǐ hǎo is not_the only way_ to greet someone in Chinese. There must be different kinds of greetings you can use with friends and other people you are close to, formal greetings that are suitable for business meetings, slightly formal “hello”s you can say when entering a store and so on. Well, indeed, there are! The [Chinese language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is just as rich in greetings as any other language. So, let’s dive in and learn the best ways to say “hello” in Mandarin like a fluent speaker.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Let’s learn how to actually say “hello” in Mandarin Chinese
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/bcbc51157c352644194c600920e499191baf99c44
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. 你好吗? (nǐ hǎo ma) – “How are you?” in Chinese
@@ -52,13 +52,13 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. 你吃了吗？(nǐ chī le ma) – “Have you eaten?”
 
@@ -71,10 +71,6 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  On your way to a business meeting where you’ll meet someone for the first time? Well, that’s the perfect moment to use this very formal Mandarin greeting.
 
  If you want something even MORE‌ formal than that, go with 久闻大名 (jiǔwéndàmíng) literally meaning “your name is famous” – a phrase which could translate to something like “I have heard much about you”. But only use this on very special occasions like meeting the president or a person you hold in very high regard.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. 最近好吗？(zuì jìn hào mǎ) – “How are you these days?”
 
@@ -89,12 +85,16 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. 下午好 (xiàwǔ hǎo) – “Good afternoon” in Chinese
 
  Want to diversify the way you greet people in Chinese? Then you can go with 下午好 (xiàwǔ hǎo) when it’s the right time of the day.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
@@ -136,18 +136,18 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-rising-from-hobbyist-to-leading-graphic-expert/"><u>[New] Rising From Hobbyist to Leading Graphic Expert</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-probing-into-youtube-discussions/"><u>[Updated] In 2024, Probing Into YouTube Discussions</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-infinix-note-30-pro-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Infinix Note 30 Pro Without Volume Buttons | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/gpresult-command-guide-for-policy-reporting/"><u>GPResult Command Guide for Policy Reporting</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782547-9781591439400-invoking-the-scribes-of-ancient-egypt/"><u>Invoking the Scribes of Ancient Egypt | Free Book</u></a></li>
-<li><a href="https://win-blog.techidaily.com/master-the-road-ahead-solving-forza-horizon-4s-pc-crash-issues/"><u>Master the Road Ahead: Solving Forza Horizon 4'S PC Crash Issues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigate-social-scenarios-in-italy-with-essential-salutations/"><u>Navigate Social Scenarios in Italy with Essential Salutations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/nombren-los-peculiaridades-de-los-animales-hispanos/"><u>Nombren Los Peculiaridades De Los Animales Hispanos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/turning-views-into-revenue-mastering-youtubes-financial-landscape/"><u>Turning Views Into Revenue Mastering YouTube's Financial Landscape</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/us-celebration-spoken-in-many-tongues/"><u>U.S. Celebration Spoken in Many Tongues</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unraveling-the-myths-around-language-mastery-duration/"><u>Unraveling the Myths Around Language Mastery Duration</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-free-video-rotation-software-top-10-picks-for-flipping-footage/"><u>Updated In 2024, Free Video Rotation Software Top 10 Picks for Flipping Footage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/your-path-to-fluent-tagalog-daily-practice-matters/"><u>Your Path to Fluent Tagalog - Daily Practice Matters</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-capture-screenshots-of-a-full-page/"><u>[New] 2024 Approved Capture Screenshots of a Full Page</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-best-webspots-free-eco-backdrops-and-footage-collection/"><u>[New] 8 Best Webspots FREE Eco-Backdrops and Footage Collection</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-smartest-approach-to-launching-your-youtube-businesspersonal-brand-from-phone/"><u>[New] In 2024, The Smartest Approach to Launching Your YouTube Business/Personal Brand From Phone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-tailored-broadcasting-strategies-for-various-platforms-yt-fb-twitch-for-2024/"><u>[Updated] Tailored Broadcasting Strategies for Various Platforms (YT, FB, Twitch) for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unlocking-creativity-an-in-depth-review-and-tutorial-for-powerdirector-2024/"><u>[Updated] Unlocking Creativity An In-Depth Review & Tutorial for PowerDirector 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-screenshot-mastery-using-ezvid-video-makers-pro-tips-and-tricks/"><u>2024 Approved Screenshot Mastery Using Ezvid Video Maker's Pro Tips and Tricks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579577151-enter-new-era-of-language-learning-with-mondlyar/"><u>Enter New Era of Language Learning with MondlyAR!</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-core-vocabulary-through-oxford-and-mondly-partnership/"><u>Master Core Vocabulary Through Oxford & Mondly Partnership</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/telegram-for-novices-an-easy-path-to-effective-advertising-for-2024/"><u>Telegram for Novices An Easy Path to Effective Advertising for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-bards-digital-footprint-timeless-terminology-today/"><u>The Bard's Digital Footprint: Timeless Terminology Today</u></a></li>
+<li><a href="https://some-skills.techidaily.com/undetectable-volume-variations-in-garageband-artistry-for-2024/"><u>Undetectable Volume Variations in Garageband Artistry for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-complexity-of-german-learning/"><u>Unveiling the Complexity of German Learning</u></a></li>
 </ul></div>
 

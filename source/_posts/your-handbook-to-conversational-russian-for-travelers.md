@@ -1,7 +1,7 @@
 ---
 title: Your Handbook to Conversational Russian for Travelers
-date: 2025-01-19T16:02:11.016Z
-updated: 2025-01-22T16:48:10.919Z
+date: 2025-01-26T01:25:18.255Z
+updated: 2025-01-29T19:23:53.323Z
 tags:
   - speak
   - english
@@ -80,6 +80,10 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 
 ![useful russian phrases scaled](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-phrases-scaled-640x960.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Photo by Tom Barrett
 
 * Is the flight delayed? –_Рейс откладывается? – Reys otkladyvayetsya?_
@@ -88,10 +92,6 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * We need help boarding the plane. – _Вы не могли бы помочь нам при посадке? – Vy ne mogli by pomoch nam pri posadke?_
 * Is this seat taken? –_Это место свободно? – Eto mesto svobodno?_
 * I would like to change my seat. –_Я хотел бы пересесть. – Ya hotel by peresest._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Common Russian phrases for travelers who need help
 
@@ -110,10 +110,6 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * Where is the bus station, please? – _Скажите пожалуйста, где автобусная остановка? – Skazhyte pozhaluysta, gde avtobusnaya ostanovka?_
 
 ![learn russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/learn-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 5")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Photo by A.L.
 
@@ -157,7 +153,7 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 ![russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-words-1024x684.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 6")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Photo by Max Delsid
@@ -184,7 +180,7 @@ thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6a
 * What would you like for breakfast? –_Что бы вы хотели на завтрак? – Chto by vy hoteli na zavtrak?_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Russian for travelers who want to have fun
@@ -199,10 +195,6 @@ Just joking. Still is an amazing drink, though!
 * Are tickets for the theatre still available? –_Билеты в театр ещё есть? – Bilety v teatr yeshcho yest?_
 
 ![russian-travel-guide](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-travel-guide-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 8")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Photo by Edwin Andrade
 
@@ -224,16 +216,16 @@ Just joking. Still is an amazing drink, though!
 
 ![basic-russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/bassic-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 9")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Photo by Alina Grubnyak
 
 * How much are they? –_Сколько они стоят? – Skolko oni stoyat?_
 * Can I have a receipt? –_Дайте мне, пожалуйста, чек. – Dayte mne, pozhaluysta, chek._
 * What would you like? –_Что вы предпочитаете? – Chto vy predpochitayete?_
 * Can I have some ice cream? –_Можно мне мороженого? – Mozhno mne morozhenogo?_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 8\. Russia Travel Guide – how to say that you have fallen in love?
 
@@ -250,6 +242,10 @@ Just joking. Still is an amazing drink, though!
 
 ![common-russian-phrases](https://edge.mondly.com/blog/wp-content/uploads/2018/07/common-russian-phrases-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 10")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Photo by Greg Rakozy
 
 * May I hold your hand? –_Можно взять тебя за руку? – Mozhno vzyat tebya za ruku?_
@@ -260,6 +256,10 @@ Just joking. Still is an amazing drink, though!
 * Would you like to go out this evening? – _Сходим сегодня вечером куда-нибудь? – Shodim segodnya vecherom kuda-nibud?_
 * Would you like to have dinner with me? –_Поужинаем вместе? – Pouzhynayem vmeste?_
 * I love you. – Я люблю тебя. –_Ya lyublyu tebya._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: Basic Russian phrases for football lovers
 
@@ -303,20 +303,17 @@ Just joking. Still is an amazing drink, though!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-banishing-black-edges-on-your-youtube-video-for-2024/"><u>[Updated] Banishing Black Edges on Your YouTube Video for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-elevate-engagement-discover-these-top-12-techniques-for-video-success-for-2024/"><u>[Updated] Elevate Engagement - Discover These Top 12 Techniques for Video Success for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-premium-selection-top-8-tripods-for-clear-4k-videos-for-2024/"><u>[Updated] Premium Selection Top 8 Tripods for Clear 4K Videos for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-deep-dive-into-buttons-used-by-brazilians-and-europeans/"><u>A Deep Dive Into Buttons Used by Brazilians and Europeans</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/add-cinematic-shake-to-images-using-ps/"><u>Add Cinematic Shake to Images Using PS</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Motorola Moto E13 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/adopt-the-ten-minute-rule-to-learn-urdu-quickly/"><u>Adopt the Ten-Minute Rule to Learn Urdu Quickly!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/antigones-ancestor-greek-language-timeline-and-effects/"><u>Antigone's Ancestor: Greek Language Timeline and Effects</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-languages-through-esl-education/"><u>Bridging Languages Through ESL Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/education-evolution-mondlys-global-stride/"><u>Education Evolution: Mondly's Global Stride</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elite-three-in-learning-languages-speak-worldwide-anytime/"><u>Elite Three in Learning Languages: Speak Worldwide, Anytime</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-a-step-by-step-framework-for-engaging-fb-giving-campaigns/"><u>In 2024, A Step-by-Step Framework for Engaging FB Giving Campaigns</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-precision-recording-for-instagram-story-enthusiasts/"><u>In 2024, Precision Recording for Instagram Story Enthusiasts</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/installing-windows-10-on-a-brand-new-drive-made-simple/"><u>Installing Windows 10 on a Brand-New Drive Made Simple</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/sparring-spirits-versus-social-media-savvy/"><u>Sparring Spirits Versus Social Media Savvy</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-haul-videography-unlocked-step-by-step-guide-for-enthusiasts/"><u>2024 Approved Haul Videography Unlocked Step-by-Step Guide for Enthusiasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-innovative-app-for-video-consumption-analysis/"><u>2024 Approved Innovative App for Video Consumption Analysis</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-jujutsu-kaisen-characters-in-the-world-of-tiktok-creatives/"><u>2024 Approved Jujutsu Kaisen Characters in the World of TikTok Creatives</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-youtube-to-dailymotion-transferring-videos-seamlessly/"><u>2024 Approved YouTube to Dailymotion Transferring Videos Seamlessly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brazilians-vs-europeans-a-comparative-study-on-pt-shortcuts/"><u>Brazilians vs Europeans: A Comparative Study on PT Shortcuts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/insider-tips-on-french-salutations-from-salut-to-sincere-smiles/"><u>Insider Tips on French Salutations: From 'Salut' To Sincere Smiles</u></a></li>
+<li><a href="https://win-bits.techidaily.com/master-web-development-through-enhanced-html-modification-in-emeditor/"><u>Master Web Development Through Enhanced HTML Modification in EmEditor</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/next-gen-amd-unleashed-the-zen-5-mobile-chip-that-packs-desktop-power-at-just-115w-spotted-in-leaked-photos-of-the-mighty-ryzen-strix-halo-with-a-whopping-179/"><u>Next-Gen AMD Unleashed: The Zen 5 Mobile Chip That Packs Desktop Power at Just 115W - Spotted in Leaked Photos of the Mighty Ryzen Strix Halo with a Whopping 16 Cores & RDNA Graphics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pathways-from-canadian-twang-to-british-cockney/"><u>Pronunciation Pathways: From Canadian Twang to British Cockney</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-patterns-for-the-new-swede/"><u>Pronunciation Patterns for the New Swede</u></a></li>
+<li><a href="https://windows11.techidaily.com/remedying-could-not-create-vm-problems-in-microsoft-os/"><u>Remedying 'Could Not Create VM' Problems in Microsoft OS</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/reviving-deleted-or-lost-gmail-correspondence-with-easy-backup-retrieval-methods/"><u>Reviving Deleted or Lost Gmail Correspondence with Easy Backup Retrieval Methods</u></a></li>
 </ul></div>
 

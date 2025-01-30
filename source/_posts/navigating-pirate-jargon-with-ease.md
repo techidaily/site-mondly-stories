@@ -1,7 +1,7 @@
 ---
 title: Navigating Pirate Jargon with Ease
-date: 2024-09-15T17:38:46.931Z
-updated: 2024-09-16T17:00:21.425Z
+date: 2025-01-22T18:43:28.475Z
+updated: 2025-01-30T00:07:57.801Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/44d44af4303c7de8c2d81023af1bd7a1796056772
 
 ![talk like a pirate day](https://media.giphy.com/media/5oVt3GSJuXKP6/giphy.gif "How To Talk Like A Pirate: 20 Pirate Words 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The origins of Talk Like a Pirate Day
 
  It was June 6, 1995, when John Baur and Mark Summers – later known by their pirate names Ol’ Chumbucket and Cap’n Slappy – played racquetball. The story says one of them got injured during the game and reacted with an outburst of “Arrr!”. Thus the Talk Like a Pirate Day was born. Out of respect for the observance of World War II’s D-Day on the 6th of June, the soon-to-be world-renowned pirates decided to choose Summers’ now ex-wife’s birthday – September 19 – to celebrate pirate lingo.
@@ -27,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/44d44af4303c7de8c2d81023af1bd7a1796056772
  At first, Baur and Summers celebrated Talk Like a Pirate Day as an inside joke between two friends. But a few years later they sent a letter to Dave Barry, a syndicated humor columnist, who liked the idea and released it into the world. The rest… is history.
 
  Over the years, the idea gained a lot of notoriety and is now celebrated internationally by people and brands everywhere. For example, in 2008, to celebrate the day, Facebook introduced a pirate-translated version of its website.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The pirate accent: how to talk like a pirate
 
@@ -39,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/44d44af4303c7de8c2d81023af1bd7a1796056772
  All you have to do is talk in a deep, gravelly voice, grunt and growl a lot, use insults abundantly, yell “arr!” every now and then, mumble incoherently from all the rum you’ve drunk, slur your words, give up g’s and v’s in most words, and replace “you” and your“ with “ye” and “yer”.
 
 Easy peasy, ain’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Pirate lingo: useful pirate words and phrases
 
@@ -73,23 +85,13 @@ Easy peasy, ain’t it?
 
 ![jack sparrow](https://media.giphy.com/media/LrIA0CryFKvN6/giphy.gif "How To Talk Like A Pirate: 20 Pirate Words 4")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fahoy-its-talk-like-a-pirate-day-arr%2F&t=How+to+Talk+Like+a+Pirate%3A+20+Pirate+Words "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Ahoy! Get your language skills to the next level
@@ -97,6 +99,10 @@ Easy peasy, ain’t it?
 [Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-3348&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-3348) is a pocket-held language tutor that allows you to put your brain on autopilot and enjoy the sail to fluency in 33 languages.
 
  By combining solid neural science, cutting edge technologies, bite-sized Daily Lessons and a gamified experience guaranteed to make you addicted to learning languages, Mondly gets you fluent faster than you could ever imagine. Every true pirate loves it ![Learn a new language now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-3348&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-3348%26utm%5Fsource%3Dblog-post-id-3348&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-3348%26mt%3D8 "Learn a new language now")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -111,5 +117,18 @@ Easy peasy, ain’t it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-excellent-quality-hd-video-preservers/"><u>[New] In 2024, Excellent Quality HD Video Preservers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-origami-like-folded-havens-in-mc/"><u>[New] Origami-Like Folded Havens in MC</u></a></li>
+<li><a href="https://extra-information.techidaily.com/around-the-clock-vision-versus-multiplanar-exposures/"><u>Around-the-Clock Vision Versus Multiplanar Exposures</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discovering-the-ins-and-outs-of-apples-planned-home-robot-pricing-predictions-release-dates-and-technical-specifications/"><u>Discovering the Ins and Outs of Apple's Planned Home Robot: Pricing Predictions, Release Dates, and Technical Specifications</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-realme-c51frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Realme C51FRP Lock</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-linguistics-top-50-phrases-for-social-enthusiasts/"><u>Latin Linguistics: Top 50 Phrases for Social Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leap-elevating-speech-with-challenging-terms/"><u>Linguistic Leap: Elevating Speech with Challenging Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearson-engage-in-languages-worldwide/"><u>Pearson Engage in Languages Worldwide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pinnacle-languages-certifications-and-effective-preparation/"><u>Pinnacle Languages Certifications & Effective Preparation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-narrative-nebula-deciphering-the-viking-dialect/"><u>The Narrative Nebula: Deciphering the Viking Dialect</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/troubleshooting-apple-maps-making-lost-friend-locations-visible-again/"><u>Troubleshooting Apple Maps: Making Lost Friend Locations Visible Again</u></a></li>
+</ul></div>
 

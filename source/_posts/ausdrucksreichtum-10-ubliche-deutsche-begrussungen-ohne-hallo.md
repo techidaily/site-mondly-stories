@@ -1,7 +1,7 @@
 ---
 title: "Ausdrucksreichtum: 10 Übliche Deutsche Begrüßungen Ohne Hallo"
-date: 2024-09-18T17:19:10.262Z
-updated: 2024-09-21T19:44:41.478Z
+date: 2025-01-25T21:59:02.461Z
+updated: 2025-01-30T02:48:31.041Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  First, some good news! As it turns out, Germans use_hi_ too. Careful though: as you already know,_hi_ is more informal than_hallo_ so you should keep this one between friends.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Hallöchen – ‘Hello’ (lit. ‘little hello’)
 
  If you want to avoid repetition and diversify your vocabulary, you can also say_hallöchen,_ which is literally a ‘little hello’. It’s best to use_hallöchen_ to greet… whoever says German is a harsh language 🤭.
@@ -53,10 +57,7 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Abend!_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Wie geht es dir? – “How’s it going?”
@@ -66,13 +67,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Literally meaning “how does it go to you?”,_wie geht es dir?_ is an informal way of asking your friend how are things going. If you want to move up the formality scale, you can use the formal_wie geht es Ihnen_ ._Dir_ and_Ihnen_ both mean ‘you’, but unlike English, German uses formal and informal pronouns.
 
  If you want to be as word-efficient as a native, you can also just say the shortened_wie geht’s?_ version.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Alles klar? – “Everything alright?”
 
@@ -88,9 +82,21 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
 
@@ -117,25 +123,11 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** northern Germany, especially in and around Hamburg.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Grüezi – “Hello”
 
 _Grüezi_ is a greeting you can use in formal situations, such as speaking with people you don’t know.
 
 **Localization:** Switzerland.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Grüß Gott – “God bless you”
 
@@ -191,5 +183,21 @@ _Tschüss!_ (‘Goodbye!’)
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-tips.techidaily.com/new-unhackable-blueprint-for-inserting-your-tiktok-links/"><u>[New] Unhackable Blueprint for Inserting Your TikTok Links</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-best-of-the-best-6-superior-signature-background-removers/"><u>[Updated] In 2024, Best of the Best 6 Superior Signature Background Removers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-podcast-prelude-platter-crafting-the-perfect-opening-tune/"><u>2024 Approved Podcast Prelude Platter Crafting the Perfect Opening Tune</u></a></li>
+<li><a href="https://discover-best.techidaily.com/gdpr-compliant-data-protection-terms-enhanced-privacy-with-abbyys-cloud-services/"><u>GDPR Compliant Data Protection Terms – Enhanced Privacy with ABBYY's Cloud Services</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-vivo-x100-pro-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Vivo X100 Pro FRP</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/mastering-maccam-easy-webcam-recordings-for-2024/"><u>Mastering MacCam Easy Webcam Recordings for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-champion-of-language-learning-germany-resonates/"><u>Mondly: Champion of Language Learning - Germany Resonates!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multi-language-mental-merge/"><u>Multi-Language Mental Merge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reasons-to-dive-into-language-learning-post-forty-enhanced-cognition-and-global-connections/"><u>Reasons to Dive Into Language Learning Post-Forty – Enhanced Cognition & Global Connections</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/reliable-strategies-for-retrieving-permanently-deleted-ios-images-with-ease/"><u>Reliable Strategies for Retrieving Permanently Deleted iOS Images with Ease</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-to-overcoming-opengl-errors-on-minecraft/"><u>Step-by-Step Guide to Overcoming OpenGL Errors on Minecraft</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-epic-saga-of-global-words-longest-one/"><u>The Epic Saga of Global Words' Longest One</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-5-foreign-languages-dominating-american-classrooms/"><u>Top 5 Foreign Languages Dominating American Classrooms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-humanitys-earliest-conversations/"><u>Unlocking Humanity's Earliest Conversations</u></a></li>
+</ul></div>
 

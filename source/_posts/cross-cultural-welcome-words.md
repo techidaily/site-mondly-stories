@@ -1,7 +1,7 @@
 ---
 title: Cross-Cultural Welcome Words
-date: 2024-09-14T18:08:17.555Z
-updated: 2024-09-16T16:28:58.553Z
+date: 2025-01-28T20:07:30.534Z
+updated: 2025-01-30T03:38:29.303Z
 tags:
   - speak
   - english
@@ -46,13 +46,6 @@ thumbnail: https://thmb.techidaily.com/6aaf83c5a09999402e25379b87750585dedbdeb12
 
  Moreover, don’t forget that the Japanese culture is a culture of respect. If you want to go all-in and immerse yourself entirely in the Japanese culture, it’s best to [study Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) etiquette before your trip.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Hello in Korean — 안녕하세요 (Annyeonghaseyo)
 
  In recent years, the [Korean language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) has been enjoying an increase in popularity due to BTS, a Korean boy band “taking over the world”. As a result, more and more young people wish to learn Korean. So, knowing as little as**‘hello’ in Korean** is a must if you want to be up-to-date.
@@ -89,7 +82,15 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
 ![hello in french](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-french-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Antibes, France” by Reuben Mcfeeters©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Hello in Italian — Ciao
 
@@ -97,23 +98,9 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
 ![hello in different languages](https://media.giphy.com/media/DqZKCC1rRht8FmnKbv/giphy.gif "How To Say &Quot;Hello&Quot; In Different Languages 5")
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Back to seriousness, Italians are all about respecting their elders, so if you need a more formal**‘hello’ in Italian** , you can safely use **_Salve_ .**
 
  If you want to learn more about how to say**‘hi’ in Italian,** you can check out this in-depth **[guide on Italian greetings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Hello in Chinese — 你好 (Nǐ hǎo)
 
@@ -122,10 +109,7 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
  Of course, like in many other languages, this is not the only way to say ‘hello’ in Chinese. To find out what are other ways to say ‘hi’ in Chinese, here’s an [in-depth guide on](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) **Chinese greetings.**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hello in Portuguese — Olá
@@ -136,11 +120,19 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
 
  To learn more about Portuguese greetings, check out our guide on how to say [**‘** **hello’ in Portuguese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Hello in different languages
 
  Now that we’ve properly covered some of the most spoken languages in the world let’s move on to the real gold mine of**‘hello’ in different languages.** From ‘hello’ in Arabic to ‘hello’ in Catalan and even Latin, you’ll find them all here. Besides, if you want to hear them in action in real conversations, spoken by fluent speakers, you can always get Mondly. Just choose the language you always wanted to speak, and you can be conversational from day 1.
 
 ![hello in spanish](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-spanish-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Hello” by Octavian Dan©
 
@@ -208,5 +200,20 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-prime-strategies-for-high-quality-youtube-mp3mpeg/"><u>[Updated] 2024 Approved Prime Strategies for High-Quality YouTube MP3/MPEG</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-ps4-to-video-essential-guide-for-using-obs-studio/"><u>[Updated] 2024 Approved PS4 to Video Essential Guide for Using OBS Studio</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-hurdlehop-pausevidsnapshot-for-2024/"><u>[Updated] HurdleHop PauseVidSnapshot for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-insightful-cloud-costs-price-comparison-and-recommendations-for-2024/"><u>[Updated] Insightful Cloud Costs Price, Comparison & Recommendations for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-insight-into-lgs-360-camera-updates-and-features-for-todays-photographers/"><u>2024 Approved Insight Into LG's 360 Camera Updates and Features for Today's Photographers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-a-la-ortografia-de-los-colores/"><u>Guía a La Ortografía De Los Colores</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-6-plus-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>How to Unlock iPhone 6 Plus Passcode without iTunes without Knowing Passcode?</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/in-depth-review-testing-the-long-lasting-endurance-of-asus-tuf-gaming-a14/"><u>In-Depth Review: Testing the Long-Lasting Endurance of Asus TUF Gaming A14</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-joins-pearson/"><u>Mondly Joins Pearson</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-croatia-like-a-local-key-phrases-you-cant-miss/"><u>Navigating Croatia Like a Local: Key Phrases You Can’t Miss</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/secure-your-gaming-memories-5-essential-vr-recording-methods-for-2024/"><u>Secure Your Gaming Memories 5 Essential VR Recording Methods for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-to-saying-thank-you-in-germany/"><u>The Essential Guide to Saying Thank You in Germany</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-nokia-g310-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Nokia G310 Location | Dr.fone</u></a></li>
+</ul></div>
 

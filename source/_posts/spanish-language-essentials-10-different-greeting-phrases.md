@@ -1,7 +1,7 @@
 ---
 title: "Spanish Language Essentials: 10 Different Greeting Phrases"
-date: 2024-09-19T18:05:30.718Z
-updated: 2024-09-21T17:40:53.489Z
+date: 2025-01-25T01:28:16.172Z
+updated: 2025-01-29T23:00:23.461Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/304e2f357860569a12cd2d51db7951faca7194234
 
  Let’s break down the most important Spanish greetings and introductions you’ll need for a basic conversation in Spanish. As Speedy Gonzales used to say:_¡Arriba, arriba! ¡Ándale, ándale!_ – meaning “Go, go! Come on, come on!”
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## “Hello” in Spanish: ¡Hola
 
 **¡Hola!** – pronounced without the “h” – is your safety net wherever you’ll go: to a date, meeting or a Spanish-speaking country. This is the absolute basic greeting you need to know in Spanish and it can be used to salute any person regardless of the circumstance: formal or informal.
@@ -34,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/304e2f357860569a12cd2d51db7951faca7194234
 
 **Bonus dating tip:** “Hello, beautiful” in Spanish is “Hola, hermosa” and “Hello, handsome” in Spanish is “Hola, hermoso”. Good luck! (wink wink)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish greetings for certain moments of the day
 
 **Buenos días** – literally meaning “good days”, “buenos días” is more formal than “hola” and it translates to “[good morning](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . The same as in English, this greeting can be used anytime before noon in both formal and informal contexts.
@@ -46,7 +54,15 @@ thumbnail: https://thmb.techidaily.com/304e2f357860569a12cd2d51db7951faca7194234
 
 ![hi in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/04/hi-in-spanish-600x463.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  ¡Hola, señor! by Bruce Jastrow©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## “How are you?” in Spanish
 
@@ -60,13 +76,6 @@ thumbnail: https://thmb.techidaily.com/304e2f357860569a12cd2d51db7951faca7194234
 **¿Qué hay?** – generally used in Spain; it is used the same way we use “hey!” or “what’s up” in English  
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## “Yes”, “please” and “thank you” in Spanish
 
  If you want to [learn Spanish colors](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , “yes”, “no”, “please” and “thank you” together with the above-mentioned greetings are the absolute basics you’ll need to master before moving forward. Here’s how to say these basic but at the same time crucial [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :
@@ -79,13 +88,6 @@ thumbnail: https://thmb.techidaily.com/304e2f357860569a12cd2d51db7951faca7194234
 * I’m sorry – Lo siento
 * I have/I don’t have – Tengo/No tengo
 * Nice to meet you – Encantado/Encantada de conocerte
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Goodbye in Spanish
 
@@ -103,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/304e2f357860569a12cd2d51db7951faca7194234
  Or as The Terminator would say:**Hasta la vista, baby!**
 
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
@@ -134,5 +140,21 @@ thumbnail: https://thmb.techidaily.com/304e2f357860569a12cd2d51db7951faca7194234
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-satire-skills-video-comedy-mastery-tips/"><u>[New] In 2024, Satire Skills Video Comedy Mastery Tips</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-premiere-video-editing-options-for-app-developers/"><u>[New] Premiere Video Editing Options for App Developers</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-maximizing-potential-the-art-of-role-implementation-on-discord-for-2024/"><u>[Updated] Maximizing Potential The Art of Role Implementation on Discord for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-premier-live-chat-platforms-for-virtual-gatherings/"><u>[Updated] Premier Live-Chat Platforms for Virtual Gatherings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-step-by-step-walkthrough-of-google-docs-text-conversion-for-2024/"><u>[Updated] Step-by-Step Walkthrough of Google Docs Text Conversion for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-nokia-130-music-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Nokia 130 Music Location | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italys-language-of-hospitality-100plus-useful-expressions/"><u>Italy's Language of Hospitality: 100+ Useful Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-urdu-with-a-minimum-time-investment/"><u>Master Urdu with a Minimum Time Investment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/miglioramento-della-comunicazione-con-i-numeri-italiani/"><u>Miglioramento Della Comunicazione Con I Numeri Italiani</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-pedagogical-strategies-revealed/"><u>Mondly’s Pedagogical Strategies Revealed</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Vivo V30? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voyage-with-confidence-top-93-indispensable-spanish-phrases/"><u>Voyage with Confidence: Top 93 Indispensable Spanish Phrases</u></a></li>
+</ul></div>
 

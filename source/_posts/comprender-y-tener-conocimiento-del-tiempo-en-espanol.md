@@ -1,7 +1,7 @@
 ---
 title: Comprender Y Tener Conocimiento Del Tiempo en Espaňol
-date: 2024-09-17T19:55:30.443Z
-updated: 2024-09-21T19:52:21.609Z
+date: 2025-01-25T20:58:18.268Z
+updated: 2025-01-29T20:06:25.271Z
 tags:
   - speak
   - english
@@ -25,6 +25,10 @@ _¿Que hora es?_ demands an answer! And no, we’re not talking about the Mexica
 But first things first.
 
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## ¿Que hora es? – how to ask for the time in Spanish
 
@@ -57,6 +61,10 @@ But first things first.
 
 _**Nota bene:**_ If you prefer to use the 24-hour clock, you should say**_son las dieciséis_** **(“it’s 16:00”)** instead of **_son las cuatro_ (“it’s 4 o’clock p.m.”).** But that will require a little more studying on your part. Don’t worry though. Spanish numbers are just as easy as learning how to tell the time. You can master them with Mondly faster than you can say Jack Robinson. You can get started [here](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5345&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5345?mother%5Flang=en%5Fus?target%5Flang=es) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How do you say the time in Spanish after 30?
 
  Now, the time is not always on the hour. So how do you say “half past”, “quarter past” and “quarter to” in Spanish? There are only two new words you need to remember:_**media**_ and_**cuarto**_ .
@@ -75,19 +83,6 @@ Here are some examples:
 
  Telling time in Spanish – a visual guide
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Hour + minutes in Spanish time
 
  Wanna be a little more specific? Here’s how Spanish time works when you need to indicate the exact number of minutes that have past from the hour.
@@ -98,6 +93,10 @@ Here are some examples:
 
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Different ways of telling time in Spanish
 
@@ -124,10 +123,7 @@ Here are some examples:
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Other useful time phrases in Spanish
@@ -165,6 +161,10 @@ Here are some examples:
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -188,5 +188,24 @@ Here are some examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-flv-to-youtube-stardom-top-10-video-conversion-tools-reviewed/"><u>[New] 2024 Approved From FLV to YouTube Stardom Top 10 Video Conversion Tools Reviewed</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-transforming-images-into-engaging-animation-projects/"><u>[New] 2024 Approved Transforming Images Into Engaging Animation Projects</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-quick-windows-data-assessment-tutorial/"><u>[New] Quick Windows Data Assessment Tutorial</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-altitude-achievers-the-ultimate-long-duration-drones-top-10/"><u>2024 Approved Altitude Achievers The Ultimate Long Duration Drones (Top 10)</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-fix-a-non-responsive-alienware-command-center/"><u>How to Fix a Non-Responsive Alienware Command Center</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-easter-wishes-translated/"><u>International Easter Wishes Translated</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/is-trusting-google-for-passwords-warranted-or-misguided/"><u>Is Trusting Google for Passwords Warranted or Misguided?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/macos-1441-release-ensures-safe-upgrade-path-for-apple-users-tech-insights/"><u>MacOS 14.4.1 Release Ensures Safe Upgrade Path for Apple Users | Tech Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-redefines-language-acquisition-through-ar-technology/"><u>Mondly Redefines Language Acquisition Through AR Technology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-une-symphonie-en-langue/"><u>Semaine Française : Une Symphonie en Langue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-latvian-fluently-with-ten-minute-practice/"><u>Speak Latvian Fluently with Ten-Minute Practice</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-verdict-on-the-razer-blade-stealth-13-a-revolutionary-step-forward-for-high-end-notebooks/"><u>The Ultimate Verdict on the Razer Blade Stealth 13: A Revolutionary Step Forward for High-End Notebooks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-techniques-for-mastering-finnish-from-home/"><u>Top Techniques for Mastering Finnish From Home</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-three-asian-communication-methods-filter-and-preserve/"><u>Top Three Asian Communication Methods: Filter & Preserve</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-tools-elevating-linguistic-education-excellence/"><u>Top Tools Elevating Linguistic Education Excellence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-power-of-polite-expressions-in-japan/"><u>Unlock the Power of Polite Expressions in Japan</u></a></li>
+<li><a href="https://win-hot.techidaily.com/unveiling-the-reasons-behind-youtubes-video-converter-prompt-expert-level-antivirusguide-insights/"><u>Unveiling the Reasons Behind YouTube's Video Converter Prompt: Expert-Level AntiVirusGuide Insights</u></a></li>
+</ul></div>
 

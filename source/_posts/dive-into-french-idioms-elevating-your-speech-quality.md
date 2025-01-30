@@ -1,7 +1,7 @@
 ---
 title: "Dive Into French Idioms: Elevating Your Speech Quality"
-date: 2024-09-14T16:18:42.243Z
-updated: 2024-09-21T17:58:35.567Z
+date: 2025-01-28T19:33:05.418Z
+updated: 2025-01-30T00:38:07.243Z
 tags:
   - speak
   - english
@@ -95,16 +95,7 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
  –_Vouloir, c’est pouvoir._ (“Where there’s a will, there’s a way.”)
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _6\. Impossible n’est pas français._
@@ -116,6 +107,10 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
 **How to use it**
 
 _– Je ne peux pas le faire, c’est impossible !_ (“I can’t do it, it’s impossible!)_– Impossible n’est pas français._ (”Nothing is impossible.“)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _7\. Il ne faut rien laisser au hasard._
 
@@ -189,6 +184,10 @@ _– Mieux vaut être seul que mal accompagné._ (“Better alone than in a bad 
 
 _– Je viens de perdre mon emploi mais je ne vais pas perdre l’espoir._ _Après la pluie, le beau temps._ (“I’ve just lost my job but I won’t lose hope. After all, after the rain, good weather evetually comes.”)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### _13\. Les murs ont des oreilles._
 
 **Literal translation:** “The walls have ears.”
@@ -227,13 +226,6 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
  –_L’appétit vient en mangeant._ (“Appetite comes with eating.”)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### _2\. Mangez bien, riez souvent, aimez beaucoup._
 
 **Literal translation:** “Eat well, laugh often, love a lot.”
@@ -243,20 +235,10 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 ![french proverbs](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-proverbs-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 4")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Take care of your own onions” by MILKOVÍ©
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### _3\. S’occuper de ses oignons._
 
@@ -288,6 +270,10 @@ _– Ça suffit! Tu racontes des salades !_ (“Enough with that. What you are s
 
 _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Stop annoying me! You are not winning this bet.”)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### _6\. La vie est trop courte pour boire du mauvais vin._
 
 **Literal translation:** “Life is too short to drink bad wine.”
@@ -295,6 +281,10 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 **Actual meaning:** This saying can be used both literally and figuratively. The idea is that life’s too short to do things that you don’t like.
 
 ![funny french expressions](https://edge.mondly.com/blog/wp-content/uploads/2020/07/funny-french-expressions-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Tigger looking for rats online” by Catherine Heath©
 
@@ -313,6 +303,10 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
  –_Oh là là, Finalement, Andrew a du mal à gagner le match._ (“Wow! Andrew is finally having trouble winning the match.”)
 
  –_Oui, Xavier est vraiment un adversaire de taille. À bon chat, bon rat._ (“Yes, Xavier is a really good match for him. They are equally matched.”)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _2\. Les chiens ne font pas des chats._
 
@@ -334,6 +328,10 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
 ![french saying](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-saying-960x720.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Bonjour!” by Waranya Mooldee©
 
 ### _4\. Poser un lapin._
@@ -341,6 +339,10 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 **Literal translation:** “To place a rabbit.”
 
 **Actual meaning:** “To stand someone up”. If the person you were supposed to meet doesn’t show up, you can say_il m’a posé un lapin_ (“he stood me up”).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _5\. Avoir une araignée au plafond._
 
@@ -355,10 +357,7 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 **Actual meaning:** Talkers are not always doers. The one who talks the most is not always the smartest or the most resourceful.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _7\. Peigner la girafe._
@@ -403,5 +402,18 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/updated-quick-start-with-screencastify-video-recording-for-2024/"><u>[Updated] Quick Start with Screencastify Video Recording for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-best-free-video-effects-sites/"><u>2024 Approved Best Free Video Effects Sites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/impact-of-grammar-on-linguistic-acquisition/"><u>Impact of Grammar on Linguistic Acquisition</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-realme-11-pro-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Realme 11 Pro Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/les-systemes-du-corps-humain-introduction-et-explication-en-francais/"><u>Les Systèmes Du Corps Humain: Introduction Et Explication en Français</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/izing-video-impact-selecting-the-best-rank-trackers-for-youtubers-for-2024/"><u>Maximizing Video Impact Selecting the Best Rank Trackers for YouTubers for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-fresh-vga-driver-downloads-for-enhanced-display-performance/"><u>Step-by-Step Guide: Fresh VGA Driver Downloads for Enhanced Display Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-compendium-of-basic-russian-dialogues/"><u>The Ultimate Compendium of Basic Russian Dialogues</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-tecno-pop-8-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Tecno Pop 8 without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-the-most-recommended-natural-ai-hindi-voice-generator/"><u>Updated 2024 Approved The Most Recommended Natural AI Hindi Voice Generator</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vital-russian-communication-tools-for-explorers/"><u>Vital Russian Communication Tools for Explorers</u></a></li>
+</ul></div>
 

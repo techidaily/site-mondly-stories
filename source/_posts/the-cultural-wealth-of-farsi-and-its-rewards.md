@@ -1,7 +1,7 @@
 ---
 title: The Cultural Wealth of Farsi & Its Rewards
-date: 2025-01-15T16:25:45.686Z
-updated: 2025-01-22T18:05:00.961Z
+date: 2025-01-24T23:02:57.901Z
+updated: 2025-01-30T02:31:32.106Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  Here’s a quick guide to all the basics you need to know about Persian before deciding whether you want to learn Persian or not.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Persian a language?
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 
  In other words, the confusion arises from the fact that there’s currently no country on Earth named Persia in the same way there’s no language we can call the ‘Iranian language’. Persian does belong to the Iranian languages, but the Iranian languages are a branch of the Indo-Iranian languages in the Indo-European language family. So they are not an individual language.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Persian language – history and facts
 
  One of the most fascinating things about Persian is its long history stretching back thousands of years. The Persian language that exists today is a continuation of Middle Persian, itself a continuation of Old Persian, which was used in the Achaemenid Empire between 550 and 330 BCE. Let’s look a little bit at the history of the Persian language and discover what makes it special.
@@ -39,10 +43,6 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  The oldest known records of**Old Persian** are some inscriptions dating back to the time of King Darius I (522–486 BC). These inscriptions are written in the Babylonian cuneiform script, which is one of the oldest writing forms in the world.
 
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The Arab rule
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
 !["Ferdowsi Shahnameh" by McGill Library©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/mcgill-library-AH42Li7NKUc-unsplash-960x629.jpg "Persian Language: History &Amp; Benefits Of Learning Farsi/Persian 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Persian Literary History: Ferdowsi’s ‘Shahnameh’ — Siyavush in Sudaba’s private quarters.
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Persian vs Arabic: Is Persian similar to Arabic?
@@ -91,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d
  Here are two videos of numbers from 1 to 10 in Persian and in Arabic so you can see the difference:
 
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The benefits of learning Farsi/Persian
 
@@ -111,10 +115,6 @@ Other benefits of learning Persian include:
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Learn Persian online with Mondly
 
@@ -147,18 +147,17 @@ Other benefits of learning Persian include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-becoming-an-srt-creation-virtuoso-a-complete-manual/"><u>[New] Becoming an SRT Creation Virtuoso A Complete Manual</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-multitude-of-cheers-for-your-special-day/"><u>A Multitude of Cheers for Your Special Day</u></a></li>
-<li><a href="https://extra-information.techidaily.com/alternatives-to-xsplit-for-digital-media-masters-for-2024/"><u>Alternatives to Xsplit for Digital Media Masters for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-apps-accelerating-global-communication-skills/"><u>Best Apps Accelerating Global Communication Skills</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpts-new-edge-10-tailored-enhancements/"><u>ChatGPT's New Edge: 10 Tailored Enhancements</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-global-patterns-in-french-speaking-populations/"><u>Deciphering Global Patterns in French-Speaking Populations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/distinctions-in-british-and-american-dialects/"><u>Distinctions in British and American Dialects</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/educators-summit-in-london-uk-bett-2022/"><u>Educators' Summit in London, UK: BETT 2022</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580825709-enhance-communication-skills-in-hindi-discover-7-powerful-mondly-advantages/"><u>Enhance Communication Skills in Hindi - Discover 7 Powerful Mondly Advantages</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-realme-narzo-60x-5g-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Realme Narzo 60x 5G to New Android Phone? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-comparative-review-of-premium-streaming-services/"><u>In 2024, Comparative Review of Premium Streaming Services</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-honor-v-purse-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Honor V Purse Screen | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/tailoring-screen-time-in-windows-os/"><u>Tailoring Screen Time in Windows OS</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-120plus-original-title-concepts-for-unique-and-memorable-snapchat-stories/"><u>[New] 2024 Approved 120+ Original Title Concepts for Unique and Memorable Snapchat Stories</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-the-ultimate-checklist-for-broadcasting-on-discord/"><u>[Updated] 2024 Approved The Ultimate Checklist for Broadcasting on Discord</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-popular-latin-phrases-to-impress-your-friends/"><u>50 Popular Latin Phrases to Impress Your Friends</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591999-9781469746562-a-beautiful-mind-wasted/"><u>A Beautiful Mind Wasted | Free Book</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/acer-ryzen-graphics-driver-download-free-and-latest-version/"><u>Acer Ryzen Graphics Driver Download - Free & Latest Version</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/asus-ax6000-rt-ax88u-in-depth-analysis-of-a-leading-wi-fi-6-router-with-advanced-capabilities/"><u>Asus AX6000 RT-AX88U: In-Depth Analysis of a Leading Wi-Fi 6 Router with Advanced Capabilities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578913208-how-to-say-thank-you-in-30-different-languages/"><u>How To Say Thank You In 30 Different Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-a-gateway-to-smart-minds/"><u>Language Learning - A Gateway to Smart Minds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mast-hopping-lingo-key-pirate-words-for-authenticity/"><u>Mast-Hopping Lingo: Key Pirate Words for Authenticity</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/master-warzone-20-pc-setup-uncover-these-7-essential-tweaks-to-avoid-start-up-hurdles/"><u>Master Warzone 2.0 PC Setup: Uncover These 7 Essential Tweaks to Avoid Start-Up Hurdles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-hardest-speakers-challenge-deciphering-tough-languages/"><u>The Hardest Speakers' Challenge: Deciphering Tough Languages</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-step-by-step-audio-capture-in-garageband-your-personalized-tutorial/"><u>Updated 2024 Approved Step-by-Step Audio Capture in GarageBand Your Personalized Tutorial</u></a></li>
 </ul></div>
 

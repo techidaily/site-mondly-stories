@@ -1,7 +1,7 @@
 ---
 title: Embark on Spanish Numerals 1-10
-date: 2024-09-20T18:06:40.546Z
-updated: 2024-09-21T16:59:59.891Z
+date: 2025-01-23T05:16:05.100Z
+updated: 2025-01-30T04:30:52.250Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
 
  Learning how to count is crucial if you decide to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Although we may not always acknowledge it, numbers or_números_ (as you’d call them in Spanish) are essential to our day-to-day lives. From shopping to setting up a meeting, telling time, or giving someone your phone number – they really are one of the most basic and important language lessons. So let’s crack the mystery and discover what comes after_uno_ ,_dos,_ and_tres_ . Because Pitbull only gets us so far.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish numbers 1 to 30
 
  One of my Danish friends discovered how important Spanish numbers actually are when he needed to tell someone [the time in Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and had no idea that “five” is_cinco_ in Spanish. So this is a great piece of advice: don’t move to Barcelona without knowing one of the most basic [Spanish lessons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) first. Especially when it takes just 10 minutes to master it.
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -70,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
 
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -100,10 +112,7 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish numbers to 1000 and beyond
@@ -144,10 +153,7 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Barcelona, Spain
@@ -197,5 +203,23 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-mastering-visual-enhancements-in-tiktok/"><u>[New] 2024 Approved Mastering Visual Enhancements in TikTok</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/outubers-ultimate-guide-10-keys-to-unique-short-form-videos-for-2024/"><u>[New] Youtubers' Ultimate Guide 10 Keys to Unique Short-Form Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2023s-fb-url-vault-securely-access-8-free-downloads-online/"><u>[Updated] 2023'S FB URL Vault Securely Access 8 Free Downloads Online</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-maximizing-screen-recording-on-xbox-for-gamers-success/"><u>[Updated] Maximizing Screen Recording on Xbox for Gamers' Success</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-infinix-zero-5g-2023-turbo-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Infinix Zero 5G 2023 Turbo to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/harnessing-the-power-of-cookiebot-to-revolutionize-your-online-experience-and-seo-strategy/"><u>Harnessing the Power of Cookiebot to Revolutionize Your Online Experience and SEO Strategy</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-basic-to-exceptional-gopro-filming-techniques/"><u>In 2024, From Basic to Exceptional Gopro Filming Techniques</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-samsung-galaxy-z-flip-5-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Samsung Galaxy Z Flip 5 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jolly-roger-jargon-decoding-20-piratical-terms/"><u>Jolly Roger Jargon: Decoding 20 Piratical Terms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingua-franca-croatia/"><u>Lingua Franca: Croatia</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/meet-the-future-of-mobile-assistants-chatgpt-now-roams-in-apples-world/"><u>Meet the Future of Mobile Assistants: ChatGPT Now Roams in Apple's World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-triumphs-engaging-70-million-learners-globally/"><u>Mondly Triumphs – Engaging 70 Million Learners Globally</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shakespeares-words-36-words-shakespeare-invented-that-we-still-use-today/"><u>Shakespeare’s Words: 36 Words Shakespeare Invented That We Still Use Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcultural-exchange-in-eng-language/"><u>Transcultural Exchange in ENG Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-to-correct-spaniard-diacritics/"><u>Unlocking the Secrets to Correct Spaniard Diacritics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voicing-love-languages-in-the-hungarian-context/"><u>Voicing Love Languages in the Hungarian Context</u></a></li>
+</ul></div>
 

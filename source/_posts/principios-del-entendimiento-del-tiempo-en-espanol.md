@@ -1,7 +1,7 @@
 ---
 title: Principios Del Entendimiento Del Tiempo en Español
-date: 2025-01-16T17:52:04.891Z
-updated: 2025-01-22T17:20:05.876Z
+date: 2025-01-23T20:03:12.437Z
+updated: 2025-01-29T17:16:02.837Z
 tags:
   - speak
   - english
@@ -27,7 +27,7 @@ But first things first.
 ![Spanish time](https://media.giphy.com/media/cAEm5rSuuBEGY/giphy.gif "How To Tell Time In Spanish - A Complete Guide For Beginners 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## ¿Que hora es? – how to ask for the time in Spanish
@@ -35,6 +35,10 @@ But first things first.
  In order to tell the time in Spanish, you’ll first have to learn how to properly ask for the time in Spanish. You can never be too cautious. I’m just making sure you’re not missing that_fiesta española_ you spent weeks thinking about!
 
  In addition to the now well-known_**¿que hora es?**_ which literally translates to “what hour is it?”, you can also ask_**¿tiene hora?**_ which is literally “do you have the hour?”. Easy enough!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The basics of Spanish time
 
@@ -78,7 +82,7 @@ Here are some examples:
 ![telling time in spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/06/telling-time-in-spanish-600x600.jpg "How To Tell Time In Spanish - A Complete Guide For Beginners 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Telling time in Spanish – a visual guide
@@ -94,6 +98,10 @@ Here are some examples:
 * _Son las ocho y cuarto._ (“it’s a quarter past eight”)
 * _Son las ocho y quince._ (“it’s eight and fifteen minutes”)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Different ways of telling time in Spanish
 
  There are three formulas of telling time in Spanish. Here are different ways of telling it’s 3:10:
@@ -105,7 +113,7 @@ Here are some examples:
  Which one do you prefer? Additionally, if we also count it_cuarto_ and_media_ , there are no less than four different ways to tell the time in Spanish. And you’ve just mastered them all!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to indicate the time of day in Spanish
@@ -121,10 +129,6 @@ Here are some examples:
 * _tarde_ – in the afternoon
 
  To indicate that an event occurs at a specific time, use the formula **a +_la(s)_ \+ time** :_La clase de español empieza a las nueve_ – “The Spanish class begins at 9”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Other useful time phrases in Spanish
 
@@ -161,10 +165,6 @@ Here are some examples:
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Speak Spanish fluently in just 10 minutes a day
 
  Do you want to [speak Spanish fluently](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fast? Get Mondly, the award-winning language learning app that will help you speak Spanish as if you were Spanish-born.
@@ -190,21 +190,22 @@ Here are some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-dissecting-revenue-allocation-for-shortform-content-makers/"><u>[New] In 2024, Dissecting Revenue Allocation for Shortform Content Makers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-enhance-your-vtuber-experience-with-top-voice-modification-tools/"><u>[Updated] Enhance Your VTuber Experience with Top Voice Modification Tools</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Vivo Y56 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/adopting-a-global-communication-lifestyle-in-24/"><u>Adopting a Global Communication Lifestyle in '24</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-speech-barriers-with-english-twister-mastery/"><u>Breaking Speech Barriers with English Twister Mastery</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/childhood-as-the-peak-time-for-second-language-acquisition/"><u>Childhood as the Peak Time for Second Language Acquisition</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-vivo-v27-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Vivo V27.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581340946-conquer-croatias-linguistic-landscape-with-these-essential-phrases/"><u>Conquer Croatia's Linguistic Landscape with These Essential Phrases</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/host-plant-species-interactions-essential-for-its-life-cycle-focusing-on-the-bark-beetle-as-a-vector-in-parasitizing-ants-to-complete-its-lifecycle/"><u>Host Plant Species Interactions Essential for Its Life Cycle, Focusing on the Bark Beetle as a Vector in Parasitizing Ants to Complete Its Lifecycle</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/les-meilleurs-logiciels-denregistrement-decran-pour-mac-en-2023-top-15-de-ranking/"><u>Les Meilleurs Logiciels D’Enregistrement D’Écran Pour Mac en 2023 : Top 15 De Ranking</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579198473-mondly-and-apple-championed-as-ed-tech-elite-10-list-feat/"><u>Mondly & Apple Championed as Ed-Tech Elite: #10 List Feat</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/omnipresent-iptv-broadcasting-for-2024/"><u>Omnipresent IPTV Broadcasting for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577505926-one-moment-a-day-gain-mastery-over-urdu/"><u>One Moment a Day, Gain Mastery Over Urdu!</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/order-of-adventure-how-to-binge-the-indiana-jones-films-correctly/"><u>Order of Adventure: How to Binge the Indiana Jones Films Correctly</u></a></li>
-<li><a href="https://win-excellent.techidaily.com/retrieving-pictures-from-an-sd-card-safely-no-need-for-a-fresh-start/"><u>Retrieving Pictures From an SD Card Safely – No Need for a Fresh Start</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581780596-speedy-bokmal-study-sessions-10-min-dashes/"><u>Speedy Bokmål Study Sessions, 10-Min Dashes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-cutting-edge-video-editing-mastering-green-screen-integration/"><u>[New] 2024 Approved Cutting Edge Video Editing Mastering Green Screen Integration</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-comprehensive-explanation-deciphering-google-podcasts-app/"><u>[New] Comprehensive Explanation Deciphering Google Podcasts App</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-amplify-your-yt-engagement-with-multi-stream-techniques/"><u>[Updated] Amplify Your YT Engagement with Multi-Stream Techniques</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-switch-to-the-future-capture-cards-guide/"><u>[Updated] Switch to the Future Capture Cards Guide</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-essential-blueprint-for-tiktok-on-zoom-platforms/"><u>[Updated] The Essential Blueprint for TikTok on Zoom Platforms</u></a></li>
+<li><a href="https://some-tips.techidaily.com/enhanced-user-engagement-with-dynamic-cookiebot-analytics/"><u>Enhanced User Engagement with Dynamic Cookiebot Analytics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-halloween-celebrations-from-dia-de-muertos-to-romanias-st-andrews-day/"><u>Global Halloween Celebrations: From Día De Muertos to Romania’s St. Andrew’s Day</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-7-apples-new-iphone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 7, Apples New iPhone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/laughing-legacy-laborer/"><u>Laughing Legacy Laborer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-echoes-36-words-birthed-by-the-globe/"><u>Linguistic Echoes: 36 Words Birthed by the Globe</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-passion-across-continents/"><u>Linguistic Passion Across Continents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/manejo-diario-semana-en-espanol/"><u>Manejo Diario: Semana en Español</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-spanish-while-chatting-in-virtual-reality-social-spaces/"><u>Master Spanish While Chatting in Virtual Reality Social Spaces</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reality-check-for-popular-year-end-commitments/"><u>Reality Check for Popular Year-End Commitments</u></a></li>
+<li><a href="https://techtrends.techidaily.com/resolving-the-wpcapdll-is-missing-a-step-by-step-guide/"><u>Resolving the 'wpcap.dll Is Missing: A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-japanese-script-from-basics-to-proficiency/"><u>The Japanese Script: From Basics to Proficiency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-communications-complexities-learning-9-struggle-filled-dialects/"><u>Unlocking Communication's Complexities: Learning 9 Struggle-Filled Dialects</u></a></li>
 </ul></div>
 

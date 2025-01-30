@@ -1,7 +1,7 @@
 ---
 title: "Spirits and Carving: A Globe Tour of Halloween"
-date: 2025-01-16T16:18:47.159Z
-updated: 2025-01-22T17:39:03.283Z
+date: 2025-01-27T22:38:29.169Z
+updated: 2025-01-30T04:23:07.847Z
 tags:
   - speak
   - english
@@ -24,11 +24,11 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
  Nevertheless, there are many countries around the world that have their own Halloween-like traditions celebrating the afterlife. For example, in some parts of the world, on All Hallows’ Eve, people visit the graveyards of their loved ones to pray and place flowers. But let’s dive in already and look at **four of the most fascinating Halloween-like traditions from different corners of the world.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Halloween-like Traditions Worldwide
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Mexico: Día de Muertos (Day of the Dead)
 
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  As you probably already know, the main symbols of [_Día de Muertos_](https://ich.unesco.org/en/RL/indigenous-festivity-dedicated-to-the-dead-00054) are [_ofrendas_](https://en.wikipedia.org/wiki/Ofrenda) (altars),[_calaveras_](https://en.wikipedia.org/wiki/Calavera) (representations of a human skull often applied to edible or decorative skulls) and people wearing the colorful_calaveras_ makeup known all over the world. During the Day of the Dead, families will visit the graves of their loved ones and bring gifts and the favorite foods and beverages of the departed.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### China: The Hungry Ghost Festival
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 ![Traditional practices during the Hungry Ghost Festival in China](https://edge.mondly.com/blog/wp-content/uploads/2019/09/9609227445_5a2c7c2f90_o-960x640.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 7")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “The Hungry Ghost Festival” by Matthew Kang©
@@ -69,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
  Fourteen days after the festival, to make sure spirits will find their way back to hell, people set lotus flower-shaped lanterns on paper boats outside their homes. When these lanterns go out, it means the ghosts have found their way back.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Italy: Tutti i Morti / Giorno dei Morti (All Souls’ Day)
@@ -81,7 +81,7 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 ![halloween in different countries](https://edge.mondly.com/blog/wp-content/uploads/2019/09/neonbrand-A59lWOrZVnw-unsplash-1024x682.jpg "Global Halloween Celebrations: From Día De Muertos To Romania'S St. Andrew'S Day 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Halloween party” by NeONBRAND©
@@ -136,24 +136,22 @@ thumbnail: https://thmb.techidaily.com/c0239e66f547ea79139f20753e94bc761ce1a69ab
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-crafting-visual-magic-advanced-tips-for-stunning-edits/"><u>[New] 2024 Approved Crafting Visual Magic Advanced Tips for Stunning Edits</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-top-studio-screening-shorts/"><u>[New] 2024 Approved Top Studio Screening Shorts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ynamic-discussions-for-regular-streaming-for-2024/"><u>[New] Dynamic Discussions for Regular Streaming for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-nokia-g22-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Nokia G22 | Dr.fone</u></a></li>
-<li><a href="https://win-latest.techidaily.com/1728509602385-7/"><u>失蹤的垃圾桶：如何快速處理！探索7大解決方案</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/advanced-polish-studying-methods/"><u>Advanced Polish Studying Methods</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apple-endorses-mondly-peaking-at-10-education-app-ranking/"><u>Apple Endorses Mondly, Peaking at #10 Education App Ranking</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/apples-technology-meets-mondlys-vision-in-learning/"><u>Apple's Technology Meets Mondly's Vision in Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576236146-boost-your-career-with-croatian-skills-explore-these-7-benefits/"><u>Boost Your Career with Croatian Skills – Explore These 7 Benefits!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquest-through-words-precise-lines-for-captivating-chats/"><u>Conquest Through Words: Precise Lines for Captivating Chats</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/demystifying-pronunciation-in-the-german-language/"><u>Demystifying Pronunciation in The German Language</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-communication-skills-in-24/"><u>Elevate Communication Skills in '24</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevating-classroom-dynamics-with-artificial-intelligence/"><u>Elevating Classroom Dynamics with Artificial Intelligence</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-the-art-of-multilingualism-24-resolution/"><u>Embrace the Art of Multilingualism - '24 Resolution</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-intercept-text-messages-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>How to Intercept Text Messages on Apple iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/motorolas-moto-g-power-examined-superior-battery-life-paired-with-robust-performance/"><u>Motorola's Moto G Power Examined: Superior Battery Life Paired with Robust Performance</u></a></li>
-<li><a href="https://win-answers.techidaily.com/reestablishing-server-link-for-fallout-76-players-fixes-for-pc-connections/"><u>Reestablishing Server Link for Fallout 76 Players – Fixes for PC Connections</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/secrets-to-flawless-webp-to-jpg-image-conversion/"><u>Secrets to Flawless WebP-to-JPG Image Conversion</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-accessing-shared-media-in-facebook-messenger-how/"><u>[New] 2024 Approved Accessing Shared Media in Facebook Messenger How?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-comprehensive-guide-to-injecting-vimeo-videos-into-decks/"><u>[New] 2024 Approved Comprehensive Guide to Injecting Vimeo Videos Into Decks</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-action-packed-snapshots-of-x-snow-2022-for-2024/"><u>[New] Action-Packed Snapshots of X-Snow 2022 for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-6-high-definition-21-hdmi-models-analyzed-for-2024/"><u>[Updated] 6 High-Definition 2.1 HDMI Models Analyzed for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-elevate-your-tiktok-presence-with-exquisite-video-templates/"><u>[Updated] Elevate Your TikTok Presence with Exquisite Video Templates</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cinematic-journey-for-enhanced-communication-abilities/"><u>Cinematic Journey for Enhanced Communication Abilities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-french-novels-best-list-for-beginning-readers/"><u>Dive Into French Novels: Best List for Beginning Readers</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-zte-nubia-flip-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From ZTE Nubia Flip 5G to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-securely-shutting-down-your-instagram-presence-forever/"><u>In 2024, Securely Shutting Down Your Instagram Presence Forever</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/incrementa-tu-espanol-dias-por-dia/"><u>Incrementa Tu Español, Días Por Día</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-renaissance-the-21st-centurys-approach-to-language-mastery/"><u>Linguistic Renaissance: The 21St Century's Approach to Language Mastery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-brings-immersive-language-learning-to-your-living-room-with-vr/"><u>Mondly Brings Immersive Language Learning to Your Living Room with VR</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-up-your-game-6-proven-tips-for-mastering-portuguese/"><u>Step Up Your Game - 6 Proven Tips for Mastering Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tank-om-sverige-svenska-forsalar/"><u>Tänk Om Sverige: Svenska Försalar</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-voices-of-the-continent-asias-buzzwords/"><u>The Voices of the Continent: Asia's Buzzwords</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-vivo-y100-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Vivo Y100 5G Location | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/unlocking-recmasters-potential-in-screen-capture/"><u>Unlocking Recmaster's Potential in Screen Capture</u></a></li>
 </ul></div>
 

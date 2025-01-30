@@ -1,7 +1,7 @@
 ---
 title: Master Social Dynamics with These Iconic 50 Latin Expressions
-date: 2024-09-14T18:08:36.454Z
-updated: 2024-09-21T17:54:28.905Z
+date: 2025-01-26T18:59:45.983Z
+updated: 2025-01-29T19:37:42.231Z
 tags:
   - speak
   - english
@@ -30,16 +30,13 @@ These are nearly as famous as Julius Caesar himself.
 
  Another Latin phrase said by Julius Caesar upon crossing the Rubicon to enter Italy and begin the long civil war against Pompey and the Optimates. The meaning of this phrase refers to the point of no return.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Carpe diem. —** _Seize the day._
 
  Probably the most popular Latin phrase of modern times. Luckily, we have an even better one:_carpe vinum_ . Literally ‘seize the wine’. The only Latin phrase you’ll ever need on a Friday night out. And speaking of night, you should also remember the_carpe noctem_ variation which literally translates to ‘seize the night’. Either way, the general meaning is to make the most of everything.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Cogito, ergo sum. —** _I think, therefore I am._
 
@@ -61,11 +58,19 @@ These are nearly as famous as Julius Caesar himself.
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Carthago delenda est. —** _Carthage must be destroyed._
 
  Prior to the Third Punic War between Rome and Carthage, Cato the Censor, a Roman politician, used to conclude all his speeches to the Senate with this phrase. While he did this in an attempt to push for the war, nowadays the expression can be used figuratively as a way to express your absolute support for an idea.
 
 ![latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-phrases.jpg "50 Popular Latin Phrases To Impress Your Friends 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Using some Latin phrases here and there will automatically make you look smarter.
 
@@ -133,13 +138,14 @@ Every student’s favorite. We all know what this one means, don’t we?
 
 ![in vino veritas](https://edge.mondly.com/blog/wp-content/uploads/2021/07/in-vino-veritas-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “In vino veritas” by Daniel Vogel©
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cool Latin that are still used today
@@ -269,10 +275,7 @@ Different phrase, same story. You’re welcome.
 ![latin words](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-words-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 9")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Roman statue” by engin akyurt©
@@ -309,16 +312,13 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
  Furthermore, the Latin language is rich in life lessons, mottos and words to live by. By learning these sayings, you’ll not only improve your vocabulary but also your life experience.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why are Latin words used in law?
 
  Latin words are used in law because of the historical influence Roman law has on the legal system of many countries. As the lingua franca of the Roman Empire, Latin not only shaped the empire's legal constructs but also left a lasting imprint on the evolution of legal systems, especially within Europe. As Roman law became the foundation for many modern legal codes, Latin legal words were passed on throughout history until the present day. This incorporation of Latin words in law ensures a degree of precision and continuity, bridging legal concepts across different eras and jurisdictions.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Why are Latin words powerful?
 
@@ -330,13 +330,6 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Speak Latin like Julius Caesar
 
@@ -361,5 +354,20 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-facing-instagram-video-issues-you-may-find-the-answers-here-for-2024/"><u>[New] Facing Instagram Video Issues? You May Find the Answers Here for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-uncomplicated-strategy-for-fish-phonetics-tweaking/"><u>[New] Uncomplicated Strategy for Fish Phonetics Tweaking</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-channel-branding-hacks-10-must-use-online-tools/"><u>[Updated] 2024 Approved Channel Branding Hacks 10 Must-Use Online Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-swapping-streams-saving-songs-cross-service-shuffling/"><u>[Updated] In 2024, Swapping Streams, Saving Songs Cross-Service Shuffling</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/german-sorgfaltig-formales-bedauern-sagen/"><u>German: Sorgfältig Formales Bedauern Sagen</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-infinix-note-30-vip-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Infinix Note 30 VIP PC | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-a-next-level-faq-experience-with-mondly/"><u>Introducing a Next-Level FAQ Experience with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-temps-de-la-france/"><u>Le Temps De La France</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lerne-deutsche-wochentage-inklusive-namen/"><u>Lerne Deutsche Wochentage Inklusive Namen</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mp4-online-konvertalas-ezrede-klein-allamkor-vikon-rekam-online-halozat-operamacintosh/"><u>MP4 Online Konvertálás Ezrede Klein Államkör - Víkon Rekám Online Hálózat [Opera/Macintosh]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-brazilian-and-european-pt-buttons-effectively/"><u>Navigating Brazilian & European PT Buttons Effectively</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/resolve-to-speak-diverse-tongues-in-24/"><u>Resolve to Speak Diverse Tongues in '24</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-apple-iphone-14-pro-max-without-passcode-easily-by-drfone-ios/"><u>Unlock Apple iPhone 14 Pro Max Without Passcode Easily</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: How to Say Thank You in 30 Different Languages
-date: 2024-09-17T18:05:25.300Z
-updated: 2024-09-21T18:14:48.537Z
+date: 2025-01-28T20:12:38.362Z
+updated: 2025-01-29T21:00:42.558Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/6f8414097089a9fbc68b8b5aaac7c01bdc6e5c33b
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
 
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
 
@@ -56,7 +60,15 @@ thumbnail: https://thmb.techidaily.com/6f8414097089a9fbc68b8b5aaac7c01bdc6e5c33b
 
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Thanks” by Hanny Naibaho©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
 
@@ -80,6 +92,10 @@ thumbnail: https://thmb.techidaily.com/6f8414097089a9fbc68b8b5aaac7c01bdc6e5c33b
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
 
@@ -109,12 +125,24 @@ thumbnail: https://thmb.techidaily.com/6f8414097089a9fbc68b8b5aaac7c01bdc6e5c33b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-busting-myths-essential-facts-on-instagrams-reels/"><u>[New] 2024 Approved Busting Myths Essential Facts on Instagram's Reels</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-the-smart-explorers-choice-premium-vr-gear-ranked/"><u>[New] The Smart Explorer's Choice Premium VR Gear Ranked</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-essential-top-10-live-streamers-android-and-iphone-edition/"><u>[Updated] In 2024, Essential Top 10 Live Streamers Android & iPhone Edition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-pre-purchase-key-facts-every-drone-buyer-should-know/"><u>[Updated] In 2024, Pre-Purchase Key Facts Every Drone Buyer Should Know</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-navigating-your-way-through-screen-capturing-with-dell/"><u>[Updated] Navigating Your Way Through Screen Capturing with Dell</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-grammatical-journey-from-lisbon-to-brasilia/"><u>A Grammatical Journey From Lisbon to Brasília</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/comment-exporter-une-boite-de-courrier-entiere-vers-un-fichier-pst-tuto-complet/"><u>Comment Exporter Une Boîte De Courrier Entière Vers Un Fichier PST - Tuto Complet</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-xiaomi-13t-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Xiaomi 13T without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inaugural-vocal-augmented-communication-tool/"><u>Inaugural Vocal-Augmented Communication Tool</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/introducing-the-new-and-improved-apowersoft-pdf-suite-for-a-smarter-document-experience/"><u>Introducing the New and Improved Apowersoft PDF Suite for a Smarter Document Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-to-speak-naturally-top-25-german-phrases/"><u>Learn to Speak Naturally: Top 25 German Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-marauders-tongue-20-expressions-for-elders/"><u>Master the Marauder’s Tongue: 20 Expressions for Elders</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-associates-with-pearson-learning-consortium/"><u>Mondly Associates With Pearson Learning Consortium</u></a></li>
+<li><a href="https://common-error.techidaily.com/reducing-microsofts-compatibility-data-gathering-impact-on-hard-drive-storage-for-windows-11-systems/"><u>Reducing Microsoft's Compatibility Data Gathering Impact on Hard Drive Storage for Windows 11 Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/strategies-for-dominating-the-worlds-toughest-language-tests/"><u>Strategies for Dominating the World's Toughest Language Tests</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-effective-communicators-choice-german-vs-french/"><u>The Effective Communicator's Choice: German Vs French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-lifelong-learners-guide-to-new-languages/"><u>The Lifelong Learner's Guide to New Languages</u></a></li>
+</ul></div>
 

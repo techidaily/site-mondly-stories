@@ -1,7 +1,7 @@
 ---
 title: Einblick in Die Germanische Abfahrtsprache
-date: 2024-09-15T17:05:51.374Z
-updated: 2024-09-16T19:04:02.186Z
+date: 2025-01-27T03:16:43.989Z
+updated: 2025-01-29T16:36:45.172Z
 tags:
   - speak
   - english
@@ -45,22 +45,12 @@ thumbnail: https://thmb.techidaily.com/5cbb31b0aa89284f511ea895d4dc406591717af97
  In the same manner, you’ll say_Schönes Wochenende_ to wish someone a good weekend.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Einen schönen Tag noch – ‘Have a nice day’
 
  The more polite version of_Schönen Tag noch_ is_Einen schönen Tag noch_ . It means the same thing, but it is used by someone who wants to sound more formal and respectful.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Ciao – ‘Bye’
 
@@ -71,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/5cbb31b0aa89284f511ea895d4dc406591717af97
 ## 6\. Man sieht sich – ‘See you’
 
  When you didn’t plan a next meeting or get-together and you’re not sure when you are going to see the other person, you can simply say_Man sieht sich_ , which means “see you”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Bis bald – ‘See you soon’ in German
 
@@ -96,13 +90,25 @@ thumbnail: https://thmb.techidaily.com/5cbb31b0aa89284f511ea895d4dc406591717af97
 * _Bis Samstag_ – “Until Saturday”
 * _Bis Sonntag_ – “Until Sunday”
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## basic german words
 
 ![basic german words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/basic-german-words-960x960.png "15 Ways To Say Goodbye In German 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10\. Gute Nacht – ‘Good night’ in German
 
  Naturally,_Gute Nacht_ (“good night”) is another great way to say goodbye if you’re retiring for the night. Although we use_Guten Morgen_ (“good morning”) as a greeting,_Gute Nacht_ only works as a farewell.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 11\. Bis zum nächsten Mal – ‘See you next time’
 
@@ -112,39 +118,16 @@ thumbnail: https://thmb.techidaily.com/5cbb31b0aa89284f511ea895d4dc406591717af97
 
 _Wir sehen uns_ is another nice way to say “see ya later” if you are making plans with someone. Add_dann_ to that and it will mean something more along the lines of “see you then”.
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 13\. Viel Spaß – ‘Have fun’ in German
 
  Supposing that the other person is going to a party or a similar activity, you can say_Viel Spaß_ , which means “enjoy” or “have fun”.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 14\. Mach’s gut – ‘Take care’
 
  For more caring natures,_Mach’s gut_ is the perfect way to end a conversation. It is, of course, an informal way to say goodbye and it’s reserved for people with whom we have a special relationship.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 15\. Lebewohl – ‘Farewell’
@@ -187,5 +170,26 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-shining-up-photos-on-instagram-three-effective-ways/"><u>[New] 2024 Approved Shining Up Photos on Instagram Three Effective Ways</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-synchronizing-melodies-with-inshot-clips-for-2024/"><u>[New] Synchronizing Melodies with InShot Clips for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-from-concept-to-capture-the-journey-with-bandicam-screen-recorder/"><u>[Updated] 2024 Approved From Concept to Capture The Journey with Bandicam Screen Recorder</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-top-30-webcams-built-for-windows-os/"><u>2024 Approved Top 30 Webcams Built for Windows OS</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/azure-speech-to-text-a-quick-overview-for-developers/"><u>Azure Speech-to-Text A Quick Overview for Developers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honterus-championing-greatness-in-others/"><u>Honterus: Championing Greatness in Others</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-take-your-english-to-the-next-level/"><u>How to Take Your English to the Next Level</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-15-plus-without-passcode-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 15 Plus Without Passcode?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-how-to-view-instagram-stories-anonymously-on-pc-android-and-iphone-free/"><u>In 2024, How to View Instagram Stories Anonymously on PC, Android and iPhone [Free]</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-xiaomi-14-pro-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Xiaomi 14 Pro FRP</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-bulgarian-in-dashes-10-minute-sessions/"><u>Learn Bulgarian in Dashes - 10-Minute Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-language-of-vietnams-travelers/"><u>Mastering the Language of Vietnam’s Travelers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-unveils-revolutionary-vr-language-learning-experience/"><u>Mondly Unveils: Revolutionary VR Language Learning Experience!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-more-excuses-learn-any-language-today/"><u>No More Excuses - Learn Any Language Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-ciao-right-top-10-italian-welcoming-phrases-unveiled/"><u>Say 'Ciao!' Right: Top 10 Italian Welcoming Phrases Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seize-the-day-with-mondly-your-new-language-partner/"><u>Seize the Day with Mondly – Your New Language Partner</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-hungarian-way-to-declare-your-heart/"><u>The Hungarian Way to Declare Your Heart</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-ranked-mac-software-picks-explore-the-ultimate-list-on-zdnet/"><u>Top-Ranked Mac Software Picks - Explore the Ultimate List on ZDNet</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/website-data-harvesting-after-login-using-yl-web-crawler-innovations-by-yl-tech-solutions/"><u>Website Data Harvesting After Login Using YL Web Crawler - Innovations by YL Tech Solutions</u></a></li>
+</ul></div>
 

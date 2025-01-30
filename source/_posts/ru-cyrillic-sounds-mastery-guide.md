@@ -1,7 +1,7 @@
 ---
 title: RU Cyrillic Sounds Mastery Guide
-date: 2024-09-11T20:16:30.266Z
-updated: 2024-09-16T16:44:10.252Z
+date: 2025-01-24T19:34:40.860Z
+updated: 2025-01-29T23:52:45.928Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/21dc09642e8b9d9182830cb6498f509afd60ef4fb
  Although it may seem a bit daunting in the beginning, the Russian alphabet is not the hardest alphabet in existence (I’m looking at you,[Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ). Consisting of 33 letters – just 7 more than the Latin alphabet – it uses the Cyrillic script to write the Russian language. And you know what’s the best thing about it? Almost all the words in Russian can be pronounced the same way they are written.
 
  To put it simply, once you master the Russian alphabet, you’ll know how to pronounce the majority of the [Russian words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . So let’s uncover the mysteries of this alphabet together so you can move on to more important things like… **[learning Russian with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-4656&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4656?mother%5Flang=en%5Fus?target%5Flang=ru&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-4656?mother%5Flang=en%5Fus?target%5Flang=ru) .**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## A short history of the Russian language and the Russian alphabet
 
@@ -40,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/21dc09642e8b9d9182830cb6498f509afd60ef4fb
 
  “Red Square, Moscow, Russia” by Aurelien Romain©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Understand how to pronounce the Russian alphabet
 
  There are 33 letters in the Russian alphabet. 10 vowels (**а, э, ы, у, о, я, е, ё, ю, и)** , 21 consonants (**б, в, г, д, ж, з, к, л, м, н, п, р, с, т, ф, х, ц, ч, ш, щ,** and the consonant**й** which is sometimes a semivowel) and 2 pronunciation signs (the “soft sign” ь and the “hard sign” ъ).
@@ -47,13 +55,6 @@ thumbnail: https://thmb.techidaily.com/21dc09642e8b9d9182830cb6498f509afd60ef4fb
  This is the dictionary order of the Russian alphabet: А, Б, В, Г, Д, Е, Ё, Ж, З, И, Й, К, Л, М, Н, О, П, Р, С, Т, У, Ф, Х, Ц, Ч, Ш, Щ, Ъ, Ы, Ь, Э, Ю, Я.
 
  If we were to compare the Russian alphabet to the English alphabet, we would have four groups of letters: letters that look and sound (almost) the same as in English, letters that sound the same but look different, letters that look the same but sound different and letters that have no English equivalent whatsoever.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Russian letters that are (almost) the same as in English
 
@@ -63,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/21dc09642e8b9d9182830cb6498f509afd60ef4fb
 * **М м** sounds like “m” in “mother” or “mobile”,
 * **О о** sounds like “o” in “bore” or “more” (without the ‘r’ sound),
 * **Т т** sounds like “t” in “top” or “task”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Russian letters that sound the same as in English (but look different)
 
@@ -106,20 +111,11 @@ thumbnail: https://thmb.techidaily.com/21dc09642e8b9d9182830cb6498f509afd60ef4fb
 
 ![russian alphabet pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/03/russian-alphabet-pronunciation-1-431x600.jpg "Master The Russian Alphabet Pronunciation 3")
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Russian alphabet pronunciation
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Russian lesson no. 1: rules
 
@@ -142,16 +138,7 @@ thumbnail: https://thmb.techidaily.com/21dc09642e8b9d9182830cb6498f509afd60ef4fb
 ---
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Study Russian in just 10 minutes a day
@@ -177,5 +164,18 @@ thumbnail: https://thmb.techidaily.com/21dc09642e8b9d9182830cb6498f509afd60ef4fb
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-building-an-empire-in-smm-a-step-by-step-guide-for-success/"><u>[New] Building an Empire in SMM A Step-by-Step Guide for Success</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-comprehensive-analysis-of-frozen-treat-screen-capture-for-2024/"><u>[Updated] Comprehensive Analysis of Frozen Treat Screen Capture for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/attempted-assault-on-smartphones-why-corporate-sabotage-is-impossible/"><u>Attempted Assault on Smartphones: Why Corporate Sabotage Is Impossible</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/lly-renowned-earning-content-creator/"><u>Globally Renowned Earning Content Creator</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-password-on-your-apple-iphone-15-drfone-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID Password On your Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/launching-the-next-gen-faq-platform-with-mondly/"><u>Launching the Next-Gen FAQ Platform with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lundi-semaine-francais/"><u>Lundi Semaine Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parallel-phrase-perfection/"><u>Parallel Phrase Perfection</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rune-carved-rhetoric-the-voice-of-vikings-unveiled/"><u>Rune-Carved Rhetoric: The Voice of Vikings Unveiled</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-s-most-popular-free-4k-video-conversion-software-for-2024/"><u>Updated S Most Popular Free 4K Video Conversion Software for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/word-warriors-in-search-of-greatest-lexicon-gigantic/"><u>Word Warriors in Search of Greatest Lexicon Gigantic</u></a></li>
+</ul></div>
 

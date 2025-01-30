@@ -1,7 +1,7 @@
 ---
 title: Dissecting Mondly's Academic Approach
-date: 2024-09-09T17:24:19.251Z
-updated: 2024-09-16T16:36:47.272Z
+date: 2025-01-23T00:35:48.672Z
+updated: 2025-01-30T01:09:40.315Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/30c3f68025cf60445ca0af9503de0d05421151fac
 
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Minimum effort, maximum results
 
  Think about those endless pages of rules you had to memorize in high school. That was no easy task. But once in a while, there was a teacher that really enjoyed the job and took the time to properly explain all the thinking behind them. Only then the rules would stick.
@@ -42,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/30c3f68025cf60445ca0af9503de0d05421151fac
 
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
@@ -49,6 +57,10 @@ thumbnail: https://thmb.techidaily.com/30c3f68025cf60445ca0af9503de0d05421151fac
 [Studies](https://academic.oup.com/applij/article-abstract/34/4/457/199564?redirectedFrom=fulltext) have shown that knowing as little as 100 words helps you understand 50% of any text in the language you’re learning. Surprising as it may seem, it’s true. Knowing 1,000 words will give you a high coverage of 75% of any text. Here’s how much lexical coverage you need to reach fluency in almost any language:
 
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lexical coverage overview
 
@@ -60,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/30c3f68025cf60445ca0af9503de0d05421151fac
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
 
@@ -84,12 +100,24 @@ thumbnail: https://thmb.techidaily.com/30c3f68025cf60445ca0af9503de0d05421151fac
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-the-top-10-editing-powerhouses-to-create-engaging-reels/"><u>[Updated] In 2024, The Top 10 Editing Powerhouses to Create Engaging Reels</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-visionary-backdrops-compiling-the-best-free-screen-template-downloads-for-2024/"><u>[Updated] Visionary Backdrops Compiling the Best Free Screen Template Downloads for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-poco-f5-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/easy-guide-updating-your-windows-os-tips-from-yl-computing/"><u>Easy Guide: Updating Your Windows OS - Tips From YL Computing</u></a></li>
+<li><a href="https://windows11.techidaily.com/embrace-the-best-of-both-worlds-windows-11-macos-in-parallels/"><u>Embrace the Best of Both Worlds: Windows 11, MacOS in Parallels</u></a></li>
+<li><a href="https://article-posts.techidaily.com/giggle-engine-for-the-internet-for-2024/"><u>Giggle Engine for the Internet for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-language-etiquette/"><u>Global Language Etiquette</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-apple-iphone-se-2020-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone SE (2020) Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-insight-into-online-media-distribution-and-fb-copyright-policies/"><u>In 2024, Insight Into Online Media Distribution and FB Copyright Policies</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-screen-capture-mastery-a-closer-look-at-recmeister-tech/"><u>In 2024, Screen Capture Mastery A Closer Look at Recmeister Tech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lhospitalite-en-francais-une-demeure-cherie/"><u>L’Hospitalité En Français: Une Demeure Chérie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-english-core-expressions-effortlessly-oxford-and-mondly/"><u>Learn English Core Expressions Effortlessly - Oxford & Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-grow-thrive-with-mondly-in-ukraine/"><u>Learn, Grow, Thrive with Mondly in Ukraine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-lithuanian-online-top-tutorials-guide/"><u>Mastering Lithuanian Online: Top Tutorials Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oxford-mondly-the-core-vocabulary-journey/"><u>Oxford-Mondly: The Core Vocabulary Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-lexicon-leap-new-age-methods-for-mastering-languages/"><u>The Lexicon Leap: New Age Methods for Mastering Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-discover-the-best-language-learning-platforms/"><u>Unlock Your Potential: Discover the Best Language Learning Platforms</u></a></li>
+</ul></div>
 

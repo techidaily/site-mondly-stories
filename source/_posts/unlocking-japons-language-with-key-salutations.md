@@ -1,7 +1,7 @@
 ---
 title: Unlocking Japon's Language with Key Salutations
-date: 2024-09-10T19:11:17.869Z
-updated: 2024-09-16T16:43:42.226Z
+date: 2025-01-24T05:08:34.262Z
+updated: 2025-01-29T23:48:39.219Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/0e3820d1cc459c1675907e5894236de62a8218335
  Japanese culture is the culture of respect. You don’t have to visit Japan to know that. We all heard about the famously polite**Japanese bow** and about the big emphasis Japanese people place on the respect of hierarchy in the family and etiquette in general. It’s in their DNA. And the same as its culture, the**Japanese language** is one of the most polite languages in the world. It’s true that, as a tourist, you don’t have to [learn Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to perfection, but you know what they say: when in Rome, do as the Romans do and you will certainly increase the enjoyment of your adventure.
 
  Learning as much as a simple **_Konnichiwa_ (“hello” in Japanese)** or **_Arigato_ (“thank you” in Japanese)** can work wonders. So here’s a guide to all the**Japanese greetings** you’ll need in your Japanese adventure: from**“hello” in Japanese** to**_Moshi Moshi_** (used to say “hello” on the phone), goodbye and other**common Japanese greetings.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. “Hello” in Japanese
 
@@ -49,6 +53,10 @@ thumbnail: https://thmb.techidaily.com/0e3820d1cc459c1675907e5894236de62a8218335
 
  Unlike English, which uses the same “hello” for a lot of different social contexts, the Japanese language has a dedicated “hello” for answering the phone:**moshi moshi (もしもし).** Doesn’t that sound cute?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Good morning in Japanese and other relevant greetings
 
 **Good morning in Japanese**   **– O_hayō gozaimasu_**  (おはよう ございます) is the best choice for greeting someone in the early morning hours (before 10:00 a.m.). Unlike_Konnichiwa_ ,   **O_hayō gozaimasu_**  a little more formal, so it’s safe to use it with people you don’t know or when you are meeting people in a position of authority (such as your boss or your teacher).
@@ -67,13 +75,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3.“Goodbye” in Japanese
 
  Another greeting we borrowed from the Japanese and sometimes use in our day-to-day conversations in English is**_Sayōnara_** (さよなら), a greeting that carries the connotation of farewell and translates to “goodbye”.
@@ -90,13 +91,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * See you soon! – _Mata ne!_  (またね！)
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “See you soon, human” by Alain Pham©
 
@@ -125,10 +119,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
 ![arigato](https://edge.mondly.com/blog/wp-content/uploads/2019/08/arigato-1024x706.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 5")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Kyoto, Japan” by Andre Benz©
@@ -148,6 +139,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 30-degree bows are for people you just met or are of a higher social status than you;
 
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
 
@@ -169,6 +164,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -200,5 +199,24 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ritical-selection-the-best-10-video-cards-for-seamless-playback-for-2024/"><u>[New] Critical Selection The Best 10 Video Cards for Seamless Playback for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-mastering-the-art-of-screen-recording-best-software-guide-for-2024/"><u>[New] Mastering the Art of Screen Recording Best Software Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/treamlining-your-iphones-video-loops-for-2024/"><u>[New] Streamlining Your iPhones Video Loops for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-android-sound-logging-without-need-for-rooting/"><u>[Updated] Android Sound Logging Without Need for Rooting</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/boost-your-storage-with-a-12-trick-to-upgrade-extra-ssds-as-externals-zdnet/"><u>Boost Your Storage with a $12 Trick to Upgrade Extra SSDs as Externals | ZDNet</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevate-audience-engagement-top-hashtag-strategies-revealed-for-2024/"><u>Elevate Audience Engagement Top Hashtag Strategies Revealed for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/free-banner-templates-and-makers-for-youtube-for-2024/"><u>Free Banner Templates & Makers for YouTube for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-education-through-multilingual-praise/"><u>Harmonizing Education Through Multilingual Praise</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-screen-lock-pin-on-samsung-galaxy-a05-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Samsung Galaxy A05 Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-spanish-verb-usage/"><u>Mastering the Art of Spanish Verb Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/nombre-y-significado-de-cada-dia-en-espanol-desde-el-domingo-a-martes/"><u>Nombre Y Significado De Cada Día en Español: Desde El Domingo a Martes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-days-of-the-week-in-french/"><u>The Days of the Week in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-reference-for-mastering-english-grammar-conjunctions-and-contractions/"><u>The Ultimate Reference for Mastering English Grammar Conjunctions & Contractions</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-hardware-your-guide-to-all-things-tech/"><u>Tom's Hardware - Your Guide to All Things Tech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleashing-linguistic-potential-mondlys-success-story-2022/"><u>Unleashing Linguistic Potential: Mondly's Success Story, 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-lithuanian-language-ideal-online-resources/"><u>Unlock Lithuanian Language: Ideal Online Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-assembly-of-spains-offspring/"><u>Worldwide Assembly of Spain's Offspring</u></a></li>
+</ul></div>
 

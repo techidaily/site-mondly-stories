@@ -1,7 +1,7 @@
 ---
 title: A Comprehensive Guide to Chinese Polite Addresses
-date: 2024-09-16T17:13:04.418Z
-updated: 2024-09-21T18:54:34.057Z
+date: 2025-01-24T04:20:56.757Z
+updated: 2025-01-30T04:10:25.659Z
 tags:
   - speak
   - english
@@ -34,9 +34,17 @@ thumbnail: https://thmb.techidaily.com/63fd599c9be37636882facc86b0d27ee700429a93
 
  Now that you know the easiest and most popular way to say “hello” in Chinese, let’s move on to more advanced Mandarin Chinese greetings that are guaranteed to make you sound fluent.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. 早！(zǎo) – “Morning!” in Chinese
 
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. 你好吗? (nǐ hǎo ma) – “How are you?” in Chinese
 
@@ -45,22 +53,12 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. 你吃了吗？(nǐ chī le ma) – “Have you eaten?”
 
@@ -74,18 +72,15 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  If you want something even MORE‌ formal than that, go with 久闻大名 (jiǔwéndàmíng) literally meaning “your name is famous” – a phrase which could translate to something like “I have heard much about you”. But only use this on very special occasions like meeting the president or a person you hold in very high regard.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. 最近好吗？(zuì jìn hào mǎ) – “How are you these days?”
 
  Isn’t this beautiful? It’s very similar to the English “how are you?”, so you can use it accordingly.
 
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Hello there!” by Theodor Lundqvist©
 
@@ -100,6 +95,10 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
@@ -135,5 +134,19 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-harness-power-of-persuasion-with-these-tips-for-reddit/"><u>[New] Harness Power of Persuasion with These Tips for Reddit</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-fixing-the-problem-hidden-thumbnails-in-youtube-shorts/"><u>[New] In 2024, Fixing the Problem Hidden Thumbnails in YouTube Shorts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-prestige-pickers-top-ranked-websites-for-snapping-alert-songs/"><u>[New] Prestige Pickers Top-Ranked Websites for Snapping Alert Songs</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-showcasing-brilliance-iconic-anime-intros/"><u>[New] Showcasing Brilliance Iconic Anime Intros</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-videographys-bright-side-5-must-have-apps-for-2024/"><u>[New] Videography's Bright Side 5 Must-Have Apps for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/are-apples-newly-released-airpods-pro-202ebeep-worth-your-money-today-a-comprehensive-review-techexaminer/"><u>Are Apple's Newly Released AirPods Pro (202Ebeep) Worth Your Money Today? A Comprehensive Review | TechExaminer</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/hassle-free-downloading-and-update-of-epson-printer-drivers-on-your-windows-machine/"><u>Hassle-Free Downloading and Update of Epson Printer Drivers on Your Windows Machine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-methods-to-make-spanish-fun/"><u>Interactive Methods to Make Spanish Fun</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-swedish-sounds-a-quick-guide/"><u>Mastering Swedish Sounds: A Quick Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-commitments-for-a-better-you/"><u>Navigating Commitments for a Better You</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-number-one-the-foundation/"><u>Spanish Number One: The Foundation</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/the-best-of-the-best-unrivaled-business-strategy-games-guide/"><u>The Best of the Best Unrivaled Business Strategy Games' Guide</u></a></li>
+</ul></div>
 

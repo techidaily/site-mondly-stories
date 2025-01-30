@@ -1,7 +1,7 @@
 ---
 title: First Steps in Urdu Language Acquisition
-date: 2024-09-14T16:10:52.506Z
-updated: 2024-09-16T17:22:39.889Z
+date: 2025-01-23T01:23:42.169Z
+updated: 2025-01-29T23:43:59.803Z
 tags:
   - speak
   - english
@@ -85,6 +85,10 @@ thumbnail: https://thmb.techidaily.com/8b43ab5590e81a6b5b3d54c5bc573112dc5983325
 * who — _کون (kon)_
 * stop — _رکو (ruko)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The most popular Urdu words searches
 
  While we’re at it, why not also learn some of the most popular words for which people want an Urdu translation? If they are so popular in searches, I’m sure they can also be useful to you on your way to speaking Urdu.
@@ -106,6 +110,10 @@ thumbnail: https://thmb.techidaily.com/8b43ab5590e81a6b5b3d54c5bc573112dc5983325
 * crazy — _دیوانہ (deewana)_
 * unique — _منفرد (munfarid)_
 * hope — _امید (umeed)_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Urdu words related to food and drink
 
@@ -138,6 +146,10 @@ thumbnail: https://thmb.techidaily.com/8b43ab5590e81a6b5b3d54c5bc573112dc5983325
 * sugar — _شکر (shakar)_
 * pepper — _مرچ (mirch)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Urdu words related to body and health
 
  The names of the body parts in Urdu are some of the most basic and useful words you can learn. Whether you are in a clothing store, or at the doctor’s office, various parts of the body can come up in conversation more often than you think.
@@ -163,13 +175,6 @@ thumbnail: https://thmb.techidaily.com/8b43ab5590e81a6b5b3d54c5bc573112dc5983325
 * medicine — _دوا (dawa)_
 * pharmacy — _دواخانہ (dawakhana)_
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Urdu words related to transportation and places
 
  While this crash course in Urdu words will get you from zero to beginner in as little as 15 minutes, these words will get you to the other hemisphere if you need it so.
@@ -188,6 +193,10 @@ thumbnail: https://thmb.techidaily.com/8b43ab5590e81a6b5b3d54c5bc573112dc5983325
 * market — _بازار (bazar)_
 
  Now that you’ve mastered some of the most basic Urdu vocabulary words, you can dive into the practical phrases that’ll help you ease into real-world conversations.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The most common Urdu phrases
 
@@ -222,16 +231,7 @@ thumbnail: https://thmb.techidaily.com/8b43ab5590e81a6b5b3d54c5bc573112dc5983325
 ---
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn Urdu in just 10 minutes a day
@@ -261,5 +261,18 @@ thumbnail: https://thmb.techidaily.com/8b43ab5590e81a6b5b3d54c5bc573112dc5983325
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-capture-and-organize-essential-steps-for-recording-fb-video-calls-for-2024/"><u>[New] Capture & Organize Essential Steps for Recording FB Video Calls for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-arctic-acrobatics-2022s-olympians/"><u>[Updated] In 2024, Arctic Acrobatics 2022'S Olympians</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-the-ultimate-guide-to-syma-x5c-your-first-drones-best-friend/"><u>[Updated] The Ultimate Guide to Syma X5C – Your First Drone's Best Friend</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-mastering-the-art-of-monetization-with-ajey-carryminati/"><u>2024 Approved Mastering the Art of Monetization with Ajey (CarryMinati)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-itel-p55plus-lock-screen-password-by-drfone-android/"><u>How to Reset your Itel P55+ Lock Screen Password</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-exploring-digital-dimensions-understanding-metaverse-vs-multiverse/"><u>In 2024, Exploring Digital Dimensions Understanding Metaverse V/S Multiverse</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguafutura-embracing-language-learning-at-expo-dubai-2020/"><u>LinguaFutura: Embracing Language Learning at Expo Dubai 2020</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-to-the-soul-africas-multilingual-identity/"><u>Speaking to the Soul: Africa’s Multilingual Identity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ten-years-of-connectivity-and-growth-at-mondly/"><u>Ten Years of Connectivity and Growth at Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-vernacular-key-skills-in-global-communication/"><u>Universal Vernacular: Key Skills in Global Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-take-up-the-challenge-of-learning-a-new-language-at-40-and-beyond-four-compelling-points/"><u>Why Take Up the Challenge of Learning a New Language at 40 and Beyond? Four Compelling Points</u></a></li>
+</ul></div>
 

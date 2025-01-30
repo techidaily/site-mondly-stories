@@ -1,7 +1,7 @@
 ---
 title: "Grundkurs Deutsch: Aufbauend Bis 100 in Der Deutschen Zahlenreihe"
-date: 2024-09-12T19:32:40.172Z
-updated: 2024-09-16T20:01:30.387Z
+date: 2025-01-24T19:42:12.805Z
+updated: 2025-01-29T23:00:52.558Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/ad2e7cdaba5152cc65afbc2503b95057d5e6fc76b
  Learning how to count in German is a fun and easy start to [learning German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Numbers are an essential part of the vocabulary and can pop up in conversation more often than you think. Whether you are counting pretzels, buying beers for your_drei_ (‘three’) friends, or giving someone your phone number, German numbers will always come in handy while in a German-speaking country.
 
  Besides, contrary to the popular belief that [German is hard to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , German numbers are actually easy to master. In fact, it’s just as easy to learn how to count in German as it is in English. Once you know how to count to 20, the rest of the numbers will follow a predictable pattern. So here’s an uncomplicated guide on how to count from 1 to 100 in German.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## German Numbers 1-10
 
@@ -40,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/ad2e7cdaba5152cc65afbc2503b95057d5e6fc76b
 
  If you are not familiar with the [German pronunciation rules](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can watch this short video to hear how each number from 1 to 10 is pronounced:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## German Numbers 11-20
 
  As it happens with several other languages, the numbers from 11 to 20 don’t yet follow the pattern we talked about. The same as in English, ‘eleven’ and ‘twelve’ are two rebels refusing to follow the crowd. Otherwise, all the other numbers are formed by bringing together the first four letters of the basic 3 to 9 numbers and the word_zehn_ meaning ‘ten’.
@@ -56,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/ad2e7cdaba5152cc65afbc2503b95057d5e6fc76b
 * **eighteen —_achtzehn_**
 * **nineteen —_neunzehn_**
 * **twenty —_zwanzig_**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## German multiples of 10
 
@@ -79,10 +91,11 @@ Here are the multiples of 10 in German:
 ![count in german](https://edge.mondly.com/blog/wp-content/uploads/2022/08/count-in-german.png "German Numbers: Learn How To Count From 1 To 100 In German 2")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to count from 1 to 100 in German
@@ -113,13 +126,6 @@ Now let’s look at some examples to make sure you got it:
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### From 0 to 100 and beyond in German
 
  Do you want to go beyond numbers and [speak German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) fluently? Try Mondly, the award-winning language app that is serious about making learning German fun.
@@ -149,5 +155,22 @@ Now let’s look at some examples to make sure you got it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-leverage-advanced-transcription-tools-within-microsoft-word-to-boost-productivity/"><u>[New] Leverage Advanced Transcription Tools Within Microsoft Word to Boost Productivity</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/solved-display-driver-igfx-stopped-responding-and-has-successfully-recovered/"><u>[SOLVED] Display Driver Igfx Stopped Responding and Has Successfully Recovered</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-navigating-discords-spoiler-system-easily/"><u>[Updated] 2024 Approved Navigating Discord's Spoiler System Easily</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-perfecting-audio-records-with-our-step-by-step-guide/"><u>[Updated] In 2024, Perfecting Audio Records with Our Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-tag-like-a-pro-the-most-trending-hashtags-on-instagram-to-increase-engagement/"><u>2024 Approved Tag Like a Pro The Most Trending Hashtags on Instagram to Increase Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-top-picks-calendar-software-for-scheduled-social-shares/"><u>8 Top Picks: Calendar Software for Scheduled Social Shares</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-fluent-in-slovak-one-ten-minute-session-at-a-time/"><u>Get Fluent in Slovak, One Ten-Minute Session at a Time</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-bridges-globally-with-mondlys-7-year-success-story/"><u>Language Bridges Globally with Mondly's 7-Year Success Story</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-gateway-to-fluent-communication/"><u>Mondly: The Gateway to Fluent Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-integration-with-pearson-for-superior-buttons/"><u>Mondly's Integration with Pearson For Superior Buttons</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/painting-with-light-advanced-color-techniques-for-2024/"><u>Painting with Light Advanced Color Techniques for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-syntax-and-vocabul-written-by-user/"><u>Swift Syntax and Vocabul Written by User</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-guide-to-operating-chatgpt-on-a-macbook-or-imac/"><u>The Ultimate Guide to Operating ChatGPT on a MacBook or iMac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-wisdom-of-age-and-multilingualism-four-crucial-advantages-in-your-late-forties/"><u>The Wisdom of Age and Multilingualism: Four Crucial Advantages in Your Late Forties</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-croatian-discover-its-advantages-and-how-to-start-now/"><u>Why Learn Croatian? Discover Its Advantages and How To Start Now</u></a></li>
+</ul></div>
 

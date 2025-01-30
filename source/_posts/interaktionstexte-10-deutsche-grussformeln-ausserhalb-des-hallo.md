@@ -1,7 +1,7 @@
 ---
 title: "Interaktionstexte: 10 Deutsche Grußformeln Außerhalb Des 'Hallo'"
-date: 2025-01-17T17:07:49.422Z
-updated: 2025-01-22T16:18:50.542Z
+date: 2025-01-27T00:56:47.684Z
+updated: 2025-01-30T04:49:21.497Z
 tags:
   - speak
   - english
@@ -29,7 +29,7 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  First, some good news! As it turns out, Germans use_hi_ too. Careful though: as you already know,_hi_ is more informal than_hallo_ so you should keep this one between friends.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Hallöchen – ‘Hello’ (lit. ‘little hello’)
@@ -39,10 +39,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
  Kidding, but you did get the point. This tiny, little hello is reserved for very informal situations.
 
  Since we’re discussing diminutives, let’s also mention that_tschüss_ (‘bye’) can become_tschüssi_ . How cute!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Guten Tag – “Hello” or “Good day”
 
@@ -60,10 +56,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 * _Tag!_
 * _Abend!_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Wie geht es dir? – “How’s it going?”
 
  Don’t we all sometimes throw in a “how are you” instead of “hello” just to mix things up? Well, Germans do the same.
@@ -78,10 +70,6 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
  The simplest way to answer to_alles klar?_ is by saying_ya, danke_ meaning “yes, thanks”. As one would expect, this German greeting is mostly used by youngsters.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Was ist los? – “What’s up?”
 
  Very similar to_alles klar?_ ,_was ist los?_ is appropriate for very casual conversations.
@@ -90,9 +78,21 @@ _Hallo_ is the simplest and most straightforward way to say ‘hello’ in Germa
 
 !['German greetings' by Angelo Abear©](https://edge.mondly.com/blog/wp-content/uploads/2022/05/german-greetings-960x640.jpg "Hello In German: 10+ German Greetings Beyond Hallo 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Regional German greetings
 
  Now that you have enough greetings to get by in the entire German-speaking world, it’s time to get into specifics. These next greetings are generally used in just a few regions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Na – “Hey, how are you?”
 
@@ -119,6 +119,10 @@ _– Na._ (“Fine. Thanks!”)
 
 **Localization:** northern Germany, especially in and around Hamburg.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Grüezi – “Hello”
 
 _Grüezi_ is a greeting you can use in formal situations, such as speaking with people you don’t know.
@@ -132,10 +136,6 @@ _Grüezi_ is a greeting you can use in formal situations, such as speaking with 
  A variation of this is_Grüß dich,_ which can be interpreted as “greetings to you”. This one is less formal, but it is still mostly used by seniors.
 
 **Localization:** Bavaria (south-eastern Germany) and Austria.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Servus – “At your service”
 
@@ -185,20 +185,17 @@ _Tschüss!_ (‘Goodbye!’)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-expert-analysis-highest-quality-video-snappers/"><u>[Updated] 2024 Approved Expert Analysis Highest Quality Video Snappers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-unlocking-youtube-writers-royalties-with-ad-driven-earnings-cpm/"><u>[Updated] Unlocking YouTube' Writers' Royalties with Ad-Driven Earnings (CPM)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-comprehensive-list-of-germanys-most-common-thank-you-sayings/"><u>A Comprehensive List of Germany’s Most Common 'Thank You' Sayings</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/1722880289319-ac1st16dll-error-heres-how-you-can-fix-it/"><u>ac1st16.dll Error? Here's How You Can Fix It</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-learning-latin-online-naturally/"><u>Accelerate Learning Latin Online, Naturally</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/colors-in-spanish-how-to-pronounce-them/"><u>Colors In Spanish: How To Pronounce Them</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-germanys-charm-mastering-the-top-25-idioms/"><u>Deciphering Germany's Charm - Mastering the Top 25 Idioms</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/diagnosing-the-mystery-understanding-speaker-pop-noises-insights-by-yl-computing/"><u>Diagnosing the Mystery: Understanding Speaker Pop Noises - Insights by YL Computing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/effortlessly-enhance-your-urdu-skills-in-minutes/"><u>Effortlessly Enhance Your Urdu Skills in Minutes</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/quick-and-secure-downloads-for-your-epson-xp-330-printer-drivers-start-here/"><u>Quick and Secure Downloads for Your Epson XP-330 Printer Drivers - Start Here</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-nokia-xr21-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Nokia XR21</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211477682-9781890679644-stop-thought/"><u>Stop Thought | Free Book</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579536662-unlock-global-communication-now-96-off/"><u>Unlock Global Communication, Now 96% Off!</u></a></li>
-<li><a href="https://common-error.techidaily.com/windows-11-build-1607-installation-errors-and-how-to-fix-them/"><u>Windows 11 Build 1607 Installation Errors and How to Fix Them</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578897201-zap-up-your-skills-speed-up-slovak-learning-with-micro-lessons/"><u>Zap Up Your Skills: Speed up Slovak Learning with Micro Lessons!</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-laptop-editing-avoiding-inshot-dependence/"><u>[New] 2024 Approved Laptop Editing Avoiding Inshot Dependence</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-navigating-the-2023-landscape-for-screen-captures-and-ppts/"><u>[New] 2024 Approved Navigating the 2023 Landscape for Screen Captures & PPTs</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-eliminate-unrequested-podcast-additions-on-spotify-feed/"><u>[Updated] Eliminate Unrequested Podcast Additions on Spotify Feed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-how-to-block-youtube-ads-on-chromefirefoxandroidiphone/"><u>[Updated] How to Block YouTube Ads on Chrome/Firefox/Android/iPhone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-navigate-a-new-era-in-livestrances-top-3-desktop-techniques-on-tiktok/"><u>[Updated] Navigate a New Era in Livestrances Top 3 Desktop Techniques on TikTok</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/1732519013000-ylyl/"><u>守住基线，开创无界：YL计算公司领导人讲解百万亿孤独之路的雪球理念——YL软件专栏文章</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-luminary-in-the-world-of-motivation-johannes-honterus/"><u>A Luminary in the World of Motivation - Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/delving-into-affection-hungarys-verbal-expression/"><u>Delving Into Affection: Hungary's Verbal Expression</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/descubrimiento-fascinante-del-sistema-cardiovascular-del-corazon-a-los-toes/"><u>Descubrimiento Fascinante Del Sistema Cardiovascular: Del Corazón a Los Toes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/efficiently-acquiring-finnish-skills-virtually/"><u>Efficiently Acquiring Finnish Skills Virtually</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tial-strategies-for-effective-content-management-in-creator-studio-for-2024/"><u>Essential Strategies for Effective Content Management in Creator Studio for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/love-in-a-digital-age-chatgpt-to-the-rescue/"><u>Love in a Digital Age: ChatGPT to the Rescue</u></a></li>
 </ul></div>
 

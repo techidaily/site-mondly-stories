@@ -1,7 +1,7 @@
 ---
 title: Edunet's Showcase at Mansion House, London
-date: 2024-09-20T19:39:59.979Z
-updated: 2024-09-21T20:03:34.760Z
+date: 2025-01-27T19:30:02.525Z
+updated: 2025-01-29T21:37:11.802Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/35506a9c5eeb39965a6739f4255f2a7fd3073f2c8
 
 ![mondly bett](https://edge.mondly.com/blog/wp-content/uploads/2022/03/mondly-bett-539x960.jpg "Mondly Meets With The Global Community Of Educators At Bett 2022 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The future of language learning
 
  As of 2022, Mondly enables people to learn 41 languages through 1200+ language pairs. Over 100 million people worldwide use its apps, including the Australian Department of Defence, Delta Airlines, Canon Medical Systems, and other global companies wanting to take advantage of one of the most innovative EdTech solutions available today. The company’s constant focus on content improvement and its spirit of excellence has also allowed a successful [collaboration with Oxford University Press](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , the world’s largest university press.
@@ -42,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/35506a9c5eeb39965a6739f4255f2a7fd3073f2c8
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **About Mondly**
 
@@ -64,12 +72,22 @@ thumbnail: https://thmb.techidaily.com/35506a9c5eeb39965a6739f4255f2a7fd3073f2c8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-optimizing-video-saving-a-guide-to-pc-mac-and-mobile-devices/"><u>[New] In 2024, Optimizing Video Saving A Guide to PC, Mac & Mobile Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-mastering-video-lighting-techniques/"><u>[Updated] 2024 Approved Mastering Video Lighting Techniques</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevate-video-branding-incorporating-watermarks-into-youtube-media-for-2024/"><u>Elevate Video Branding Incorporating Watermarks Into YouTube Media for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-greeting-handbook/"><u>Global Greeting Handbook</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-to-mp4-for-galaxy-s24plus-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD MTS to MP4 for Galaxy S24+?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-realme-c51-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Realme C51 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lhospitalite-francaise-en-phrase-simple/"><u>L'Hospitalité Française En Phrase Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-eslefl-interactive-classroom/"><u>Pearson's ESL/EFL Interactive Classroom</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/secret-vlc-tactics-for-optimal-viewing-experience/"><u>Secret VLC Tactics for Optimal Viewing Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-naturally-17-commonplace-spanish-phrases/"><u>Speak Naturally: 17 Commonplace Spanish Phrases</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-progress-in-learning-polish/"><u>Swift Progress in Learning Polish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-cooking-key-principles-that-will-take-your-dishes-to-new-heights/"><u>The Art of Cooking: Key Principles that Will Take Your Dishes to New Heights</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-pictures-on-zte-nubia-z60-ultra-without-backup-by-fonelab-android-recover-pictures/"><u>The way to recover deleted pictures on ZTE Nubia Z60 Ultra without backup.</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/windows-10-winx-mediatrans-iphoneipadipodpc/"><u>Windows (10)に正式サポート WinX MediaTrans - iPhone/iPad/iPodの高度なデータ管理およびバックアップソフト！スムーズなPC間転送を実現。</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/wood-species-and-external-drying-conditions-can-significantly-influence-the-thermal-behavior-of-wood-during-processing/"><u>Wood Species and External Drying Conditions Can Significantly Influence the Thermal Behavior of Wood During Processing.</u></a></li>
+</ul></div>
 

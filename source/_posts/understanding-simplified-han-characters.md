@@ -1,7 +1,7 @@
 ---
 title: Understanding Simplified Han Characters
-date: 2025-01-15T17:47:14.432Z
-updated: 2025-01-22T17:07:50.363Z
+date: 2025-01-26T18:12:34.882Z
+updated: 2025-01-30T02:13:28.543Z
 tags:
   - speak
   - english
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
  Here’s a quick example of how ingenious Chinese characters can be. While **电_diàn_**  translates to**“electric”** ,**“brain”** is **脑_nǎo_**  and if you put these two characters together, you get**电脑** _**diànnǎo**_ which means**“computer”** . Electric brain = computer! See what they did there? Absolutely fascinating! Let’s find out what exactly you should expect if you want to learn Chinese.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Chinese language in a nutshell
@@ -56,10 +56,6 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
  Then, in the early 20th century, written vernacular Chinese based on the Beijing dialect was introduced as the new official written language instead of Classical Chinese. People often refer to this standard language as Mandarin because it is based on the Mandarin dialect of Beijing. Thus, Standard Chinese or Mandarin now fulfills the role that Classical Chinese used to fulfill as the official written language that’s used by speakers of all varieties of Chinese.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Chinese writing system and the Chinese alphabet – an overview
 
  The Chinese language is written using [Chinese characters](https://en.wikipedia.org/wiki/Chinese%5Fcharacters) or 漢字_(hànzì) _ . As already mentioned, there is no such thing as a Chinese alphabet, so we’ll continue by talking about the Chinse characters. These are logograms or single characters that represent entire syllables, entire words or entire units of meaning. For example, **漢_(hàn) _**  means**“China”** and **字_(zì) _**  means**“character”** . Together they translate to**“Chinese character” (** _**hànzì)** ._
@@ -79,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
  Despite the obvious differences between the two systems, literate native speakers generally have no problem reading either of them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Don’t forget about pronunciation
@@ -89,10 +85,6 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
  Let’s take the example of Mandarin, the most widely spoken Chinese dialect. Mandarin has four tones plus one neutral tone: a high flat tone, a rising tone, a falling-rising tone, a falling tone and, of course, a neutral tone (where the syllable is not distinguished by tone at all). Here’s a very eloquent case: **狮_(shī),_ 十_(shí)_**  and   **是_(shì)_**  all sound almost the same for us, westerners, but they actually mean completely different things:**“lion”, “ten”** and**“to be”** . The only difference is the tone:**a neutral tone, a rising tone** and**a falling tone.**
 
  Do we see why it is so crucial for you to pay attention to tones and pronunciation from your very first [Chinese lesson](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How many Chinese Characters does the Chinese alphabet have?
 
@@ -115,7 +107,7 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
  All you’ll need to do when working with Pinyin is get English out of your mind. As tempted as you’ll be to pronounce the sounds you already know in a way you are familiar with, don’t forget you are learning Chinese. And Chinese has little to nothing in common to English when it comes to pronunciation.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How do you learn the Chinese alphabet?
@@ -133,7 +125,7 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 ![chinese writing system](https://edge.mondly.com/blog/wp-content/uploads/2020/06/chinese-writing-system-600x400.jpg "Quick Introduction To The Chinese Alphabet, Chinese Characters And Pinyin 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Wusheng Temple, Taiwan” by Henry & Co.©
@@ -142,20 +134,20 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
  Now that you know what to expect if you do decide to learn Chinese, let’s move from theory to practice with a quick Chinese lesson. Here are ten of the most commonly used Chinese characters:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 的 de – used to indicate possession
 
  这是我**的** 朋友。- _Zhè shì wǒ**de** péngyou_ – This is**my** friend.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 一 yī – “one”, “once”, “single”, “first, ”best“, “a little”
 
  再来**一** 轮酒！- _Zàilái**yī** lún jiǔ!_ –**One** more round!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 是 shì – to be (used to link two nouns together)
@@ -176,6 +168,10 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
  我们的客人是友好的**人** 。- _Wǒmen de kèrén shì yǒuhǎo de**rén** ._ – Our neighbors are nice**people** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 我 wǒ – I, myself or me
 
 **我** 准备好要点菜了。- _**Wǒ** zhǔnbèi hǎo yàodiǎn càile._ –**I** am ready to order.
@@ -187,6 +183,10 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 ### 有 yǒu – to have, there is, there are, to exist
 
  你**有** 一张城市地图吗？- _Nǐ**yǒu** yī zhāng chéngshì dìtú ma?_ – Do you**have** a city map?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 他 tā – he, him, his
 
@@ -222,22 +222,18 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-ultimate-lg-screen-chronicles-a-complete-review-of-4k-quality/"><u>[New] 2024 Approved The Ultimate LG Screen Chronicles A Complete Review of 4K Quality</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-capturing-content-with-precision-best-practices-for-igtv-video-downloads/"><u>[New] Capturing Content with Precision Best Practices for IGTV Video Downloads</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1726227169434-avi3gp-movavi/"><u>線上無限制自由轉換AVI成3GP影片 - Movavi 專業解決方案</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/endless-learning-opportunity-the-birthday-of-unlimited-fee-free-education/"><u>Endless Learning Opportunity: The Birthday of Unlimited, Fee-Free Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-strategies-for-novice-learners-in-speaking-french/"><u>Essential Strategies for Novice Learners in Speaking French</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/everyday-wisdom-gathering-celebrating-1500-gratis-learning-sessions/"><u>Everyday Wisdom Gathering: Celebrating 1500 Gratis Learning Sessions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expanded-communication-10-advantages-from-using-mondly/"><u>Expanded Communication: 10 Advantages From Using Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/experience-new-words-with-mondlys-augmented-reality/"><u>Experience New Words with Mondly's Augmented Reality</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-the-art-of-ru-phonology/"><u>Exploring the Art of RU Phonology</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/fix-the-not-found-issue-with-mfc71dll-efficiently/"><u>Fix the 'Not Found' Issue with mfc71.dll Efficiently</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/foundation-of-compassion-danny-for-colombias-needy/"><u>Foundation of Compassion: Danny for Colombia's Needy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gaining-mastery-in-foreign-languages-realistic-timelines/"><u>Gaining Mastery In Foreign Languages: Realistic Timelines</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-is-your-iphone-12-pro-max-in-security-lockout-proper-ways-to-unlock-by-drfone-ios/"><u>In 2024, Is Your iPhone 12 Pro Max in Security Lockout? Proper Ways To Unlock</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/optimizing-playback-speed-a-guide-for-spotify-users-for-2024/"><u>Optimizing Playback Speed A Guide for Spotify Users for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/screenshot-supreme-in-depth-recorder-reviews-for-2024/"><u>Screenshot Supreme In-Depth Recorder Reviews for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/smooth-sailing-with-bluestacks-five-trouble-free-solutions-for-system-stability/"><u>Smooth Sailing with BlueStacks: Five Trouble-Free Solutions for System Stability</u></a></li>
-<li><a href="https://win-dash.techidaily.com/swift-download-brother-hl-3170cdw-printer-drivers-guide/"><u>Swift Download: Brother HL-3170CDW Printer Drivers Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-how-to-make-thumbnails-for-youtube-with-mobile-phones-for-2024/"><u>[Updated] How to Make Thumbnails for YouTube With Mobile Phones for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-premiere-pro-utilizing-lut-techniques/"><u>2024 Approved Premiere Pro Utilizing LUT Techniques</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-unleashing-facebooks-auto-play-feature-for-youtube-clips/"><u>2024 Approved Unleashing Facebook's Auto-Play Feature for YouTube Clips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsch-lernen-mit-aussicht-zahlen-ab-1-100-auf/"><u>Deutsch Lernen Mit Aussicht: Zählen Ab 1-100 Auf</u></a></li>
+<li><a href="https://app-tips.techidaily.com/discover-how-these-10-cutting-edge-ai-chatbots-can-elevate-your-communication-game/"><u>Discover How These 10 Cutting-Edge AI Chatbots Can Elevate Your Communication Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/euro-dialects-revealed-europes-language-festival-today/"><u>Euro-Dialects Revealed – Europe's Language Festival Today</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722973641806-get-your-lenovo-x230-up-and-running-hassle-free-driver-downloads-available-now/"><u>Get Your Lenovo X230 Up and Running: Hassle-Free Driver Downloads Available Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-merriment-unites-nations/"><u>Multilingual Merriment Unites Nations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-path-to-perfect-french-rhythm-and-tone/"><u>Navigating the Path to Perfect French Rhythm and Tone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romance-languages-the-hearts-eloquent-speeches/"><u>Romance Languages: The Heart's Eloquent Speeches</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-world-of-warcraft-lag-problems-for-seamless-quests-and-battles/"><u>Solving World of Warcraft Lag Problems for Seamless Quests and Battles</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unveiling-our-choice-5-prime-anti-malware-tools-without-charge-2024-update/"><u>Unveiling Our Choice: 5 Prime Anti-Malware Tools Without Charge - 2024 Update</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-revisited-modern-usage-of-elizabethan-words/"><u>Vocabulary Revisited: Modern Usage of Elizabethan Words</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Taking Flight in Russian Numeral Recognition
-date: 2025-01-19T16:39:21.767Z
-updated: 2025-01-22T16:39:33.353Z
+date: 2025-01-24T21:09:43.051Z
+updated: 2025-01-30T04:31:33.275Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 
  Whether you need to find out what’s the price for a matryoshka, ask a stranger when is the next bus arriving or give someone your phone number, knowing the Russian numbers is definitely essential. On top of that, they are not even that hard to learn. Once you learn how to count to ten, counting to 100 is a piece of cake.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Russian numbers 1-10
 
  In order to understand the logic behind counting in Russian faster, it’s best to break down the information into multiple sections. As you may expect, the Russian numbers from 1 to 10 are the most important. Not only these are the ones you’ll probably use the most, but they also lay the foundations for the bigger numbers in Russian.
@@ -29,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 ![russian numbers 1-10](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-1-10-600x424.jpg "Russian Numbers - Learn How To Count In Russian 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian numbers 1-10
@@ -41,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/5e0a2202e9f4da31ba85b59400bc244193601b11b
 * neuter: одно _(odno)_ ; два _(dva)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn how to count to 20 in Russian
@@ -55,22 +59,22 @@ If you did manage, good job! You must be a natural.
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian numbers 11-20
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Russian numbers: 21 and onwards
 
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
 
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Russian tens
 
@@ -87,10 +91,6 @@ Here are some examples:
 And guess what! It works the same with the hundreds.
 
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Russian hundreds
 
@@ -143,22 +143,24 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-navigate-the-top-8-fb-movie-downloader-choices/"><u>[New] Navigate the Top 8 FB Movie Downloader Choices</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-the-quick-fix-efficient-use-of-the-eraser-in-psx-for-2024/"><u>[New] The Quick Fix Efficient Use of the Eraser in PSX for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-securing-elite-photos-online-with-no-expense-incurred/"><u>[Updated] Securing Elite Photos Online With No Expense Incurred</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/5-common-misconceptions-about-learning-multiple-languages/"><u>5 Common Misconceptions About Learning Multiple Languages</u></a></li>
-<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-motorola-moto-g13-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Motorola Moto G13 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/abschiedsbittelemente-fur-deutschsprachige-beziehrangelegenheiten/"><u>Abschiedsbittelemente Für Deutschsprachige Beziehrangelegenheiten</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/belgiums-polyglot-population-speaks-which/"><u>Belgium's Polyglot Population Speaks Which?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-language-barriers-oculus-quest-adds-mondly-to-its-app-suite/"><u>Break Language Barriers: Oculus Quest Adds Mondly to Its App Suite</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-with-japenese-on-calls/"><u>Bridging Cultures with Japenese On-Calls</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/celebrating-1500-free-daily-lessonsback-buttonfilter-button/"><u>Celebrating 1500 Free Daily LessonsBack ButtonFilter Button</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/complete-guide-to-downloading-and-installing-logitech-g35-drivers-on-windows-windows-7810/"><u>Complete Guide to Downloading and Installing Logitech G35 Drivers on Windows (Windows 7/8/10)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/connect-worldwide-mondlys-exceptional-language-app/"><u>Connect Worldwide: Mondly's Exceptional Language App</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-routine-learning-urdu-in-moments/"><u>Daily Routine: Learning Urdu in Moments</u></a></li>
-<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-huawei-p60-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Huawei P60 | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/o-edit-youtube-videos-in-windows-movie-maker-for-2024/"><u>How to Edit YouTube Videos in Windows Movie Maker for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-affordable-gear-for-aspiring-content-creators/"><u>In 2024, Affordable Gear for Aspiring Content Creators</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/paper-playground-fun-and-effective-collage-making/"><u>Paper Playground Fun & Effective Collage Making</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-innovative-house-blueprints-for-snapshot-players/"><u>[Updated] Innovative House Blueprints for Snapshot Players</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-the-ultimate-list-of-non-game-bar-recording-tools/"><u>[Updated] The Ultimate List of Non-Game Bar Recording Tools</u></a></li>
+<li><a href="https://win-blog.techidaily.com/6-effective-strategies-to-combat-high-resource-usage-in-baldurs-gate-game-update-2024/"><u>6 Effective Strategies to Combat High Resource Usage in Baldur's Gate Game Update - 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/earnings-engineering-crafting-a-high-yield-strategy-for-your-youtube-channel-for-2024/"><u>Earnings Engineering Crafting a High Yield Strategy for Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exploring-the-extended-talk-time-of-jabra-voice-model-25/"><u>Exploring the Extended Talk Time of Jabra Voice Model 25</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-encounter-with-urdu-basic-vocabulary-lists/"><u>First Encounter with Urdu: Basic Vocabulary Lists</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-honor-v-purse-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-oculus-rift-htc-vive-and-ps-vr-which-is-the-best-for-gaming/"><u>In 2024, Oculus Rift, HTC Vive, and PS VR Which Is the Best for Gaming?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-legacy-back-button-to-english-excellence/"><u>Linguistic Legacy: Back Button to English Excellence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/my-journey-choosing-the-next-ideal-linguistic-quest/"><u>My Journey: Choosing the Next Ideal Linguistic Quest</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-issues-with-a-faulty-corsair-void-usb-microphone/"><u>Overcoming Issues with a Faulty Corsair Void USB Microphone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-your-journey-in-learning-german-sounds/"><u>Starting Your Journey in Learning German Sounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tackling-german-grammar-through-popular-web-series/"><u>Tackling German Grammar Through Popular Web Series</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tuneful-translations-sing-your-way-to-second-language-success/"><u>Tuneful Translations: Sing Your Way to Second Language Success</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ultimate-list-of-myspace-video-extractors-find-the-best-free-tools-for-mp4mp3-conversion/"><u>Ultimate List of MySpace Video Extractors: Find the Best FREE Tools for MP4/MP3 Conversion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-local-secrets-in-croatia-with-these-crucial-phrases-and-expressions/"><u>Unlock Local Secrets in Croatia with These Crucial Phrases and Expressions</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-create-a-stunning-video-resume-top-4-makers-with-free-resources/"><u>Updated Create a Stunning Video Resume Top 4 Makers with Free Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtuatongue-speaking-beyond-borders-in-virtual-reality/"><u>VirtuaTongue: Speaking Beyond Borders in Virtual Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldly-wisdom-insights-into-successful-cross-cultural-engagement/"><u>Worldly Wisdom: Insights Into Successful Cross-Cultural Engagement</u></a></li>
 </ul></div>
 

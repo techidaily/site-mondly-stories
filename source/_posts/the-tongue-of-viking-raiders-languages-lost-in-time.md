@@ -1,7 +1,7 @@
 ---
 title: "The Tongue of Viking Raiders: Languages Lost in Time"
-date: 2024-09-15T19:56:11.685Z
-updated: 2024-09-16T17:10:00.199Z
+date: 2025-01-27T16:26:56.558Z
+updated: 2025-01-29T22:59:15.490Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/cc5e0ccb2974725fe4ffe86c209fbe5c027a26cc8
 
 ![viking ragnar](https://media.giphy.com/media/rR6m3deXOpHP2/giphy.gif "What Language Did Vikings Speak? 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Did Vikings speak Old English?
 
  First, let’s address the elephant in the room.**Did Vikings speak English?** No, Modern English didn’t even exist at the time. As pop culture explores the Viking age more and more, it’s only natural that you’d ask yourself that. After all, Ragnar Lothbrok did speak English fluently in the acclaimed TV show_Vikings_ .
@@ -32,7 +36,15 @@ thumbnail: https://thmb.techidaily.com/cc5e0ccb2974725fe4ffe86c209fbe5c027a26cc8
 
 ![Vikings english](https://media.giphy.com/media/V5474zfp6NveE/giphy.gif "What Language Did Vikings Speak? 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To tell you the truth, Vikings did not typically speak Old English. Old English was spoken by the Anglo-Saxons, who lived in England at the same time as the Vikings. However, **it is possible that some Vikings who settled in England may have learned to speak Old English.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What language did Vikings speak?
 
@@ -59,10 +71,7 @@ thumbnail: https://thmb.techidaily.com/cc5e0ccb2974725fe4ffe86c209fbe5c027a26cc8
 !['Viking language' by Hannah Grapp©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/viking-language-960x640.jpg "What Language Did Vikings Speak? 4")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What language today is closest to Old Norse?
@@ -72,16 +81,7 @@ thumbnail: https://thmb.techidaily.com/cc5e0ccb2974725fe4ffe86c209fbe5c027a26cc8
 So yeah, you can learn Old Norse if you want to.
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Old Norse still spoken?
@@ -134,5 +134,20 @@ So yeah, you can learn Old Norse if you want to.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-tailor-your-devices-alerts-with-custom-android-sounds/"><u>[New] 2024 Approved Tailor Your Device's Alerts with Custom Android Sounds</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-add-videos-in-instagram-story/"><u>[New] How to Add Videos in Instagram Story</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-amplify-engagement-essential-tips-for-tiktok-unbox-videos/"><u>[New] In 2024, Amplify Engagement Essential Tips for TikTok Unbox Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-navigating-the-world-of-fb-instream-ads-a-comprehensive-setup-manual/"><u>[Updated] 2024 Approved Navigating the World of FB Instream Ads A Comprehensive Setup Manual</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-apple-iphone-7-plus-to-computer-drfone-by-drfone-ios/"><u>In 2024, How to Stream Apple iPhone 7 Plus to Computer? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/reality-beyond-boundaries-grasping-the-metaverse-through-6-models/"><u>Reality Beyond Boundaries Grasping the Metaverse Through 6 Models</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/snooze-sequences-for-kids-critical-look-at-bedtime-storytelling-vids-for-2024/"><u>Snooze Sequences for Kids Critical Look at Bedtime Storytelling Vids for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-pro-a-beginners-french-accent-guide/"><u>Speak Like a Pro: A Beginner's French Accent Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-strategies-for-mastering-new-languages/"><u>Speedy Strategies for Mastering New Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/survival-russian-the-must-know-phrases-for-visitors/"><u>Survival Russian: The Must-Know Phrases for Visitors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-10-best-foreign-films-to-watch-this-holiday-season-to-improve-your-language-skills/"><u>The 10 Best Foreign Films to Watch This Holiday Season to Improve Your Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-allure-of-arabic-mastery-top-six-with-mondly-online/"><u>The Allure of Arabic Mastery: Top Six with Mondly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-unparalleled-ease-of-kids-learning-languages/"><u>The Unparalleled Ease of Kids Learning Languages</u></a></li>
+</ul></div>
 

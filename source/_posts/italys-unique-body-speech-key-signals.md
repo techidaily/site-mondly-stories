@@ -1,7 +1,7 @@
 ---
 title: "Italy's Unique Body Speech: Key Signals"
-date: 2024-09-15T16:13:51.307Z
-updated: 2024-09-16T19:48:59.113Z
+date: 2025-01-24T20:02:28.099Z
+updated: 2025-01-30T05:30:26.423Z
 tags:
   - speak
   - english
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/86e7c4ea92c80232a2f22ec398fe1175bda0bfa79
 ## Italian hand gestures meaning and usage
 
  The following Italian gestures are the key to a better understanding of colloquial Italian. To help you fully comprehend their meaning, I also included their origin and the proper context in which they should be used. Let’s start with the least popular gesture and build our way up to the most popular one.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 10\. The “Are you afraid?” gesture
 
@@ -68,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/86e7c4ea92c80232a2f22ec398fe1175bda0bfa79
 
 **Origin:** the gesture indicates a very specific part of your body that’s just above your stomach and it’s usually accompanied by the phrase “you/he/she is here”. It means that you cannot “digest” that person, just like you cannot digest the food that your body rejects or you don’t like.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. The “Oh, please!” gesture (the ‘prayer clasp’)
 
  Italy is a very religious country and a common gesture is to join both your hands like you are praying. This can communicate both a wish for something to happen or your desire for something to do or to stop doing something.
@@ -76,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/86e7c4ea92c80232a2f22ec398fe1175bda0bfa79
 
 ![prayer clasp](https://edge.mondly.com/blog/wp-content/uploads/2022/01/prayer-clasp-960x729.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 15")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The ‘prayer clasp’
 
 **What to say:** _Ti prego!_ (“Oh, please!”),_Ma dai!_ (“Come on!”),_Ma fammi il piacere!_ (“Be serious!”)
@@ -83,10 +95,7 @@ thumbnail: https://thmb.techidaily.com/86e7c4ea92c80232a2f22ec398fe1175bda0bfa79
 **Origin:** you are basically praying or hoping for something to happen or someone to stop doing something. It’s a very common gesture. The word ‘please’ in Italian is translated with_(ti) prego_ which literally means “I pray”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. The “I don’t know” hands
@@ -104,10 +113,7 @@ thumbnail: https://thmb.techidaily.com/86e7c4ea92c80232a2f22ec398fe1175bda0bfa79
 **Origin:** showing the palms of both hands symbolizes a person who has nothing to hide.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. The outstretched arm
@@ -126,6 +132,10 @@ This is a pretty common gesture among angry drivers and football players.
 
 **Origin:** we can’t know for sure, but it probably refers to an unspecified direction where you want the person talking to you to go (so he/she will leave you alone).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. The “I don’t care” gesture (the ‘chin flick’)
 
  This gesture generally means “get lost” in Northern Italy, whereas in Southern Italy, it simply means “no”.
@@ -133,19 +143,6 @@ This is a pretty common gesture among angry drivers and football players.
 **How to do it:** flatten all your fingers with the palm facing your body and flick them out from under your chin with indifference.
 
 ![chin flick](https://edge.mondly.com/blog/wp-content/uploads/2022/01/chin-flick-960x942.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 18")
-
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  The ‘chin flick’
 
@@ -165,6 +162,10 @@ This is a pretty common gesture among angry drivers and football players.
 **How to do it:** extend your index and little finger to look like horns.
 
 ![italian horns sign](https://edge.mondly.com/blog/wp-content/uploads/2022/01/italian-horns-sign-960x840.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 19")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The ‘horns’
 
@@ -190,19 +191,6 @@ This is a pretty common gesture among angry drivers and football players.
 
 **Origin:** it symbolizes the movement from one place to another.
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. The “finger purse/pinched fingers” gesture
 
  Undoubtedly, the most famous around the world and probably the most used in Italy as well. It became a meme and also an emoji to basically symbolize the whole country.
@@ -211,13 +199,6 @@ This is a pretty common gesture among angry drivers and football players.
 
 ![finger purse](https://edge.mondly.com/blog/wp-content/uploads/2022/01/finger-purse-960x720.jpg "Top 10 Italian Hand Gestures Italians Use All The Time 21")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The ‘finger purse’ gesture
 
 **When to do it:** when the person you’re talking to says something silly or asks you to do something stupid or dangerous.
@@ -225,6 +206,10 @@ This is a pretty common gesture among angry drivers and football players.
 **What to say:** _Ma cosa stai dicendo?_ (“What are you talking about?”),_Ma cosa vuoi \[da me\]?_ (“What do you want \[from me\]?”),_Dici sul serio?_ (“Are you serious?”) and actually many more.
 
 **Origin:** no one knows, but the most common theory is that the hand is trying to grab something but fails to do so. This symbolizes a person who tries to grasp a meaning but can’t.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why do Italians talk with their hands?
 
@@ -267,5 +252,22 @@ The rest is history.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/oredoms-ender-the-ultimate-list-of-jovial-youtube-content-for-2024/"><u>[New] Boredom's Ender The Ultimate List of Jovial YouTube Content for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-kinetic-mastery-in-your-pocket-a-2023-review-of-kinemaster-on-android/"><u>[New] Kinetic Mastery in Your Pocket A 2023 Review of KineMaster on Android</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-personalizing-your-profile-with-fb-slideshow-content/"><u>[Updated] In 2024, Personalizing Your Profile with FB Slideshow Content</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-pixeled-play-log-audit-for-2024/"><u>[Updated] Pixeled Play Log Audit for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/become-an-efficient-time-warrior-with-these-15-task-packed-listening-habits-for-2024/"><u>Become an Efficient Time Warrior with These 15 Task-Packed Listening Habits for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-free-meme-templates-for-2024/"><u>Best Free Meme Templates for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comprehensive-guide-uninstalling-pre-installed-windows-backup-zone/"><u>Comprehensive Guide: Uninstalling Pre-Installed Windows Backup Zone</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/easy-guide-to-updating-your-printer-drivers-on-windows-pcs-tips-from-yl-computing/"><u>Easy Guide to Updating Your Printer Drivers on Windows PCs - Tips From YL Computing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mapping-out-the-ideal-next-linguistic-adventure/"><u>Mapping Out The Ideal Next Linguistic Adventure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/myths-in-mouths-exploring-viking-dialects/"><u>Myths in Mouths: Exploring Viking Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slang-demystified-comprehensive-guide-to-informal-language/"><u>Slang Demystified: Comprehensive Guide to Informal Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stun-sicilians-with-20plus-authentic-expressions/"><u>Stun Sicilians with 20+ Authentic Expressions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-easy-content-making-10-basic-youtube-videos/"><u>The Ultimate Guide to Easy Content Making 10 Basic YouTube Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-at-sixty-five-language-learning-perks/"><u>Thriving at Sixty: Five Language Learning Perks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-into-a-tagalog-conversationalist-quickly/"><u>Transform Into a Tagalog Conversationalist Quickly</u></a></li>
+</ul></div>
 

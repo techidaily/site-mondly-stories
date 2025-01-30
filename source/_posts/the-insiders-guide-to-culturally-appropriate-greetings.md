@@ -1,7 +1,7 @@
 ---
 title: The Insider's Guide to Culturally Appropriate Greetings
-date: 2024-09-20T16:12:38.705Z
-updated: 2024-09-21T18:03:19.597Z
+date: 2025-01-23T02:45:04.293Z
+updated: 2025-01-30T03:21:38.366Z
 tags:
   - speak
   - english
@@ -44,9 +44,17 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  This expression is generally used as a response to a greeting, but it can also work as a “how are you?”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. 你怎么样? (nǐ zěnmeyàng) – “What’s up?” in Chinese
 
  As you can probably already tell, this is an informal greeting you can use with your friends.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. 你吃了吗？(nǐ chī le ma) – “Have you eaten?”
 
@@ -60,6 +68,10 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  If you want something even MORE‌ formal than that, go with 久闻大名 (jiǔwéndàmíng) literally meaning “your name is famous” – a phrase which could translate to something like “I have heard much about you”. But only use this on very special occasions like meeting the president or a person you hold in very high regard.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. 最近好吗？(zuì jìn hào mǎ) – “How are you these days?”
 
  Isn’t this beautiful? It’s very similar to the English “how are you?”, so you can use it accordingly.
@@ -67,10 +79,7 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Hello there!” by Theodor Lundqvist©
@@ -79,27 +88,17 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 8\. 下午好 (xiàwǔ hǎo) – “Good afternoon” in Chinese
 
  Want to diversify the way you greet people in Chinese? Then you can go with 下午好 (xiàwǔ hǎo) when it’s the right time of the day.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 9\. 晚上好 (wǎnshàng hǎo) – “Good evening” in Chinese
 
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
 
@@ -135,5 +134,19 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-transforming-unboxing-into-art/"><u>[New] Transforming Unboxing Into Art</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-jointly-experience-live-content-on-tiktok-platform/"><u>[Updated] In 2024, Jointly Experience Live Content on TikTok Platform</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-navigating-the-ways-for-fee-free-pictorial-clips/"><u>[Updated] Navigating the Ways for Fee-Free Pictorial Clips</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/changing-ringtones-on-an-iphone-a-user-friendly-approach-for-2024/"><u>Changing Ringtones on an iPhone A User-Friendly Approach for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/effortless-integration-get-started-with-ifunnys-meme-fun/"><u>Effortless Integration Get Started with iFunny’s Meme Fun</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/how-can-you-repair-a-damaged-motherboard-expert-advice-from-yl-computing/"><u>How Can You Repair a Damaged Motherboard? - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-effective-strategies-for-mov-video-recording-in-windows-11/"><u>In 2024, Effective Strategies for MOV Video Recording in Windows 11</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96370962-9780876048436-psychic-sense/"><u>Psychic Sense | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speedy-mastery-a-beginners-guide-to-polish/"><u>Speedy Mastery: A Beginner's Guide to Polish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-pearson-linguistic-journey-begins-here/"><u>The Pearson Linguistic Journey Begins Here</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-triumvirate-of-asian-dialects-rising-three/"><u>The Triumvirate of Asian Dialects: Rising Three</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/this-is-the-easiest-way-to-learn-latin-online/"><u>This Is The Easiest Way To Learn Latin Online</u></a></li>
+</ul></div>
 

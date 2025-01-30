@@ -1,7 +1,7 @@
 ---
 title: "Language Leverage: The Best Latin Sayings to Impress Crowds"
-date: 2024-09-17T16:05:13.048Z
-updated: 2024-09-21T19:48:05.571Z
+date: 2025-01-26T20:12:51.744Z
+updated: 2025-01-30T02:38:12.359Z
 tags:
   - speak
   - english
@@ -26,15 +26,16 @@ These are nearly as famous as Julius Caesar himself.
 
  Famously attributed to Julius Caesar in a message he supposedly sent to the Roman Senate to describe his swift, conclusive victory against King Pharnaces II of Pontus near Zela in 47 BC.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Alea iacta est. —** _The die has been cast._
 
  Another Latin phrase said by Julius Caesar upon crossing the Rubicon to enter Italy and begin the long civil war against Pompey and the Optimates. The meaning of this phrase refers to the point of no return.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Carpe diem. —** _Seize the day._
@@ -57,6 +58,10 @@ These are nearly as famous as Julius Caesar himself.
 
  That scene is very tragic indeed, but nowadays, the phrase can be used jokingly to condemn a friend’s change of heart.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Acta, non verba. —** _Deeds, not words._
 
  Similar to_res, non verba_ , the English equivalent of this phrase is “actions speak louder than words”. In other words, act upon it or always follow your declarations with actions.
@@ -66,6 +71,10 @@ These are nearly as famous as Julius Caesar himself.
  Prior to the Third Punic War between Rome and Carthage, Cato the Censor, a Roman politician, used to conclude all his speeches to the Senate with this phrase. While he did this in an attempt to push for the war, nowadays the expression can be used figuratively as a way to express your absolute support for an idea.
 
 ![latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-phrases.jpg "50 Popular Latin Phrases To Impress Your Friends 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Using some Latin phrases here and there will automatically make you look smarter.
 
@@ -162,13 +171,6 @@ Get ready to bring your Roman alter ego to life in 3… 2… 1\. Go!
  Or so Lucretius said. Originally meaning “work is required to succeed”, the modern reinterpretation suggests that “everything has its origins in something”.
 
 ![common latin phrases](https://edge.mondly.com/blog/wp-content/uploads/2021/07/common-latin-phrases-960x720.jpg "50 Popular Latin Phrases To Impress Your Friends 8")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Laughing” by Peter Lloyd©
 
@@ -269,10 +271,7 @@ Different phrase, same story. You’re welcome.
 ![latin words](https://edge.mondly.com/blog/wp-content/uploads/2021/07/latin-words-960x640.jpg "50 Popular Latin Phrases To Impress Your Friends 9")
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Roman statue” by engin akyurt©
@@ -301,13 +300,6 @@ Different phrase, same story. You’re welcome.
 
 From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Why should you learn these cool Latin phrases?
 
  In all seriousness, Latin phrases, words and sayings are a fun way to boost your vocabulary and learn more about the origin of the words we use every day. While Latin is the common ancestor of the Romance languages, it has also influenced the Germanic languages (of which English is a part). So it might prove most illuminating to take inspiration from the master orators and use Latin words and phrases in your day-to-day conversations.
@@ -317,15 +309,16 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
  Furthermore, the Latin language is rich in life lessons, mottos and words to live by. By learning these sayings, you’ll not only improve your vocabulary but also your life experience.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Why are Latin words used in law?
 
  Latin words are used in law because of the historical influence Roman law has on the legal system of many countries. As the lingua franca of the Roman Empire, Latin not only shaped the empire's legal constructs but also left a lasting imprint on the evolution of legal systems, especially within Europe. As Roman law became the foundation for many modern legal codes, Latin legal words were passed on throughout history until the present day. This incorporation of Latin words in law ensures a degree of precision and continuity, bridging legal concepts across different eras and jurisdictions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Why are Latin words powerful?
 
@@ -361,5 +354,18 @@ From Ovid’s ‘Metamorphoses’. We know your pain, Ovid.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-jumpstart-your-photo-editing-essential-pixlr-wisdoms-for-2024/"><u>[New] Jumpstart Your Photo Editing Essential Pixlr Wisdoms for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-avoid-and-reverse-strikes-on-your-youtube-channel/"><u>[Updated] In 2024, How to Avoid and Reverse Strikes on Your YouTube Channel</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-overcoming-video-limitations-on-instagram-platform-for-2024/"><u>[Updated] Overcoming Video Limitations on Instagram Platform for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/affordable-facetime-replacements-for-android/"><u>Affordable FaceTime Replacements for Android</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/germanys-heartbeat-top-25-authentic-phrases-for-immersion/"><u>Germany's Heartbeat: Top 25 Authentic Phrases for Immersion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-to-grips-with-the-korean-of-squid-game/"><u>Get to Grips with the Korean of Squid Game</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-activation-lock-from-apple-iphone-11-4-easy-ways-by-drfone-ios/"><u>In 2024, Bypass Activation Lock From Apple iPhone 11 - 4 Easy Ways</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-exclusive-list-the-top-10-camcorders-for-2ranking/"><u>In 2024, Exclusive List The Top 10 Camcorders for 2Ranking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-you-to-basic-numbers-in-spanish/"><u>Introducing You to Basic Numbers in Spanish</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lifeline-mondly-enhances-learning-with-augmented-reality/"><u>Language Lifeline: Mondly Enhances Learning with Augmented Reality</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essence-of-romantic-language-families/"><u>The Essence of Romantic Language Families</u></a></li>
+</ul></div>
 

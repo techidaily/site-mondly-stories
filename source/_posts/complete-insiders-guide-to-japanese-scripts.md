@@ -1,7 +1,7 @@
 ---
 title: Complete Insider’s Guide to Japanese Scripts
-date: 2024-09-18T18:08:05.613Z
-updated: 2024-09-21T19:45:02.445Z
+date: 2025-01-27T23:42:07.551Z
+updated: 2025-01-30T04:45:19.633Z
 tags:
   - speak
   - english
@@ -53,6 +53,10 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
 ![How to read Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/05/how-to-read-japanese-900x960.png "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 12")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Learn Japanese with Mondly easily.
 
  On the bright side, if you want to get further than just speaking and writing using rōmaji, **kana characters (hiragana + katakana) can be mastered in 2-5 days** – depending on your level of commitment and capacity to learn. My advice would be to not settle for rōmaji. It doesn’t help. On the contrary! Besides, once you know katakana, you’ll know how to read thousands of Japanese words.
@@ -88,9 +92,17 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
 ![people in japanese kimono](https://edge.mondly.com/blog/wp-content/uploads/2019/05/people-in-japanese-kimono-960x636.jpg "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 13")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Japanese people wearing kimonos.
 
  To help you understand how kanji works, here’s a practical example: the kanji character**山** means**“mountain”** and it is pronounced_“ya-ma”_ or_“san”._ Good! Now, there is also the word**火山** which means “**fire” + “mountain”.** If you think about it, it shouldn’t be too hard to realize that this means **“volcano”_(ka-zan)_ .**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **When are Kanji characters used?**
 
@@ -118,13 +130,6 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 
  Somehow related to kanji, kana evolved from_man’yōgana_ (万葉仮名) – an ancient writing system that uses Chinese characters to represent the Japanese language phonetically. The hiragana and katakana characters we use today are simplified versions of_man’yōgana_ .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **When are Kana characters used?**
 
  The usage difference between hiragana and katakana is stylistic. Usually, **hiragana is used for particles, postpositions, adverbs, auxiliary verbs, function words,** or as a replacement for kanji when there’s a word with no kanji representation or whose kanji is thought to be too difficult for others to understand.
@@ -146,16 +151,7 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
 ![katakana japanese alphabet](https://edge.mondly.com/blog/wp-content/uploads/2019/05/katakana-japanese-alphabet-1-960x679.png "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 16")
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The Katakana Japanese alphabet
@@ -163,10 +159,7 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
  As you can see, using only five vowels and nine consonants (k, s, t, n, h, m, y, r, w) you can identify all the kana sounds you’ll need to speak Japanese. Generally, consonants are pronounced the same as in English (except for “g” that is pronounced as in “get”). In addition to these syllable sounds, the Japanese language uses a single consonant – the letter “n”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Rōmaji: the Romanization of the Japanese language
@@ -176,19 +169,6 @@ In rōmaji, that’s “Kon’nichiwa, watashi no namae wa Mondly desu.”
  There’s not very much information to point out for rōmaji. As mentioned before, I wouldn’t recommend getting used to this type of writing. It’s not in your own best interest to use rōmaji when hiragana and katakana are actually quite easy to remember.
 
  To give you a tangible example – when you write_“yama”_ instead of 山 (katakana) or やま (hiragana), you are using rōmaji.
-
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Common Mistakes to Avoid in Japanese Writing
 
@@ -203,13 +183,6 @@ If you need a refresher, you can always come back to this article.
 ### Using the wrong stroke order
 
  Each character in Japanese writing has a specific stroke order that you should follow to write it correctly. Using the wrong stroke order can make your writing messy and hard to read.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Misusing particles
 
@@ -230,6 +203,10 @@ If you need a refresher, you can always come back to this article.
 ### Not practicing enough
 
  Like any skill, learning Japanese writing takes practice. Not practicing enough can lead to slow progress and difficulties mastering the language. Don’t forget that practice makes perfect.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What makes the Japanese writing system so complex?
 
@@ -268,7 +245,15 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
 
 ![japanese city](https://edge.mondly.com/blog/wp-content/uploads/2019/05/japanese-city-960x641.jpg "Unlock The Secrets Of The Japanese Writing System And Alphabet: Your Ultimate Guide 18")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Japanese city center
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Many sounds can be represented by the same Kanji symbol
 
@@ -282,11 +267,19 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
 
  Now, let’s finish this article by answering some frequently asked questions about the Japanese writing system.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What is Japanese writing called?
 
  Japanese writing consists of three basic scripts: Hiragana, Katakana and Kanji. Hiragana and Katakana together are also called ‘kana’.
 
  The Japanese writing system is widely regarded as one of the most complex writing systems in use today due to its use of a combination of scripts, as well as a vast number of Kanji characters.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How many letters are in the Japanese alphabet?
 
@@ -332,5 +325,24 @@ The Japanese alphabet  has no plurals, which means there is no difference betwee
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-sonic-sweepstakes-top-tunes-for-viral-youtube-short-videos/"><u>[New] In 2024, Sonic Sweepstakes Top Tunes for Viral YouTube Short Videos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-unlock-the-ultimate-windows-screen-snip-list-1-5/"><u>2024 Approved Unlock the Ultimate Windows Screen Snip List, #1-5</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/a-step-by-step-guide-to-using-ntbackup-for-secure-data-backups-on-windows-server-2012/"><u>A Step-by-Step Guide to Using NTBackup for Secure Data Backups on Windows Server 2012</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-honor-90-pro-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Honor 90 Pro</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/get-premium-audio-at-unbeatable-deals-save-40-on-select-airpods-before-independence-day-exclusive-insight/"><u>Get Premium Audio at Unbeatable Deals! Save $40 on Select AirPods Before Independence Day - Exclusive Insight</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/heartbeats-in-verona-italian-charming-quips/"><u>Heartbeats in Verona: Italian Charming Quips</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-x6-pro-using-video-repair-utility-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix Corrupt video files of X6 Pro using Video Repair Utility?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/infatuation-inkling-german-flirtations/"><u>Infatuation Inkling: German Flirtations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introducing-mondly-to-your-huawei-device/"><u>Introducing Mondly to Your Huawei Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-language-top-100-most-commonly-misspelled-english-words/"><u>Master the Language: Top 100 Most Commonly Misspelled English Words</u></a></li>
+<li><a href="https://driver-error.techidaily.com/mastering-the-default-settings-down-and-up-issue-in-amd-radeon-wattman-top-fixes-unveiled/"><u>Mastering the 'Default Settings Down & Up' Issue in AMD Radeon Wattman – Top Fixes Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-languages-made-easy-googles-choice-mondly/"><u>Navigating Languages Made Easy: Google's Choice Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saber-a-melhora-na-qualquer-comuniccao-no-portugues/"><u>Saber a Melhora Na Qualquer Comunicção No Português</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tech-driven-learning-mondlys-commitment-to-apples-tools-for-students/"><u>Tech-Driven Learning: Mondly's Commitment to Apple's Tools for Students</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-vivo-x-fold-2-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Vivo X Fold 2 Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-hungarian-languages-lovestory-tactics/"><u>Unveiling Hungarian Language's Lovestory Tactics</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-simplified-soundscape-a-modern-approach-to-adding-sound-effects-in-videos/"><u>Updated 2024 Approved Simplified Soundscape A Modern Approach to Adding Sound Effects in Videos</u></a></li>
+</ul></div>
 

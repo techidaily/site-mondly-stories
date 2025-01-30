@@ -1,7 +1,7 @@
 ---
 title: The Fundamentals of Fluent Russian Communication
-date: 2025-01-17T16:06:39.099Z
-updated: 2025-01-22T17:32:54.371Z
+date: 2025-01-23T23:27:11.449Z
+updated: 2025-01-30T04:49:51.270Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
 
  Whether you’re planning an expedition, immersing in classic Russian literature, meeting with Russian-speaking friends, or even looking to impress with your language skills, using**Russian greetings** will surely be appreciated. Here are some of the most common ways to say “hello” in Russian:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Здравствуйте (Zdravstvuyte): Hello in Russian
 
 **здравствуйте** is the most common Russian greeting. Being slightly formal, yet friendly makes it perfect for greeting people in a professional setting or people you don’t know. Besides, you can also use it to address a group of people as the verb form is meant for formal settings or addressing multiple people.
@@ -37,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
 **Привет** is the most popular informal Russian greeting. It’s what you would use with your friends – the same way we use “hi” in English. Short, sweet and easy to say!
 
  If we’re being honest,**здравствуйте** and **Привет** are everything you need when it comes to Russian greetings. If you don’t want to overcrowd your mind, you can stop right here and come back later when you’re ready for more. If you want the full picture of Russian greetings now, let’s continue to discover how Russians say hello to each other.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Time-specific Russian greetings
 
@@ -71,10 +79,6 @@ Good job, you!
 
 ![hi in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hi-in-russian.jpg "Russian Greetings: Common Phrases And Basic Words 3")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Russian farewells
 
  Goodbyes are just as important as greetings. When you’re taking your leave, you can bid adieu with**До свидания (Do svidaniya)** in Russian, which means “until we see each other again”. Some of the most common Russian farewells include:
@@ -84,10 +88,6 @@ Good job, you!
 * **До встречи (Do vstrechi)** – See you soon: This is a bit more formal than Пока (Poka) and technically very similar to До свидания (Do svidaniya). The only difference is that it implies that you actually intend to meet later with the person you’re addressing it to.
 * **Увидимся (Uvidimsya)** – See you: It’s relatively informal and akin to the English “see you later”. You can tell your friends Увидимся (Uvidimsya) if you expect to meet them again in the near future.
 * **До скорого (Do skorogo)** – See you soon: It’s a warm farewell, yet rather polite. In practice, it aligns more with “see you” than “see you soon”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Helpful phrases for greetings
 
@@ -111,6 +111,10 @@ Good job, you!
 
  Found this interesting? You might want to learn about the [Russian alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [Russian numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) too.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Cultural insights on Russian greetings
 
  It’s one thing to know how to greet someone in Russian and it’s another to greet them the Russian way. Here’s what you should keep in mind if you’re meeting with Russian-speaking friends:
@@ -125,7 +129,7 @@ Good job, you!
  If you feel like you need more information on Russian greetings, here are some frequently asked questions. Maybe you’ll find your answer here.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How can I learn to pronounce Russian words correctly?
@@ -133,16 +137,12 @@ Good job, you!
  Use transliteration. It can be tricky to get the hang of Russian words using the Cyrillic alphabet, so resources that use transliteration will always come in handy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How do Russians say “hello” and “goodbye”?
 
  Здравствуйте (Zdravstvuyte) is generally used for slightly formal hellos, while Привет (Privyet) is more suitable for casuals settings. The most common way to say “goodbye” in Russian is До свидания (Do svidaniya).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How can I greet someone respectfully in Russian if I don’t know their name?
 
@@ -182,15 +182,17 @@ Good job, you!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-conquer-the-connection-mastering-insta-tik-linkage/"><u>[New] 2024 Approved Conquer the Connection Mastering Insta-Tik Linkage</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-shining-up-your-android-videos-effortlessly/"><u>[New] Shining Up Your Android Videos Effortlessly</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-prime-5-image-background-altering-mobile-apps-iphone/"><u>[Updated] Prime 5 Image Background Altering Mobile Apps (iPhone)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/7-impactful-reasons-for-multilingual-journey/"><u>7 Impactful Reasons for Multilingual Journey</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-beginners-primer-on-friendly-interactions-in-china/"><u>A Beginner's Primer on Friendly Interactions in China</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deciphering-spanish-diacritics-and-their-significance/"><u>Deciphering Spanish Diacritics and Their Significance</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/die-10-wichtigsten-deutschen-abschiedsworter/"><u>Die 10 Wichtigsten Deutschen Abschiedswörter</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-understanding-the-underrated-downsides-of-vr/"><u>In 2024, Understanding the Underrated Downsides of VR</u></a></li>
-<li><a href="https://win-community.techidaily.com/revive-lost-documents-top-7-strategies-for-retrieving-deleted-files-on-windows-11/"><u>Revive Lost Documents: Top 7 Strategies for Retrieving Deleted Files on Windows 11</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-complete-walkthrough-on-how-to-permanently-remove-your-tiktok-presence/"><u>The Complete Walkthrough on How To Permanently Remove Your TikTok Presence</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-8-best-website-for-3d-graffiti-fonts/"><u>[New] In 2024, 8 Best Website for 3D Graffiti Fonts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-ultimate-guide-best-video-capture-tools-for-windows/"><u>[New] In 2024, Ultimate Guide Best Video Capture Tools for Windows</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expert-insights-into-making-the-most-out-of-mac-preview/"><u>[Updated] Expert Insights Into Making the Most Out of Mac Preview</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-the-linguistic-tapestry-of-our-teachers/"><u>Celebrating the Linguistic Tapestry of Our Teachers</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/discover-the-ultimate-selection-of-project-manager-tools-for-your-iphone/"><u>Discover the Ultimate Selection of Project Manager Tools for Your iPhone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-education-trends-top-languages-for-americans/"><u>Global Education Trends: Top Languages for Americans</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honoring-a-dedicated-decade-at-mondlyback/"><u>Honoring a Dedicated Decade at MondlyBack</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/how-to-transfer-your-favorite-tracks-from-spotify-to-ipad-compatible-formats-included/"><u>How to Transfer Your Favorite Tracks From Spotify to iPad - Compatible Formats Included</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-cricket-iphone-13-pro-for-free-by-drfone-ios/"><u>In 2024, How To Unlock Cricket iPhone 13 Pro for Free</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/in-depth-review-fixing-and-optimizing-mouse-usage-in-resident-evil-village/"><u>In-Depth Review: Fixing and Optimizing Mouse Usage in Resident Evil Village</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-common-audio-problems-in-outriders-a-comprehensive-guide/"><u>Solving Common Audio Problems in Outriders: A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-linguist-behind-the-reindeer-santas-skills/"><u>The Linguist Behind the Reindeer: Santa's Skills</u></a></li>
 </ul></div>
 

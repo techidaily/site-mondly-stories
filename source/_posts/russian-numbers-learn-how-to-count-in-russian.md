@@ -1,7 +1,7 @@
 ---
 title: Russian Numbers – Learn How to Count in Russian
-date: 2025-01-18T16:14:32.431Z
-updated: 2025-01-22T18:04:48.930Z
+date: 2025-01-26T04:39:02.134Z
+updated: 2025-01-29T16:45:55.077Z
 tags:
   - speak
   - english
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 
 ![russian numbers 1-10](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-1-10-600x424.jpg "Russian Numbers - Learn How To Count In Russian 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Russian numbers 1-10
 
 **Good to know:** when the numbers один (“one”) and два (“two”) are put before a noun, they can change their form according to the gender of the noun thus:
@@ -39,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/50b8c0240239aa64db52b1f5d6c9798f04334cb3a
 * masculine: один _(odin)_ ; два _(dva)_
 * feminine: одна _(odna)_ ; две _(dve)_
 * neuter: одно _(odno)_ ; два _(dva)_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Learn how to count to 20 in Russian
 
@@ -51,16 +51,12 @@ If you did manage, good job! You must be a natural.
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian numbers 11-20
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Russian numbers: 21 and onwards
 
@@ -69,7 +65,7 @@ If you did manage, good job! You must be a natural.
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Russian tens
@@ -88,6 +84,10 @@ And guess what! It works the same with the hundreds.
 
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Russian hundreds
 
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
@@ -95,7 +95,7 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Russian ordinal numbers
@@ -143,20 +143,16 @@ Not as hard as you’d expect, is it?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-pro-tips-chromebooks-finest-pencil-based-software/"><u>[New] In 2024, Pro Tips Chromebook's Finest Pencil-Based Software</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-inside-vr-contemporary-insights-and-upcoming-struggles/"><u>[Updated] Inside VR Contemporary Insights & Upcoming Struggles</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ausdruckswelt-deutsche-begrussungen-ohne-das-wort-hallo/"><u>Ausdruckswelt: Deutsche Begrüßungen Ohne Das Wort Hallo</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/aussie-speak-101-mastering-local-slang/"><u>Aussie Speak 101: Mastering Local Slang</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/battlefield-4-audio-problems-discover-proven-fixes-now/"><u>Battlefield 4 Audio Problems? Discover Proven Fixes Now</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/become-a-professional-in-no-time-using-these-6-effective-strategies-for-learning-portuguese/"><u>Become a Professional in No Time Using These 6 Effective Strategies for Learning Portuguese</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/creative-labs-sound-blaster-zxr-analysis-evaluating-the-2013-premier-gaming-audio-device/"><u>Creative Labs Sound Blaster ZXR Analysis: Evaluating the 2013 Premier Gaming Audio Device</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/economical-desktop-encoder-software-guide-revealed/"><u>Economical Desktop Encoder Software Guide Revealed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-english-education-programs/"><u>Global English Education Programs</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-asus-rog-phone-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/old-salt-lexicon-a-pirates-speaking-guide/"><u>Old Salt Lexicon: A Pirate’s Speaking Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romance-and-its-roots-in-language-culture/"><u>Romance and Its Roots in Language Culture</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-influence-of-learning-english-on-careers/"><u>The Influence of Learning English on Careers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/top-10-portable-tools-dominating-video-editing-landscape-for-2024/"><u>Top 10 Portable Tools Dominating Video Editing Landscape for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-zero-cost-flv-video-editing-top-5-tools-to-get-the-job-done/"><u>Updated 2024 Approved Zero-Cost FLV Video Editing Top 5 Tools to Get the Job Done</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-depth-review-complete-camstudio-screencap-suite-for-2024/"><u>[New] In-Depth Review Complete CamStudio Screencap Suite for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-uncover-5-powerful-speech-recognition-tools-for-your-mac/"><u>[Updated] Uncover 5 Powerful Speech Recognition Tools for Your Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-step-by-step-guide-to-seamlessly-downloading-and-modifying-tamil-ringtones/"><u>2024 Approved Step-by-Step Guide to Seamlessly Downloading and Modifying Tamil Ringtones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-your-progress-in-urdu-with-a-brief-session-daily/"><u>Accelerate Your Progress in Urdu with a Brief Session Daily</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/budget-friendly-brilliance-uncovering-the-outstanding-features-of-fossil-sports-watches/"><u>Budget-Friendly Brilliance: Uncovering the Outstanding Features of Fossil Sports Watches</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-ru-letter-sounds-correctly/"><u>Deciphering RU Letter Sounds Correctly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579722292-dive-deep-into-new-dialects-save-a-bundle-on-language-classes/"><u>Dive Deep Into New Dialects - Save a Bundle on Language Classes!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-motorola-moto-e13-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Motorola Moto E13 Phone? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-a-decade-mondlys-legacy/"><u>Journey Through a Decade: Mondly's Legacy</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/review-of-the-fujitsu-scansnap-ix1es-performance-in-home-offices-and-smbs/"><u>Review of the Fujitsu ScanSnap iX1e's Performance in Home Offices and SMBs</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/updated-hp-deskjet-2700-printing-solutions-free-software-downloads-available-now/"><u>Updated HP DeskJet 2700 Printing Solutions - Free Software Downloads Available Now</u></a></li>
 </ul></div>
 

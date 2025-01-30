@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Indonesian Conversations: A Quick Guide"
-date: 2024-09-17T19:55:25.044Z
-updated: 2024-09-21T16:11:19.357Z
+date: 2025-01-24T00:04:57.009Z
+updated: 2025-01-30T00:54:47.977Z
 tags:
   - speak
   - english
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/4b1d432d185a9307d4c64d844f91526f6a3048c24
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -40,11 +44,19 @@ thumbnail: https://thmb.techidaily.com/4b1d432d185a9307d4c64d844f91526f6a3048c24
 
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
 
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
 
@@ -58,18 +70,15 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
 
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
 
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say goodbye
 
@@ -83,10 +92,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Start learning Indonesian today
@@ -118,5 +124,21 @@ Get Mondly today and learn Indonesian naturally with the following:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-exploring-facebooks-newest-feature-evolution/"><u>[New] 2024 Approved Exploring Facebook's Newest Feature Evolution</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-master-class-top-online-aids-for-improving-media-captions-quality-for-2024/"><u>[New] Master Class Top Online Aids for Improving Media Captions' Quality for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-dji-airborne-collection-basic-kit-elite-series-4k-masterclass-for-2024/"><u>[Updated] DJI Airborne Collection Basic Kit, Elite Series, 4K Masterclass for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-vlog-heroes-the-best-video-capturers-unveiled-for-2024/"><u>[Updated] VLog Heroes The Best Video Capturers Unveiled for 2024</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/identifying-your-current-windows-defender-version-expert-tips-from-yl-computing/"><u>Identifying Your Current Windows Defender Version - Expert Tips From YL Computing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interactive-latino-education-made-easy/"><u>Interactive Latino Education Made Easy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-leaps-with-educational-fun-facts/"><u>Latin Leaps with Educational Fun Facts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lgs-contribution-to-wearable-tech-a-comprehensive-review-of-the-lg-watch-style-on-wear-os-20/"><u>LG's Contribution to Wearable Tech: A Comprehensive Review of the LG Watch Style on Wear OS 2.0</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/market-prowess-the-art-of-strategy-unpacked/"><u>Market Prowess The Art of Strategy Unpacked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/propel-team-development-selecting-top-language-apps/"><u>Propel Team Development: Selecting Top Language Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swift-techniques-for-efficient-language-learning/"><u>Swift Techniques for Efficient Language Learning</u></a></li>
+<li><a href="https://driver-install.techidaily.com/swiftly-enhance-logitech-sound-cable-performance/"><u>Swiftly Enhance Logitech Sound Cable Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/time-optimization-for-numerical-japanese/"><u>Time Optimization for Numerical Japanese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/virtual-lithuanian-journey-top-tutorial-recommendations/"><u>Virtual Lithuanian Journey: Top Tutorial Recommendations</u></a></li>
+</ul></div>
 

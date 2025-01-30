@@ -1,7 +1,7 @@
 ---
 title: プレゼンターズの日 (Japanese)
-date: 2025-01-21T16:20:04.481Z
-updated: 2025-01-22T17:34:38.527Z
+date: 2025-01-29T03:32:42.089Z
+updated: 2025-01-29T23:51:54.332Z
 tags:
   - speak
   - english
@@ -48,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/964056d5a42fd554adb9e457ea6c862e5065495ad
 
  Now let’s go into a little more detail to make sure we know all the particularities of properly saying “Merry Christmas” in all these languages.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish –_¡Feliz Navidad!_
 
 _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous year and happiness!”).
@@ -56,11 +60,11 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
 ![merry christmas in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/12/merry-christmas-in-spanish-1024x758.jpg "How To Say Merry Christmas In 21 Different Languages 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Santa and a fan” by Mike Arney©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## French –_Joyeux Noël!_
 
@@ -81,26 +85,22 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 ![merry christmas in french](https://edge.mondly.com/blog/wp-content/uploads/2019/12/merry-christmas-in-french-1024x682.jpg "How To Say Merry Christmas In 21 Different Languages 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “The Christmas present we all need” by Jakob Owens©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Romanian –_Crăciun Fericit!_
 
  Did you know that one of the most beautiful Christmas markets in Europe takes place in Sibiu? It’s almost like Santa had scattered magic dust all over the place. It’s breathtakingly beautiful!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Russian –_Счастливого Рождества! (Schastlivogo Rozhdestva!)_
 
  While most countries celebrate Christmas on the 25th of December, Russia celebrates it on the 7th of January because the Russian Orthodox church uses “The old calendar” or the Julian calendar. And the 25th of December on the Julian calendar corresponds to the 7th of January in the Gregorian calendar.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Swedish – _God Jul!_
 
@@ -112,13 +112,13 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  But the most beautiful Norwegian Christmas tradition remains that of the Christmas Tree that Norway gives to the UK every year as a “thank you” for the help that British have to Norwegians during World War II.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Danish –_Glædelig Jul!_
 
  In Denmark, it is said that the_Julemanden_ (“Christmas Man” or “Yule Man”) brings presents to children that were good during the year. Julemanden is very similar to Santa Claus, lives in Greenland, also travels in a sleigh pulled by reindeers and likes rice pudding.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Finnish –_Hyvää Joulua!_
 
@@ -127,10 +127,6 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
  In Finland, Santa is also known as_Joulupukki_ – meaning “Christmas Goat”. Traditionally, many years ago, there was a scary Yule Goat who asked people for presents. But over time, the goat turned into a good character and then Santa took over the responsibilities. Still, the name of “Christmas Goat” remains.
 
 ![merry christmas in german](https://edge.mondly.com/blog/wp-content/uploads/2019/12/merry-christmas-in-german-1024x683.jpg "How To Say Merry Christmas In 21 Different Languages 4")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Christmas home” by Євгенія Височина©
 
@@ -150,15 +146,15 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "How To Say Merry Christmas In 21 Different Languages 5")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Get on Santa's Nice List
 
  Last chance to get on Santa’s “Nice List” by learning languages with Mondly. 🎅
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4426&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4426&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4426&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4426&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4426%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Dutch –_Vrolijk Kerstfeest!_
 
@@ -167,7 +163,7 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
  But Dutch Christmas celebrations are separate from the visit of Sinterklaas. On Christmas Eve,_Kerstman_ (“Christmas Man”) comes from Lapland to bring even more presents (Dutch kids are the luckiest!). Then, on Christmas Day, the celebration continues with a Church Service and family meal.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Croatian –_Sretan Božić!_
@@ -178,9 +174,17 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
  “Christmas lights” by T. Rampersad©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Czech –_Veselé Vánoce!_
 
  Czech tradition says that Ježíšek or “Little Jesus” (the Czech_Christkind_) brings presents while children enjoy the Christmas Eve dinner and leaves them under the Christmas Tree.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Japanese –_メリークリスマス！(Merīkurisumasu!)_
 
@@ -205,7 +209,7 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 “Merry Christmas” in Korean writing looks like this: 메리 크리스마스.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Irish –_Nollaig Shona!_
@@ -213,10 +217,6 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
  Just like anywhere else, in Ireland, Christmas is a time for celebrating with family and friends. Many people attend church services and celebrate the holiday with traditional meals and activities. Christmas Eve is typically a time for visiting with friends, while Christmas Day is spent at home with family. Popular traditions include decorating the Christmas tree, singing carols, and exchanging gifts.
 
  “Merry Christmas” in Irish is_Nollaig Shona_ and it translates to “Merry Christmas to you”, rather than simply “Merry Xmas”.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus: How to say Merry Christmas in 100 more languages
 
@@ -363,17 +363,20 @@ _¡Feliz Navidad, próspero año y felicidad!_ (“Merry Christmas, a prosperous
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-syma-x5c-demystified-the-ideal-drone-for-budding-pilots/"><u>[Updated] 2024 Approved Syma X5C Demystified The Ideal Drone for Budding Pilots</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-essential-game-picks-ghost-of-tsushima-rival-edition/"><u>[Updated] In 2024, Essential Game Picks Ghost of Tsushima Rival Edition</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-unveiling-intova-xs-action-potential/"><u>[Updated] Unveiling Intova X's Action Potential</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/dvddigiarty30/"><u>DVDコピー情報ポータル「Digiartyソフトウェア」30ページ目の深堀りブログ掲載</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exclusive-offer-alert-lifetime-free-up-to-96-off-mondly-pro/"><u>Exclusive Offer Alert: Lifetime Free, Up to 96% Off Mondly Pro</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/experience-language-learning-like-never-before-googled-editors-choice-mondly/"><u>Experience Language Learning Like Never Before: Googled Editors' Choice Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-israels-wonders-indispensable-tips-and-languages/"><u>Exploring Israel's Wonders: Indispensable Tips & Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/frequence-des-jours-francais/"><u>Fréquence Des Jours Français</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-germanic-origins-to-contemporary-dutch/"><u>From Germanic Origins to Contemporary Dutch</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Tecno Camon 20 | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/resolving-mscorwksdll-error-a-comprehensive-guide/"><u>Resolving mscorwks.dll Error: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/siri-control-and-stunning-quality-a-complete-analysis-of-the-202n-apple-tv-4k-streaming-set-top-box/"><u>Siri Control and Stunning Quality: A Complete Analysis of the 202N Apple TV 4K Streaming Set-Top Box</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevating-your-vlogs-with-high-quality-editing-premiere-pro-style/"><u>[New] Elevating Your Vlogs with High-Quality Editing - Premiere Pro Style</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-iconic-pfp-ideas-make-a-mark-in-the-world-of-tiktok-for-2024/"><u>[Updated] Iconic PFP Ideas Make a Mark in the World of TikTok for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-nextgen-video-upscaler-mobiledesktop-edition/"><u>[Updated] NextGen Video Upscaler Mobile/Desktop Edition</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-premium-templates-for-panzoid-introduction/"><u>2024 Approved Premium Templates for Panzoid Introduction</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/belgian-language-palette-a-breakdown/"><u>Belgian Language Palette: A Breakdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deciphering-the-teaching-mechanisms-of-mondly/"><u>Deciphering the Teaching Mechanisms of Mondly</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-setup-guide-logitech-driving-simulator-for-windows-7-8-and-10-systems/"><u>Download & Setup Guide: Logitech Driving Simulator for Windows 7, 8 and 10 Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581567192-fluency-for-all-ages-dont-wait/"><u>Fluency For All Ages - Don't Wait</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-samsung-galaxy-a14-4g-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Samsung Galaxy A14 4G Face Lock?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/melodic-flirts-aphrodites-italian-gems/"><u>Melodic Flirts: Aphrodite’s Italian Gems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-spectrum-in-asia-boldest-three-dialects/"><u>Speaking Spectrum in Asia: Boldest Three Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/treasure-island-talkbook-a-guide-to-20-pirate-terms/"><u>Treasure Island Talkbook: A Guide to 20 Pirate Terms</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-oneplus-ace-2v-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change OnePlus Ace 2V IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/understanding-tpm-in-windows-11-a-crucial-security-feature-explained/"><u>Understanding TPM in Windows 11 - A Crucial Security Feature Explained</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-apple-iphone-6-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>Unlock Apple iPhone 6 With Forgotten Passcode Different Methods You Can Try</u></a></li>
 </ul></div>
 

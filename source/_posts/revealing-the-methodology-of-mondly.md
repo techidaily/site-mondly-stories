@@ -1,7 +1,7 @@
 ---
 title: Revealing the Methodology of Mondly
-date: 2024-09-14T19:50:13.068Z
-updated: 2024-09-21T16:47:28.761Z
+date: 2025-01-29T05:30:46.862Z
+updated: 2025-01-29T19:59:24.503Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/4e09b5e1cc338687bdb5629756ebeeb2fe6540438
 
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Minimum effort, maximum results
 
  Think about those endless pages of rules you had to memorize in high school. That was no easy task. But once in a while, there was a teacher that really enjoyed the job and took the time to properly explain all the thinking behind them. Only then the rules would stick.
@@ -42,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/4e09b5e1cc338687bdb5629756ebeeb2fe6540438
 
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
@@ -49,6 +57,10 @@ thumbnail: https://thmb.techidaily.com/4e09b5e1cc338687bdb5629756ebeeb2fe6540438
 [Studies](https://academic.oup.com/applij/article-abstract/34/4/457/199564?redirectedFrom=fulltext) have shown that knowing as little as 100 words helps you understand 50% of any text in the language you’re learning. Surprising as it may seem, it’s true. Knowing 1,000 words will give you a high coverage of 75% of any text. Here’s how much lexical coverage you need to reach fluency in almost any language:
 
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lexical coverage overview
 
@@ -60,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/4e09b5e1cc338687bdb5629756ebeeb2fe6540438
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
 
@@ -84,12 +100,26 @@ thumbnail: https://thmb.techidaily.com/4e09b5e1cc338687bdb5629756ebeeb2fe6540438
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-a-closer-look-at-the-vivavideo-interface-for-2024/"><u>[New] A Closer Look at the VivaVideo Interface for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-top-tier-strategies-mastering-screens-with-adobe-captivate/"><u>[New] Top-Tier Strategies Mastering Screens with Adobe Captivate</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-purerecorder-capturing-life-in-games-without-cost/"><u>[Updated] In 2024, PureRecorder Capturing Life in Games Without Cost</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/17-superior-programs-to-clean-your-image-backdrops-for-2024/"><u>17 Superior Programs to Clean Your Image Backdrops for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-iphone-filmmaking-achieving-complete-circles/"><u>2024 Approved IPhone Filmmaking Achieving Complete Circles</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effortless-guide-transforming-mkv-videos-into-mp4-format-using-your-mac/"><u>Effortless Guide: Transforming MKV Videos Into MP4 Format Using Your Mac</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/flv-mpegmp4-movavi/"><u>FLV 포워드에 적합한 MPEG/MP4 파일의 오픈소스 변환 - Movavi 속도화</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grecian-lexicon-historical-journey-and-modern-day-importance/"><u>Grecian Lexicon: Historical Journey & Modern Day Importance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honoring-ten-years-at-mondlys-milestone/"><u>Honoring Ten Years at Mondly's Milestone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-swedish-letters-and-accents-swiftly/"><u>Learn Swedish Letters & Accents Swiftly</u></a></li>
+<li><a href="https://fox-http.techidaily.com/masters-list-best-sierra-dvd-software-for-2024/"><u>Master's List Best Sierra DVD Software for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-elite-unbeatable-ever-lasting-pricing/"><u>Mondly Elite: Unbeatable, Ever-Lasting Pricing!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-vision-realized-educating-the-next-70-million-learners/"><u>Mondly's Vision Realized – Educating the Next 70 Million Learners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swiftly-learn-urdu-online-every-day/"><u>Swiftly Learn Urdu Online, Every Day!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tender-tongues-the-lore-of-love-in-french/"><u>Tender Tongues: The Lore of Love in French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-better-spelling-the-most-commonly-misspelled-vocabulary/"><u>Unlocking Better Spelling: The Most Commonly Misspelled Vocabulary</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-volleyball-international-words-serving-english/"><u>Vocabulary Volleyball: International Words Serving English</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-forgotten-footage-watching-deleted-content-made-easy-for-2024/"><u>Youtube's Forgotten Footage Watching Deleted Content Made Easy for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1726226787063-ogg-aac-movavi/"><u>필기: 영구 공간에서 단순성을 위해 OGG AAC 데이터를 자유롭게 전환하는 방법 - Movavi</u></a></li>
+</ul></div>
 

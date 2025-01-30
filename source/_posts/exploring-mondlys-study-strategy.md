@@ -1,7 +1,7 @@
 ---
 title: Exploring Mondly's Study Strategy
-date: 2024-09-14T16:21:31.295Z
-updated: 2024-09-21T18:50:33.098Z
+date: 2025-01-25T21:36:09.514Z
+updated: 2025-01-29T22:55:16.744Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/f06ecdd32f0e95a7a4f703e01e2d64ef66252665c
 
  Unlike deductive learning, where learners are given a set of rules they will need to apply, **inductive learning is a discovery process where students discover rules by themselves by looking at examples.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Minimum effort, maximum results
 
  Think about those endless pages of rules you had to memorize in high school. That was no easy task. But once in a while, there was a teacher that really enjoyed the job and took the time to properly explain all the thinking behind them. Only then the rules would stick.
@@ -42,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/f06ecdd32f0e95a7a4f703e01e2d64ef66252665c
 
  Basically, what happens in the app is that new and more difficult words or phrases will be shown together with older and less difficult ones. But as you progress, the old information will be shown less and less frequently than the new one. This technique makes sure that the information you learned is well-cemented in your brain before moving on to new concepts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Lexical coverage: focus on the most common words
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important.
@@ -49,6 +57,10 @@ thumbnail: https://thmb.techidaily.com/f06ecdd32f0e95a7a4f703e01e2d64ef66252665c
 [Studies](https://academic.oup.com/applij/article-abstract/34/4/457/199564?redirectedFrom=fulltext) have shown that knowing as little as 100 words helps you understand 50% of any text in the language you’re learning. Surprising as it may seem, it’s true. Knowing 1,000 words will give you a high coverage of 75% of any text. Here’s how much lexical coverage you need to reach fluency in almost any language:
 
 ![lexical coverage](https://edge.mondly.com/blog/wp-content/uploads/2021/10/lexical-coverage-960x761.png "The Learning Method Behind Mondly 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lexical coverage overview
 
@@ -60,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/f06ecdd32f0e95a7a4f703e01e2d64ef66252665c
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Take Mondly for a test drive
 
@@ -84,12 +100,23 @@ thumbnail: https://thmb.techidaily.com/f06ecdd32f0e95a7a4f703e01e2d64ef66252665c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/mondly-bridging-communication-gaps-in-the-virtual-reality-arena-with-oculus-quest/"><u>'Mondly': Bridging Communication Gaps in the Virtual Reality Arena with Oculus Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/por-que-vs-por-que-a-language-conundrum-solved/"><u>'Por Que' Vs 'Por Qué': A Language Conundrum Solved</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-guide-to-modify-comment-accessibility-on-youtube-for-2024/"><u>[New] Guide to Modify Comment Accessibility on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-best-10-sound-boosting-software-pc-mac-and-mobile/"><u>[Updated] Best 10 Sound Boosting Software PC, Mac & Mobile</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/1725286101091-xmedia-recode/"><u>「高画質処理・無損失: Xmedia Recodeでのインターレースエンコード設定ガイド」</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-introducing-high-quality-capture-with-yi/"><u>2024 Approved Introducing High-Quality Capture with YI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmony-or-hindrance-grammar-in-language-education/"><u>Harmony or Hindrance: Grammar in Language Education?</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/how-can-you-enhance-your-computers-performance-with-a-ram-upgrade-tips-from-yl-computing/"><u>How Can You Enhance Your Computer's Performance with a RAM Upgrade - Tips From YL Computing</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-from-apple-iphone-6s-plus-by-drfone-ios/"><u>How to Fix when Apple Account Locked From Apple iPhone 6s Plus?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-anonymous-footage-blurring-private-sections-in-video/"><u>In 2024, Anonymous Footage Blurring Private Sections in Video</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-tailoring-your-video-content-for-wide-platform-distribution/"><u>In 2024, Tailoring Your Video Content for Wide Platform Distribution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-precision-learn-with-english-twisters/"><u>Pronunciation Precision: Learn with English Twisters</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-learning-guide-over-100-essential-russian-expressions/"><u>Quick-Learning Guide: Over 100 Essential Russian Expressions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ranking-of-popularly-taught-international-languages-usa/"><u>Ranking of Popularly Taught International Languages USA</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-comprehensive-guide-to-understanding-generative-ai/"><u>The Comprehensive Guide to Understanding Generative AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rich-tapestry-of-italian-handspeak/"><u>The Rich Tapestry of Italian Handspeak</u></a></li>
+</ul></div>
 

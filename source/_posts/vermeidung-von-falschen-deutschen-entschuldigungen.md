@@ -1,7 +1,7 @@
 ---
 title: Vermeidung Von Falschen Deutschen Entschuldigungen
-date: 2025-01-21T18:06:44.556Z
-updated: 2025-01-22T16:54:14.282Z
+date: 2025-01-29T05:12:30.376Z
+updated: 2025-01-30T00:49:49.554Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
  Let’s look at the most important ways to say “sorry” in German and when to use each of them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When should you say you’re sorry?
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
  However, this is not strictly a German thing. It’s true Germans say sorry once in a blue moon, but there are some other countries like France or Russia where over-apologizing can be regarded as insincere as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to apologize in German
@@ -47,7 +47,7 @@ Here are some practical examples of apologies in German:
 * _Tut mir leid, ich mag die Suppe nicht._ – Sorry, I don’t like the soup.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say sorry in German – the “Excuse me” sorry
@@ -59,7 +59,7 @@ Here are some practical examples of apologies in German:
  Hear the formal_Entschuldigen Sie_ in action in this basic conversation in German:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Other ways to say sorry in German
@@ -105,7 +105,7 @@ Here are some practical examples of apologies in German:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### From 0 to conversational in German
@@ -139,19 +139,14 @@ Here are some practical examples of apologies in German:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-sightline-synopsis-study/"><u>[New] Sightline Synopsis Study</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-exploring-virtuality-current-realities-future-hurdles/"><u>[Updated] 2024 Approved Exploring Virtuality Current Realities, Future Hurdles</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-practices-in-language-education-software/"><u>Best Practices in Language Education Software</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580797196-europes-vibrant-verbal-tapestry-celebrate-it-today/"><u>Europe's Vibrant Verbal Tapestry – Celebrate It Today!</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixing-in-game-stutter-and-improving-fps-on-pc-while-playing-v/"><u>Fixing In-Game Stutter and Improving FPS on PC While Playing 'V'</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-remove-phone-number-from-your-apple-id-on-your-iphone-12-pro-max-by-drfone-ios/"><u>How To Remove Phone Number From Your Apple ID on Your iPhone 12 Pro Max?</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-11-pro-with-a-mask-on-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 11 Pro with a Mask On | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-navigating-virtual-realms-the-finest-vr-technology/"><u>In 2024, Navigating Virtual Realms The Finest VR Technology</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-rev-voice-recorder-download-and-review/"><u>In 2024, Rev Voice Recorder Download and Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/international-friendship-starters/"><u>International Friendship Starters</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/palabras-comunes-en-ingles-y-espanol-cognados-realizadores/"><u>Palabras Comunes en Inglés Y Español: Cognados Realizadores</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/picks-of-the-best-danish-features-for-lingo-proficiency/"><u>Picks of the Best Danish Features for Lingo Proficiency</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-journey-of-personalized-instagram-notification-creation/"><u>The Journey of Personalized Instagram Notification Creation</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unbeatable-gadget-savings-amazon-prime-day-specials/"><u>Unbeatable Gadget Savings: Amazon Prime Day Specials</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-jumpstart-with-vrecorder-easy-installation-walkthrough/"><u>[Updated] 2024 Approved Jumpstart with VRecorder Easy Installation Walkthrough</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crossing-continents-in-conversation/"><u>Crossing Continents in Conversation</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-xiaomi-redmi-note-12t-pro-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Xiaomi Redmi Note 12T Pro in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-how-to-screen-record-on-hp-laptop/"><u>In 2024, How to Screen Record on Hp Laptop</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-xiaomi-13-ultra-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Xiaomi 13 Ultra Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shakespeares-timeless-tongue-everyday-usage-explored/"><u>Shakespeare's Timeless Tongue: Everyday Usage Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sing-your-way-through-languages-effective-methods-and-sound-strategies/"><u>Sing Your Way Through Languages: Effective Methods & Sound Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-anatomy-of-chinese-letters/"><u>The Anatomy of Chinese Letters</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/ultimate-guide-10-budget-friendly-online-tools-to-convert-mp3s-into-text-documents/"><u>Ultimate Guide 10 Budget-Friendly Online Tools to Convert MP3s Into Text Documents</u></a></li>
 </ul></div>
 

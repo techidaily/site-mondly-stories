@@ -1,7 +1,7 @@
 ---
 title: "Politeness Profiles: The Art of Saying Thanks Across Cultures (154)"
-date: 2025-01-19T17:00:56.458Z
-updated: 2025-01-22T16:26:54.875Z
+date: 2025-01-26T01:43:46.427Z
+updated: 2025-01-30T04:49:46.924Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
@@ -61,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Thanks” by Hanny Naibaho©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
@@ -127,21 +127,17 @@ thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elite-channel-analyzer-top-youtube-positioning-tool/"><u>[New] 2024 Approved Elite Channel Analyzer Top YouTube Positioning Tool</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-next-generation-of-green-visual-effects-tools/"><u>[Updated] Next Generation of Green Visual Effects Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/agoras-articulation-greek-language-through-ages/"><u>Agora's Articulation: Greek Language Through Ages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparing-british-and-american-lexicon/"><u>Comparing British and American Lexicon</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elite-meme-enhancer-program/"><u>Elite Meme Enhancer Program</u></a></li>
-<li><a href="https://games-able.techidaily.com/embark-on-epic-journeys-from-your-computer/"><u>Embark on Epic Journeys From Your Computer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/key-danish-films-to-elevate-your-danish-comprehension/"><u>Key Danish Films to Elevate Your Danish Comprehension</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lingual-interactions-international-contribution-to-english/"><u>Lingual Interactions: International Contribution to English</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-ar-uses-augmented-reality-to-change-the-way-we-learn-languages/"><u>Mondly AR Uses Augmented Reality To Change The Way We Learn Languages</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/pc-compatibility-with-ps-vr-steps-for-seamless-integration/"><u>PC Compatibility with PS VR: Steps for Seamless Integration</u></a></li>
-<li><a href="https://driver-download.techidaily.com/quick-guide-microsoft-drivers-downloading-and-updating-for-windows-10-8-and-7/"><u>Quick Guide: Microsoft Drivers Downloading and Updating for Windows 10, 8, and 7</u></a></li>
-<li><a href="https://techtrends.techidaily.com/recover-deleted-files-like-a-pro-comprehensive-review-of-recuva-undelete-tool/"><u>Recover Deleted Files Like a Pro - Comprehensive Review of Recuva Undelete Tool</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/salutations-francaises-la-reponse-idyllique/"><u>Salutations Françaises: La Réponse Idyllique</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-complete-guide-to-the-blue-screen-of-death-and-what-it-really-means-for-your-pc/"><u>The Complete Guide to the Blue Screen of Death and What It Really Means for Your PC</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-9-insights-on-english-grammar-by-a-pro-esl-speaker/"><u>Top 9 Insights on English Grammar by a Pro ESL Speaker</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/updated-best-live-streaming-platforms-to-engage-audiences-and-increase-viewership/"><u>Updated Best Live Streaming Platforms To Engage Audiences and Increase Viewership</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-splitscreen-designer/"><u>[Updated] SplitScreen Designer</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/a-comparative-look-at-windows-most-utilized-software-tools/"><u>A Comparative Look at Windows' Most Utilized Software Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/beginners-blueprint-for-mastering-french-phonetics/"><u>Beginner's Blueprint for Mastering French Phonetics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575207853-championing-the-best-3-sites-master-a-new-language-today/"><u>Championing the Best 3 Sites: Master a New Language Today!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/determining-the-most-practical-linguistic-skill-germanfrench/"><u>Determining the Most Practical Linguistic Skill: German/French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578465650-eternal-access-to-mondlys-best-with-zero-price/"><u>Eternal Access to Mondly's Best with Zero Price</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-native-learning-chinese-thank-you-expressions/"><u>From Novice to Native: Learning Chinese Thank You Expressions</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-your-linksys-ae120-driver-now-fast-and-effortless-installation/"><u>Get Your Linksys AE120# Driver Now - Fast and Effortless Installation</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-lava-yuva-3-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Lava Yuva 3 Pro to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/skagen-falster-2-analysis-elegant-rival-to-the-iphone/"><u>Skagen Falster 2 Analysis: Elegant Rival to the iPhone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/toggle-onoff-managing-your-gaming-experience-with-windows-10s-xbox-game-bar-feature/"><u>Toggle On/Off: Managing Your Gaming Experience with Windows 10'S Xbox Game Bar Feature</u></a></li>
 </ul></div>
 

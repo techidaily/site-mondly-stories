@@ -1,7 +1,7 @@
 ---
 title: "Semaine Française: La Palette Des Jours"
-date: 2025-01-20T17:28:51.161Z
-updated: 2025-01-22T17:14:09.566Z
+date: 2025-01-23T04:07:04.389Z
+updated: 2025-01-29T22:29:17.609Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/d02ecec5426e8e1f2da5e128e095f9718e5fc3c11
  If “a day” is_un jour_ in French and “a week” is_une semaine_ , it may also be useful to know that “the days of the week” is “_les jours de la semaine”_ . Now let’s see how fast you can learn all seven days of the week_en français_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Days of the week in French
@@ -78,7 +78,7 @@ The days of the week in French are:
  Planning to spend an entire week in France? Dont stop at_les jours de la semaine en français_ . French people are known to be proud of their language and heritage. Surprise them with your French skills and go beyond “Friday” in French with these [100+ French travel phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . You’ll thank me later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Usage rules
@@ -125,20 +125,19 @@ The days of the week in French are:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-chuckle-on-the-go-best-comedy-tone-sites/"><u>[New] 2024 Approved Chuckle on the Go Best Comedy Tone Sites</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-astrological-flair-in-digital-self-portrayals-on-whatsapp/"><u>[New] Astrological Flair in Digital Self-Portrayals on WhatsApp</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-vlogger-to-earnest-by-year-end-following-sourav-joshis-examples/"><u>[Updated] 2024 Approved From Vlogger to Earnest by Year End - Following Sourav Joshi's Examples</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-gastronomic-globe-trotting-iconic-recipes-worldwide/"><u>[Updated] 2024 Approved Gastronomic Globe-Trotting Iconic Recipes Worldwide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-wonder-workshops-dash-stem-robot-toy-learn-explore-roll/"><u>Comprehensive Review of the Wonder Workshop's Dash STEM Robot Toy - Learn, Explore, Roll!</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/embark-on-an-ai-learning-adventure-discover-and-enroll-in-our-expertly-chosen-collection-of-15-complimentary-online-training-modules/"><u>Embark on an AI Learning Adventure: Discover and Enroll in Our Expertly Chosen Collection of 15 Complimentary Online Training Modules</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enchanting-eloquence-italys-romantic-phrases/"><u>Enchanting Eloquence: Italy's Romantic Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhanced-social-connections-by-learning-a-second-language-in-fifties/"><u>Enhanced Social Connections by Learning a Second Language in Fifties</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-australian-sayings-for-newcomers/"><u>Essential Australian Sayings for Newcomers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fluent-formation-master-twisters-for-pronunciation/"><u>Fluent Formation: Master Twisters for Pronunciation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/foundations-of-urdu-for-language-enthusiasts/"><u>Foundations of Urdu for Language Enthusiasts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/galactic-lexicon-glossary-unraveling-star-wars-word-meanings/"><u>Galactic Lexicon Glossary: Unraveling Star Wars Word Meanings</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Google Pixel Fold | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-ultimate-drone-collection-available-now/"><u>In 2024, Ultimate Drone Collection Available Now</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-mastering-the-ken-burns-effect-a-step-by-step-guide-for-final-cut-pro-users/"><u>New Mastering the Ken Burns Effect A Step-by-Step Guide for Final Cut Pro Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-lights-camera-action-mastering-fundamental-shots-first/"><u>[Updated] In 2024, Lights, Camera, Action! Mastering Fundamental Shots First</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-photoshop-basics-for-beginners-10-must-know-tricks/"><u>[Updated] In 2024, Photoshop Basics for Beginners 10 Must-Know Tricks</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-leading-5-video-conference-recorders-for-seamless-captures-for-2024/"><u>[Updated] Leading 5 Video Conference Recorders for Seamless Captures for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-perfect-accompaniments-for-your-sj4000-journey/"><u>2024 Approved Perfect Accompaniments for Your SJ4000 Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-quest-for-the-ultimate-linguistic-giant/"><u>A Quest for the Ultimate Linguistic Giant</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/compreender-saudacoes-em-portugal-todas-as-variedades/"><u>Compreender Saudações Em Portugal: Todas as Variedades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/east-coast-vs-west-us-english-peculiarities/"><u>East Coast vs West: US English Peculiarities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fluent-in-finesse-top-25-must-know-german-phrases/"><u>Fluent in Finesse - Top 25 Must-Know German Phrases</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-from-iphone-15-plus-or-ipad-by-drfone-ios/"><u>How to Bypass Activation Lock from iPhone 15 Plus or iPad?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-nokia-c12-plus-to-mac-drfone-by-drfone-android/"><u>How to Mirror Nokia C12 Plus to Mac? | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-avs-video-editor-an-in-depth-analysis/"><u>New AVS Video Editor An In-Depth Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-chance-languages-embrace-polyglot-living/"><u>Second Chance Languages: Embrace Polyglot Living</u></a></li>
+<li><a href="https://techtrends.techidaily.com/setting-the-right-time-on-your-amazon-kindle-paperwhite-a-comprehensive-tutorial/"><u>Setting the Right Time on Your Amazon Kindle Paperwhite - A Comprehensive Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-language-mastery-mondly-languageleader/"><u>Top Language Mastery: Mondly, #LanguageLeader</u></a></li>
 </ul></div>
 

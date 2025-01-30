@@ -1,7 +1,7 @@
 ---
 title: Heartfelt Expressions From Around The Globe Today
-date: 2024-09-15T17:39:12.394Z
-updated: 2024-09-21T18:55:35.169Z
+date: 2025-01-24T05:11:19.292Z
+updated: 2025-01-29T18:26:22.371Z
 tags:
   - speak
   - english
@@ -56,6 +56,10 @@ Here are some more ways to say “I love you” in other languages:
 
  Is this still not enough? Here’s how saying “I love you” different languages can be fun:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say I love you – a quick guide for “I love you”s in 30 most common languages
 
  Modern society makes us feel so much and express so little! We’ve become shallow. Just like [the song](https://www.youtube.com/watch?v=bo%5FefYhYU2A) says, many of us aren’t probably happy in this modern world. We bury ourselves every day under mountains of unexpressed feelings often because of social media. We’re afraid to show our inner, deeper selves. We put on masks. We don’t dare to be romantic anymore. And still, our loved ones are the ones that get to discover more of ourselves. More than just a pretty face and a cool Instagram account. That’s because they drown us in authentic, real love. They see the best in us and stick around even the hardest times. And they deserve the same back. Always. Not just on Valentine’s Day. But every single day! Wine for him, flowers for her, little gifts for the both of them. Today. This is a reminder.
@@ -83,6 +87,10 @@ Here are some more ways to say “I love you” in other languages:
 * **I love you in Hindi:** _मैं तुमसे प्यार करती हूँ! – Main tumasee pyaar karatee huun!_
 
 ![how to say i love you by Tyler Nix©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/how-to-say-i-love-you-scaled.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * **I love you in Croatian:** _Volim te!_
 * **I love you in Hungarian:** _Szeretlek!_
@@ -113,20 +121,21 @@ Here are some more ways to say “I love you” in other languages:
 
 ![I love you in sign language](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-sign-language.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The perfect Valentine’s Day gift: 365 gifts for 365 days
 
  Now that you know how to say “I love you” in so many languages, here’s a sweet present idea you could use for your next anniversary or Valentine’s Day. All you need to buy is a big jar – big enough for all your love. The rest of it comes from the bottom of your heart. The first step is to prepare 365 pieces of paper of different colors and sizes and write “I love you” in different languages on the first 32 of them. Go wildly romantic with the rest of them: you could write love quotes for him or love quotes for her, poems or songs that you both like. Next step? Decorate the jar with tiny lights, pieces of lace or stickers.
 
 ![i love you in spanish by Diego PH©](https://edge.mondly.com/blog/wp-content/uploads/2018/10/i-love-you-in-spanish-scaled-480x600.jpg "Say It Like You Mean It: How To Say “I Love You” In 32 Different Languages 5")
 
- When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ When it’s ready, tell your lover to read one piece of paper every day. Even when you are not around. That’s how they’ll smile and know that your heart always belongs to them.
 
 ### A love poem for your loved one
 
@@ -181,10 +190,7 @@ _With you, my heart will forever blend._
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### From “I love you” to conversational fast
@@ -216,5 +222,26 @@ _With you, my heart will forever blend._
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-creating-profit-on-youtube-the-ultimate-list-of-top-business-channels/"><u>[Updated] 2024 Approved Creating Profit on YouTube The Ultimate List of Top Business Channels</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-secrets-to-preserving-online-broadcasts-professionally/"><u>[Updated] 2024 Approved Secrets to Preserving Online Broadcasts Professionally</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-the-perfect-end-screen-youtube-template-guidebook/"><u>[Updated] In 2024, Crafting the Perfect End Screen - YouTube Template Guidebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-mastering-the-art-of-auto-play-youtube-content-in-fb/"><u>[Updated] Mastering the Art of Auto-Play YouTube Content in FB</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-social-media-stardom-guide/"><u>2024 Approved Social Media Stardom Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-piracy-safe-techniques-for-youtube-to-mp4/"><u>Avoiding Piracy Safe Techniques for Youtube-to-MP4</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-naming-excellence-the-top-10-ai-powered-title-makers/"><u>In 2024, Naming Excellence The Top 10 AI-Powered Title Makers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-sequence-du-lundi-au-dimanche/"><u>La Séquence Du Lundi Au Dimanche</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-simplified-mondlys-victory-2022-edition/"><u>Language Learning Simplified: Mondly's Victory, 2022 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-croatian-why-and-how-discover-the-7-key-advantages/"><u>Learn Croatian: Why and How – Discover the 7 Key Advantages</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-the-blue-screen-challenge-in-helldivers-2-top-troubleshooting-tips/"><u>Overcoming the Blue Screen Challenge in HellDivers 2 - Top Troubleshooting Tips</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-faulty-troubleshooting-tools-in-windows-1011/"><u>Resolving Faulty Troubleshooting Tools in Windows 10/11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/six-sweet-secrets-of-being-bilingual/"><u>Six Sweet Secrets of Being Bilingual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speaking-happily-ever-after-in-hungarian-dialects/"><u>Speaking Happily Ever After in Hungarian Dialects</u></a></li>
+<li><a href="https://win-tips.techidaily.com/stunning-ferrari-brand-graphics-premium-wallpaper-collection-by-yl-computing/"><u>Stunning Ferrari Brand Graphics: Premium Wallpaper Collection by YL Computing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-hands-of-italy-deciphering-silent-dialogue/"><u>The Hands of Italy: Deciphering Silent Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-language-learning-platforms-master-new-languages-easilyback-buttonfilter-button/"><u>Top 3 Language Learning Platforms: Master New Languages EasilyBack ButtonFilter Button</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-6-benefits-of-being-bilingual-what-is-bilingualism/"><u>Top 6 Benefits Of Being Bilingual - What Is Bilingualism?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/timwtores-eygnwmwn-dyshs/"><u>Τιμωτόρες Ευγνώμων Δύσης</u></a></li>
+</ul></div>
 

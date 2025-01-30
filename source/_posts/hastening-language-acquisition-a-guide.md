@@ -1,7 +1,7 @@
 ---
 title: "Hastening Language Acquisition: A Guide"
-date: 2024-09-18T18:00:41.927Z
-updated: 2024-09-21T17:50:36.602Z
+date: 2025-01-25T01:33:57.120Z
+updated: 2025-01-29T22:45:55.218Z
 tags:
   - speak
   - english
@@ -38,6 +38,10 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
 ![learn a new language](https://edge.mondly.com/blog/wp-content/uploads/2018/04/learn-a-new-language-960x761.png "Tips And Techniques For Fast And Effective Language Learning 6")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The reason behind this “trick” is that the**most common 1000 words account for 75% of all spoken communication** , while the**most common 3000 words account for 85% of it** . If this doesn’t feel real, just ask yourself if you know and use all the words in your mother tongue. You will soon realize that the answer is “no”.
 
 ### 2\. Use mnemonics
@@ -47,13 +51,6 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
  **A mnemonic device is any learning technique that helps glue stubborn words or expressions to your memory.** There are many types of mnemonics you can create: music, name, expression/word, model, rhyme, note organization, image, connection or spelling mnemonics. The secret is to come up with it yourself so you’ll be more likely to remember it.
 
  For example, when I was in college and I had to memorize a long list of words, I always tried to come up with funny sentences or songs using them. I strongly recommend trying this or other types of mnemonics to improve your learning rhythm.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Identify your learning style
 
@@ -80,10 +77,7 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
  Therefore, it’s always necessary to train your speech muscles and ears. Any foreign language may sound weird in the beginning. The secret is to hold on to it and exercise with common sounds until it becomes familiar.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Study pronunciation rules and practice
@@ -96,11 +90,19 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Tips And Techniques For Fast And Effective Language Learning 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Best way to learn a language?
 
  Mondly. Skip the inch-thick textbooks and learn a new language fast with this award-winning app.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-1322&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-1322&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-1322&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-1322&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-1322%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. Talk to yourself
 
@@ -108,29 +110,19 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  People often claim that speaking in another language changes your personality. The process resembles the idea of having an alter ego. If this works the same for you, let your foreign language alter ego speak. It may be frustrating in the beginning, but it’s super-efficient.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. Enjoy local movies and music
 
  Help your [brain understand that learning a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is not something you do because you have to but because it’s fun. Find something you enjoy doing – like watching a film or listening to music – and try to associate this action with the language you want to learn.
 
 !['How to learn a new language' by Mollie Sivaram©](https://edge.mondly.com/blog/wp-content/uploads/2018/04/how-to-learn-a-new-language-960x640.jpg "Tips And Techniques For Fast And Effective Language Learning 8")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  As a cinephile, I really enjoy watching films and television series, and last year, I did some research to find the best [movies from Denmark](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Today, my brain associates Danish lessons with something that I enjoy doing and information retention is much easier. Our brain opens just like a flower when we like what we are learning.
 
  Just as effective,[music will give a new perspective on the language you’re learning](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Learn the lyrics, sing along and enjoy one of the best ways to learn a language.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\. Read only what matters
 
@@ -140,18 +132,15 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
 
  And it doesn’t necessarily have to be books. You can also read articles, poetry or whatever interests you more. Are you a Harry Potter fan? Great, read that. Considering its reading level (middle grade), Harry Potter is a good choice. Sure, it contains a lot of made-up terms as it’s a book about wizards, but that shouldn’t stop you from learning new and useful words. It’s not all magic and spells, after all.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9\. Try comprehensible input
 
  Comprehensible input is highly connected to what we mentioned earlier about consuming content in the language you want to learn. Basically, comprehensible input refers to language material that is at or slightly above your current proficiency level, allowing you to understand and learn from it.
 
  This method involves consuming content such as reading material, podcasts, videos, and conversations in your target language that you can comprehend with some effort but which still challenges you to learn new vocabulary and grammar concepts. This approach helps you learn a language quickly and more naturally, similar to how you learned your first language. Just remember to choose materials that interest you and keep you engaged, so you can learn at your own pace and make progress.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 10\. Immerse yourself in the language
 
@@ -218,5 +207,26 @@ No, really. If you want to learn a new language, you shouldn’t rely on learnin
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-alternate-avenues-a-compilation-of-non-gta-games/"><u>[New] Alternate Avenues A Compilation of Non-GTA Games</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-youtubes-profit-distribution-to-content-makers/"><u>[New] In 2024, YouTube's Profit Distribution to Content Makers</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unparalleled-costless-pixel-perfection-software/"><u>[New] Unparalleled, Costless Pixel Perfection Software</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-unpacking-presenter-8s-features-against-the-best/"><u>[Updated] 2024 Approved Unpacking Presenter 8’S Features Against the Best</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-essential-blueprint-for-crafting-compelling-reddit-posts/"><u>2024 Approved The Essential Blueprint for Crafting Compelling Reddit Posts</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-itel-s23plus-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Itel S23+ without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/exploring-beyond-the-screen-with-vr/"><u>Exploring Beyond the Screen with VR</u></a></li>
+<li><a href="https://fox-where.techidaily.com/how-to-edit-windows-registry-via-command-prompt-insights-from-yl-computing/"><u>How to Edit Windows Registry via Command Prompt - Insights From YL Computing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-indulgence-saying-chocolate-in-languages/"><u>International Indulgence: Saying 'Chocolate' In Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-seafarer-speak-pirate-vocabulary-guide/"><u>Mastering Seafarer Speak: Pirate Vocabulary Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/minute-math-learning-japanese-digits-now/"><u>Minute Math: Learning Japanese Digits Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingualism-an-investment-for-the-fifties-and-beyond/"><u>Multilingualism: An Investment for the Fifties and Beyond</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/optimal-free-cam-viewer-with-snatch-feature/"><u>Optimal Free Cam Viewer with Snatch Feature</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/precision-leap-in-education-pearsons-updated-gsl-with-mondly/"><u>Precision Leap in Education: Pearson's Updated GSL with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronouncing-spaniard-sounds-with-accents-correctly/"><u>Pronouncing Spaniard Sounds with Accents Correctly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-to-quick-czech-mastery-online/"><u>Step-by-Step Guide to Quick Czech Mastery Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-brit-slang-the-ultimate-guidebook/"><u>Unlocking Brit Slang: The Ultimate Guidebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-mondly-dominates-in-cutting-edge-learning-tech/"><u>Why Mondly Dominates in Cutting-Edge Learning Tech?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/z7-powerhouse-the-ultimate-mirrorless-camera-verdict/"><u>Z7 Powerhouse: The Ultimate Mirrorless Camera Verdict</u></a></li>
+</ul></div>
 

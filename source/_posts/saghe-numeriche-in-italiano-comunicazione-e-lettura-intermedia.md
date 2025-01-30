@@ -1,7 +1,7 @@
 ---
 title: "Saghe Numeriche in Italiano: Comunicazione E Lettura Intermedia"
-date: 2025-01-21T17:02:13.574Z
-updated: 2025-01-22T16:35:12.122Z
+date: 2025-01-27T05:02:52.179Z
+updated: 2025-01-30T05:44:58.797Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/daa4ddbb9dc17599c8cc745fc4daad052ccf0ddb6
  There’s hardly a day that passes without using [numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . They’re essential to our day-to-day lives. From shopping to giving people your phone number and setting up a meeting at a certain time, numbers are probably one of the first lessons you should take in any language. So, let’s see how easy it is to count from_zero_ to_cento_ in_Italiano_ .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Count to 10 in Italian
@@ -57,7 +57,7 @@ Here’s how to write and pronounce the Italian numbers 1-10:
 **Good to know:**Italian cardinal numbers don’t change suffixes according to the gender of the noun they determine. The only exception is 1_(uno)_. Thus, when you talk about a feminine noun, you’ll say_una_instead of_uno_:_Ho comprato una casa_(“I bought a house.”)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian numbers 11-20
@@ -96,6 +96,10 @@ Let’s see some examples:
 * to say “18 years”, you’ll say_diciotto anni_
 * to say “20 children”, you’ll say_venti bambini_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Italian numbers to 30 and beyond
 
  Essentially, Italian numbers are very similar to English numbers. Once you get to 20, you just put together the tens with the single numbers (units). The best part is that Italian doesn’t even require spaces or hyphens. For example, if you want to say 22 (“twenty-two”), in Italian you say venti (20) + due (2) = _**venti** due_ (22).
@@ -107,10 +111,6 @@ Let’s see some examples:
  Italian numbers to 30
 
  See how easy Italian numbers are? The only thing you have to remember is that the final vowel of the tens disappears when you add 1_(uno)_ or 8_(otto)_ . Thus, you’ll say _**vent** uno_ and not “ventiuno”. Additionally, number 3_(tre)_ gains an accent mark on the final vowel. For example, 33 will be_trentatré_ and 83 will be_ottantatré._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Count tens in Italian
 
@@ -146,7 +146,7 @@ Let’s see some examples:
 * 98 – _novant**otto**_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian numbers 100 to 1000 and beyond
@@ -178,7 +178,7 @@ Let’s see some examples:
 ![italian numbers pronunciation](https://edge.mondly.com/blog/wp-content/uploads/2020/05/italian-numbers-pronunciation-960x640.jpg "Italian Numbers Made Easy - Count To 1000 And Beyond In Italian 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “The Amalfi Coast” by Gregory Smirnov©
@@ -252,19 +252,20 @@ Let’s see some examples:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-the-user-friendly-way-of-migrating-snapchat-images-home/"><u>[New] In 2024, The User-Friendly Way of Migrating SnapChat Images Home</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-interactive-engagement-adding-emojis-to-youtubes-comments/"><u>[Updated] Interactive Engagement Adding Emojis to Youtubes' Comments</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-evaluating-adobes-anti-shake-functionality-for-creatives/"><u>2024 Approved Evaluating Adobe's Anti-Shake Functionality for Creatives</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-spectrumsewn-studio-photo-montage-expertise/"><u>2024 Approved SpectrumSewn Studio Photo Montage Expertise</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/anticipating-the-chatgpt-desktop-launch-explore-top-tier-open-source-substitutes/"><u>Anticipating the ChatGPT Desktop Launch? Explore Top-Tier Open Source Substitutes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhancing-pronunciation-and-expression-in-english-talk/"><u>Enhancing Pronunciation & Expression in English Talk</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enter-the-world-of-ks-deciphe-netflixs-popular-phenomenon/"><u>Enter the World of KS: Deciphe Netflix's Popular Phenomenon</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/evaluating-usefulness-of-german-vs-french-languages/"><u>Evaluating Usefulness of German vs French Languages</u></a></li>
-<li><a href="https://win-able.techidaily.com/expert-strategies-to-combat-lag-and-increase-fps-in-valheim-tips-updated-for-202-grope-your-gaming-experience-by-improving-the-frame-rate/"><u>Expert Strategies to Combat Lag and Increase FPS in Valheim - Tips Updated for 202 Grope Your Gaming Experience by Improving the Frame Rate!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/finding-common-ground-beyond-words-in-couples/"><u>Finding Common Ground Beyond Words in Couples</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-tecno-phantom-v-fold-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Tecno Phantom V Fold | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/free-lessons-at-your-fingertips-mondly-and-ukrainian-linguists-unite/"><u>Free Lessons at Your Fingertips: Mondly & Ukrainian Linguists Unite</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-tecno-phantom-v-fold-easily-by-drfone-android/"><u>How To Unlock a Tecno Phantom V Fold Easily?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-motorola-g54-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Motorola G54 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-50-greatest-virtual-scenes-for-online-meetings/"><u>[New] In 2024, 50 Greatest Virtual Scenes for Online Meetings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-prime-video-camera-selections-for-superior-recording/"><u>2024 Approved Prime Video Camera Selections for Superior Recording</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-unveiling-the-power-of-luminance-in-hdr-landscapes/"><u>2024 Approved Unveiling the Power of Luminance in HDR Landscapes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieve-cross-cultural-success-through-learning/"><u>Achieve Cross-Cultural Success Through Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/comprehensive-review-tandcs-amendments/"><u>Comprehensive Review: T&Cs Amendments</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-seamless-addition-of-youtube-video-selections-for-sites/"><u>In 2024, Seamless Addition of YouTube Video Selections for Sites</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-revolution-at-your-fingertips-free-and-cheap/"><u>Language Learning Revolution at Your Fingertips, Free & Cheap!</u></a></li>
+<li><a href="https://win-able.techidaily.com/master-gamers-advice-overcoming-gameplay-interruptions-in-gta-v/"><u>Master Gamers' Advice: Overcoming Gameplay Interruptions in GTA V</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-mobile-listening-androids-best-podcast-apps-top-6/"><u>Mastering Mobile Listening Android's Best Podcast Apps (Top 6)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-named-one-of-google-plays-best-apps-of-2017/"><u>Mondly Kids App Named One Of Google Play's Best Apps Of 2017</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-in-use-resource-error-in-windows-oses-149-chars/"><u>Overcoming In-Use Resource Error in Windows OSes (149 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfecting-pronunciation-and-typography-of-spanish-accents/"><u>Perfecting Pronunciation and Typography of Spanish Accents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tage-der-woche-in-deutsch-eine-anleitung/"><u>Tage Der Woche in Deutsch: Eine Anleitung</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-complete-set-of-hablantes-de-espanol/"><u>The Complete Set of Hablantes De Español</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/troubleshooting-steps-for-uploading-images-from-iphone-onto-a-mac-a-comprehensive-guide/"><u>Troubleshooting Steps for Uploading Images From iPhone Onto a Mac: A Comprehensive Guide</u></a></li>
 </ul></div>
 

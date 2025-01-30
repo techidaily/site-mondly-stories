@@ -1,7 +1,7 @@
 ---
 title: "English Tongue's Foreign Flavor: Syntax & Vocabulary Shifts"
-date: 2024-09-20T17:47:52.120Z
-updated: 2024-09-21T18:18:36.618Z
+date: 2025-01-25T00:59:53.454Z
+updated: 2025-01-29T18:21:21.450Z
 tags:
   - speak
   - english
@@ -81,9 +81,21 @@ thumbnail: https://thmb.techidaily.com/8ac81d16fe79fad30026aca67e023b34a8f1d9b49
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "100+ English Words Borrowed From Other Languages 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
 
@@ -113,13 +125,6 @@ thumbnail: https://thmb.techidaily.com/8ac81d16fe79fad30026aca67e023b34a8f1d9b49
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Spanish loanwords: English words that are actually Spanish
 
 | Chinchilla |
@@ -143,10 +148,7 @@ thumbnail: https://thmb.techidaily.com/8ac81d16fe79fad30026aca67e023b34a8f1d9b49
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
@@ -200,6 +202,10 @@ thumbnail: https://thmb.techidaily.com/8ac81d16fe79fad30026aca67e023b34a8f1d9b49
 | Diesel       |
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
 
@@ -257,5 +263,26 @@ Coming Soon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-art-of-blending-music-into-your-ig-visuals/"><u>[New] 2024 Approved The Art of Blending Music Into Your IG Visuals</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-mastering-the-art-of-digital-comedy-in-the-metaverse/"><u>[Updated] 2024 Approved Mastering the Art of Digital Comedy in the Metaverse</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-uavs-explained-the-basics-of-drone-systems-and-operations/"><u>[Updated] In 2024, UAVs Explained The Basics of Drone Systems and Operations</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-unleash-creativity-with-these-5-windows-11-record-methods/"><u>[Updated] Unleash Creativity with These 5 Windows 11 Record Methods</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-tp-link-re2n-ac750-wireless-range-expander-in-depth-analysis/"><u>Affordable TP-Link RE2n AC750 Wireless Range Expander - In-Depth Analysis</u></a></li>
+<li><a href="https://os-tips.techidaily.com/comprehensive-strategies-for-restoring-accidentally-erased-images-on-your-ipad/"><u>Comprehensive Strategies for Restoring Accidentally Erased Images on Your iPad</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/experience-next-level-smartphone-technology-with-the-groundbreaking-samsung-galaxy-s21-ultra/"><u>Experience Next-Level Smartphone Technology with the Groundbreaking Samsung Galaxy S21 Ultra</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-german-is-it-tough-to-grasp/"><u>Grasping German: Is It Tough to Grasp?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guided-path-to-your-ideal-new-language/"><u>Guided Path To Your Ideal New Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/historical-hunt-for-earths-elongated-expression/"><u>Historical Hunt for Earth's Elongated Expression</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-non-verbal-communication-in-italys-culture/"><u>Navigating Non-Verbal Communication in Italy's Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/no-more-language-barriers-your-95-off-lifetime-pass/"><u>No More Language Barriers - Your 95% Off Lifetime Pass</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/resoudre-le-probleme-de-redemarrage-force-sur-windows-11-strategies-pratiques-8-techniques/"><u>Résoudre Le Problème De Redémarrage Forcé Sur Windows 11 : Stratégies Pratiques (8 Techniques)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-secret-to-fluent-use-of-english-conjunctions-and-contractions/"><u>The Secret to Fluent Use of English Conjunctions & Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-world-with-words-mastering-multi-language-immersion/"><u>Unlock the World with Words: Mastering Multi-Language Immersion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/urdu-basics-must-learn-words-for-newcomers/"><u>Urdu Basics: Must-Learn Words for Newcomers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/varfor-sverige-allt-i-genom/"><u>Varför Sverige? - Allt I Genom</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/zoom-mastery-creating-seamless-virtual-sessions-for-2024/"><u>Zoom Mastery Creating Seamless Virtual Sessions for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Elevate Your Language Skills with French Proverbs & Sayings
-date: 2024-09-09T20:18:53.232Z
-updated: 2024-09-16T17:38:28.370Z
+date: 2025-01-25T02:11:02.372Z
+updated: 2025-01-30T03:34:27.069Z
 tags:
   - speak
   - english
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/e8268e497efdb6d8ea1a7969a9fa65d609c226672
  – _J’ai trouvé une très bonne application pour pratiquer mon français. Ça s’appelle Mondly et son prix pour une année est très raisonable._ (“I found a very good app to practice my French. It’s called Mondly and its price for one year is very good.”)
 
  – _Qu’est-ce que tu attends ? Il faut battre le fer pendant qu’il est chaud !_ (“What are you waiting for? Strike the iron while it’s hot!”)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _2\. Ce n’est pas la mer à boire._
 
@@ -82,6 +86,10 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
 
  –_Comme on fait son lit, on se couche._ (“You’ve made your bed, now lie on it.”)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### _5\. Vouloir, c’est pouvoir._
 
 **Literal translation:** “To want to is to be able to.”
@@ -93,6 +101,10 @@ _– Je ne sais pas si je dois accepter ou pas._ (“I don’t know if I should 
  –_Je pense que je_ _n_   _e parviendrai jamais à parler français comme un natif._ (“I don’t think I will ever manage to speak French like a native.”)
 
  –_Vouloir, c’est pouvoir._ (“Where there’s a will, there’s a way.”)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _6\. Impossible n’est pas français._
 
@@ -127,6 +139,10 @@ _– Comme vous voulez. Mais il ne faut rien laisser au hasard._ (“Suit yourse
 _– Notre nouveau collègue semble être une personne très calme._ (“Our new colleague seems like a very quiet person.”)
 
 _– L’habit ne fait pas le moine._ (“Don’t judge a book by its cover.”)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _9\. Mieux vaut tard que jamais._
 
@@ -166,19 +182,6 @@ _– La copine de Jacques vient de le quitter._ (“Jacques’s girlfriend just 
 
 _– Mieux vaut être seul que mal accompagné._ (“Better alone than in a bad company.”)
 
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### _12\. Après la pluie, le beau temps._
 
 **Literal translation:** “After the rain, good weather.”
@@ -215,6 +218,10 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
  The French are famous for their love for exquisite food and wine. French cuisine is probably one of the most notorious cuisines in the world. So it’s only natural for some of this love to find its way into everyday French sayings.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### _1\. L’appétit vient en mangeant._
 
 **Literal translation:**  “Appetite comes with eating.”
@@ -235,26 +242,10 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 
 ![french proverbs](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-proverbs-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 4")
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “Take care of your own onions” by MILKOVÍ©
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _3\. S’occuper de ses oignons._
@@ -266,6 +257,10 @@ _–_   _Je suis tellement content que nous soyons arrivés en France en toute s
 **How to use it**
 
  _– Sa façon de gérer cela ne vous concerne pas. Occupe-toi de tes oignons._ (“His way of dealing with this isn’t your problem. Mind your own business.”)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _4\. Raconter des salades._
 
@@ -287,13 +282,6 @@ _– Ça suffit! Tu racontes des salades !_ (“Enough with that. What you are s
 
 _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Stop annoying me! You are not winning this bet.”)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### _6\. La vie est trop courte pour boire du mauvais vin._
 
 **Literal translation:** “Life is too short to drink bad wine.”
@@ -301,6 +289,10 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 **Actual meaning:** This saying can be used both literally and figuratively. The idea is that life’s too short to do things that you don’t like.
 
 ![funny french expressions](https://edge.mondly.com/blog/wp-content/uploads/2020/07/funny-french-expressions-960x540.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 5")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Tigger looking for rats online” by Catherine Heath©
 
@@ -321,10 +313,7 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
  –_Oui, Xavier est vraiment un adversaire de taille. À bon chat, bon rat._ (“Yes, Xavier is a really good match for him. They are equally matched.”)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _2\. Les chiens ne font pas des chats._
@@ -373,6 +362,10 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
 
 ![french phrases](https://edge.mondly.com/blog/wp-content/uploads/2020/07/french-phrases-960x638.jpg "27 French Sayings And Idioms That Will Make You Sound French-Born 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “La girafe” by Dan Dennis©
 
 **Actual meaning:** “To do unnecessary and very long work, to do nothing effective”. Because why on Earth would you comb a giraffe?
@@ -409,5 +402,20 @@ _– Arrêtes de me courir sur le haricot ! Tu ne gagneras pas ce pari._ (“Sto
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-streamlining-video-transfer-dvd-making-on-mac-for-2024/"><u>[New] Streamlining Video Transfer DVD Making on Mac for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-channel-building-strategies-to-hit-a-million-view-mark/"><u>[Updated] In 2024, Channel Building Strategies to Hit a Million-View Mark</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-parrot-mambo-complete-review/"><u>[Updated] Parrot Mambo Complete Review</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Samsung Galaxy F04? | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/kernel-calamity-a-step-by-step-guide-to-fixing-your-mac/"><u>Kernel Calamity: A Step-by-Step Guide to Fixing Your Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lingovista-panoramic-perspectives-on-language-in-vr/"><u>LingoVista: Panoramic Perspectives on Language in VR</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-the-shutdown-windows-11s-disabling-techniques/"><u>Mastering the Shutdown: Windows 11'S Disabling Techniques</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-with-precision-and-endurance-the-mobvoi-ticwatch-pro-3s-gps-mastery-and-extended-battery-longevity/"><u>Navigating with Precision and Endurance: The Mobvoi TicWatch Pro 3'S GPS Mastery and Extended Battery Longevity</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-blending-audio-sources-for-professional-video-production-for-2024/"><u>New Blending Audio Sources for Professional Video Production for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/recent-privacy-policy-shift-insights/"><u>Recent Privacy Policy Shift Insights</u></a></li>
+<li><a href="https://win-help.techidaily.com/step-by-step-guide-a-visual-approach-to-simple-pc-startup-procedure/"><u>Step-by-Step Guide: A Visual Approach to Simple PC Startup Procedure</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-life-through-hindi-discover-8-compelling-mondly-benefits/"><u>Transform Your Life Through Hindi: Discover 8 Compelling Mondly Benefits!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-foreign-language-offers-greater-utility-german-or-french/"><u>Which Foreign Language Offers Greater Utility: German or French</u></a></li>
+</ul></div>
 

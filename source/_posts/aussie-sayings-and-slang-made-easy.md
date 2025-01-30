@@ -1,7 +1,7 @@
 ---
 title: Aussie Sayings & Slang Made Easy
-date: 2024-09-14T17:52:22.018Z
-updated: 2024-09-21T19:11:35.801Z
+date: 2025-01-25T21:48:30.856Z
+updated: 2025-01-30T05:07:51.501Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/92459487433dd8191ecb6f79f9b025b7d93038fc1
 
  You don’t really know a language until you’ve learned its [slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . And when it comes to English, many people agree that Australian slang is the richest, liveliest and funniest slang you could learn. Sure, there’s always British English, but the Brits don’t call their barbecue “barbie”. And that’s a missed opportunity. Wouldn’t you agree? How can you have just a plain, dull barbecue when you could have a “barbie”? The Aussie slang is the best slang.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Top 10 Popular Australian Slang Terms & Words
 
  Let’s start with the basics: core Australian slang vocabulary. Here’s a list of popular Australian slang terms you probably heard before but didn’t know what they meant.
@@ -33,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/92459487433dd8191ecb6f79f9b025b7d93038fc1
 ### 1._Ta_ – Thank you
 
  You can also use “thanks heaps” when you are really grateful to someone for doing something for you or “cheers” to combine both “thank you”‌ and “goodbye” ‌in a single word. For example, “cheers” is a perfect choice for leaving the shop after the barista gives you your coffee.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2._Brekkie_ – Breakfast
 
@@ -70,11 +78,19 @@ You’ll ask for a “bikkie” just to hear yourself say it.
 
  There’s also the very cute expression “to cost big bikkies”, meaning that something is very expensive.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 10._Mate_ – Friend
 
 _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can also say “cobber”.
 
 ![aussie slang](https://edge.mondly.com/blog/wp-content/uploads/2020/05/aussie-slang-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Australian slang
 
@@ -85,6 +101,10 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
  Oi, this language learnin’ app is fair dinkum! Give it a try.
 
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4765&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4765%26mt%3D8)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Australian Slang Phrases Only Local Aussies Know
 
@@ -183,18 +203,19 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
 ![australian slang terms](https://edge.mondly.com/blog/wp-content/uploads/2020/05/australian-slang-terms-600x600.jpg "100+ Australian Slang Words To Help You Speak Like A True Aussie 8")
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Aussie slang
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Funny Australian Slang Phrases
 
  If it weren’t for this list, you’d need an Australian slang translator when you hear these Australian slang phrases! Use them in your day-to-day conversations and Aussies might think you’re one of their own.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. What’s the John Dory?
 
@@ -220,19 +241,6 @@ _Oi, mate!_ This one’s a classic. You ought to use it. Additionally, you can a
 
  What’s your laughing gear? Your mouth, of course. So, when you wrap your laughing gear ‘round something, you… eat it. It can be used in either a friendly or threatening way.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Carrying on like a pork chop
 
 **To behave foolishly.**
@@ -248,10 +256,7 @@ It seems that this phrase has had a lot of variations:
  While the original message referred to an object that is out of place, the modern meaning has slightly shifted. So, when you hear someone using this Australian slang phrase, know that they are referring to someone who behaves foolishly, makes a fuss, complains, or rants.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Dog’s breakfast
@@ -267,13 +272,6 @@ It seems that this phrase has had a lot of variations:
  The complete phrase is known as “to do a Harold Holt”, which is rhyming slang for “bolt”. The story behind this Australian slang phrase is related to Harold Holt, the 17th prime minister of Australia. In 1967, Mr. Holt disappeared, presumably by drowning, while swimming along Victoria’s coast.
 
 Some say he “did the bolt” from his responsibilities as a prime minister.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\. No worries, mate, she’ll be apples
 
@@ -314,13 +312,6 @@ Before you go, let’s answer some frequently asked questions.
 
  Aussie means Australian, also known as a person from Australia. Remember that “Aussie” is an informal word and you should use it accordingly.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What is the most common Australian slang?
 
  The most common Australian slang words are ‘arvo’ (afternoon), ‘Maccas’ (McDonald’s), ‘sheila’ (woman or female), ‘brekkie’ (breakfast), ‘barbie’ (barbecue), ‘mate’ (friend), ‘avo’ (avocado), ‘bikkie’ (biscuit), ‘cobber’ (friend) and many other more.
@@ -330,6 +321,10 @@ Before you go, let’s answer some frequently asked questions.
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Crikey, mate! This language learnin’ app is bonzer
 
  Do you want to impress a_bloke_ or a_sheila_ with your newly acquired language skills? Well, this is your lucky day. Because with Mondly, the award-winning language learning app, you’ll speak any language from day 1\. It’s as fun as learning Aussie slang!
@@ -337,6 +332,10 @@ Before you go, let’s answer some frequently asked questions.
  Want more? With Mondly, you’ll get more every day! Quick Daily Lessons. 5 minutes a day. It’s so entertaining you’ll become addicted. The best part? You’ll be fluent in no time.
 
 Get Mondly now and speak any language like you never dreamed you would ![Give it a try](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-4765&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fblog-post-id-4765%26utm%5Fsource%3Dblog-post-id-4765&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-4765%26mt%3D8 "Give it a try")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -351,5 +350,22 @@ Get Mondly now and speak any language like you never dreamed you would ![Give it
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-ultimate-guide-to-establishing-a-twitter-presence/"><u>[Updated] 2024 Approved The Ultimate Guide to Establishing a Twitter Presence</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-mastering-the-art-of-self-care-with-asmr-sounds/"><u>[Updated] Mastering the Art of Self-Care with ASMR Sounds</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-spark-change-with-these-10-inspirational-classics-for-2024/"><u>[Updated] Spark Change with These 10 Inspirational Classics for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-techniques-for-perfecting-your-prints-in-photoshop/"><u>Expert Techniques for Perfecting Your Prints in Photoshop</u></a></li>
+<li><a href="https://some-tips.techidaily.com/exploring-the-ultimate-portable-music-player-selection-insights-from-zdnet/"><u>Exploring the Ultimate Portable Music Player Selection - Insights From ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/globe-trotting-grammar-master-languages-with-vr/"><u>Globe-Trotting Grammar: Master Languages with VR</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/gmail-mastery-ethical-methods-for-streamlining-email-communication-and-address-management/"><u>Gmail Mastery: Ethical Methods for Streamlining Email Communication and Address Management</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hello-in-german-10plus-german-greetings-beyond-hallo/"><u>Hello in German: 10+ German Greetings Beyond Hallo</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-simply-save-your-streamed-content-with-these-premium-tools/"><u>In 2024, Simply Save Your Streamed Content with These Premium Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-pedagogy-discussion-with-global-peers/"><u>Innovative Pedagogy Discussion with Global Peers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/la-semaine-dun-novice-guide-des-dix-jours/"><u>La Semaine D'un Novice: Guide Des Dix Jours</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-english-a-key-to-inclusive-communication/"><u>Learning English: A Key to Inclusive Communication</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-through-english-contractions-made-simple/"><u>Navigating Through English Contractions Made Simple</u></a></li>
+<li><a href="https://fox-that.techidaily.com/remote-iphone-hardware-inspection-tips-with-apples-specialist-services/"><u>Remote iPhone Hardware Inspection Tips with Apple’s Specialist Services</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-vanguard-of-radio-theatre-composition/"><u>The Vanguard of Radio-Theatre Composition</u></a></li>
+</ul></div>
 

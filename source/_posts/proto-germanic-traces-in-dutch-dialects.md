@@ -1,7 +1,7 @@
 ---
 title: Proto-Germanic Traces in Dutch Dialects
-date: 2024-09-14T16:13:18.342Z
-updated: 2024-09-16T16:53:47.879Z
+date: 2025-01-24T16:16:49.646Z
+updated: 2025-01-29T18:01:30.377Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/4eda12f29d27dc48951952fd718d2893baf3c477f
 
 **The Dutch people are from the Netherlands.** As unrelated as that may seem, there is a whole history to it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why are Dutch people called Dutch?
 
  It seems that the confusion stems from the English-speaking people and the reason can be found by studying **the [etymology](https://www.etymonline.com/word/dutch) of the word ‘dutch’** . I won’t bore you with all the details, but the bottom line is that in the late 14th century the word referred to ‘a German language’ or to ‘German, non-Scandinavian continental Germanic’. Additionally, the word corresponds to the Old English adjective_þeodisc_ (‘belonging to the people’) which was used to refer to the common language of Germanic people (as opposed to Latin).
@@ -41,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/4eda12f29d27dc48951952fd718d2893baf3c477f
  The Netherlands and the Kingdom of the Netherlands are two different entities. While the Netherlands is a country located in Western Europe, the Kingdom of the Netherlands is a comprehensive sovereign state consisting of four constituent countries: the Netherlands, Aruba, Curaçao, and Sint Maarten.
 
  So where exactly in Western Europe is the Netherlands? The country borders Germany to the east,[Belgium](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) to the south, and the North Sea to the northwest. Its largest city and capital is Amsterdam.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The Netherlands vs Holland
 
@@ -73,10 +81,7 @@ Okay, bare with me. There’s more.
  ‘Tulip fields in the Netherlands’ by redcharlie©
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What other countries speak Dutch?
@@ -88,10 +93,7 @@ Okay, bare with me. There’s more.
  If you travel to South Africa, you may think people speak Dutch, but they actually speak [Afrikaans](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , a language that evolved from Dutch.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is German Dutch?
@@ -108,10 +110,7 @@ Okay, bare with me. There’s more.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Start learning Dutch today
@@ -141,5 +140,20 @@ Is Dutch easy to learn? It is if you learn it with Mondly.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-unlock-xps-movie-magic-software-essentials/"><u>[New] In 2024, Unlock XP's Movie Magic Software Essentials</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-kingdoms-collide-ranking-top-7-total-war-historical-games/"><u>[Updated] 2024 Approved Kingdoms Collide Ranking Top 7 Total War Historical Games</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-scouting-for-starred-youtube-conversations/"><u>[Updated] In 2024, Scouting for Starred YouTube Conversations</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-tips-for-embedding-time-stamps-in-youtube-clips/"><u>[Updated] In 2024, Tips for Embedding Time Stamps in YouTube Clips</u></a></li>
+<li><a href="https://video-capture.techidaily.com/from-theory-to-practice-mastering-instagram-livestreams-through-obs-for-2024/"><u>From Theory to Practice Mastering Instagram Livestreams Through OBS for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-plays-2017-educational-gems-mondly-kids-among-them/"><u>Google Play’s 2017 Educational Gems - Mondly Kids Among Them</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grasping-numbers-as-a-non-native-speaker/"><u>Grasping Numbers as a Non-Native Speaker</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-6s-to-other-iphone-11-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 6s to other iPhone 11 devices? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-xiaomi-redmi-k70e-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Xiaomi Redmi K70E Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-keywords-the-pathway-to-understanding-russians/"><u>Mastering Keywords: The Pathway to Understanding Russians</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/o-olhar-lusitano-expressoes-e-saudacoes-de-qualidade/"><u>O Olhar Lusitano: Expressões E Saudações De Qualidade</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/open-new-doors-in-life-and-career-by-learning-hindi-reveal-top-8-reasons-to-choose-mondlys-platform/"><u>Open New Doors in Life and Career by Learning Hindi: Reveal Top 8 Reasons to Choose Mondly's Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-hello-in-over-100-languages/"><u>Saying Hello in Over 100 Languages</u></a></li>
+</ul></div>
 

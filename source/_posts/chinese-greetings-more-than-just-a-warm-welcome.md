@@ -1,7 +1,7 @@
 ---
 title: "Chinese Greetings: More Than Just a Warm Welcome"
-date: 2024-09-15T19:00:31.262Z
-updated: 2024-09-21T18:01:19.918Z
+date: 2025-01-28T21:04:07.371Z
+updated: 2025-01-29T22:31:03.816Z
 tags:
   - speak
   - english
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/f2cca3b4364396f9937c3705e4296e2973a5931d8
 
  早 (zǎo) is short for 早上好 (zǎo shang hǎo), which means “good morning” in Chinese. The same as our English “good morning”, 早 (zǎo) can be used safely in all kinds of social interactions as long as it is… you’ve guessed it: morning.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. 你好吗? (nǐ hǎo ma) – “How are you?” in Chinese
 
 Or 您好吗? (nín hǎo ma?) if you want to be polite.
@@ -54,24 +58,25 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
 
  To answer to this greeting, you can say “chī le, nǐ ne?” which means “I’ve eaten, how about you?”.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. 久仰 (jiǔyǎng) – a very formal Chinese greeting
 
  On your way to a business meeting where you’ll meet someone for the first time? Well, that’s the perfect moment to use this very formal Mandarin greeting.
 
  If you want something even MORE‌ formal than that, go with 久闻大名 (jiǔwéndàmíng) literally meaning “your name is famous” – a phrase which could translate to something like “I have heard much about you”. But only use this on very special occasions like meeting the president or a person you hold in very high regard.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. 最近好吗？(zuì jìn hào mǎ) – “How are you these days?”
 
  Isn’t this beautiful? It’s very similar to the English “how are you?”, so you can use it accordingly.
 
 ![hi in chinese](https://edge.mondly.com/blog/wp-content/uploads/2019/12/hi-in-chinese-1024x682.jpg "How To Say Hello In Chinese: A Quick Guide To Chinese Greetings 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Hello there!” by Theodor Lundqvist©
 
@@ -80,10 +85,7 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  As mentioned earlier, 你好 nǐ hǎo is used to greet only one person at a time. So, if you need to say “hello” to a group of people in Mandarin Chinese, simply go with 大家好 (dàjiā hǎo).
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. 下午好 (xiàwǔ hǎo) – “Good afternoon” in Chinese
@@ -95,10 +97,7 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
  Staying up late to meet with your friends? Then this your chance to show them how well you’ve mastered the Mandarin greetings!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10\. 喂 (wèi) – answer your phone like a fluent speaker
@@ -135,5 +134,22 @@ Or 您好吗? (nín hǎo ma?) if you want to be polite.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-analysis-unpacking-picsarts-capabilities/"><u>[New] Expert Analysis Unpacking PicsArt's Capabilities</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unleashing-funimate-on-android-step-by-step-apk-tutorial/"><u>[Updated] Unleashing Funimate on Android - Step-by-Step APK Tutorial</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-elevate-your-videos-with-these-proven-seo-tools-for-more-clicks/"><u>2024 Approved Elevate Your Videos with These Proven SEO Tools for More Clicks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-lively-user-onboarding-pathway/"><u>2024 Approved Lively User Onboarding Pathway</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-advocates-mondly-your-comprehensive-learning-companion/"><u>Google Advocates: Mondly - Your Comprehensive Learning Companion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/holidays-of-thankfulness-in-different-nations/"><u>Holidays of Thankfulness in Different Nations</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/how-to-record-google-meet-for-2024/"><u>How to Record Google Meet for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-latvian-commit-to-10-daily-minutes/"><u>Jumpstart Your Latvian - Commit to 10 Daily Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/love-around-the-globe-multilingual-expressions-for-valentines-day/"><u>Love Around The Globe: Multilingual Expressions for Valentine's Day</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/start-screen-special-free-editing-tools-for-2024/"><u>Start Screen Special Free Editing Tools for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essential-guide-to-mastering-conversational-skills/"><u>The Essential Guide to Mastering Conversational Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-6-benefits-embracing-arabic-learning-via-mondly-online/"><u>Top 6 Benefits: Embracing Arabic Learning via Mondly Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/whimsical-whispers-seducing-with-spoken-spanish/"><u>Whimsical Whispers: Seducing With Spoken Spanish</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/why-i-wont-switch-to-the-iphone-16-pro-insights-from-an-iphone-14-user-zdnet/"><u>Why I Won't Switch to the iPhone 16 Pro - Insights From an iPhone 14 User | ZDNet</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Introductory Urdu: Fundamental Words & Phrases"
-date: 2025-01-19T16:15:01.022Z
-updated: 2025-01-22T17:28:20.794Z
+date: 2025-01-25T01:31:46.888Z
+updated: 2025-01-29T16:55:43.071Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 [Studies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) have shown that knowing as little as 100 words will help you understand 50% of any text in Urdu. Surprising as it may seem, it’s true. The most common 1,000 words in Urdu will give you a high coverage of 75% of any Urdu text. Isn’t that amazing?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The most common everyday Urdu words
@@ -89,10 +89,6 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * who — _کون (kon)_
 * stop — _رکو (ruko)_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The most popular Urdu words searches
 
  While we’re at it, why not also learn some of the most popular words for which people want an Urdu translation? If they are so popular in searches, I’m sure they can also be useful to you on your way to speaking Urdu.
@@ -116,7 +112,7 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * hope — _امید (umeed)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Urdu words related to food and drink
@@ -124,6 +120,10 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
  Did you know that the [Urdu language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) was one of the premier languages of poetry in South Asia for centuries? And rightly so. Just listen to the music of its words and you’ll understand.
 
 ![words in urdu by Sumeet B©](https://edge.mondly.com/blog/wp-content/uploads/2022/03/words-in-urdu-960x735.jpg "100+ Core Urdu Words – Learn The Most Common Words In Urdu 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meanwhile, let’s add some flavor to your Urdu vocabulary. What are the best words to learn if not the words related to food and drink?
 
@@ -150,6 +150,10 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * sugar — _شکر (shakar)_
 * pepper — _مرچ (mirch)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Urdu words related to body and health
 
  The names of the body parts in Urdu are some of the most basic and useful words you can learn. Whether you are in a clothing store, or at the doctor’s office, various parts of the body can come up in conversation more often than you think.
@@ -174,10 +178,6 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 * pain — _درد (dard)_
 * medicine — _دوا (dawa)_
 * pharmacy — _دواخانہ (dawakhana)_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Urdu words related to transportation and places
 
@@ -231,7 +231,7 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn Urdu in just 10 minutes a day
@@ -263,20 +263,19 @@ thumbnail: https://thmb.techidaily.com/5003aae1e7f947a598bd55077396c6a7704237963
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-blueprint-for-youtube-profitability-via-cpm-strategy/"><u>[Updated] In 2024, The Blueprint for YouTube Profitability via CPM Strategy</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/1726226756915-movavi/"><u>網路無障礙公共直播服務 - MOVAVI</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/delving-into-vllo-user-testimonies/"><u>Delving Into VLLO User Testimonies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/estimating-time-to-language-proficiency-success/"><u>Estimating Time to Language Proficiency Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exclusive-linguistic-journey-mondlys-triumph-2022/"><u>Exclusive Linguistic Journey: Mondly's Triumph, 2022</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expand-horizons-4-compelling-motives-for-adults-learning-languages/"><u>Expand Horizons: 4 Compelling Motives for Adults Learning Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exposing-the-core-of-mondlys-education/"><u>Exposing the Core of Mondly's Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressive-vernacular-understanding-widespread-slang-phrases/"><u>Expressive Vernacular: Understanding Widespread Slang Phrases</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-steps-in-urdu-language-learning/"><u>First Steps in Urdu Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-beginner-to-master-chef-top-8-techniques-for-skillful-home-kitchens/"><u>From Beginner to Master Chef: Top 8 Techniques for Skillful Home Kitchens</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-nokia-c12-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Nokia C12?</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-innovative-tech-voice-changing-apps-reviewed/"><u>In 2024, Innovative Tech Voice-Changing Apps Reviewed</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/innovative-strategies-for-captivating-handc-fb-campaigns/"><u>Innovative Strategies for Captivating H&C FB Campaigns</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-oppo-a1x-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Oppo A1x 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://fox-place.techidaily.com/ultimate-techniques-to-save-and-transform-kathtube-videos-into-various-file-types-including-mp4-mov-avi-flv-or-wmv-easily/"><u>Ultimate Techniques to Save and Transform KathTube Videos Into Various File Types Including MP4, MOV, AVI, FLV or WMV Easily</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixed-ineteresourcenotfound-error/"><u>[Fixed] INET_E_RESOURCE_NOT_FOUND Error</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-discover-the-1-5-editors-perfect-for-your-macos-sierra-setup-for-2024/"><u>[New] Discover the #1-#5 Editors Perfect for Your MacOS Sierra Setup for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-engaging-video-audiences-choosing-impactful-youtube-images/"><u>[New] Engaging Video Audiences Choosing Impactful YouTube Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ise-to-youtube-prominence-top-strategies-at-a-glance-for-2024/"><u>[New] Rise to YouTube Prominence Top Strategies at a Glance for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-enhance-your-projectes-dimensionality-with-3d-text-psx/"><u>2024 Approved Enhance Your Project'es Dimensionality with 3D Text PSX</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exquisite-background-melodies-for-edits/"><u>2024 Approved Exquisite Background Melodies for Edits</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-maximizing-income-sourav-joshis-youtube-journey/"><u>2024 Approved Maximizing Income Sourav Joshi's YouTube Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-journey-through-romantic-language-history/"><u>A Journey Through Romantic Language History</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/adult-brain-growth-the-4-compelling-arguments-for-linguistic-mastery-at-40plus-and-beyond/"><u>Adult Brain Growth: The 4 Compelling Arguments for Linguistic Mastery at 40+ (& Beyond)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cognitive-resilience-the-power-of-multilingualism-at-50plus/"><u>Cognitive Resilience: The Power of Multilingualism at 50+</u></a></li>
+<li><a href="https://common-error.techidaily.com/decrease-your-computers-workload-combating-high-resource-demand-by-wudfhostexe-on-windows-fixed/"><u>Decrease Your Computer's Workload: Combating High Resource Demand by WUDFHost.exe on Windows ([Fixed])</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-languages-in-a-virtual-world-mondlys-latest-innovation/"><u>Master Multiple Languages in a Virtual World - Mondly's Latest Innovation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-meets-social-dynamics-in-vr-worlds/"><u>Multilingual Mastery Meets Social Dynamics in VR Worlds</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-stylus-tablet-reviews-comprehensive-evaluation-by-tech-gurus-zdnet/"><u>Top Rated Stylus Tablet Reviews - Comprehensive Evaluation by Tech Gurus | ZDNet</u></a></li>
 </ul></div>
 

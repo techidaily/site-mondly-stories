@@ -1,7 +1,7 @@
 ---
 title: "Mondly Mastery: Your Complete User Manual"
-date: 2024-09-14T19:38:02.496Z
-updated: 2024-09-21T19:21:38.553Z
+date: 2025-01-25T19:08:05.433Z
+updated: 2025-01-29T19:28:54.325Z
 tags:
   - speak
   - english
@@ -29,11 +29,19 @@ thumbnail: https://thmb.techidaily.com/ae11f135f58753564eec93a4a8d775f2e6a724fb4
 
  And that’s not everything! Mondly also offers separate apps for learning languages in virtual reality (Mondly VR), augmented reality (Mondly AR) and a dedicated app for kids aged 5 to 12.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to set up your account in the iOS/Android app
 
 ### 1\. Download and open Mondly
 
 ![mondly learn languages](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-learn-languages.jpg "Here’s How To Use Mondly And Get The Best Out Of It 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The Mondly Android app as seen on a Samsung Galaxy S10.
 
@@ -79,6 +87,10 @@ thumbnail: https://thmb.techidaily.com/ae11f135f58753564eec93a4a8d775f2e6a724fb4
 
 ![mondly sign up](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-sign-up.jpg "Here’s How To Use Mondly And Get The Best Out Of It 7")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Signing up will help you save your progress.
 
  To create an account, tap on the profile icon in the upper left corner of the “**Categories”** section (the “map” screen) and then**“Sign up”** .
@@ -108,29 +120,19 @@ thumbnail: https://thmb.techidaily.com/ae11f135f58753564eec93a4a8d775f2e6a724fb4
 
 ![language lessons](https://edge.mondly.com/blog/wp-content/uploads/2019/12/language-lessons-1.jpg "Here’s How To Use Mondly And Get The Best Out Of It 9")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  After “Categories”, the next section you can explore is “Lessons”.
 
  Tap on the**“Lessons”** section to see an overview of each lesson – including how much time you’ve spent on it, what’s the completion percentage, how many stars you’ve earned or how many lessons are left in the topic.
 
  Additionally, **if you want to learn something on a specific subject, you can use the “search” feature to choose your favorite topics.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\. View statistics
 
 ![learning statistics](https://edge.mondly.com/blog/wp-content/uploads/2019/12/learning-statistics-1.jpg "Here’s How To Use Mondly And Get The Best Out Of It 10")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Tap “Statistics” to see how much you’ve progressed.
 
@@ -154,6 +156,10 @@ Open your web browser and access <www.mondly.com>.
 
 ![mondly website](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-website-1-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 12")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The Mondly homepage.
 
 ### 2\. Select your native language
@@ -168,13 +174,6 @@ Open your web browser and access <www.mondly.com>.
 
 ![mondly select language](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-select-language-2-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 14")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Choose one of the 33 languages available.
 
  Click on the dropdown menu under**“I want to learn”** , choose the language you want to learn and then click**“Start learning”** to begin your learning journey with Mondly.
@@ -184,6 +183,10 @@ Open your web browser and access <www.mondly.com>.
  Complete the brief tutorial by following the instructions, then click**“Continue”.**
 
 ![mondly tutorial](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-tutorial-2-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 15")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  After you’ve completed the tutorial, click “Continue”.
 
@@ -207,6 +210,10 @@ Now you ready to learn!
 
 ![mondly web settings](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-web-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 17")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Click on “Settings” in the upper right corner or on the profile icon in the upper left corner.
 
  To change your settings, click on**“Settings”** in the upper right corner of the**“Categories”** section (the “map” screen) or on the profile icon in the upper left corner of the same section. Here you can:
@@ -221,13 +228,6 @@ Now you ready to learn!
 ![mondly web language settings](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-web-language-settings-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 18")
 
  All your settings in one place.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7\. View statistics, lesson progress, and compete with the best
 
@@ -250,6 +250,10 @@ Now you ready to learn!
  Moreover, to quickly recap all the words you’ve learned along the way, tap on the colored nodes on the brain diagram. Once you find a word or phrase you’d like to review, click again to see its translation and hear the correct pronunciation.
 
 ![mondly web statistics](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-web-statistics-1-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 21")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Go to “Statistics” to see how many words and phrases you’ve learned.
 
@@ -286,13 +290,6 @@ Now you ready to learn!
 ![conversation vocabulary](https://edge.mondly.com/blog/wp-content/uploads/2019/12/conversation-vocabulary.jpg "Here’s How To Use Mondly And Get The Best Out Of It 25")
 
  Practice what you’ve learned in the topic with a dedicated conversation and a vocabulary lesson.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Tips and tricks to help you get the best out of Mondly
 
@@ -344,11 +341,19 @@ Now you ready to learn!
 
  Of course, you’ll have to stick to the topic, but we strongly encourage you to get creative and come up with different answers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Get Mondly AR and have even more fun learning
 
  Do you like magic? We do too! That is why we created Mondly AR, an out-of-this-world learning experience that brings real-life animals and objects into your home to make lessons unforgettable.
 
 ![mondly ar](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-ar-1.jpg "Here’s How To Use Mondly And Get The Best Out Of It 31")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Watch the savannah unfold in your living room with Mondly AR.
 
@@ -412,5 +417,21 @@ Now you ready to learn!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-uncover-the-secret-to-extra-instagram-filters-for-zero-cost/"><u>[Updated] In 2024, Uncover the Secret to Extra Instagram Filters for Zero Cost</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-sending-streaming-content-linking-fb-vids-and-whatsapp-messages/"><u>[Updated] Sending Streaming Content Linking FB Vids & WhatsApp Messages</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-take-flight-with-social-media-dji-drone-streaming-basics/"><u>[Updated] Take Flight with Social Media DJI Drone Streaming Basics</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-capabilities-of-claude-3-an-in-depth-overview/"><u>Exploring the Capabilities of Claude 3: An In-Depth Overview</u></a></li>
+<li><a href="https://extra-information.techidaily.com/from-silence-to-sounds-windows-10-recorder-use/"><u>From Silence to Sounds Windows 10 Recorder Use</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/latin-adventures-interactive-and-lively-teaching/"><u>Latin Adventures: Interactive & Lively Teaching</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/playful-persuasion-the-best-choice-of-pickup-line-tactics/"><u>Playful Persuasion: The Best Choice of Pickup Line Tactics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-start-learn-urdu-every-day/"><u>Quick Start: Learn Urdu, Every Day</u></a></li>
+<li><a href="https://program-issues.techidaily.com/stay-underwater-longer-effective-solutions-to-stop-subnautica-on-pc-from-crashing/"><u>Stay Underwater Longer: Effective Solutions to Stop Subnautica on PC From Crashing</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-art-of-instagram-live-broadcasting-made-simple-via-obs-for-2024/"><u>The Art of Instagram Live Broadcasting Made Simple via OBS for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/turkish-and-korean-exploring-the-language-mysteryback-buttonfilter-button/"><u>Turkish And Korean: Exploring The Language MysteryBack ButtonFilter Button</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-steps-to-reboot-your-samsung-television/"><u>Ultimate Guide: Steps to Reboot Your Samsung Television</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-breeze-simplified-language-mastery-rankings/"><u>Universal Breeze: Simplified Language Mastery Rankings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gnwsh-glwttothpeioy-paradoseis-eyxethmatos/"><u>Γνώση Γλωττοτηπειού Παραδόσεις Ευχετήματος</u></a></li>
+</ul></div>
 

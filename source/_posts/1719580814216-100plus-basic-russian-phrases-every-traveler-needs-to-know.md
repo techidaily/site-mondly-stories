@@ -1,7 +1,7 @@
 ---
 title: 100+ Basic Russian Phrases Every Traveler Needs to Know
-date: 2024-09-16T16:12:03.431Z
-updated: 2024-09-21T17:50:31.396Z
+date: 2025-01-29T05:04:58.998Z
+updated: 2025-01-29T23:33:38.828Z
 tags:
   - speak
   - english
@@ -35,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/0232d564f9edec1eb792bb4bc9c0ce9205dc45825
 7. [Basic Russian phrases for shopping sprees](#basic-russian)
 8. [Russia Travel Guide – how to say that you have fallen in love?](#russia-travel-guide)
 9. [Bonus basic Russian phrases for FIFA World Cup 2018](#russian-phrases-world-cup)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Greetings and other useful Russian words
 
@@ -80,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/0232d564f9edec1eb792bb4bc9c0ce9205dc45825
 
 ![useful russian phrases scaled](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-phrases-scaled-640x960.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Photo by Tom Barrett
 
 * Is the flight delayed? –_Рейс откладывается? – Reys otkladyvayetsya?_
@@ -120,13 +128,6 @@ thumbnail: https://thmb.techidaily.com/0232d564f9edec1eb792bb4bc9c0ce9205dc45825
 * I’ll be back immediately. –_Я скоро вернусь. – Ya skoro vernus._
 * Drive me to this address. –_Отвезите меня по этому адресу. – Otvezite menya po etomu adresu_ .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Advanced Russian phrases for different hotel situations
 
  Staying at a hotel/hostel requires interaction with the staff – most of the time. If you don’t want to waste your time searching English to Russian translations on Google, make sure to learn some basic Russian that will help you to better express your needs.
@@ -140,13 +141,6 @@ thumbnail: https://thmb.techidaily.com/0232d564f9edec1eb792bb4bc9c0ce9205dc45825
 * How was your stay with us? –_Надеюсь, вы были всем довольны? – Nadeyus, vy byli vsem dovolny?_
 * Very pleasant, thank you. –_Всё было замечательно, спасибо. – Vsyo bylo zamechatelno, spasibo._
 * Here is your bill, please look it over. – _Вот ваш счёт, проверьте пожалуйста. – Vot vash schot, proverte pozhaluysta._
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Learn Russian to experience the local cuisine
 
@@ -176,19 +170,6 @@ thumbnail: https://thmb.techidaily.com/0232d564f9edec1eb792bb4bc9c0ce9205dc45825
 * I would like a soup. –_Я хотел бы суп. Ya hotel by sup._
 
 ![useful-russian-words](https://edge.mondly.com/blog/wp-content/uploads/2018/07/useful-russian-words-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 7")
-
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Photo by Henrique Félix
 
@@ -222,6 +203,10 @@ Just joking. Still is an amazing drink, though!
 * Let’s have some fun. –_Повеселимся! – Poveselimsya!_
 * Are there seats available? –_Ещё остались свободные места? – Yeshcho ostalis svobodnyye mesta?_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Basic Russian phrases for shopping sprees
 
  This is the cruelest drudgery our loved ones from home put us through while on holiday. _Should I buy a matryoshka doll? Or some vodka? Maybe a refrigerator magnet? But when? What if I don’t buy anything? Will they hate me for life?_ Funny or not, these are all questions that haunt us while on holiday. The best solution? Schedule two hours tops and just get it over with. The same way you would do with a bandage.
@@ -232,10 +217,7 @@ Just joking. Still is an amazing drink, though!
 ![basic-russian](https://edge.mondly.com/blog/wp-content/uploads/2018/07/bassic-russian-1024x683.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 9")
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Photo by Alina Grubnyak
@@ -244,6 +226,10 @@ Just joking. Still is an amazing drink, though!
 * Can I have a receipt? –_Дайте мне, пожалуйста, чек. – Dayte mne, pozhaluysta, chek._
 * What would you like? –_Что вы предпочитаете? – Chto vy predpochitayete?_
 * Can I have some ice cream? –_Можно мне мороженого? – Mozhno mne morozhenogo?_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Russia Travel Guide – how to say that you have fallen in love?
 
@@ -274,6 +260,10 @@ Just joking. Still is an amazing drink, though!
 ## Bonus: Basic Russian phrases for football lovers
 
 ![russian-phrases-world-cup](https://edge.mondly.com/blog/wp-content/uploads/2018/07/russian-phrases-world-cup-1024x576.jpg "100+ Basic Russian Phrases Every Traveler Needs To Know 11")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Photo by Fauzan Saari
 
@@ -311,5 +301,19 @@ Just joking. Still is an amazing drink, though!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-effortless-webcam-recording-with-vlc-streaming-capabilities/"><u>[New] In 2024, Effortless Webcam Recording with VLC Streaming Capabilities</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-comparing-streams-vimeo-versus-youtube/"><u>[Updated] 2024 Approved Comparing Streams Vimeo Versus YouTube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-enhanced-visual-content-incorporate-bb-overlays-in-fb-video-frames/"><u>2024 Approved Enhanced Visual Content Incorporate BB Overlays in FB Video Frames</u></a></li>
+<li><a href="https://techtrends.techidaily.com/easy-fixes-for-when-normalizdll-is-unavailable-or-lost-on-your-pc/"><u>Easy Fixes for When Normaliz.dll Is Unavailable or Lost on Your PC</u></a></li>
+<li><a href="https://fox-that.techidaily.com/effective-strategies-to-prevent-and-fix-robloxs-memory-warning-on-iphones/"><u>Effective Strategies to Prevent and Fix Roblox's Memory Warning on iPhones</u></a></li>
+<li><a href="https://win-blog.techidaily.com/gta-5-online-glitches-expert-solutions-to-get-you-back-in-action/"><u>GTA 5 Online Glitches? Expert Solutions to Get You Back in Action</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/kinder-to-grade-school-in-spanish-a-kids-journey/"><u>Kinder to Grade School in Spanish: A Kid's Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-liberation-mondlys-no-cost-offering-awaits-ukraines-learners/"><u>Language Learning Liberation: Mondly's No-Cost Offering Awaits Ukraine's Learners</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-the-ultimate-compilation-of-costless-peak-quality-audio-apps-for-ios-and-android/"><u>New 2024 Approved The Ultimate Compilation of Costless, Peak-Quality Audio Apps for iOS and Android</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-roadmap-to-korean-mastery-selecting-your-best-resources/"><u>The Roadmap to Korean Mastery: Selecting Your Best Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-in-british-conversation-a-reference-guide/"><u>Thriving in British Conversation: A Reference Guide</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-rated-vr-equipment-for-meta-quest-3-2024s-must-have-add-ons/"><u>Top-Rated VR Equipment for Meta Quest 3 - 2024'S Must-Have Add-Ons</u></a></li>
+</ul></div>
 

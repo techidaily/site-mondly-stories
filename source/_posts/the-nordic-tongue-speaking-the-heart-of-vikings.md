@@ -1,7 +1,7 @@
 ---
 title: "The Nordic Tongue: Speaking the Heart of Vikings"
-date: 2024-09-13T20:08:48.709Z
-updated: 2024-09-16T19:04:04.786Z
+date: 2025-01-27T00:55:47.349Z
+updated: 2025-01-29T16:40:49.453Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/15a61f0827860e342a65d573fdf8ef935cbe188b5
 
 ![viking ragnar](https://media.giphy.com/media/rR6m3deXOpHP2/giphy.gif "What Language Did Vikings Speak? 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Did Vikings speak Old English?
 
  First, let’s address the elephant in the room.**Did Vikings speak English?** No, Modern English didn’t even exist at the time. As pop culture explores the Viking age more and more, it’s only natural that you’d ask yourself that. After all, Ragnar Lothbrok did speak English fluently in the acclaimed TV show_Vikings_ .
@@ -32,7 +36,15 @@ thumbnail: https://thmb.techidaily.com/15a61f0827860e342a65d573fdf8ef935cbe188b5
 
 ![Vikings english](https://media.giphy.com/media/V5474zfp6NveE/giphy.gif "What Language Did Vikings Speak? 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To tell you the truth, Vikings did not typically speak Old English. Old English was spoken by the Anglo-Saxons, who lived in England at the same time as the Vikings. However, **it is possible that some Vikings who settled in England may have learned to speak Old English.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What language did Vikings speak?
 
@@ -43,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/15a61f0827860e342a65d573fdf8ef935cbe188b5
  Because Vikings were travelers, it is safe to assume they were multilingual. In some instances, Vikings spoke both Old Norse and the language of their relocated territory. Everywhere they went, Vikings brought their language with them. This is how, over generations, Old Norse influenced and blended with local languages. Place names in Britain and numerous other words stand proof of this.
 
  In spite of everything,**Old Norse is still considered the primary Viking language.** If you watched_The Northman_ , you must have heard it in songs and ritual settings. Apparently, they didn’t have the budget to make the entire movie in Old Norse. It does sound fittingly Viking, doesn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Old Norse: the Viking language
 
@@ -64,19 +80,6 @@ thumbnail: https://thmb.techidaily.com/15a61f0827860e342a65d573fdf8ef935cbe188b5
 
 So yeah, you can learn Old Norse if you want to.
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Is Old Norse still spoken?
 
  Old Norse is not spoken as a living language today. However, there are people who study Old Norse and speak it fluently.
@@ -84,6 +87,10 @@ So yeah, you can learn Old Norse if you want to.
  As noted previously, modern Icelandic is the most similar modern language to Old Norse. For this reason, it is considered that spending time with Icelanders can offer a glimpse into this ancient language’s contemporary iteration.
 
  Furthermore, Old Norse is still with us through the multitude of words that were borrowed into English. Some examples of Old Norse words in English are gift (_gift_), husband (_húsbóndi_), cake (_kaka_), egg (_egg_), anger (_angr_), arm (_armr_). And these are just a few. The list could go on for a while.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What language did Vikings write in?
 
@@ -97,13 +104,6 @@ So yeah, you can learn Old Norse if you want to.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Learn the Scandinavian languages fast
 
@@ -134,5 +134,24 @@ So yeah, you can learn Old Norse if you want to.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-navigating-the-viral-terrain-with-smart-instagram-video-tactics/"><u>[Updated] In 2024, Navigating the Viral Terrain with Smart Instagram Video Tactics</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-the-free-guide-to-conducting-flawless-google-meet-sessions/"><u>[Updated] In 2024, The Free Guide to Conducting Flawless Google Meet Sessions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-digital-experts-5-favorite-video-recorders/"><u>2024 Approved Digital Experts' 5 Favorite Video Recorders</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/antonis-at-127-antenna-review-experience-unparalleled-television-viewing-with-our-sleek-free-digital-broadcast-receiver/"><u>ANTONIS At-127 Antenna Review: Experience Unparalleled Television Viewing With Our Sleek, Free Digital Broadcast Receiver</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-fluent-in-swedish-script-and-sounds-speedily/"><u>Get Fluent in Swedish Script & Sounds Speedily</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-latest-logitech-brio-camera-drivers-for-windows-10-and-11-users/"><u>Get the Latest Logitech BRIO Camera Drivers for Windows 10 and 11 Users</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/intel-nvme-drives-secure-download-for-swift-setup-experience/"><u>Intel® NVMe Drives: Secure Download for Swift Setup Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-in-dialect-the-detailed-dissection-of-spanish-and-portuguese/"><u>Language in Dialect: The Detailed Dissection of Spanish & Portuguese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/start-chatting-across-cultures-at-just-475-percent-more/"><u>Start Chatting Across Cultures at Just 4.75 Percent More!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/this-is-the-best-way-to-learn-finnish-online/"><u>This Is the Best Way to Learn Finnish Online</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-rated-mobile-video-editors-for-ios-and-android-for-2024/"><u>Top-Rated Mobile Video Editors for iOS & Android for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/transformez-votre-contenu-video-en-le-perfectionnant-grace-a-winxvideo-ai/"><u>Transformez Votre Contenu Vidéo en Le Perfectionnant Grâce À Winxvideo AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transforming-online-language-lessons-into-a-real-world-experience-mondly-vr-app/"><u>Transforming Online Language Lessons Into a Real-World Experience - Mondly VR App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/trio-of-excellent-online-centers-for-quick-language-acquisition/"><u>Trio of Excellent Online Centers for Quick Language Acquisition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voyage-through-vietnam-a-language-primer/"><u>Voyage Through Vietnam: A Language Primer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-guide-to-croatian-proficiency-understand-these-7-advantages/"><u>Your Guide to Croatian Proficiency: Understand These 7 Advantages!</u></a></li>
+</ul></div>
 

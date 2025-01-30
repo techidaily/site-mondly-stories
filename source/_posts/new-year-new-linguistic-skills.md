@@ -1,7 +1,7 @@
 ---
 title: New Year, New Linguistic Skills!
-date: 2025-01-16T17:15:58.395Z
-updated: 2025-01-22T17:13:52.975Z
+date: 2025-01-28T01:28:34.040Z
+updated: 2025-01-29T21:13:57.338Z
 tags:
   - speak
   - english
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
  The success of New Year’s resolutions varies greatly. For some, they serve as a beneficial source of motivation for instigating positive transformations, while others may encounter difficulties maintaining their resolutions over the long term. The key to successful New Year’s resolutions often lies in setting realistic, specific, and achievable goals, accompanied by a well-structured plan to follow through on them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## SMART Goals for Language Learning
 
  Our biggest problem when setting New Year’s resolutions is our apparent inability to regard each resolution as a**SMART goal** (Specific, Measurable, Achievable, Relevant, Time-bound). For example, a faulty resolution could be “I want to learn a new language this year”. That’s not enough to motivate you.
@@ -39,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 ![language learning 2024](https://edge.mondly.com/blog/wp-content/uploads/2019/01/language-learning-2024-600x600.png "New Year, New Language: Your New Year Aspirations 5")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### A SMART Goal is
@@ -56,10 +60,6 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
  Why should learning a new language be included in your New Year’s resolutions list? Because language learning is [good for your brain](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . According to multiple studies, the benefits for your cognitive health and well-being are undeniable.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Cognitive Benefits
 
  Your brain is like a muscle: train it now, and you will enjoy the health benefits later. And learning a second or a third language is a great way of training your brain – especially if you are not a student anymore and the information flow is not as good as it used to be. More precisely, various studies have shown that learning a new language is directly linked to a slower rate of mental decline in patients with [Alzheimer’s](https://www.dailymail.co.uk/health/article-5363123/Learning-language-protect-ALZHEIMERS.html) disease and [dementia prevention](https://www.telegraph.co.uk/news/science/science-news/12156709/Students-should-learn-second-language-to-prevent-dementia-in-later-life.html) .
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
  Moreover, language learning will give a great boost to your memory. In fact, it can increase the size of your brain! This is what [Swedish scientists discovered](https://www.theguardian.com/education/2014/sep/04/what-happens-to-the-brain-language-learning) when they used brain scans to monitor what happens when someone learns a second language.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Mental Well-Being Benefits
@@ -83,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2519&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2519&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2519%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Economic Advantages of Language Learning
@@ -96,6 +96,10 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 * **Easier business travel:** Language proficiency enables professionals to communicate effectively and build stronger relationships with their local partners and clients and better navigate unfamiliar environments.
 
 ![personal growth](https://edge.mondly.com/blog/wp-content/uploads/2019/01/personal-growth-960x704.jpg "New Year, New Language: Your New Year Aspirations 7")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Top 5 To-Do’s for Learning a New Language
 
@@ -117,10 +121,6 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## New Year, New Language
 
@@ -152,16 +152,24 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-tactical-video-takedown-a-guide-to-judging-ownership-and-opposition/"><u>[Updated] Tactical Video Takedown A Guide to Judging Ownership and Opposition</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-video-traffic-triumph-key-youtube-seo-tools/"><u>[Updated] Video Traffic Triumph - Key YouTube SEO Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/10-reasons-why-learning-a-foreign-language-will-change-your-life/"><u>10 Reasons Why Learning A Foreign Language Will Change Your Life</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/5-hidden-benefits-that-extend-beyond-communication/"><u>5 Hidden Benefits That Extend Beyond Communication</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-guide-to-selecting-6-premium-live-audio-devices/"><u>In 2024, Ultimate Guide to Selecting 6 Premium Live Audio Devices</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-uploading-youtube-vids-seamlessly-on-instagram/"><u>In 2024, Uploading YouTube Vids Seamlessly on Instagram</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/los-mejores-programas-gratuitos-para-modificar-archivos-pdf-en-windows-su-guia-definitiva/"><u>Los Mejores Programas Gratuitos Para Modificar Archivos PDF en Windows - Su Guía Definitiva</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/page-unavailable-what-to-do-when-you-encounter-a-404-error/"><u>Page Unavailable: What to Do When You Encounter a 404 Error</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-world-of-arabic-beckons-unveil-the-6-best-online-learning-reasons-through-mondly/"><u>The World of Arabic Beckons! Unveil the 6 Best Online Learning Reasons Through Mondly</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-tongues-of-terra-firma/"><u>Top Tongues of Terra Firma</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/vrijwelke-verwerking-van-mxf-in-mpg-format-expertise-onlines-met-movavi-gebruikersvriendelijke-oplichters/"><u>Vrijwelke Verwerking Van MXF in MPG Format - Expertise Onlines Met Movavi Gebruikersvriendelijke Oplichters</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-immerse-in-pixel-worlds-the-best-pc-vr-playback-titles-compared/"><u>[New] 2024 Approved Immerse in Pixel Worlds The Best PC VR Playback Titles Compared</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-channel-expansion-via-youtube-outros-maximizing-visibility-for-2024/"><u>[New] Channel Expansion via YouTube Outros Maximizing Visibility for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-revolutionizing-photos-through-automated-hdr-techniques/"><u>[New] Revolutionizing Photos Through Automated HDR Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-harness-10-tools-to-grab-youtube-images-online/"><u>[Updated] 2024 Approved Harness 10 Tools to Grab YouTube Images Online</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-masterclass-in-capturing-video-frames/"><u>[Updated] 2024 Approved Masterclass in Capturing Video Frames</u></a></li>
+<li><a href="https://games-able.techidaily.com/6-unique-methods-for-playing-on-your-ps5-console/"><u>6 Unique Methods for Playing on Your PS5 Console</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bush-bandy-speak-learn-local-sayings-quickly/"><u>Bush Bandy Speak: Learn Local Sayings Quickly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captivating-hearts-in-italian-the-art-of-poetic-pick-up-lines/"><u>Captivating Hearts in Italian: The Art of Poetic Pick Up Lines</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-dialogue-dive-into-culture-in-mondly-vr/"><u>Dive Into Dialogue, Dive Into Culture in Mondly VR</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-downloads-and-updates-keeping-your-nvidia-geforce-mx1-50-card-running-smoothly-on-windows-os/"><u>Easy Downloads & Updates: Keeping Your Nvidia GeForce MX1 50 Card Running Smoothly on Windows OS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-oculus-quest-interaction-via-multilingual-mondly/"><u>Enhanced Oculus Quest Interaction via Multilingual Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmony-heard-multilingual-fourth-glee/"><u>Harmony Heard: Multilingual Fourth Glee</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-itel-p40plus-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Itel P40+ to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-vivo-y55s-5g-2023-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Vivo Y55s 5G (2023) without App | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-of-the-croatian-people/"><u>Languages of the Croatian People</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/measuring-video-storage-space-64128gb-hard-drive-analysis/"><u>Measuring Video Storage Space - 64/128GB Hard Drive Analysis</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-love-across-languages-overcoming-communication-gaps/"><u>Navigating Love Across Languages: Overcoming Communication Gaps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/norges-language-leap-10-minute-magic/"><u>Norge's Language Leap - 10-Minute Magic!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/picking-the-ideal-next-language-quest/"><u>Picking The Ideal Next-Language Quest</u></a></li>
 </ul></div>
 

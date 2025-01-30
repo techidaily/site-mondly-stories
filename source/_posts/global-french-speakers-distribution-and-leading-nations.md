@@ -1,7 +1,7 @@
 ---
 title: "Global French Speakers: Distribution & Leading Nations"
-date: 2024-09-11T17:28:01.581Z
-updated: 2024-09-16T20:14:17.044Z
+date: 2025-01-29T03:21:12.086Z
+updated: 2025-01-29T16:21:04.060Z
 tags:
   - speak
   - english
@@ -44,6 +44,14 @@ thumbnail: https://thmb.techidaily.com/4cec3aa1742a3433211bae608e6076ab0be167115
 
 ![how many people speak french](https://edge.mondly.com/blog/wp-content/uploads/2022/10/how-many-people-speak-french-960x600.jpg "Top French-Speaking Countries | How Many People Speak French? 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### French-speaking countries in Europe
 
  Since France is the parental home of the French language, we figured it’s best to start with Europe. Boasting a rough total of 80 million French speakers, Europe counts for around 40% of the total number of worldwide francophones. This makes French the 3rd most spoken native language in Europe.
@@ -56,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/4cec3aa1742a3433211bae608e6076ab0be167115
 * Monaco — 97%
 * Switzerland — 67%
 * Italy — 20% (French is the official language of the autonomous region of the Aosta Valley)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### French-speaking countries in Africa
 
@@ -97,13 +109,6 @@ Needless to say, the only French-speaking country in North America is:
 
 * Canada — 29% (percentage of the entire population speaking French).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### French-speaking countries in the Caribbean
 
 We told you that French speakers could be found everywhere in the world!
@@ -115,10 +120,7 @@ We told you that French speakers could be found everywhere in the world!
 !['French speakers' by Claudia Altamimi©](https://edge.mondly.com/blog/wp-content/uploads/2022/10/french-speakers-960x720.jpg "Top French-Speaking Countries | How Many People Speak French? 5")
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### French-speaking countries in Oceania
@@ -132,10 +134,7 @@ We told you that French speakers could be found everywhere in the world!
  Later, in the 1880s, France and the United Kingdom claimed parts of the archipelago and they agreed to manage it jointly. However, an independence movement arose in the 1970s, and the Republic of Vanuatu was founded in 1980\. And that’s the story of how the French language made it all the way to Australia.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Countries where French is spoken although it’s not an official language
@@ -192,5 +191,20 @@ We told you that French speakers could be found everywhere in the world!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-secrets-to-successful-live-sessions-obs-and-streaming-platforms/"><u>[Updated] Secrets to Successful Live Sessions OBS and Streaming Platforms</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-vivo-v30-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/adjusting-audio-preferences-via-control-panel-a-step-by-step-guide-with-yl-computing/"><u>Adjusting Audio Preferences via Control Panel: A Step-by-Step Guide with YL Computing</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-honor-x8b-by-fonelab-android-recover-messages/"><u>How To Restore Missing Messages Files from Honor X8b</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unraveling-lightrooms-potential-on-android-devices/"><u>In 2024, Unraveling Lightroom's Potential on Android Devices</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/limiting-removable-storage-on-windows-without-compromise/"><u>Limiting Removable Storage on Windows Without Compromise</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/record-screen-and-upload-to-youtube-pc-mac-online-for-2024/"><u>Record Screen and Upload to YouTube [PC, Mac, Online] for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/rectify-fb-video-anomaly-with-personal-visage-for-2024/"><u>Rectify FB Video Anomaly with Personal Visage for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reflecting-on-10-years-mondlys-odyssey/"><u>Reflecting on 10 Years: Mondly's Odyssey</u></a></li>
+<li><a href="https://os-tips.techidaily.com/step-by-step-tutorial-on-extracting-and-printer-friendly-converting-iphones-imessages-for-hardcopy-printouts/"><u>Step-by-Step Tutorial on Extracting and Printer Friendly Converting iPhone's iMessages for Hardcopy Printouts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/streamlined-privacy-policy-now-available/"><u>Streamlined Privacy Policy Now Available</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vielfalt-in-der-deutschen-sprache-grusselworter-ohne-hallo/"><u>Vielfalt in Der Deutschen Sprache: Grüßelwörter Ohne Hallo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/weekday-wisdom-discovering-the-layers-of-korean-culture/"><u>Weekday Wisdom: Discovering the Layers of Korean Culture</u></a></li>
+</ul></div>
 

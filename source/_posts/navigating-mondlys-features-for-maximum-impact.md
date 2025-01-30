@@ -1,7 +1,7 @@
 ---
 title: Navigating Mondly's Features for Maximum Impact
-date: 2025-01-19T17:00:44.784Z
-updated: 2025-01-22T16:16:49.735Z
+date: 2025-01-26T20:26:18.981Z
+updated: 2025-01-29T17:58:05.478Z
 tags:
   - speak
   - english
@@ -42,10 +42,6 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 ### 2\. Select your native language
 
 ![mondly native language](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-native-language.jpg "Here’s How To Use Mondly And Get The Best Out Of It 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  With Mondly, you can learn 33 languages from 33 languages.
 
@@ -93,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 
  **Now you are free to log in on multiple different devices without ever losing your progress.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. Change your settings
 
  To change your settings, tap on the profile icon in the upper left corner of the**“Categories”** section (the “map” screen). Here you can:
@@ -122,11 +122,19 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 
 ![learning statistics](https://edge.mondly.com/blog/wp-content/uploads/2019/12/learning-statistics-1.jpg "Here’s How To Use Mondly And Get The Best Out Of It 10")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Tap “Statistics” to see how much you’ve progressed.
 
  Tap on the**“Statistics”** section to see how many words and phrases you’ve mastered, how much time you’ve spent learning and what is the number of consecutive days in which you’ve accessed the app.
 
  Moreover, to quickly recap all the words you’ve learned along the way, tap on the colored nodes on the brain diagram. Once you find a word or phrase you’d like to review, tap again to see its translation and hear the correct pronunciation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 10\. Compete with the best
 
@@ -137,6 +145,10 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
  Go to the**“Leaderboard”** section to see your rank in the national and international tops, add your friends and compete with each other.
 
 ## How to set up your account in the web app
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Go to the Mondly website
 
@@ -161,10 +173,6 @@ Open your web browser and access <www.mondly.com>.
  Choose one of the 33 languages available.
 
  Click on the dropdown menu under**“I want to learn”** , choose the language you want to learn and then click**“Start learning”** to begin your learning journey with Mondly.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Start tutorial
 
@@ -194,6 +202,10 @@ Now you ready to learn!
 
 ![mondly web settings](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-web-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 17")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Click on “Settings” in the upper right corner or on the profile icon in the upper left corner.
 
  To change your settings, click on**“Settings”** in the upper right corner of the**“Categories”** section (the “map” screen) or on the profile icon in the upper left corner of the same section. Here you can:
@@ -208,6 +220,10 @@ Now you ready to learn!
 ![mondly web language settings](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-web-language-settings-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 18")
 
  All your settings in one place.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. View statistics, lesson progress, and compete with the best
 
@@ -231,6 +247,10 @@ Now you ready to learn!
 
 ![mondly web statistics](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-web-statistics-1-1024x508.jpg "Here’s How To Use Mondly And Get The Best Out Of It 21")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Go to “Statistics” to see how many words and phrases you’ve learned.
 
  Go to the “Leaderboard” section at the bottom of the page to see your rank in the national and international tops, add your friends and compete with each other.
@@ -242,10 +262,6 @@ Now you ready to learn!
 ## How to start learning languages with Mondly
 
  There’s nothing easier! Just choose one of the 40 topics Mondly offers and then a lesson.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Choose a topic
 
@@ -268,6 +284,10 @@ Now you ready to learn!
  **Each and every one of the 40 topics in Mondly has a given number of general lessons, a vocabulary lesson and a conversation module where you can speak and practice what you’ve learned.**
 
 ![conversation vocabulary](https://edge.mondly.com/blog/wp-content/uploads/2019/12/conversation-vocabulary.jpg "Here’s How To Use Mondly And Get The Best Out Of It 25")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Practice what you’ve learned in the topic with a dedicated conversation and a vocabulary lesson.
 
@@ -293,6 +313,10 @@ Now you ready to learn!
 
 ![verb-conjugator](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-verb-conjugator.jpg "Here’s How To Use Mondly And Get The Best Out Of It 27")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Explore verb conjugations with Mondly.
 
 ### 3\. Use “Review” to quickly recap what you’ve learned
@@ -301,10 +325,6 @@ Now you ready to learn!
 
 ![lesson review](https://edge.mondly.com/blog/wp-content/uploads/2019/12/lesson-review-1.jpg "Here’s How To Use Mondly And Get The Best Out Of It 28")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Quickly recap what you’ve learned in every lesson.
 
 ### 4\. Use**“Search” to l** earn more about your favorite topics
@@ -312,10 +332,6 @@ Now you ready to learn!
  Want to learn more about a specific topic? Go to the**“Lessons”** section and use the**“Search”** bar to find the topics you are interested in.
 
 ![search lessons](https://edge.mondly.com/blog/wp-content/uploads/2019/12/search-lessons.jpg "Here’s How To Use Mondly And Get The Best Out Of It 29")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Want to learn more phrases with the word “dog”? Then search for “dog”.
 
@@ -349,19 +365,11 @@ Now you ready to learn!
 
  You can gain more points with Weekly Quizzes and Monthly Challenges.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8\. Turn “Auto play voice” off to increase the difficulty of the exercises
 
  To mute the audio and increase the difficulty of the exercises, turn off the**“Auto play voice”** option.
 
 ![lesson difficulty](https://edge.mondly.com/blog/wp-content/uploads/2019/12/lesson-difficulty.jpg "Here’s How To Use Mondly And Get The Best Out Of It 33")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 9\. Go Premium and gain access to over 2,000 Daily Lessons
 
@@ -369,11 +377,11 @@ Now you ready to learn!
 
 ![mondly daily lessons](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-daily-lessons.jpg "Here’s How To Use Mondly And Get The Best Out Of It 34")
 
- Challenge yourself and complete them all.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Challenge yourself and complete them all.
 
 ### 10\. Pursue new job opportunities by learning specialized language
 
@@ -381,18 +389,10 @@ Now you ready to learn!
 
 ![mondly specialized courses](https://edge.mondly.com/blog/wp-content/uploads/2019/12/mondly-specialized-courses.jpg "Here’s How To Use Mondly And Get The Best Out Of It 35")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhow-to-use-mondly-get-the-best-out-of-it%2F&t=Here%E2%80%99s+How+to+Use+Mondly+and+Get+the+Best+Out+of+It "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### With Mondly, you can learn a new language in just 5 minutes a day
 
@@ -419,22 +419,22 @@ Now you ready to learn!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/et-going-on-youtube-video-upload-tutorial-in-premiere/"><u>[New] Get Going on YouTube Video Upload Tutorial in Premiere</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-seamless-download-experience-top-8-fb-film-extractors/"><u>[New] In 2024, Seamless Download Experience Top 8 FB Film Extractors</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unlocking-ig-potential-strategies-for-accumulating-1000plus-likesmonth/"><u>[Updated] 2024 Approved Unlocking IG Potential Strategies for Accumulating 1,000+ Likes/Month</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-crafting-full-sphere-videos-on-iphone-ideal-for-facebook/"><u>[Updated] In 2024, Crafting Full-Sphere Videos on iPhone, Ideal for Facebook</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/10-minute-moments-make-mastering-slovak-a-reality/"><u>10-Minute Moments Make Mastering Slovak a Reality</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-timeline-of-dutchs-historical-evolution/"><u>A Timeline of Dutch's Historical Evolution</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerated-ukrainian-learning-in-quick-ten-minute-sessions-102-chars/"><u>Accelerated Ukrainian Learning in Quick Ten-Minute Sessions (102 Chars)</u></a></li>
-<li><a href="https://howto.techidaily.com/affordable-micropython-tulip-creative-system-a-musicians-dream-device-for-59-now-available/"><u>Affordable MicroPython Tulip Creative System: A Musician's Dream Device for $59 - Now Available!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/americas-most-engaged-non-native-language-studies/"><u>America's Most Engaged Non-Native Language Studies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ancient-hellenic-tongue-origins-and-ongoing-impact/"><u>Ancient Hellenic Tongue: Origins & Ongoing Impact</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breakthrough-5-educational-apps-in-polyglot-training/"><u>Breakthrough 5 Educational Apps in Polyglot Training</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/desenvolver-se-no-portugues-tudo-o-que-necessitas-saber/"><u>Desenvolver-Se No Português: Tudo O Que Necessitas Saber</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/diverse-voices-all-african-languages-unveiled/"><u>Diverse Voices: All African Languages Unveiled</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/diy-dvdmp4/"><u>DIY DVD到MP4上色工程指南：頂級转换软件和技巧推荐列表</u></a></li>
-<li><a href="https://os-tips.techidaily.com/exploring-the-apple-vision-pro-welcome-to-the-dawn-of-facial-recognition-technology/"><u>Exploring the Apple Vision Pro: Welcome to the Dawn of Facial Recognition Technology</u></a></li>
-<li><a href="https://article-tips.techidaily.com/game-changer-review-dji-mavic-air-takes-on-spark-for-2024/"><u>Game Changer Review DJI Mavic Air Takes on Spark for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/lock-your-nokia-c110-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Nokia C110 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-enhance-visuals-with-better-obs-settings-for-2024/"><u>[New] Enhance Visuals with Better OBS Settings for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-playbook-for-earning-via-youtube-shorts/"><u>[New] The Ultimate Playbook for Earning via YouTube Shorts</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-audio-free-recording-a-comprehensive-guide/"><u>2024 Approved Audio-Free Recording A Comprehensive Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-the-polyglot-pantheon-of-pedagogues/"><u>Celebrating the Polyglot Pantheon of Pedagogues</u></a></li>
+<li><a href="https://win11.techidaily.com/enrich-your-galaxy-experience-utilizing-the-dex-app-in-windows/"><u>Enrich Your Galaxy Experience: Utilizing the DeX App in Windows</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-gratitude-a-guide-in-global-languages-154/"><u>Expressing Gratitude: A Guide in Global Languages (154)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-novels-to-start-reading-an-essential-guide-for-newcomers/"><u>French Novels to Start Reading: An Essential Guide for Newcomers</u></a></li>
+<li><a href="https://win11.techidaily.com/fresh-start-for-stuck-chrome-try-these-remedies-for-win11/"><u>Fresh Start for Stuck Chrome: Try These Remedies For Win11.</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-explore-5-premier-photographers-and-videographers-mixing-tunes/"><u>In 2024, Explore 5 Premier Photographers & Videographers Mixing Tunes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-uncover-unique-user-understanding/"><u>In 2024, Uncover Unique User Understanding</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-unlock-insta-money-potential-with-our-top-7-list/"><u>In 2024, Unlock Insta Money Potential with Our Top 7 List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-cyrillic-code-in-minutes/"><u>Mastering the Cyrillic Code, In Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/policy-change-alert-privacy-update/"><u>Policy Change Alert - Privacy Update</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-learning-journey-with-mondly-app/"><u>Revolutionize Your Learning Journey with Mondly App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/swede-speak-simplified-phonetics-unleashed/"><u>Swede Speak Simplified: Phonetics Unleashed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/form-your-youtube-views-into-profits-instantly-for-2024/"><u>Transform Your YouTube Views Into Profits Instantly for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/where-is-thanksgiving-celebrated-elsewhere/"><u>Where Is Thanksgiving Celebrated Elsewhere?</u></a></li>
 </ul></div>
 

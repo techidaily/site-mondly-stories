@@ -1,7 +1,7 @@
 ---
 title: "Sprachweiterentwicklung: Zählreim Für Die Ersten 100 Deutsche"
-date: 2024-09-17T18:35:19.948Z
-updated: 2024-09-21T19:24:57.482Z
+date: 2025-01-28T16:33:13.537Z
+updated: 2025-01-30T03:10:54.729Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
  Learning how to count in German is a fun and easy start to [learning German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Numbers are an essential part of the vocabulary and can pop up in conversation more often than you think. Whether you are counting pretzels, buying beers for your_drei_ (‘three’) friends, or giving someone your phone number, German numbers will always come in handy while in a German-speaking country.
 
  Besides, contrary to the popular belief that [German is hard to learn](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , German numbers are actually easy to master. In fact, it’s just as easy to learn how to count in German as it is in English. Once you know how to count to 20, the rest of the numbers will follow a predictable pattern. So here’s an uncomplicated guide on how to count from 1 to 100 in German.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## German Numbers 1-10
 
@@ -40,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 
  If you are not familiar with the [German pronunciation rules](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , you can watch this short video to hear how each number from 1 to 10 is pronounced:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## German Numbers 11-20
 
  As it happens with several other languages, the numbers from 11 to 20 don’t yet follow the pattern we talked about. The same as in English, ‘eleven’ and ‘twelve’ are two rebels refusing to follow the crowd. Otherwise, all the other numbers are formed by bringing together the first four letters of the basic 3 to 9 numbers and the word_zehn_ meaning ‘ten’.
@@ -56,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 * **eighteen —_achtzehn_**
 * **nineteen —_neunzehn_**
 * **twenty —_zwanzig_**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## German multiples of 10
 
@@ -79,10 +91,7 @@ Here are the multiples of 10 in German:
 ![count in german](https://edge.mondly.com/blog/wp-content/uploads/2022/08/count-in-german.png "German Numbers: Learn How To Count From 1 To 100 In German 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to count from 1 to 100 in German
@@ -114,10 +123,7 @@ Now let’s look at some examples to make sure you got it:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### From 0 to 100 and beyond in German
@@ -149,5 +155,24 @@ Now let’s look at some examples to make sure you got it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/updated-advanced-techniques-sending-subtitles-to-instagram-linkedin/"><u>[Updated] Advanced Techniques Sending Subtitles to Instagram, LinkedIn</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-video-size-for-standout-instagram-content/"><u>[Updated] In 2024, Mastering Video Size for Standout Instagram Content</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-quick-guide-on-converting-videos-into-dynamic-gifs-online/"><u>[Updated] Quick Guide on Converting Videos Into Dynamic Gifs Online</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-htc-u23-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevate-your-shots-aiming-for-perfect-slow-motion-on-hero-10/"><u>Elevate Your Shots Aiming for Perfect Slow-Motion on Hero 10</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/elevating-your-sites-visibility-the-cookiebot-advantage/"><u>Elevating Your Site's Visibility: The Cookiebot Advantage</u></a></li>
+<li><a href="https://extra-information.techidaily.com/harness-mematic-for-efficient-note-taking/"><u>Harness Mematic for Efficient Note-Taking</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-boosting-brightness-on-android-devices/"><u>In 2024, Boosting Brightness on Android Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-quintessential-editing-advantages-of-filmora/"><u>In 2024, The Quintessential Editing Advantages of Filmora</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/initial-steps-in-mastering-arabic-basics/"><u>Initial Steps in Mastering Arabic Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interacting-across-ages-strategies-for-age-diverse-dialogue/"><u>Interacting Across Ages: Strategies for Age-Diverse Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-phrases-for-first-impressions-the-top-10-greets/"><u>Italian Phrases for First Impressions: The Top 10 Greets</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-conversation-in-south-americas-diverse-cultures/"><u>Mastering the Art of Conversation in South America's Diverse Cultures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/melodic-methodology-accelerating-language-skills-with-songs/"><u>Melodic Methodology: Accelerating Language Skills with Songs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/through-language-unity-mondly-forges-new-ties-with-ukrainians-free-of-charge/"><u>Through Language, Unity – Mondly Forges New Ties with Ukrainians Free of Charge</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-colombia-through-dannys-assistance-network/"><u>Uniting Colombia Through Danny's Assistance Network</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/varfor-tank-om-swedens-varldskomma/"><u>Varför Tänk Om?: Sweden's Världskomma</u></a></li>
+</ul></div>
 

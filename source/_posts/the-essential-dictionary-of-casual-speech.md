@@ -1,7 +1,7 @@
 ---
 title: The Essential Dictionary of Casual Speech
-date: 2025-01-18T16:13:32.988Z
-updated: 2025-01-22T16:39:02.679Z
+date: 2025-01-24T22:44:12.338Z
+updated: 2025-01-29T19:28:26.164Z
 tags:
   - speak
   - english
@@ -77,9 +77,17 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
 
 ![slang terms](https://media.giphy.com/media/1Qdp4trljSkY8/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  But enough history. Let’s travel to the present. Does Gen Z slang sometimes look like some secret unbreakable code to you? Well, you are not alone. But TBH (To Be Honest), once you get the hang of it and realize how relatable and fun it is, it becomes quite addictive to use in daily conversations.
 
  So get ready to hear new meanings for words you thought you knew and prepare for heavy eye-rolling every time you’ll use your newly acquired lingo around teens. **Here are some of the most common slang words used in the English language today:**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Lit
 
@@ -93,25 +101,21 @@ _Dude, the party last night was lit! Where were you?_
 
 _She invited the entire school to her birthday. She’s so extra!_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Salty
 
  You can say someone is salty when they get upset or angry over something minor.
 
 _Nick is so salty since his parents took away his car!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## To ghost someone
 
  When you cut off communication with someone you’re no longer interested in.
 
 _OMG! Did you hear Cristina ghosted Matt?_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## To flex
 
@@ -141,6 +145,10 @@ _– Did you see?‌ The new season of Lucifer just landed on Netflix!_
 
 _– OMG‌ I’m shook! I need to watch it ASAP!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tea
 
 When someone is “spilling the tea”, it means they are gossiping.
@@ -148,10 +156,6 @@ When someone is “spilling the tea”, it means they are gossiping.
 _What happened at Jessica’s birthday party? Come on, spill the tea!_
 
 ![english slang](https://edge.mondly.com/blog/wp-content/uploads/2019/11/english-slang-1024x810.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 5")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Teenagers” by Jed Villejo©
 
@@ -169,10 +173,6 @@ _– You were rude. I’m gonna leave now._
 
 _– Bye, Felicia!_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Mood
 
 Used to express something that is relatable.
@@ -180,10 +180,6 @@ Used to express something that is relatable.
 _– Ugh! I wish I was in Bora Bora right now._
 
 _– Mood!_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Hangry
 
@@ -197,10 +193,6 @@ Not Gonna Lie. Another way of saying “to tell you the truth”.
 
 _NGL, I’m not in the mood to go out tonight._
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Slay
 
  To do something very well. To impress someone very much or to be very good or impressive.
@@ -208,6 +200,14 @@ _NGL, I’m not in the mood to go out tonight._
 _Pedro Pascal’s performance in The Last of Us slayed._
 
 ![pedro pascal](https://media.giphy.com/media/xa5PxUklxPjMqK81jc/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Receipts
 
@@ -231,7 +231,7 @@ _Ok, now you’re just sus. I don’t believe you!_
 _– Non-boomer: OK boomer._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Woke
@@ -247,10 +247,6 @@ This is used when someone is bold and doesn’t care about consequences.
 _– Gaby is gonna report the teacher to the principal._
 _– OMG, savage!_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Stan
 
  An extremely or excessively enthusiastic and devoted fan. As a verb, it means “to exhibit fandom to an extreme excessive degree.”
@@ -261,7 +257,7 @@ _– Whoa, don’t be such a stan._
 ![jon](https://media.giphy.com/media/3o7qE2fiT5seO2lIre/giphy.gif "Popular English Slang Words And Phrases – How To Talk Like Gen Z 7")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  **Other_lit_ mentions:** _gucci_ (good, doing well, feeling fine),_TFW_ (that feeling when),_squad_ (a group of friends),_JOMO_ (Joy Of Missing Out),_fam_ (a group of friends that feels like family),_dank_ (really cool),_basic_ (interested in mainstream or very popular things),_woke_ (being aware of current events).
@@ -269,6 +265,10 @@ _– Whoa, don’t be such a stan._
 ## **Regional variations in English slang**
 
  English slang, like languages in general, can’t be entirely homogenous. With native speakers dispersed across the globe, slang evolves differently depending on factors such as culture, dialect, and more. That’s why [Aussie slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) is so different from [British slang](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and British slang is so different than American slang. Different cultures make different slang, just like different countries make different languages.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Differences in words and phrases across English-speaking countries**
 
@@ -333,7 +333,7 @@ _– Whoa, don’t be such a stan._
 !['English slang words' by RODNAE Productions©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/english-slang-words-960x640.jpg "Popular English Slang Words And Phrases – How To Talk Like Gen Z 8")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **How to use slang words in conversation**
@@ -401,18 +401,19 @@ Okay, so what did we learn so far? Let’s recap:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-how-much-can-you-earn-on-youtube-via-ad-revenue/"><u>[New] In 2024, How Much Can You Earn on YouTube via Ad Revenue?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-flip-the-script-crafting-unique-and-shareable-memes-on-social-platforms/"><u>[Updated] 2024 Approved Flip the Script Crafting Unique and Shareable Memes on Social Platforms</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/10month-amazon-unlimited-grocery-shipping-trial-a-comprehensive-review/"><u>$10/Month Amazon Unlimited Grocery Shipping Trial – A Comprehensive Review</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/a-newcomers-primer-to-av1-codecs/"><u>A Newcomer’s Primer to AV1 Codecs</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beginners-pathway-to-russian-currency-terminology/"><u>Beginner's Pathway to Russian Currency Terminology</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beyond-the-hype-true-factors-in-mastering-languages/"><u>Beyond the Hype: True Factors in Mastering Languages</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dialect-diversity-north-america-vs-united-kingdom/"><u>Dialect Diversity: North America vs United Kingdom</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/digital-gateway-to-latin-learning-made-simple/"><u>Digital Gateway to Latin Learning Made Simple</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-your-english-vocabulary-simplified/"><u>Elevate Your English Vocabulary, Simplified</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/guide-to-access-stored-passwords-on-macos-devices-without-a-hitch/"><u>Guide to Access Stored Passwords on macOS Devices Without a Hitch</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/how-to-download-youtube-tunes-without-risk-for-free/"><u>How to Download YouTube Tunes Without Risk for Free</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-dazzle-your-shots-iphone-lighting-advice/"><u>In 2024, Dazzle Your Shots IPhone Lighting Advice</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-instructions-for-snapping-images-on-your-xbox-one-console/"><u>Step-by-Step Instructions for Snapping Images on Your Xbox One Console</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/o-professional-stay-budgeted-top-4-tutorials-on-creating-green-screen-magic-for-cost-free-learning-for-2024/"><u>[New] Go Professional, Stay Budgeted Top 4 Tutorials on Creating Green Screen Magic for Cost-Free Learning for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-making-sense-of-virtual-realitys-promise-and-peril/"><u>[New] Making Sense of Virtual Reality's Promise and Peril</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-lilliputian-storyboard-outline/"><u>[Updated] Lilliputian Storyboard Outline</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-egayements-francais-lart-de-dire-merci/"><u>4 Égayements Français: L'Art De Dire 'Merci'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/8-essential-esl-grammar-hints-for-fluent-comprehension/"><u>8 Essential ESL Grammar Hints for Fluent Comprehension</u></a></li>
+<li><a href="https://android-frp.techidaily.com/about-realme-gt-neo-5-frp-bypass-by-drfone-android/"><u>About Realme GT Neo 5 FRP Bypass</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rical-upgrades/"><u>Electrical Upgrades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fast-track-fluency-in-foreign-dialects/"><u>Fast-Track Fluency in Foreign Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-tell-time-in-spanish-a-complete-guide-for-beginners/"><u>How to Tell Time in Spanish – A Complete Guide for Beginners</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-essential-sites-to-download-stylish-text-images/"><u>In 2024, Essential Sites to Download Stylish Text Images</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mac-users-unite-mastering-whatsapp-communication-on-macintosh-computers/"><u>Mac Users Unite: Mastering WhatsApp Communication on Macintosh Computers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-enhanced-gsl-precision-with-mondly-collaboration/"><u>Pearson's Enhanced GSL Precision with Mondly Collaboration</u></a></li>
+<li><a href="https://games-able.techidaily.com/quick-and-easy-guide-upgrading-ps5-console-with-extra-storage-complete-within-10-minuteszdnet/"><u>Quick & Easy Guide: Upgrading PS5 Console with Extra Storage - Complete Within 10 Minutes![ZDNet]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-languages-sing-in-belgiums-streets/"><u>Which Languages Sing in Belgium’s Streets?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Breaking the Age Barrier for Language Learners
-date: 2024-09-16T20:04:48.634Z
-updated: 2024-09-21T16:14:51.450Z
+date: 2025-01-23T18:15:04.428Z
+updated: 2025-01-29T21:52:34.427Z
 tags:
   - speak
   - english
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/855eb1fbf7971ff96081545be670b71dd8396e6ec
 
  If you plan to learn a foreign language, you might think it’s going to be really challenging. You’ve probably heard a lot of talk about how it’s easier to learn languages as a young child, and that learning as an adult can be difficult. You might even know friends or family members who have tried to learn a foreign tongue and failed. If you’re feeling discouraged, don’t be. We’re here to cheer you up with some good news and inspire you to get started.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **The amazing adult brain: why you can learn languages at any age**
 
  Scientists are always learning about the human brain, and sometimes, it takes a while for the collective consciousness to catch up to the latest data. For example, decades ago, experts believed that the brain developed during childhood and then remained that way for life. However, modern studies have since shown us that the brain has the ability to continually form new neural connections throughout adulthood. A 2010 [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) study tested two groups of people, one in the range of age 21 through 30 and another between 65 and 80\. Remarkably, they found no significant differences in neuroplasticity. In other words, this suggests that it’s possible for you to learn new things at any age.
@@ -25,6 +29,14 @@ thumbnail: https://thmb.techidaily.com/855eb1fbf7971ff96081545be670b71dd8396e6ec
  On top of it being possible to learn languages, research also suggests that it improves the adult brain in general. In a 2012 Chinese study, experts looked at a group of adults who were learning Mandarin over a nine-month period. They found that these adults demonstrated improved integrity in their white matter, the part of the brain that allows neural cells to communicate. The better your neural cells communicate, the easier it will be for you to learn new things.
 
 ![hands walking stick elderly old person min scaled](https://edge.mondly.com/blog/wp-content/uploads/2017/06/hands-walking-stick-elderly-old-person-min-scaled.jpg "Why It’s Never Too Late To Learn A Foreign Language 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Learn a foreign language with ease: why adults may have an easier time learning**
 
@@ -34,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/855eb1fbf7971ff96081545be670b71dd8396e6ec
 
  There is also what is perhaps the simplest concept of all: the fact that you’ve been practicing conversing in your own native language for decades now. Many people have the mentality that the more you practice one language, the harder it will be to learn another. This is simply untrue. The years you’ve spent using and observing your native language have actually provided a wonderful base knowledge to help you learn a language you’re currently unfamiliar with. This is especially true if your native language is English, which features words that are derived from a variety of other languages.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Free language learning: how Mondly can help you become bilingual**
 
  Not every free language learning app is the same. At Mondly, we understand that your adult brain is unique, just like every other brain on the planet. That’s why we included adaptive learning features designed to help you thrive no matter where you are in the learning process. Our app adapts as you use it to ensure you learn at your own pace. If you’re a naturally quick learner you will make fast progress as you absorb tens of new word and phrases every day.
@@ -42,17 +58,14 @@ thumbnail: https://thmb.techidaily.com/855eb1fbf7971ff96081545be670b71dd8396e6ec
 
 ![Mondly - Learn foreign languages free online](https://edge.mondly.com/blog/wp-content/uploads/2016/04/Mondly-Learn-languages-free-online-Main-Screen1.png "Why It’s Never Too Late To Learn A Foreign Language 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fnever-late-to-learn-a-foreign-language%2F&t=Why+It%E2%80%99s+Never+Too+Late+to+Learn+a+Foreign+Language "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Learn languages at any age. With Mondly**
 
@@ -73,5 +86,23 @@ thumbnail: https://thmb.techidaily.com/855eb1fbf7971ff96081545be670b71dd8396e6ec
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-step-by-step-starting-a-skype-call-on-android/"><u>[New] 2024 Approved Step-by-Step Starting a Skype Call on Android</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unleash-your-vision-the-best-360-livestimation-devices/"><u>[New] 2024 Approved Unleash Your Vision The Best 360° Livestimation Devices</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-leading-list-of-budget-video-call-apps-with-live-sharing/"><u>[New] In 2024, Leading List of Budget Video Call Apps with Live Sharing</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-reel-your-best-footage-from-instagram-with-these-aids/"><u>[New] In 2024, Reel Your Best Footage From Instagram With These Aids</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-convert-fb-video-to-downloadable-mp3/"><u>2024 Approved Convert FB Video to Downloadable MP3</u></a></li>
+<li><a href="https://video-capture.techidaily.com/essential-guide-to-selecting-the-best-8-open-source-calls-for-2024/"><u>Essential Guide to Selecting the Best 8 Open Source Calls for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exclusive-gamer-discount-slash-your-budget-by-350-on-alienware-aurora-r13-detailed-review-and-offer-info/"><u>Exclusive Gamer Discount: Slash Your Budget by $350 on Alienware Aurora R13 – Detailed Review & Offer Info</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-honor-70-lite-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on Honor 70 Lite 5G</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-huawei-nova-y91-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-approaches-learning-czech-in-short-timeframes/"><u>Innovative Approaches: Learning Czech in Short Timeframes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-the-new-face-of-excellence-in-apples-top-1-cookbook-listings/"><u>Mondly: The New Face of Excellence in Apple’s Top 1 Cookbook Listings</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stille-hilfe-durch-worte-deutsche-entschuldigungsstrategien/"><u>Stille Hilfe Durch Worte: Deutsche Entschuldigungsstrategien</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-linguistic-explorers-guide-106plus-must-know-croatian-terminology/"><u>The Linguistic Explorer’s Guide: 106+ Must-Know Croatian Terminology</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-ranked-non-native-language-classes-us/"><u>Top Ranked Non-Native Language Classes U.S</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-french-sound-system-start-with-the-basics/"><u>Unveiling French Sound System: Start with the Basics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/varfor-sverige-svenska-forsalar/"><u>Varför Sverige? - Svenska Försalar</u></a></li>
+</ul></div>
 

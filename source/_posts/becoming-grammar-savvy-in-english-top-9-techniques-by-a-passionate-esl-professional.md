@@ -1,7 +1,7 @@
 ---
 title: "Becoming Grammar-Savvy in English: Top 9 Techniques by a Passionate ESL Professional"
-date: 2024-09-16T18:10:18.537Z
-updated: 2024-09-21T16:51:56.507Z
+date: 2025-01-23T17:14:23.876Z
+updated: 2025-01-30T03:08:59.250Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/aea0b058dad5a8a78b7176f739897c106c85c82d6
 
  I for one successfully learned [English as a second language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) as a young child living in Eastern Europe. All it took was a dedicated teacher, daily grammar lessons (for some time), and a lot of passion. Now, I want to share my tips and tricks with you. Yes, English grammar is all about verbs, verb tenses, nouns, and adverbs. But it is also about feeling. I believe in [learning the English language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but I‌ also believe in feeling it. So here’s exactly what you could do to learn English grammar easily.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Start with basic grammar rules
 
  Basic grammar rules are a must if you really want to get proficient. You may not like them (most people don’t), but the truth is you can’t escape them. So, first things first: learn what are the English parts of speech and how to recognize each of them.
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/aea0b058dad5a8a78b7176f739897c106c85c82d6
  An**adjective** is a word naming an attribute of a**noun** . In “Hannah is beautiful”, “beautiful” is an adjective used to describe the proper noun “Hannah”.
 
  And the list can and should continue (check the English grammar courses from Oxford for more). But in today’s lesson we’re focussing more on curriculum and tips, so let’s move on to your next step.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Continue with verbs and verb tenses
 
@@ -82,10 +90,7 @@ thumbnail: https://thmb.techidaily.com/aea0b058dad5a8a78b7176f739897c106c85c82d6
  The experts behind Mondly know how amazing the human brain is. This is why they carefully selected the content so that you’ll practice and the brain will make the connections itself. You don’t focus on the process but on the final result: speaking English like a native.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Learn the most common exceptions
@@ -95,10 +100,7 @@ thumbnail: https://thmb.techidaily.com/aea0b058dad5a8a78b7176f739897c106c85c82d6
  Whether we are talking about adjective forms, irregular verbs, or nouns without plurals, exceptions are fewer and can help you achieve the level of English fluency and correctness you always dreamed you’d have.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Practice English Grammar with Oxford
@@ -110,10 +112,7 @@ thumbnail: https://thmb.techidaily.com/aea0b058dad5a8a78b7176f739897c106c85c82d6
 ![english grammar lessons](https://edge.mondly.com/blog/wp-content/uploads/2020/04/english-grammar-lessons-600x555.jpg "9 English Grammar Tips From An Esl Speaker 2")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Find your favorite book” by 🇸🇮 Janko Ferlič©
@@ -164,5 +163,17 @@ thumbnail: https://thmb.techidaily.com/aea0b058dad5a8a78b7176f739897c106c85c82d6
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-enhancing-tweets-adding-media-files-for-2024/"><u>[New] Enhancing Tweets Adding Media Files for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-scripts-that-reshape-cinematic-history/"><u>[Updated] Scripts that Reshape Cinematic History</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-locate-or-retrieve-a-lost-forgotten-or-unknown-email-address/"><u>How to Locate or Retrieve a Lost, Forgotten, or Unknown Email Address</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-dominance-index-top-ten-royale-survival-games/"><u>In 2024, Dominance Index Top Ten Royale Survival Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inspiring-lives-the-honterus-effect/"><u>Inspiring Lives: The Honterus Effect</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-powered-precision-pearsons-new-gsl-approach/"><u>Mondly-Powered Precision: Pearson's New GSL Approach</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/photographic-prowess-proven-strategies-for-captivating-edits-for-2024/"><u>Photographic Prowess Proven Strategies for Captivating Edits for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-guide-to-french-pronunciation-how-to-speak-french-like-a-native/"><u>Quick Guide to French Pronunciation – How to Speak French Like a Native</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/step-by-step-process-to-revamp-your-youtube-audio-tracks/"><u>Step-by-Step Process to Revamp Your YouTube Audio Tracks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/viking-speech-deciphering-ancient-nordic-dialogue/"><u>Viking Speech: Deciphering Ancient Nordic Dialogue</u></a></li>
+</ul></div>
 

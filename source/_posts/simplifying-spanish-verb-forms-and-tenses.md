@@ -1,7 +1,7 @@
 ---
 title: Simplifying Spanish Verb Forms & Tenses
-date: 2024-09-14T17:46:27.437Z
-updated: 2024-09-21T17:42:50.357Z
+date: 2025-01-28T00:06:01.803Z
+updated: 2025-01-30T02:08:50.070Z
 tags:
   - speak
   - english
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/a5dde8e23432eb9faea6481b1841af4ec33dc75da
 ## Simplifying Spanish Verb Forms & Tenses
 
  ¡Hola, Spanish language aficionado! Welcome to another essential Spanish lesson you’ll have to learn if you want to boost your Spanish conversation skills. Today, we are talking about**Spanish verbs** , their conjugations, and some [**Spanish grammar rules**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) that will naturally join the party. Are you ready? Let’s start with the basics.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish verbs: rules for regular Spanish verbs
 
@@ -64,6 +68,10 @@ Spanish verbs conjugations make sense now, don’t they?
 
  Before moving on to irregular Spanish verbs and more examples, let’s also explore**the past and future of regular Spanish verbs** . What do you think? Wouldn’t that be useful?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish Preterite Tense – Regular Preterite Verb Endings
 
 **The Spanish preterite tense** or_el pretérito_ is the equivalent of the**simple past tense** in English. Naturally, the same as the simple past tense,**the Spanish preterite tense** is used to describe actions completed at some point in the past.
@@ -107,6 +115,10 @@ And the conjugation of comer will look like this:
 
  Keep in mind the fact that the first person singular (_yo_), third person singular (_él, ella_), and second person formal singular (_usted_) forms use tildes on the final letters of the verb endings. And one little tilde can make all the difference in the world! If you don’t know yet how accents work, take a look at our article on **[Spanish accents and how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish Simple Future Tense – Regular Simple Future Verb Endings
 
  In Spanish, there are two ways to form the future tense:**the informal future tense** (the verb_ir_ \+ a + infinitive ->_voy a comer_) and**the simple future tense,** which we will illustrate in this article.
@@ -139,18 +151,15 @@ And the conjugation of comer will look like this:
 * _Vosotros / Vosotras escrib**iréis**_
 * _Ellos / Ellas / Ustedes escrib**irán**_
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Spanish verbs: how to master irregular Spanish verbs
 
  Remember how you managed to learn**irregular English verbs** ? Well, there are tricks that you can use, but the truth is that, in time,**irregular Spanish verbs** will just… come to you. No joke. Once you get used to the language and use it all the time, your brain will start making connections.
 
  As you already know,**irregular verbs** are “rebel” verbs that follow no regular set of rules. Statistically, in Spanish, almost all verbs ending in_\-ar_ are regular, almost all verbs ending in_\-er_ are irregular and less than half of all verbs ending in_\-ir_ are irregular. So, let’s disentangle this complicated situation of**irregular Spanish verbs** and look for some patterns to help us learn faster.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Stem-Changing Verbs in Spanish
 
@@ -231,10 +240,7 @@ _Adquirir_ (to acquire) and_inquirir_ (to inquire) are just as rebellious becaus
  –_ver_ (to see) –_Yo veo_ ,_Tú ves_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish verbs conjugation examples –_ser, estar, ir_
@@ -326,5 +332,22 @@ Well… this is it! This is our full lesson on**Spanish verbs.**
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-harnessing-hashtags-elevating-your-youtube-gaming-series/"><u>[New] In 2024, Harnessing Hashtags Elevating Your YouTube Gaming Series</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-integrating-mixer-with-macos-for-smooth-streaming-for-2024/"><u>[Updated] Integrating Mixer with macOS for Smooth Streaming for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-secrets-of-selecting-the-best-nba-live-feed/"><u>[Updated] Secrets of Selecting the Best NBA Live Feed</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-sweet-scene-capture-masterclass-in-freeze-dried-filmmaking/"><u>2024 Approved Sweet Scene Capture Masterclass in Freeze-Dried Filmmaking</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/can-you-trust-chatgpts-responses-are-they-reliable-or-not/"><u>Can You Trust ChatGPT's Responses – Are They Reliable or Not?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/lible-way-to-forbid-youtubes-snappy-videos-for-2024/"><u>Infallible Way to Forbid YouTube's Snappy Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-phrases-to-make-a-good-first-impression/"><u>Japanese Phrases to Make a Good First Impression</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lessons-in-long-term-relationships/"><u>Language Lessons in Long-Term Relationships</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-turkish-script-your-fast-track-guide-to-reading-and-speaking/"><u>Mastering the Turkish Script: Your Fast-Track Guide to Reading and Speaking</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-brings-the-future-of-language-learning-at-expo-2020-dubai/"><u>Mondly Brings the Future of Language Learning at Expo 2020 Dubai</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pearsons-digital-eslefl-experience/"><u>Pearson's Digital ESL/EFL Experience</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-infinix-hot-40-pro-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Infinix Hot 40 Pro to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-to-fixing-lameencdll-problems-with-audacity-lame/"><u>Step-by-Step Guide to Fixing lame_enc.dll Problems with Audacity LAME</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/stepwise-arabic-the-laymans-roadmap/"><u>Stepwise Arabic: The Layman's Roadmap</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tv-and-films-as-language-tools-effective-techniques/"><u>TV and Films as Language Tools: Effective Techniques</u></a></li>
+</ul></div>
 

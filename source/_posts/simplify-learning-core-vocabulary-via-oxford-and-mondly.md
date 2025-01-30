@@ -1,7 +1,7 @@
 ---
 title: "Simplify Learning: Core Vocabulary via Oxford and Mondly"
-date: 2024-09-17T19:21:37.968Z
-updated: 2024-09-21T18:23:05.453Z
+date: 2025-01-24T01:49:32.310Z
+updated: 2025-01-29T19:33:44.398Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d457
 
  Now, you probably heard about Oxford Practice Grammar before, but what about the Oxford 3000? If you want to work smarter, not harder, and build your English vocabulary fast with high-frequency, high-value words, read on to find out more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is the Oxford 3000?
 
  Improving your vocabulary is, without a doubt, one of the key aspects of language learning. The more words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important to know. While the most common 1000 words account for 75% of all spoken communication, the most common 3000 words account for 85% of it. And if you get to 5000 words, you’ll be able to understand 98% of all spoken or written communication. And this is applicable to almost [any language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -33,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d457
  As [Oxford University Press](https://elt.oup.com/feature/global/expert/oxford-3000?cc=ro&selLanguage=en) explains, _the original list was compiled by looking at word frequency information from the British National Corpus, a large database of English texts (100 million words) composed of a wide range of written and spoken genres which can be seen as representing language usage in general. While frequency was the main guiding principle in compiling the list, raw frequency data can throw up a number of anomalies that make little sense from a teaching perspective. For example, some words that are clearly useful for learners, such as “passport” and “apple”, are not very high frequency in a general corpus. For this reason, compilers took into account not just frequency, but also familiarity (…) as judged by a panel of 70 teachers._
 
  Since its inception, the Oxford 3000 has been revised to reflect the language in daily use that has changed a lot due to the growth of the internet and social media.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The most important words in English and their relation to CEFR levels
 
@@ -83,18 +91,26 @@ thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d457
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unveiling-dji-phantom-3-a-complete-technical-review/"><u>[Updated] 2024 Approved Unveiling DJI Phantom 3 A Complete Technical Review</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-step-by-step-designing-aplus-cover-photos-for-your-insta-highlights-for-2024/"><u>[Updated] Step-by-Step Designing A+ Cover Photos for Your Insta Highlights for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-decoding-durecorder-features-and-user-guide-review/"><u>2024 Approved Decoding DuRecorder Features and User Guide Review</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/3-easy-ways-to-factory-reset-a-locked-iphone-13-without-itunes-by-drfone-ios/"><u>3 Easy Ways to Factory Reset a Locked iPhone 13 Without iTunes</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/asmr-insights-harnessing-soundscapes-for-slumber-for-2024/"><u>ASMR Insights Harnessing Soundscapes for Slumber for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722978018994-how-to-successfully-install-the-canon-pro-100-drivers-for-windows-no-hassle/"><u>How to Successfully Install the Canon PRO 100 Drivers for Windows - No Hassle</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-pro-max-to-other-iphone-13-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 Pro Max To Other iPhone 13 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-rise-above-the-noise-must-have-video-seo-tools/"><u>In 2024, Rise Above the Noise – Must-Have Video SEO Tools</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-simplify-image-editing-picart-background-shedding/"><u>In 2024, Simplify Image Editing PicArt Background Shedding</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-art-of-saying-thank-you-in-german-culture/"><u>Master the Art of Saying 'Thank You' In German Culture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/meet-your-innovative-ai-discussion-partner/"><u>Meet Your Innovative AI Discussion Partner</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/opening-doors-with-foreign-tongues-anytime/"><u>Opening Doors with Foreign Tongues Anytime</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-samsung-galaxy-m14-4g-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Samsung Galaxy M14 4G? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/portuguese-diversity-a-study-of-south-and-north-dialects/"><u>Portuguese Diversity: A Study of South & North Dialects</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pioneers-unveiling-scottish-irish-and-aussie-flair/"><u>Pronunciation Pioneers: Unveiling Scottish, Irish, and Aussie Flair</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-finest-3-online-schools-learn-languages-with-precision-and-passion/"><u>The Finest 3 Online Schools: Learn Languages with Precision & Passion</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tv-and-cinema-cultivating-communicative-skills/"><u>TV & Cinema: Cultivating Communicative Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncovering-the-top-120-vital-vietnamese-words/"><u>Uncovering the Top 120 Vital Vietnamese Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/world-words-whirlwind-simplest-10-tongue-list/"><u>World Words Whirlwind: Simplest 10 Tongue List</u></a></li>
+</ul></div>
 

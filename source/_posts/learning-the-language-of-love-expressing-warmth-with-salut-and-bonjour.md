@@ -1,7 +1,7 @@
 ---
 title: "Learning the Language of Love: Expressing Warmth with 'Salut' & 'Bonjour'"
-date: 2025-01-20T17:42:20.994Z
-updated: 2025-01-22T16:53:50.885Z
+date: 2025-01-25T18:57:33.450Z
+updated: 2025-01-30T02:57:34.411Z
 tags:
   - speak
   - english
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/5780260a4b921055eadce5da1ebf75bed86b12220
 _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to see you love the French language as much as I do! In some of the previous lessons, we’ve talked about [French phrases](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ,[French movies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [best way to learn French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , but for today’s lesson it’s time to go back to the basics and learn how to say “hello” in French. Of course, we all know and love the classic_Bonjour!_ But what are other French greetings we could use to diversify our French conversations?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The most common way to say “hello” in French:_Bonjour!_
@@ -42,10 +42,6 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  However, if you are in Quebec, you are free to use_Bon matin_ until 10 or 11 AM.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. “Good afternoon” in French –_Bon après-midi!_
 
  While it’s used less often than its brothers,_Bon après-midi_ is a nice twist to_Bonjour_ .
@@ -56,15 +52,15 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  The same as the_clasique Bonjour_ ,_Bonsoir_ is a universal greeting suitable for most social contexts. The only restriction is the moment of the day. So once the twilight settles in, it is safe to switch from_Bonjour_ to_Bonsoir_ !
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. “Good night” in French –_Bonne nuit!_
 
  Literally meaning “good night”,_Bonne nuit_ is used more as a “goodbye” than as a “hello”. So if you are spending time with your French friends,_Bonne nuit_ is a great way to let them them know you are retiring.
 
 ![french greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/11/french-greetings-scaled-722x960.jpg "How To Say Hello In French: 12 Useful French Greetings 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “French fashion” by Charles 🇵🇭©
 
@@ -86,6 +82,10 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
 
  Or you can play it simple, follow the lead of the French speakers and answer directly with_Et toi?_ (“And you?”) since the_Ça va bien_ (“I’m good”) answer is usually implied.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 9\. What’s up? –_Ça va?_
 
  The English translation of_Ça va?_ , the little and cooler brother of_Comment ça va?_ , is “how’s it going” or literally “does it go?” and it can be used exactly the same like in the previous examples.
@@ -97,7 +97,7 @@ _Bonjour, mon ami francophone!_ (Hello, my francophone friend!) I’m glad to se
  Want to spice up and diversify your “ça-va”s? Go with the informal_Quoi de neuf_ that translates to “what’s up?” or “what’s new?”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 11\. The cute Bonjour:_Coucou!_
@@ -109,13 +109,13 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 ![bonjour](https://edge.mondly.com/blog/wp-content/uploads/2019/11/bonjour-scaled-960x641.jpg "How To Say Hello In French: 12 Useful French Greetings 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Coucou! Is me! The Frenchie!” by Graham Holtshausen©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 12\. How’s it going? –_Ça roule?_
@@ -156,24 +156,20 @@ _Coucou_ is definitely the cutest “hello” you’ll ever hear in French. It l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-discover-the-power-of-color-a-guide-to-7-standout-techniques/"><u>[New] Discover the Power of Color A Guide to 7 Standout Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/18863182-new-in-2024-your-treasure-trove-of-free-marketing-50plus-youtube-ads-ready-to-go/"><u>[New] In 2024, Your Treasure Trove of Free Marketing 50+ YouTube Ads Ready to Go!</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-essential-9-puzzle-and-adventure-titles-for-unplugged-android-gaming-for-2024/"><u>[Updated] Essential 9 Puzzle & Adventure Titles for Unplugged Android Gaming for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-peak-visionary-workspace-appraisal-for-2024/"><u>[Updated] Peak Visionary Workspace Appraisal for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-bring-charisma-to-your-stories-mastery-of-custom-emoji-use-on-instagram/"><u>2024 Approved Bring Charisma to Your Stories Mastery of Custom Emoji Use on Instagram</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/all-you-need-to-know-about-the-kobo-clara-colours-display-quality/"><u>All You Need to Know About the Kobo Clara Colour's Display Quality</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/break-the-language-barrier-9-vital-english-grammar-strategies-for-global-citizens/"><u>Break the Language Barrier: 9 Vital English Grammar Strategies for Global Citizens</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/breaking-down-5-linguistic-myths-for-successful-language-learners/"><u>Breaking Down 5 Linguistic Myths for Successful Language Learners</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/cease-print-slowdown-in-winxp-solution-found/"><u>Cease Print Slowdown in WinXP - Solution Found</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/celebrating-a-decade-of-mondlyback-buttonfilter-button/"><u>Celebrating A Decade Of MondlyBack ButtonFilter Button</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/chronicles-of-earth-written-in-oldest-dialects/"><u>Chronicles of Earth' Written in Oldest Dialects</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/demystifying-widely-held-yearly-promises/"><u>Demystifying Widely Held Yearly Promises</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/digital-dive-into-lithuanian-comprehensive-learning-steps/"><u>Digital Dive Into Lithuanian: Comprehensive Learning Steps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discover-7-advantages-of-speaking-croatian-and-why-now/"><u>Discover 7 Advantages of Speaking Croatian, and Why Now?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embarking-on-a-linguistic-journey-dark-netflix-style/"><u>Embarking on a Linguistic Journey: Dark, Netflix Style</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-tecno-pop-8-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Tecno Pop 8 Activity | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-best-free-apple-iphone-13-pro-imei-checker-by-drfone-ios/"><u>In 2024, Best Free Apple iPhone 13 Pro IMEI Checker</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719576349752-norsk-nexus-language-leap-in-ten-mins/"><u>Norsk Nexus: Language Leap in Ten-Mins!</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-pro-monitor-snapshot-software-w10/"><u>[New] 2024 Approved Pro Monitor Snapshot Software W10</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-art-of-inserting-descriptive-commentary-in-youtube-videos/"><u>[New] In 2024, The Art of Inserting Descriptive Commentary in YouTube Videos</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-honor-x9a-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/american-english-a-study-of-variants/"><u>American English: A Study of Variants</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/catalan-chops-learn-quickly-each-day/"><u>Catalan Chops: Learn Quickly Each Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhancing-life-with-english-skills/"><u>Enhancing Life with English Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/everywhere-ace-apples-app-of-the-day/"><u>Everywhere Ace: Apple's App of the Day</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-add-my-signature-to-word-2007-by-ldigisigner-sign-a-word-sign-a-word/"><u>How do i add my signature to Word 2007</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-linguistics-behind-squid-game/"><u>Mastering the Linguistics Behind Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580348838-mondlyar-language-learning-takes-a-leap-into-vr/"><u>MondlyAR - Language Learning Takes a Leap Into VR</u></a></li>
+<li><a href="https://fox-that.techidaily.com/no-sounds-on-iphone-discover-proven-fixes-in-this-essential-how-to-guide/"><u>No Sounds on iPhone? Discover Proven Fixes in This Essential How-To Guide</u></a></li>
+<li><a href="https://network-issues.techidaily.com/screen-blank-detect-failed-for-cgs/"><u>Screen Blank: Detect Failed for CGs</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/the-top-15-best-free-tools-to-convert-dvds-on-a-mac-expert-picks/"><u>The Top 15 Best Free Tools to Convert DVDs on a Mac - Expert Picks</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/young-minds-seamless-acquisition-of-new-languages/"><u>Young Minds: Seamless Acquisition of New Languages</u></a></li>
 </ul></div>
 

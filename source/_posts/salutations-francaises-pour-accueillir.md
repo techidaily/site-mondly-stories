@@ -1,7 +1,7 @@
 ---
 title: Salutations Françaises Pour Accueillir
-date: 2025-01-21T16:36:14.136Z
-updated: 2025-01-22T17:37:06.525Z
+date: 2025-01-28T16:53:42.484Z
+updated: 2025-01-30T04:39:40.655Z
 tags:
   - speak
   - english
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  In this quick French lesson, we’ll take you through the four most popular examples – the only ones you actually need in real life. As a result, you’ll be familiar with what they mean, when to use them and what the key differences between them actually are.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. The most common “you’re welcome”:_de rien_
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
  We’ll start with the most common way to say you’re welcome in French: ‘_de rien’._
 
  You can use ‘_de rien’_ as an informal response to somebody who has thanked you. You’ll hear this expression used commonly throughout France in a range of situations.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The literal translation of_‘de rien’_
 
@@ -50,21 +54,17 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 
 ![de rien](https://edge.mondly.com/blog/wp-content/uploads/2021/05/de-rien-960x540.jpg "4 Popular Ways To Say You’re Welcome In French 2")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  “Strasbourg, France” by Patrick Robert Doyle©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. The informal “you’re welcome”:_je t’en prie_
 
  Like_‘de rien’_ , which is certainly the most casual way to say you’re welcome in French, ‘_je t’en prie’_ is another informal way to respond to someone who expressed their gratitude towards you.
 
  It is most common amongst very close friends and family members. This particular form is most appropriate when you want to express a higher level of gratitude than_‘de rien’_ , but with somebody close to you, with whom your relationship is casual.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The literal translation of_‘je t’en prie’_
 
@@ -99,10 +99,14 @@ thumbnail: https://thmb.techidaily.com/522924ced0006a97e1c9e5d253d5bd56be4e5257c
 ![you're welcome](https://edge.mondly.com/blog/wp-content/uploads/2021/05/youre-welcome-960x640.jpg "4 Popular Ways To Say You’re Welcome In French 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Southern France, Toulouse” by DAT VO©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. The easiest to remember:_pas de problème_
 
@@ -151,10 +155,6 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Speak French fluently in just 10 minutes a day
 
  **Do you want to [speak French](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) like a fluent speaker?** Get Mondly, the award-winning language learning app that will help you speak French as if you were Paris-born.
@@ -180,16 +180,17 @@ _Th_ _is post is delivered to you by James A. Smith._
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-photo-vid-mosaic-designer-slideshows-for-sierra/"><u>[New] Photo-Vid Mosaic Designer Slideshows for Sierra</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/mp4avihevch2-groovy-11-winxvideo-ai/"><u>【無料】動画変換ソフトおすすめ｜無料でMP4/AVI/HEVC（H2 Groovy）などを変換するソフトのまとめ| 11ページ目 - Winxvideo AI.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beyond-the-fourth-decade-motivating-reasons-for-pursuing-new-linguistic-skills-post-forty/"><u>Beyond the Fourth Decade: Motivating Reasons for Pursuing New Linguistic Skills Post-Forty</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/birthday-wishes-in-every-language-ever-spoken/"><u>Birthday Wishes in Every Language Ever Spoken</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-africas-multilingual-dna/"><u>Decoding Africa's Multilingual DNA</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-poco-c51-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Poco C51 To Phone | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/inshot-free-pc-video-editing-solutions-for-2024/"><u>Inshot-Free PC Video Editing Solutions for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/opera-gx-and-edge-face-off-the-best-browsers-for-games/"><u>Opera GX & Edge Face-Off - The Best Browsers for Games</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719577245493-the-fastest-way-to-learn-korean-at-home-choose-wisely/"><u>The Fastest Way to Learn Korean at Home – Choose Wisely</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-testing-your-tp-link-re505x-wireless-extender/"><u>The Ultimate Guide to Testing Your TP-Link Re505X Wireless Extender</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/top-10-drawing-apps-for-android-that-will-boost-your-creativity-for-2024/"><u>Top 10 Drawing Apps for Android That Will Boost Your Creativity for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-best-qpr-index-for-sluggish-video-content-for-2024/"><u>[Updated] Best QPR Index for Sluggish Video Content for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-chrome-os-screen-capture-mastering-the-art-in-four-steps/"><u>[Updated] Chrome OS Screen Capture Mastering the Art in Four Steps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-visual-voyages-free-thematic-tools-for-youtube/"><u>2024 Approved Visual Voyages Free Thematic Tools for YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accent-journey-delving-into-uk-us-and-australian-speech-patterns/"><u>Accent Journey: Delving Into UK, US, and Australian Speech Patterns</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conhecer-dialetos-do-portugues-todas-as-variedades/"><u>Conhecer Dialetos Do Português - Todas as Variedades</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/courtiers-compendium-french-languages-of-seduction/"><u>Courtier's Compendium: French Languages of Seduction</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-lava-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Lava</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-realme-gt-neo-5-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Realme GT Neo 5 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-14-pro-without-swiping-up-6-ways-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 14 Pro Without Swiping Up? 6 Ways</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-etiquette-handbook-a-greeting-guide/"><u>Universal Etiquette Handbook: A Greeting Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unmatched-no-fee-mobile-and-web-picture-enhancement/"><u>Unmatched No-Fee Mobile & Web Picture Enhancement</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/win-strategies-overcoming-fall-guys-connection-errors/"><u>Win Strategies: Overcoming Fall Guys Connection Errors</u></a></li>
 </ul></div>
 

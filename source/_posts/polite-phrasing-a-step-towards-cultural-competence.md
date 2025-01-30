@@ -1,7 +1,7 @@
 ---
 title: "Polite Phrasing: A Step Towards Cultural Competence"
-date: 2024-09-15T18:42:30.106Z
-updated: 2024-09-16T18:06:33.031Z
+date: 2025-01-23T20:52:42.096Z
+updated: 2025-01-29T20:40:26.586Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/773bcb287706a7e5add3e76fb4807bc2dd418c60c
 
  Learning as much as a simple **_Konnichiwa_ (“hello” in Japanese)** or **_Arigato_ (“thank you” in Japanese)** can work wonders. So here’s a guide to all the**Japanese greetings** you’ll need in your Japanese adventure: from**“hello” in Japanese** to**_Moshi Moshi_** (used to say “hello” on the phone), goodbye and other**common Japanese greetings.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. “Hello” in Japanese
 
  If you ever watched at least one anime series, you probably already know this: **“hello” in Japanese is_Konnichiwa_ .** Rings any bell? It most probably does since**_Konnichiwa_** is undeniably the most**common Japanese greeting.** Thanks to some of the most influential anime of all time such as Dragon Ball Z, Death Note, and Naruto, a lot of people living outside Japan know at least a few [**words in Japanese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and_Konnichiwa_ is definitely one of them.
@@ -34,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/773bcb287706a7e5add3e76fb4807bc2dd418c60c
 * _yaho_ – extremely informal, typically used by girls (boys more often say_yo_) but suitable for all the young people
 
 ![honnichiwa](https://edge.mondly.com/blog/wp-content/uploads/2019/08/honnichiwa-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Kyoto, Japan” by Sorasak©
 
@@ -67,6 +75,10 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
  “Meguro River, Matsuno, Japan” by Sora Sagano©
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3.“Goodbye” in Japanese
 
  Another greeting we borrowed from the Japanese and sometimes use in our day-to-day conversations in English is**_Sayōnara_** (さよなら), a greeting that carries the connotation of farewell and translates to “goodbye”.
@@ -84,14 +96,11 @@ This greeting is used both as a “hello” and as a “goodbye”.
 
 ![goodbye in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/goodbye-in-japanese-1024x683.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 4")
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  “See you soon, human” by Alain Pham©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. “Thank you” in Japanese and other polite phrases that you should know
 
@@ -136,10 +145,7 @@ This greeting is used both as a “hello” and as a “goodbye”.
  – 45-degree bows are used for greetings only if you meet a very important person like the Emperor or the Prime Minister.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: basic conversation in Japanese
@@ -162,13 +168,6 @@ This greeting is used both as a “hello” and as a “goodbye”.
 * No problem. – _Daijōbudesu._
 
 ![sayonara](https://edge.mondly.com/blog/wp-content/uploads/2019/08/sayonara-1024x680.jpg "Hello In Japanese - All The Japanese Greetings You Need To Know 6")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Tenryu-ji Temple, Kyōto-shi, Japan” by Masaaki Komori©
 
@@ -200,5 +199,26 @@ This greeting is used both as a “hello” and as a “goodbye”.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-elite-scripting-developing-a-countdown-mechanism-in-obs/"><u>[New] 2024 Approved Elite Scripting Developing a Countdown Mechanism in OBS</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-comprehensive-capture-solutions-azs-reviews-and-backups-for-2024/"><u>[Updated] Comprehensive Capture Solutions - AZ's Reviews & Backups for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-best-8-mirrorless-cameras-to-elevate-your-vlogging-game/"><u>[Updated] In 2024, Best 8 Mirrorless Cameras to Elevate Your Vlogging Game</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-prime-cloud-storage-contenders-of-the-new-year/"><u>[Updated] The Prime Cloud Storage Contenders of the New Year</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/decoding-the-intelligent-shooting-methods-of-auto-3-and-4-hdr-for-2024/"><u>Decoding the Intelligent Shooting Methods of Auto, 3 & 4 HDR for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-oppo-reno-10-pro-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Oppo Reno 10 Pro 5G to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-a-la-physiologie-parts-of-the-body-en-francais/"><u>Introduction À La Physiologie: Parts of the Body en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-leaps-and-bounds-3-neurologically-supported-activities/"><u>Linguistic Leaps and Bounds: 3 Neurologically Supported Activities</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyphonic-proficiency-tunes-to-build-bilingual-brains/"><u>Polyphonic Proficiency: Tunes to Build Bilingual Brains</u></a></li>
+<li><a href="https://techidaily.com/reset-pattern-lock-tutorial-for-m6-pro-4g-by-drfone-android-unlock-android-unlock/"><u>Reset pattern lock Tutorial for M6 Pro 4G</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/romania-on-your-fingertips-language-learning-app/"><u>Romania on Your Fingertips: Language Learning App</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-honor-x9b-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-pro-in-latvia-the-quick-learners-way/"><u>Speak Like a Pro in Latvia: The Quick Learner's Way</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/strategies-for-effective-360-video-broadcasts-on-fb-for-2024/"><u>Strategies for Effective 360 Video Broadcasts on FB for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002014-9781632659927-the-haunted-house-diaries/"><u>The Haunted House Diaries | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tomorrows-tongues-revolutionizing-language-acquisition-today/"><u>Tomorrow's Tongues: Revolutionizing Language Acquisition Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-talk-advanced-speech-coaching-solutions/"><u>Transform Talk: Advanced Speech Coaching Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukraine-and-russias-linguistic-similarities-unveiled/"><u>Ukraine and Russia's Linguistic Similarities Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/weekly-milestones-mondlys-global-triumph/"><u>Weekly Milestones: Mondly's Global Triumph</u></a></li>
+</ul></div>
 

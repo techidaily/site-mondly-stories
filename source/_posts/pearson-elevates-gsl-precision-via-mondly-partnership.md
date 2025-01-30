@@ -1,7 +1,7 @@
 ---
 title: Pearson Elevates GSL Precision via Mondly Partnership
-date: 2024-09-15T18:15:14.901Z
-updated: 2024-09-21T19:52:13.930Z
+date: 2025-01-27T21:29:44.668Z
+updated: 2025-01-30T01:24:56.055Z
 tags:
   - speak
   - english
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/52f669a15e335bb29d06275250544e9470586ee07
 
  The Global Scale of Languages (GSL) helps educators and language learners know where they are, where they need to go and how they can get there.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Starting with the Global Scale of English (GSE)**
 
  Before we delve deeper into the GSL, it’s crucial to understand its roots: the GSE.
@@ -38,15 +42,16 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 
  By placing languages on a common scale, underpinned by a common set of Learning Objectives, the GSL can ensure comparability across languages to bring greater clarity and simplicity to language learning.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **How Pearson created the GSL**
 
  Building on the GSE, our research team at Pearson decided to prove that this scale could also be transferable to other languages. The study’s results were not only encouraging but groundbreaking. The research confirmed that the GSE is directly transferable to other languages, making it possible for Pearson to develop the new GSL framework.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Why the GSL stands out**
@@ -55,6 +60,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * **Confidence in clarity:**  The GSL enables learners to pinpoint their strengths in reading, writing, listening, and speaking with a straightforward 10-90 scale. This level of clarity fosters motivation and boosts learners’ confidence.
 * **Personalized learning pathways:**  With clear objectives at each scale point, the GSL ensures a learning journey tailored to individual goals, making progression more efficient.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Why start with French, Spanish, and Italian?**
 
  These three languages, rich in history and culture, have always been popular choices among our learners. We believe that by integrating GSL with these languages first, we can enhance the learning experience for a larger number of our users.
@@ -62,6 +71,10 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
  Moreover, the Romance languages, with their shared Latin roots and interconnected nuances, offer a fascinating study when approached with the precision of the GSL.
 
  As a Mondly user immersing in these languages, you can expect a fresh content approach, and a progressively structured layout.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Language learning backed by unparalleled global research**
 
@@ -73,13 +86,6 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Fast-track your progress with Mondly by Pearson**
 
@@ -100,5 +106,22 @@ Building on this solid foundation, **Pearson has now introduced the Global Scale
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-unveiling-the-mysteries-high-quality-minecraft-capture-on-macos/"><u>[New] 2024 Approved Unveiling the Mysteries High-Quality Minecraft Capture on MacOS</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-the-social-media-game-the-best-30-nicknames-for-tiktok-for-2024/"><u>[New] Mastering the Social Media Game The Best 30 Nicknames for TikTok for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-perfect-video-demos-in-adobe-captivate-for-2024/"><u>[New] Perfect Video Demos in Adobe Captivate for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/compact-powerhouse-how-the-new-mac-mini-with-m4-chips-competes-with-apple-tv-in-size-and-performance/"><u>Compact Powerhouse: How the New Mac Mini with M4 Chips Competes with Apple TV in Size and Performance</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/dragon-ball-marathon-planner-how-to-watch-your-favorite-anime-in-order/"><u>Dragon Ball Marathon Planner: How to Watch Your Favorite Anime in Order</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/eye-catching-typography-top-5-font-tools-to-propel-your-tiktok-growth-for-2024/"><u>Eye-Catching Typography Top 5 Font Tools to Propel Your TikTok Growth for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-oppo-a78-5g-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Oppo A78 5G Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-joy-on-american-independence-eve/"><u>International Joy on American Independence Eve</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/official-and-vernacular-languages-in-croatia/"><u>Official and Vernacular Languages in Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/santa-speaks-many-language-lessons-unlocked/"><u>Santa Speaks Many: Language Lessons Unlocked</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-essentials-of-expressing-friendliness-in-mandarin/"><u>The Essentials of Expressing Friendliness in Mandarin</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-linguistic-profile-of-belgium/"><u>The Linguistic Profile of Belgium</u></a></li>
+<li><a href="https://fox-http.techidaily.com/transforming-virtual-worlds-enhancing-spark-ar-with-custom-luts-for-2024/"><u>Transforming Virtual Worlds Enhancing Spark AR with Custom LUTs for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-spanish-verbal-tenses/"><u>Understanding Spanish Verbal Tenses</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-africas-language-tapestry/"><u>Unlocking Africa's Language Tapestry</u></a></li>
+</ul></div>
 

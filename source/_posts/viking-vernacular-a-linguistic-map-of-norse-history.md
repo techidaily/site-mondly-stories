@@ -1,7 +1,7 @@
 ---
 title: "Viking Vernacular: A Linguistic Map of Norse History"
-date: 2024-09-15T16:17:34.984Z
-updated: 2024-09-21T18:08:30.030Z
+date: 2025-01-24T21:35:03.555Z
+updated: 2025-01-30T02:35:52.369Z
 tags:
   - speak
   - english
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/227cc128988b516c7d6426572fbbb71529867ec9f
 
  To tell you the truth, Vikings did not typically speak Old English. Old English was spoken by the Anglo-Saxons, who lived in England at the same time as the Vikings. However, **it is possible that some Vikings who settled in England may have learned to speak Old English.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What language did Vikings speak?
 
 **Old Norse** is the obvious answer for most Vikings. However, even in present days, languages spanning over large territories can’t possibly be entirely homogeneous.
@@ -43,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/227cc128988b516c7d6426572fbbb71529867ec9f
  Because Vikings were travelers, it is safe to assume they were multilingual. In some instances, Vikings spoke both Old Norse and the language of their relocated territory. Everywhere they went, Vikings brought their language with them. This is how, over generations, Old Norse influenced and blended with local languages. Place names in Britain and numerous other words stand proof of this.
 
  In spite of everything,**Old Norse is still considered the primary Viking language.** If you watched_The Northman_ , you must have heard it in songs and ritual settings. Apparently, they didn’t have the budget to make the entire movie in Old Norse. It does sound fittingly Viking, doesn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Old Norse: the Viking language
 
@@ -58,24 +66,15 @@ thumbnail: https://thmb.techidaily.com/227cc128988b516c7d6426572fbbb71529867ec9f
 
 !['Viking language' by Hannah Grapp©](https://edge.mondly.com/blog/wp-content/uploads/2023/03/viking-language-960x640.jpg "What Language Did Vikings Speak? 4")
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What language today is closest to Old Norse?
 
  **Modern Icelandic is widely regarded as the Nordic language that most closely resembles Old Norse.** In fact, the writing system is so similar that Icelandic speakers can read Old Norse texts with relative ease. Some specialists compare the likeness between modern Icelandic and Old Norse to that of Shakespearean English and present-day English. Old West Norse is the direct ancestor of Icelandic, and many surviving Old Norse manuscripts originated from Iceland. Consequently, Old West Norse is the most commonly taught variant of Old Norse at present.
 
 So yeah, you can learn Old Norse if you want to.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Is Old Norse still spoken?
 
@@ -84,6 +83,10 @@ So yeah, you can learn Old Norse if you want to.
  As noted previously, modern Icelandic is the most similar modern language to Old Norse. For this reason, it is considered that spending time with Icelanders can offer a glimpse into this ancient language’s contemporary iteration.
 
  Furthermore, Old Norse is still with us through the multitude of words that were borrowed into English. Some examples of Old Norse words in English are gift (_gift_), husband (_húsbóndi_), cake (_kaka_), egg (_egg_), anger (_angr_), arm (_armr_). And these are just a few. The list could go on for a while.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What language did Vikings write in?
 
@@ -99,10 +102,7 @@ So yeah, you can learn Old Norse if you want to.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Learn the Scandinavian languages fast
@@ -134,5 +134,24 @@ So yeah, you can learn Old Norse if you want to.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-foolproof-method-for-adding-a-link-to-your-tiktok-bio/"><u>[New] 2024 Approved Foolproof Method for Adding a Link to Your TikTok Bio</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-premier-experts-innovative-instragram-hlv-designs-for-2024/"><u>[New] Premier Experts Innovative Instragram HLV Designs for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-lead-the-way-in-igtv-videos-with-best-ever-edits-for-2024/"><u>[Updated] Lead the Way in IGTV Videos with Best-Ever Edits for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-spark-conversation-crafting-questions-for-ig-story-boost/"><u>[Updated] Spark Conversation Crafting Questions for IG Story Boost</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/google-serp-features-image-pack-by-link-assistant-rank-tracker-serp-analysis-serp-analysis/"><u>Google SERP Features - Image Pack</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-tecno-pova-5-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Tecno Pova 5 to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-mastering-media-craft-debate-between-filmora-and-democracy-creator/"><u>In 2024, Mastering Media Craft Debate Between Filmora & Democracy Creator</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-puzzle-dissecting-por-que-and-por-que/"><u>Language Puzzle: Dissecting Por Que and Por Qué</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/le-systeme-ouvert-explique-parts-of-the-body-en-francais/"><u>Le Système Ouvert Expliqué : Parts of the Body en Français</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguagem-verde-saudacoes-a-toda-hora-no-brasil/"><u>Linguagem Verde - Saudações a Toda Hora No Brasil</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/solving-the-problem-how-to-successfully-resolve-mp4-to-windows-dvd-creation-issues/"><u>Solving the Problem: How to Successfully Resolve 'MP4 to Windows DVD' Creation Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fundamentals-of-pronouncing-french-words-rightly/"><u>The Fundamentals of Pronouncing French Words Rightly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-sweetest-syntax-how-to-say-chocolate-everywhere/"><u>The Sweetest Syntax: How To Say 'Chocolate' Everywhere</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/thriving-in-your-fifties-by-embracing-language-skills/"><u>Thriving in Your Fifties by Embracing Language Skills</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/um-compendio-do-portugues-saudacoes-a-todas-as-hora/"><u>Um Compêndio Do Português: Saudações a Todas as Hora</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-choice-todays-top-ios-app/"><u>Worldwide Choice: Today's Top iOS App</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Core of Russian Numbers - Foundation Skills
-date: 2024-09-16T17:19:20.115Z
-updated: 2024-09-21T19:12:59.665Z
+date: 2025-01-25T17:18:12.974Z
+updated: 2025-01-30T03:46:23.176Z
 tags:
   - speak
   - english
@@ -46,15 +46,27 @@ If you did manage, good job! You must be a natural.
 
 ![numbers in russian](https://edge.mondly.com/blog/wp-content/uploads/2020/04/numbers-in-russian-600x424.jpg "Russian Numbers - Learn How To Count In Russian 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Russian numbers 11-20
 
 **Good to know:** If you want to bring a flower bouquet when you are invited to someone’s house in Russia, choose an odd number of flowers – so три, пять, семь or девять flowers. One Russian superstition says that bouquets with an even number of flowers are adequate only for funerals.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Russian numbers: 21 and onwards
 
  From here on, Russian numbers are formed similarly to the English numbers (minus the word “and”). If 20 is двадцать_(dvadtsat)_ , then 21 is двадцать**один** _(_ _dvadtsat odin)_ and 22 is двадцать**два** _(dvadtsat dva)_ . Basically, you just**add the numbers from 1 to 9 to the tens.**
 
 ![russian numbers](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-numbers-600x424.jpg "Russian Numbers - Learn How To Count In Russian 4")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Russian tens
 
@@ -72,6 +84,10 @@ And guess what! It works the same with the hundreds.
 
 ![russian hundreds](https://edge.mondly.com/blog/wp-content/uploads/2020/04/russian-hundreds-600x424.jpg "Russian Numbers - Learn How To Count In Russian 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Russian hundreds
 
  For example, if you want to say 146, you say сто сорок шесть_(sto sorok shest)_ .
@@ -79,10 +95,7 @@ And guess what! It works the same with the hundreds.
 Not as hard as you’d expect, is it?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Russian ordinal numbers
@@ -128,5 +141,26 @@ Not as hard as you’d expect, is it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://mondly-stories.techidaily.com/why-the-cultural-journey-from-spanish-to-english/"><u>'Why': The Cultural Journey From Spanish to English</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-quick-tempo-adjustment-application-selection-for-2024/"><u>[New] Quick Tempo Adjustment Application Selection for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-8-truly-effective-video-marketing-strategies-for-2024/"><u>[Updated] Exploring 8 Truly Effective Video Marketing Strategies for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-u23-pro-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on U23 Pro.</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-what-sets-apples-new-airpods-apart-key-features-and-differences-of-airpod-series-4-models/"><u>Discover What Sets Apple's New AirPods Apart: Key Features & Differences of AirPod Series 4 Models</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-achieve-smooth-gameplay-fixing-street-fighter-n-pc-performance-problems-fast/"><u>How to Achieve Smooth Gameplay: Fixing Street Fighter N-PC Performance Problems Fast</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-a-filmmakers-guide-to-blending-sound-and-visuals-with-magix-pro-software/"><u>In 2024, A Filmmakers Guide to Blending Sound and Visuals with Magix Pro Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ingles-espanol-pares-y-falsos-linguisticos-palabras-comunes/"><u>Inglés-Español Pares Y Falsos Lingüísticos: Palabras Comunes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-days-marking-gratitude-and-harvest/"><u>International Days Marking Gratitude and Harvest</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/microsofts-latest-contender-how-the-surface-laptop-with-copilot-plus-outperforms-macbook-air-across-three-key-aspects-a-deep-dive-on-zdnet/"><u>Microsoft's Latest Contender: How the Surface Laptop with Copilot + Outperforms MacBook Air Across Three Key Aspects - A Deep Dive on ZDNet</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-acrocefexe-glitches-tips-for-a-smooth-experience/"><u>Overcoming AcroCEF.exe Glitches: Tips for a Smooth Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pianificazione-di-un-tutorial-per-i-numeri-italiani/"><u>Pianificazione Di Un Tutorial per I Numeri Italiani</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-vivo-y100-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Vivo Y100 5G</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/step-by-step-command-line-navigation-with-netstat-on-win11/"><u>Step-by-Step: Command Line Navigation with Netstat on Win11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-reality-of-multilingualism-dissecting-falsehoods/"><u>The Reality of Multilingualism: Dissecting Falsehoods</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tutti-gli-elementi-numerici-in-italiano-da-1-a-migliaia/"><u>Tutti Gli Elementi Numerici in Italiano (Da 1 a Migliaia)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-27-authentic-french-phrases-for-fluency/"><u>Unveiling 27 Authentic French Phrases for Fluency</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-mondlys-updated-help-guide/"><u>Unveiling Mondly's Updated Help Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sygxrona-morfes-eygnwmwn-glwttoprwteyoyntes/"><u>Σύγχρονα Μορφές Ευγνώμων Γλωττοπρωτεύουντες</u></a></li>
+</ul></div>
 

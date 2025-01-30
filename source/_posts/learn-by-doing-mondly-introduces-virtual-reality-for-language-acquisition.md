@@ -1,7 +1,7 @@
 ---
 title: "Learn by Doing: Mondly Introduces Virtual Reality for Language Acquisition"
-date: 2024-09-20T17:01:35.956Z
-updated: 2024-09-21T18:47:13.872Z
+date: 2025-01-29T04:45:12.757Z
+updated: 2025-01-30T03:54:59.566Z
 tags:
   - speak
   - english
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/cd61def31c266f510e96724b2a8477792657278ca
 
 ![Mondly VR - learn English, Spanish, German, French and more in Virtual Reality](https://edge.mondly.com/blog/wp-content/uploads/2017/02/Mondly-VR-learn-English-Spanish-German-French-and-more-in-Virtual-Reality.png "Mondly Launches Virtual Reality For Learning Languages, Powered By Chatbots 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bridging the Technologies Behind Chatbots and Speech Recognition with VR
 
  Mondly’s conversational voice chatbot for language learning was first released by the company inAugust 2016 . The technology uses advanced speech recognition that understands millions of phrases and words in 28 different languages. Since its release, it has been used by millions of Mondly users and has learned millions of new phrases and responses, thanks to the chatbot’s self-learning technology.
@@ -36,9 +40,17 @@ thumbnail: https://thmb.techidaily.com/cd61def31c266f510e96724b2a8477792657278ca
 >
 > _So we developed our own automatic voice detection system. It calibrates to the room’s background noise, and it ignores unintentional sounds. The result is amazing, the conversations with the virtual characters happen as naturally as real-life conversations – they just flow.”_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Virtual Reality Language Training in 28 Different Languages
 
 ![Mondly VR - learn 30 languages in Virtual Reality](https://edge.mondly.com/blog/wp-content/uploads/2017/02/Mondly-VR-learn-30-languages-in-Virtual-Reality.png "Mondly Launches Virtual Reality For Learning Languages, Powered By Chatbots 3")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Learn Languages VR by Mondly](https://www.oculus.com/experiences/gear-vr/1272636489423125/?locale=en%5FUS) allows users to practice conversing in a new language with virtual characters; all within realistic situations that teach language fundamentals and help build their confidence.
 
@@ -62,6 +74,10 @@ The first version offers three scenes and 28 languages to explore:
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### About Mondly
 
@@ -88,12 +104,24 @@ The first version offers three scenes and 28 languages to explore:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-elevating-content-sharing-link-instagram-and-tiktok-for-2024/"><u>[New] Elevating Content Sharing Link Instagram & TikTok for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-discovering-the-advantages-of-multi-angle-recording/"><u>[New] In 2024, Discovering the Advantages of Multi-Angle Recording</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-best-replacements-for-twitters-massive-network/"><u>[Updated] 2024 Approved Best Replacements for Twitter's Massive Network</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-best-mac-video-capturing-software-post-bandicam-revolution-for-2024/"><u>[Updated] Best Mac Video Capturing Software Post-Bandicam Revolution for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-grasp-the-art-of-steadiness-in-photography/"><u>[Updated] Grasp the Art of Steadiness in Photography</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-revealed-the-best-videos-from-facebooks-pages-for-2024/"><u>[Updated] Revealed The Best Videos From Facebook’s Pages for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-frosty-slopes-showdown-olympic-snowboard-cross-action/"><u>2024 Approved Frosty Slopes Showdown Olympic Snowboard Cross Action</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-vivo-s18-pro-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Vivo S18 Pro Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-made-simple-10-effective-strategies-with-mondly/"><u>Language Mastery Made Simple: 10 Effective Strategies with Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-british-phrases-sayings-and-slang-a-guide-to-speaking-like-a-brit/"><u>Learn British Phrases, Sayings, And Slang: A Guide To Speaking Like A Brit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-slovak-swiftly-with-our-quick-10-minute-online-methods/"><u>Learn Slovak Swiftly with Our Quick 10-Minute Online Methods!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-gifts-from-abroad-to-eng/"><u>Linguistic Gifts From Abroad to Eng</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/one-moment-a-day-gain-mastery-over-urdu/"><u>One Moment a Day, Gain Mastery Over Urdu</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-mastery-conquer-japanese-numbers-in-minutes/"><u>Quick Mastery: Conquer Japanese Numbers in Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-being-friendly-in-indonesia/"><u>The Art of Being Friendly in Indonesia</u></a></li>
+<li><a href="https://common-error.techidaily.com/understanding-and-resolving-crc-cyclical-data-integrity-issues/"><u>Understanding and Resolving CRC Cyclical Data Integrity Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-europes-linguistic-tapestry-language-diversity-on-europe-day/"><u>Unveiling Europe's Linguistic Tapestry: Language Diversity on Europe Day</u></a></li>
+</ul></div>
 

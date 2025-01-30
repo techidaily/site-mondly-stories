@@ -1,7 +1,7 @@
 ---
 title: 10-Minute Guide to Perfecting Japanese Counts
-date: 2024-09-14T18:41:36.948Z
-updated: 2024-09-21T20:06:35.246Z
+date: 2025-01-22T19:56:27.929Z
+updated: 2025-01-29T18:20:23.906Z
 tags:
   - speak
   - english
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/d35c94f12f755c322517a2947b55e4796f16febf7
 ## 10-Minute Guide to Perfecting Japanese Counts
 
  Japanese people don’t always use the**Japanese numbers.** Like the rest of the world, they rely a lot on Arabic numerals for writing (lucky for us, Japanese disciples). However, this does not diminish the importance of learning how to**count in Japanese.** There are contexts, such as traditional ceremonies, where Japanese numbers are still written in kanji. Besides, you still need to learn how to say numbers in Japanese. Ready?_Ichi, ni, san_ … go!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Basic Japanese Counting: Japanese Numbers 1-10
 
@@ -45,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/d35c94f12f755c322517a2947b55e4796f16febf7
  Do you need to hear the proper pronunciation of the Japanese numbers 1-10? Play this short video below. 👇
 
  That wasn’t so hard, was it? Besides, if you learn to count to 10, the numbers in Japanese 1-100 will become a piece of cake! It’s easier than you’d expect.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Master Bigger Japanese Numbers 1-100
 
@@ -119,10 +127,7 @@ thumbnail: https://thmb.techidaily.com/d35c94f12f755c322517a2947b55e4796f16febf7
  As you can see, the rule you learned for the first 100 Japanese numbers is still valid. To count further than 100 in Japanese, you just continue to stack numbers. Then, when you get to 1,000,_hyaku_ becomes_sen_ and so on.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to count in Japanese Hiragana?
@@ -151,20 +156,6 @@ thumbnail: https://thmb.techidaily.com/d35c94f12f755c322517a2947b55e4796f16febf7
 
 ![numbers in Japanese](https://edge.mondly.com/blog/wp-content/uploads/2019/11/numbers-in-japanese-960x647.jpeg "Counting In Japanese From 1 To 10000 9")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Japanese Lucky Numbers
 
  The two main**Japanese lucky numbers are seven (なな, Nana) and eight (はち, Hachi).** Given this, do you think the names of two of the most popular Japanese animal characters in the world were merely coincidental? We’re talking, of course, about the cat Nana from_The Travelling Cat Chronicles_ by Hiro Arikawa and Hachi from_Hachiko: The True Story of a Loyal Dog_ by Pamela S. Turner.
@@ -184,10 +175,7 @@ thumbnail: https://thmb.techidaily.com/d35c94f12f755c322517a2947b55e4796f16febf7
  There are over 500 counters in the Japanese language; however, not all are commonly used. Read on to discover the most frequently used counters.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Japanese counters for time
@@ -204,16 +192,13 @@ thumbnail: https://thmb.techidaily.com/d35c94f12f755c322517a2947b55e4796f16febf7
 
  To count small and round objects like apples or tennis balls, you must use the \~個_(ko)_ counter. Conversely, to count thin and flat objects (such as sheets of paper, plates, or articles of clothing), you should use the まい_(mai)_ counter.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Japanese counters for animals
 
  For small animals like insects, fish, dogs or cats, you need to use the counter \~匹_(_ _hiki_ _)._ For larger animals, such as elephants, the appropriate counter \~頭_(tou)_ .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Japanese counters for food
 
@@ -226,6 +211,10 @@ thumbnail: https://thmb.techidaily.com/d35c94f12f755c322517a2947b55e4796f16febf7
  If you’re not overwhelmed yet, for cars, machines, and all types of household appliances, the counter \~台_(dai)_ is necessary.
 
  Not ready to dive into**Japanese counters** yet? Then consider using the general-purpose counter based on the Native-Japanese reading (一つ_hitotsu ,_ 二つ_futatsu_ and so on). This system allows you to count almost any kind of object up to ten without worrying about using the incorrect counter.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Special Number Zero in Japanese
 
@@ -240,6 +229,10 @@ Before you go, make sure you check out these FAQs.
 ### How to say numbers in Japanese?
 
  To say numbers in Japanese, start by learning the numbers up to 10: ichi (1), ni (2), san (3), yon (4), go (5), roku (6), nana (7), hatchi (8), kyu (9) and juu (10). If you're not familiar with the Japanese writing system, you may have to rely heavily on the Romanized version (Romaji) to learn the correct pronunciation of each number. Once you've mastered the numbers 1-10 in Japanese, counting up to 100 becomes straightforward.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to write Japanese numbers?
 
@@ -279,5 +272,20 @@ Before you go, make sure you check out these FAQs.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-delving-into-the-science-behind-vr-headsets-for-2024/"><u>[New] Delving Into the Science Behind VR Headsets for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-in-depth-overview-of-showmore-for-video-tech-professionals/"><u>[Updated] In 2024, In-Depth Overview of ShowMore for Video Tech Professionals</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-redefining-visual-storytelling-with-vidas-advanced-tools/"><u>[Updated] Redefining Visual Storytelling with Vida's Advanced Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/elevate-your-images-learn-photo-curvature-in-ps/"><u>Elevate Your Images Learn Photo Curvature in PS</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-seamless-techniques-for-documenting-digital-conferences-on-os-xpc/"><u>In 2024, Seamless Techniques for Documenting Digital Conferences on OS X/PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-greetings-101/"><u>International Greetings 101</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-french-salutations-the-ultimate-guide-to-bonjour/"><u>Mastering French Salutations: The Ultimate Guide to 'Bonjour'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlyar-vr-bridging-linguistic-gaps-in-virtual-space/"><u>MondlyAR VR: Bridging Linguistic Gaps in Virtual Space</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seize-language-power-6-ways-to-learn-arabic-via-mondly-online/"><u>Seize Language Power: 6 Ways to Learn Arabic via Mondly Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/streamlining-your-verification-process-on-yt/"><u>Streamlining Your Verification Process on YT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-linguistic-skills-through-dark-on-streaming/"><u>Transform Your Linguistic Skills Through Dark on Streaming</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-simplified-han-characters/"><u>Understanding Simplified Han Characters</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-asus-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Asus Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Virtual Vernaculars: Mastering New Languages for the Future"
-date: 2024-09-15T17:16:40.934Z
-updated: 2024-09-16T17:35:28.145Z
+date: 2025-01-24T01:46:22.810Z
+updated: 2025-01-30T01:14:30.889Z
 tags:
   - speak
   - english
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/9be41d62e85e6d9d35faed892e42e95be3740ff67
 
 ![pexels photo 46274](https://edge.mondly.com/blog/wp-content/uploads/2017/05/pexels-photo-46274.jpg "The Best Way To Learn A Foreign Language In The 21St Century 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Learning a foreign language with the help of technology
 
  Times have changed. Learning has changed. Nowadays, with the boom of technology, methods of learning a language have become more diverse. While the classic teacher-to-student approach is still the norm, other methods have made their way into our world. Technological advancements are now filling the gaps in the regular type of learning.
@@ -53,16 +57,7 @@ thumbnail: https://thmb.techidaily.com/9be41d62e85e6d9d35faed892e42e95be3740ff67
  The movie Matrix opened the gates to a world where you just plug your brain into a computer and immediately acquire a new language or skill. Elon Musk is one of the most-talked-about names in tech nowadays! What does he have in common with learning languages? Well, he’s developing devices that can be implanted into the human brain, and their end purpose would be to help humans “ [merge with software and keep pace with advancements in artificial intelligence](https://www.theverge.com/2017/3/27/15077864/elon-musk-neuralink-brain-computer-interface-ai-cyborgs)  ”. This could open doors for developers to bring lessons straight into your brain! Take a second to let that sink in – at the click of a button, a language would be merged with your brain! (Matrix, anyone?)
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10 best ways to learn a language
@@ -73,31 +68,21 @@ thumbnail: https://thmb.techidaily.com/9be41d62e85e6d9d35faed892e42e95be3740ff67
 
  Easier said than done in modern times, but making time for your passions can bring a series of benefits that will change your overall mood and wellbeing. A few sessions of learning a week will help you improve your skills, especially if you choose speaking and pronunciation exercises. The best way to learn a language at home is to sit in front of your computer or phone for at least half an hour each day and practice.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Trust repetition
 
  It’s hard not to be an expert at something from the exact moment you start learning it, but repetition is the foundation of progress. To [learn a new language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) by yourself, you have to repeat vocabulary and grammatical patterns until your brain becomes used to the new information. This is the best way to notice things, fix your mistakes and assimilate information.
 
 ![young people socializing](https://edge.mondly.com/blog/wp-content/uploads/2017/05/young-people-socializing-960x640.jpg "The Best Way To Learn A Foreign Language In The 21St Century 4")
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Socializing is crucial.
 
 ### 3\. Socialize
 
  One of the best ways to learn something new is to expose yourself through practice. When learning a new language, developing the speaking skills is crucial, so try to socialize with people who speak the language at a proficiency level.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Allow yourself to make mistakes
 
@@ -106,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/9be41d62e85e6d9d35faed892e42e95be3740ff67
 ### 5\. Be consistent
 
  Rome wasn’t built in a day, and just like that, you won’t be able to become an expert in just a few days. When asking yourself what’s the best way to learn a language, remember that it takes time and consistency is key. Practice every day, memorize the most important rules and exceptions, and enjoy the ride.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. Notice specific patterns
 
@@ -116,10 +105,7 @@ thumbnail: https://thmb.techidaily.com/9be41d62e85e6d9d35faed892e42e95be3740ff67
  Learning needs to be fun and entertaining, otherwise you might lose interest in it. To avoid that, look at the process from a rather childish perspective and make all your lessons fun.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Always start with the basics
@@ -128,20 +114,21 @@ You might be interested in [learning a new language](https://shop.mondly.com/aff
 
 ![young woman learning on laptop](https://edge.mondly.com/blog/wp-content/uploads/2017/05/young-woman-learning-on-laptop-960x640.jpg "The Best Way To Learn A Foreign Language In The 21St Century 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Learn anytime, anywhere.
 
 [Start with Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  and discover how you can learn a language fluently with little effort.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\. Choose books you already read
 
  Is reading the best way to learn a language? It sure is one of them! Practice is essential and one of the best ways to do this is to choose books you already read, but go for those translated in the language you’re trying to learn. Make sure you also have a dictionary handy, to be able to look for new words easily.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 10\. Watch movies without subtitles
 
@@ -177,5 +164,23 @@ You might be interested in [learning a new language](https://shop.mondly.com/aff
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-enhance-your-presence-best-free-tools-for-intriguing-openings/"><u>[Updated] 2024 Approved Enhance Your Presence Best Free Tools for Intriguing Openings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-crafting-captivating-youtube-thumbnails-a-sizing-guide-for-2024/"><u>[Updated] Crafting Captivating YouTube Thumbnails A Sizing Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-a-beginners-guide-to-music-in-online-video-footage-fb/"><u>[Updated] In 2024, A Beginner's Guide to Music in Online Video Footage (FB)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-illuminating-iphones-in-the-dark-photography-tips/"><u>[Updated] In 2024, Illuminating iPhones in the Dark Photography Tips</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-bringing-smiles-without-dollars-the-mememakers-way/"><u>2024 Approved Bringing Smiles without Dollars – The MemeMaker’s Way</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-mobile-mastery-using-phone-as-a-camera-for-recording/"><u>2024 Approved Mobile Mastery Using Phone as a Camera for Recording</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-advice-on-resetting-your-airpods-know-when-how-and-why-to-do-it-right/"><u>Expert Advice on Resetting Your AirPods – Know When, How, and Why to Do It Right!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-everything-with-zero-cost-on-mondly/"><u>Get Everything With Zero Cost on Mondly</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-play-and-convert-your-divx-videos-on-any-device/"><u>How to Play & Convert Your DivX Videos on Any Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-lacquered-love-for-independence/"><u>Language-Lacquered Love for Independence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/perfecting-your-speech-and-writing-the-role-of-english-contractions/"><u>Perfecting Your Speech & Writing: The Role of English Contractions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/por-que-and-por-que-understanding-the-contrast/"><u>Por Qué and Por Que: Understanding the Contrast</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/precision-perfected-pearsons-gsl-and-mondly-synergy/"><u>Precision Perfected - Pearson's GSL & Mondly Synergy</u></a></li>
+<li><a href="https://howto.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-motorola-moto-g04-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Motorola Moto G04 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/where-is-the-french-language-most-common-insights/"><u>Where Is the French Language Most Common? Insights</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-quick-reference-to-korean-days-and-nights/"><u>Your Quick Reference to Korean Days & Nights</u></a></li>
+</ul></div>
 

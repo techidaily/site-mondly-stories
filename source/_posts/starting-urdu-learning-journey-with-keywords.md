@@ -1,7 +1,7 @@
 ---
 title: Starting Urdu Learning Journey with Keywords
-date: 2025-01-16T16:46:31.684Z
-updated: 2025-01-22T16:54:01.947Z
+date: 2025-01-26T05:36:45.314Z
+updated: 2025-01-29T20:45:38.767Z
 tags:
   - speak
   - english
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
  Improving your Urdu vocabulary is one of the key aspects of [learning Urdu](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-6589&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6589?mother%5Flang=en%5Fus?target%5Flang=ur&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-6589?mother%5Flang=en%5Fus?target%5Flang=ur) . The more Urdu words you’ll know, the closer you’ll be to fluency. But keep in mind that not all words are equally important. In the beginning, you have to focus on basic, high-frequency words – words that make up the majority of everything we say on a daily basis.
 
 [Studies](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) have shown that knowing as little as 100 words will help you understand 50% of any text in Urdu. Surprising as it may seem, it’s true. The most common 1,000 words in Urdu will give you a high coverage of 75% of any Urdu text. Isn’t that amazing?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The most common everyday Urdu words
 
@@ -90,7 +86,7 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * stop — _رکو (ruko)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The most popular Urdu words searches
@@ -116,7 +112,7 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * hope — _امید (umeed)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Urdu words related to food and drink
@@ -150,10 +146,6 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * sugar — _شکر (shakar)_
 * pepper — _مرچ (mirch)_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Urdu words related to body and health
 
  The names of the body parts in Urdu are some of the most basic and useful words you can learn. Whether you are in a clothing store, or at the doctor’s office, various parts of the body can come up in conversation more often than you think.
@@ -180,7 +172,7 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * pharmacy — _دواخانہ (dawakhana)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Urdu words related to transportation and places
@@ -201,6 +193,10 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 * market — _بازار (bazar)_
 
  Now that you’ve mastered some of the most basic Urdu vocabulary words, you can dive into the practical phrases that’ll help you ease into real-world conversations.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The most common Urdu phrases
 
@@ -234,6 +230,10 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Learn Urdu in just 10 minutes a day
 
  Do you want to see the Urdu words in action? Get Mondly, the award-winning language learning app that will help you speak Urdu from day 1.
@@ -263,17 +263,17 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-mastering-srt-creation-a-comprehensive-manual-and-tricks/"><u>[New] In 2024, Mastering SRT Creation A Comprehensive Manual & Tricks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/15-premier-words-of-the-planet/"><u>15 Premier Words of the Planet</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-essential-websites-for-futuristic-typography/"><u>2024 Approved Essential Websites for Futuristic Typography</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ace-languages-premier-examinations-and-prep-strategies/"><u>Ace Languages: Premier Examinations and Prep Strategies</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/amplify-advocacy-through-advanced-corporate-language-learning/"><u>Amplify Advocacy Through Advanced Corporate Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/empowering-students-integrating-apple-technology-with-mondly/"><u>Empowering Students, Integrating Apple Technology with Mondly</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Oppo Find X6 Pro? | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ps4-controllers-unleashed-mastering-the-pair-up-process/"><u>PS4 Controllers Unleashed: Mastering the Pair-Up Process</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/syncing-samsung-audio-buds-with-laptop-easy-troubleshooting-steps/"><u>Syncing Samsung Audio Buds With Laptop: Easy Troubleshooting Steps</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unlocking-entertainment-a-step-by-step-guide-to-downloading-apps-on-samsungs-smart-tv/"><u>Unlocking Entertainment: A Step-by-Step Guide to Downloading Apps on Samsung's Smart TV</u></a></li>
-<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-vivo-s17t-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Vivo S17t? Here is How | Dr.fone</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-editor/"><u>What Is an AI Editor?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-the-ultimate-ringers-guide-shaping-iphone-sounds/"><u>[New] 2024 Approved The Ultimate Ringer's Guide Shaping iPhone Sounds</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-transform-videos-for-free-leading-enhancement-pages/"><u>2024 Approved Transform Videos for Free Leading Enhancement Pages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/connect-better-mondly-now-available-on-huawei/"><u>Connect Better: Mondly Now Available on Huawei</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-stop-dota-underlord-from-constant-crashing-solutions-explored/"><u>How to Stop Dota Underlord From Constant Crashing - Solutions Explored</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-htc-u23-pro-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track HTC U23 Pro Location by Number | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Samsung Galaxy S24+ | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lively-lessons-for-a-fun-and-engaging-spanish-journey/"><u>Lively Lessons for a Fun and Engaging Spanish Journey</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-secret-to-exceptional-communication-skills/"><u>Mondly's Secret to Exceptional Communication Skills</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-omegle-reinstated-guide-to-regaining-profile-approval-status/"><u>New 2024 Approved Omegle Reinstated Guide to Regaining Profile Approval Status</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/oculus-quest-embraces-worldwide-linguistics-via-mondly/"><u>Oculus Quest Embraces Worldwide Linguistics via 'Mondly'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-asian-linguistic-trinity-backup-and-organize-lists/"><u>Premier Asian Linguistic Trinity: Backup & Organize Lists</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/secrets-to-a-never-ending-snapstreak-inside-knowledge-for-2024/"><u>Secrets to a Never-Ending Snapstreak Inside Knowledge for 2024</u></a></li>
 </ul></div>
 

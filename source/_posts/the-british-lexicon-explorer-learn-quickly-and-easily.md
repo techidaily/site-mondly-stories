@@ -1,7 +1,7 @@
 ---
 title: "The British Lexicon Explorer: Learn Quickly & Easily"
-date: 2024-09-10T17:44:01.984Z
-updated: 2024-09-16T18:17:55.842Z
+date: 2025-01-28T16:32:36.547Z
+updated: 2025-01-30T03:22:02.101Z
 tags:
   - speak
   - english
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/ef833586db2eca1205112d6a13248317068108373
 
  Well, the chances of that happening are much slimmer after you get through our list. That, plus looking for online tutors can better prep you for your next British conversation.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Common British Phrases
 
  In this section, we will look at the phrases that will make you sound more British. Some of them might be those British phrases you always hear on TV shows or movies.
@@ -54,6 +58,10 @@ Mischievous or playful.
 
 This is a very British thing to say meaning very.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### _I’m pissed_
 
  Not meaning the regular “angry”, in British talk it actually means you’re very drunk and is used quite a lot when you are out drinking with friends.
@@ -63,10 +71,7 @@ This is a very British thing to say meaning very.
 A common one and quite cliché – mate means friend.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Rubbish_
@@ -88,6 +93,10 @@ A person native to East London.
 ### _Bollocks_
 
  One of the more well-known British terms, it actually has a multitude of meanings. It could be used to symbolize disbelief, or to talk about a man’s private parts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Funny British Sayings
 
@@ -164,10 +173,7 @@ A person native to East London.
 * _Miffed_ – Annoyed
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stereotypical British Phrases
@@ -183,6 +189,10 @@ A person native to East London.
 * _Posh nosh_ – Refers to high-quality or fancy food.
 * _Take the Mickey_ – Making fun of or tease someone.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **British Compliments**
 
  Think about the elegant British phrases you have heard and see if you recognize any in our list below.
@@ -197,13 +207,6 @@ A person native to East London.
 * _He is so buff_ – No so much strong as it is sexy and handsome.
 
 ![british english](https://edge.mondly.net/blog/wp-content/uploads/2020/02/british-english-960x960.png "50+ British Phrases And Slangs To Impress Your British Mates 5")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  American English vs. British English
 
@@ -226,10 +229,7 @@ A person native to East London.
  ‘Cheers’ is an informal manner of expressing gratitude, akin to saying ‘thank you’. When combined with the word ‘mate’, it forms the phrase “Cheers, mate”, which carries the same meaning as “Thank you, my friend.”
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Can you be British but not English?
@@ -239,6 +239,10 @@ A person native to East London.
 ### How to speak like a British?
 
  To speak like a British person, it’s essential to prioritize your pronunciation and vocabulary. Keep in mind that British accents exhibit significant regional variations, so actively listening to native speakers can aid in emulating specific accents like the esteemed ‘Received Pronunciation’. Additionally, acquaint yourself with British slang and remain cognizant of grammatical disparities. Finally, it is crucial to approach the emulation of a British accent with the utmost respect and a sincere curiosity about British culture. Doing this will help you improve your British accent faster.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Will British and American English diverge?
 
@@ -250,10 +254,7 @@ A person native to East London.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Speak a new language in just 10 minutes a day
@@ -277,5 +278,19 @@ Get Mondly now and speak any language like you never dreamed you would ![Learn w
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-ultimate-commercial-sky-storage-provider/"><u>[New] 2024 Approved Ultimate Commercial Sky-Storage Provider</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-navigating-through-the-10-leading-countdown-clock-apps-for-your-big-day-androidios/"><u>[Updated] In 2024, Navigating Through the 10 Leading Countdown Clock Apps for Your Big Day (Android/iOS)</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-ps-gaming-audio-masterclass-vocal-tweaks-for-2024/"><u>[Updated] PS Gaming Audio Masterclass - Vocal Tweaks for 2024</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/vlc-vlc/"><u>効果的なVLCでのビデオサイズ圧縮手法 - VLCメディアプレーヤー</u></a></li>
+<li><a href="https://techtrends.techidaily.com/essential-accessories-and-features-with-every-nintendo-switch-purchase/"><u>Essential Accessories and Features with Every Nintendo Switch Purchase</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/gopro-quik-for-macbook-how-to-edit-your-gopro-videos-easily/"><u>GoPro Quik for MacBook How to Edit Your GoPro Videos Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/impress-with-these-top-50-classics-in-latin-language/"><u>Impress with These Top 50 Classics in Latin Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-unlocked-romanian-made-simple/"><u>Language Unlocked: Romanian Made Simple</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-the-nuances-of-japanese-characters/"><u>Navigating the Nuances of Japanese Characters</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/samsungs-intelligent-tv-lineup-just-got-a-seven-year-guarantee-on-updates-and-features-revolutionizing-the-viewing-experience-innovatetechnews/"><u>Samsung's Intelligent TV Lineup Just Got a Seven-Year Guarantee on Updates and Features, Revolutionizing the Viewing Experience | InnovateTechNews</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-fluently-top-6-e-learning-platforms-for-korean-study/"><u>Speak Fluently: Top 6 E-Learning Platforms for Korean Study</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/top-5-android-emulators-for-playstation-2-gaming/"><u>Top 5 Android Emulators for PlayStation 2 Gaming</u></a></li>
+</ul></div>
 

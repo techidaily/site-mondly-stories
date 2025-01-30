@@ -1,7 +1,7 @@
 ---
 title: 15 Wege, Sich Abzuwesend Zu Prägnant Auszudrücken
-date: 2024-09-14T19:19:56.568Z
-updated: 2024-09-21T19:23:31.800Z
+date: 2025-01-29T01:29:25.095Z
+updated: 2025-01-30T01:44:49.232Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/bfb2d1c98fb54d4eedeecb18b7b3e8e4bf5cc5347
  Saying goodbye in German is just as important as [saying hello](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . After all, farewells are just like Thanos: inevitable. Once you’ve started a conversation with the proper greeting, you must also end it in style at some point. So, if you’re ready to say goodbye to your German friends but are not quite sure how to put it, you’ve come to the right place.
 
  Here are 15 different ways to say goodbye in German – from the well-known_Auf Wiedersehen_ to different variations of “see you later”. They will all come in handy sooner or later if you want to [learn German](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and speak it like a native.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Auf Wiedersehen – ‘Goodbye’ in German
 
@@ -58,13 +62,6 @@ thumbnail: https://thmb.techidaily.com/bfb2d1c98fb54d4eedeecb18b7b3e8e4bf5cc5347
 
  When you didn’t plan a next meeting or get-together and you’re not sure when you are going to see the other person, you can simply say_Man sieht sich_ , which means “see you”.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7\. Bis bald – ‘See you soon’ in German
 
  However, it’s way more common to take your leave by saying_Bis bald_ , which means “see you soon” in German. For the next three goodbyes, it will be useful to know that_bis_ is the German equivalent of “till”.
@@ -89,34 +86,36 @@ thumbnail: https://thmb.techidaily.com/bfb2d1c98fb54d4eedeecb18b7b3e8e4bf5cc5347
 * _Bis Samstag_ – “Until Saturday”
 * _Bis Sonntag_ – “Until Sunday”
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## basic german words
 
 ![basic german words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/basic-german-words-960x960.png "15 Ways To Say Goodbye In German 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. Gute Nacht – ‘Good night’ in German
 
  Naturally,_Gute Nacht_ (“good night”) is another great way to say goodbye if you’re retiring for the night. Although we use_Guten Morgen_ (“good morning”) as a greeting,_Gute Nacht_ only works as a farewell.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 11\. Bis zum nächsten Mal – ‘See you next time’
 
  If you want to say goodbye to someone you regularly see, like a coworker or a classmate,_Bis zum nächsten Mal_ is the most suitable choice.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 12\. Wir sehen uns dann – ‘See you then’
 
 _Wir sehen uns_ is another nice way to say “see ya later” if you are making plans with someone. Add_dann_ to that and it will mean something more along the lines of “see you then”.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 13\. Viel Spaß – ‘Have fun’ in German
@@ -124,22 +123,12 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
  Supposing that the other person is going to a party or a similar activity, you can say_Viel Spaß_ , which means “enjoy” or “have fun”.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 14\. Mach’s gut – ‘Take care’
 
  For more caring natures,_Mach’s gut_ is the perfect way to end a conversation. It is, of course, an informal way to say goodbye and it’s reserved for people with whom we have a special relationship.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 15\. Lebewohl – ‘Farewell’
 
@@ -181,5 +170,20 @@ _Wir sehen uns_ is another nice way to say “see ya later” if you are making 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-exclusive-environmentally-safe-recording-tools/"><u>[New] 2024 Approved Exclusive Environmentally Safe Recording Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-educators-essential-video-recording-gadgets-top-10-picks/"><u>[New] In 2024, Educator's Essential Video Recording Gadgets Top 10 Picks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-the-danger-of-censorship/"><u>[Updated] 2024 Approved The Danger of Censorship</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-metaverse-comedy-the-art-and-science-of-creating-viral-online-laughs/"><u>[Updated] In 2024, Metaverse Comedy The Art & Science of Creating Viral Online Laughs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-art-of-compelling-vlog-dialogue-crafting-for-2024/"><u>[Updated] The Art of Compelling Vlog Dialogue Crafting for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-unveiling-the-secrets-to-flawless-gopro-4k-edits/"><u>2024 Approved Unveiling the Secrets to Flawless GoPro 4K Edits</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/fixing-launch-failures-in-pacific-drive-software-quick-tips/"><u>Fixing Launch Failures in Pacific Drive Software: Quick Tips</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-plays-top-app-mondly-educates-children-in-2017/"><u>Google Play's Top App: Mondly Educates Children in 2017</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-apple-iphone-xs-properly-drfone-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your Apple iPhone XS Properly | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/italian-hand-signals-a-travelers-guide-to-cultural-nuance/"><u>Italian Hand Signals: A Traveler’s Guide to Cultural Nuance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leading-foreign-languages-in-american-education/"><u>Leading Foreign Languages in American Education</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/transforming-android-devices-into-broadcast-powerhouses-with-obs-for-2024/"><u>Transforming Android Devices Into Broadcast Powerhouses with OBS for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/where-are-dutch-people-from-discover-the-dutch-language/"><u>Where Are Dutch People From? Discover the Dutch Language</u></a></li>
+</ul></div>
 

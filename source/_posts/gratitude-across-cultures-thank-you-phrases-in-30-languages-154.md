@@ -1,7 +1,7 @@
 ---
 title: "Gratitude Across Cultures: Thank-You Phrases in 30 Languages (154)"
-date: 2024-09-19T16:09:59.578Z
-updated: 2024-09-21T19:54:09.638Z
+date: 2025-01-27T01:26:18.900Z
+updated: 2025-01-29T16:03:41.067Z
 tags:
   - speak
   - english
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/363cfd8ccc7387dbea9a9af2228add755c6db4677
  Have you ever thought about how important it is to be polite? This is not a matter of culture, but rather a matter of international common sense. It doesn’t matter if you are a French man in Romania or an American woman in Sweden. Common sense translates the same in all languages. How to say “thank you” in different languages should probably be included in students’ curricula at school. Expressing your gratitude is as important as expressing your love.
 
  Besides, this has everything to do with first impressions. As Will Rogers (American stage and motion picture actor) once said: “You never get a second chance to make a first impression”. So you have to make it count from the first try. We are people. We tend to automatically judge. We only need 30 seconds to make a full semiotic analysis of someone we’ve just met. That’s it! 30 seconds for an impression that may last a lifetime. If you travel to a foreign country, making that good first impression may mean to say**“thank you” in Spanish** (“gracias”). That doesn’t sound that hard to do, isn’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to say “thank you” in 30 languages
 
@@ -56,7 +60,15 @@ thumbnail: https://thmb.techidaily.com/363cfd8ccc7387dbea9a9af2228add755c6db4677
 
 ![how to say thank you](https://edge.mondly.com/blog/wp-content/uploads/2018/11/how-to-say-thank-you.jpg "How To Say Thank You In 30 Different Languages 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Thanks” by Hanny Naibaho©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The origin of saying “thank you”
 
@@ -80,6 +92,10 @@ thumbnail: https://thmb.techidaily.com/363cfd8ccc7387dbea9a9af2228add755c6db4677
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## From 0 to conversational in over 40 languages
 
@@ -109,12 +125,20 @@ thumbnail: https://thmb.techidaily.com/363cfd8ccc7387dbea9a9af2228add755c6db4677
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-stellar-photo-alterations-frameshift-prowess/"><u>[Updated] In 2024, Stellar Photo Alterations FrameShift Prowess</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-yt-masterpieces-for-igtv-showcase/"><u>Crafting YT Masterpieces for IGTV Showcase</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-tecno-spark-20-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Tecno Spark 20 FRP Locks</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/generating-new-ways-with-kids-and-parents/"><u>Generating New Ways with Kids & Parents</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-swiftly-learn-a-new-language-via-the-internet/"><u>How to Swiftly Learn a New Language via the Internet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-management-solutions-for-multilingualism/"><u>Innovative Management Solutions for Multilingualism</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polyglotism-a-trek-towards-enhanced-brainpower/"><u>Polyglotism: A Trek Towards Enhanced Brainpower</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/prosperous-relationships-start-with-japanese-greetings/"><u>Prosperous Relationships Start With Japanese Greetings</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/quick-tips-screen-record-and-camera-integration-on-android/"><u>Quick Tips Screen Record & Camera Integration on Android</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/seamless-clip-recording-solutions-for-2024/"><u>Seamless Clip Recording Solutions for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-online-lithuanian-education/"><u>The Ultimate Guide to Online Lithuanian Education</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/to-use-or-not-to-use-a-localized-legal-expert-system-weighing-your-options/"><u>To Use or Not to Use a Localized Legal Expert System? Weighing Your Options</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unboxing-viva-a-user-guide-to-its-videos/"><u>Unboxing Viva A User Guide to Its Videos</u></a></li>
+</ul></div>
 

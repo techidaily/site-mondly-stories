@@ -1,7 +1,7 @@
 ---
 title: Wow Venetians with Unique Expressions and Vocabulary
-date: 2025-01-17T17:49:40.558Z
-updated: 2025-01-22T17:17:26.070Z
+date: 2025-01-23T21:59:47.222Z
+updated: 2025-01-29T22:04:46.623Z
 tags:
   - speak
   - english
@@ -51,15 +51,15 @@ thumbnail: https://thmb.techidaily.com/4d3965d206c3e8f9b4a9da6d71e7e79363ab237dd
 
 ![Italian expressions](https://edge.mondly.com/blog/wp-content/uploads/2019/09/italian-expressions-960x640.jpg "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Funny Italian Slang Words & Phrases
 
 ### 1\. Cavoli amari
 
 _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refers to a tough situation or impending problems. Interestingly, Italians frequently mention cabbages! For instance,_cavoli miei_ (“my cabbages”) implies something is your personal business that others shouldn’t meddle with.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Boh
 
@@ -78,7 +78,7 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
  Literally “slipper-man”. Italian slang_pantofolaio_ refers to someone who prefers to stay home in their slippers rather than go out. Do you recognize yourself in this description? A_pantofolaio_ is basically the Italian equivalent of “couch potato”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Tirare il pacco
@@ -86,7 +86,7 @@ _Cavoli amari_ literally translates to “bitter cabbages” in Italian but refe
  “To throw the package”. Contrary to what some may think, this has nothing to do with the delivery man. Instead, it means to stand someone up. So, Italians don’t just skip a meeting or a date, they “throw the package”.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Schialla
@@ -95,15 +95,15 @@ _Scialla_ is an Italian slang word that has become very popular lately, thanks t
 
  There’s a 2011 movie with the same name in case you’re looking to expand your Italian slang word repertoire further.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Figo
 
  Mostly used by younger people, this Italian slang word is the equivalent of “cool”. If you want to say that something is extraordinary, fantastic, or cool, in Italian you would say_figo_ or_che figata_ .
 
  Additionally,_figo_ (or_figa_ for women) can also be used to say that someone is very attractive. For example,_Brad Pitt è un gran figo_ translates to “Brad Pitt is very attractive”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8\. Sbronza
 
@@ -111,27 +111,27 @@ _Sbronza_ is for everything related to alcohol as it essentially describes the s
 
  If you have to convey the meaning of being drunk in a more formal setting, you would definitely not use_sbronza_ . Instead, you would use terms like_ubriachezza_ (“drunkness”) or_intossicazione alcolica_ (“alcohol intoxication”).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9\. Che casino
 
 _Casino_ in Italian has nothing to do with gambling because it is literally a “brothel”. So, this Italian expression actually means “what a mess!” and is used to describe a situation that’s a bit out of control, confusing, or crowded.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 10\. Beccarsi
 
 _Beccarsi_ is an Italian slang verb that comes from_beccare,_ which literally means “to peck”. However, in slang or informal language,_beccarsi_ has several meanings depending on the context. The most common is “to meet” or “to catch up” with someone. For example,_Ci becchiamo dopo la scuola?_ translates to “Shall we meet up after school?”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 11\. Americanata
 
 _Americanata_ is a playful jab, not to be taken offensively, used to describe something absurdly grandiose, extravagant, or exaggerated, reflecting a humorous observation of American culture.
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 6")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Learn Italian today 🍝
 
@@ -159,7 +159,7 @@ _Americanata_ is a playful jab, not to be taken offensively, used to describe so
 ![Italian slang](https://edge.mondly.com/blog/wp-content/uploads/2019/09/italian-slang-960x640.jpg "Go Beyond “Ciao Bella”: 20+ Italian Slang Words &Amp; Expressions 7")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: More Italian Slang Words and Expressions
@@ -198,13 +198,13 @@ Before you go, make sure you check out these FAQs.
 
  Yes, using slang is okay when speaking Italian, as it can make your conversations more natural and show familiarity with the culture. Just make sure you’re mindful of the context and the company you’re in.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Where can I learn more Italian slang?
 
  You can learn more Italian slang on the Mondly blog, from Italian movies and TV shows, social media, and online forums frequented by fluent speakers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How can I use italian expressions confidently in conversation?
 
@@ -246,19 +246,24 @@ Before you go, make sure you check out these FAQs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-what-is-mukbang-and-how-to-make-mukbang-videos/"><u>[New] What Is Mukbang and How to Make Mukbang Videos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/a-beacon-of-inspiration-johannes-honterus/"><u>A Beacon of Inspiration: Johannes Honterus</u></a></li>
-<li><a href="https://extra-information.techidaily.com/acclaimed-cameras-for-expert-automotive-tracking/"><u>Acclaimed Cameras for Expert Automotive Tracking</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpts-my-gpt-bots-guide-conquering-board-games-crafting-images-and-expanding-skills/"><u>ChatGPT's My GPT Bots Guide: Conquering Board Games, Crafting Images, and Expanding Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/chord-powered-communication-science-backed-music-learning-techniques/"><u>Chord-Powered Communication: Science Backed Music Learning Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/crafting-connections-romantic-german-pick-up-lines/"><u>Crafting Connections: Romantic German Pick Up Lines</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivating-global-understanding-pathways-to-successful-communication/"><u>Cultivating Global Understanding: Pathways to Successful Communication</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultures-spooky-holiday-rituals/"><u>Cultures' Spooky Holiday Rituals</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deutsche-grussformeln-fur-die-abreise/"><u>Deutsche Grußformeln Für Die Abreise</u></a></li>
-<li><a href="https://fox-links.techidaily.com/exclusive-auditory-selections-for-filmmaking-for-2024/"><u>Exclusive Auditory Selections for Filmmaking for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-infinix-smart-7-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Infinix Smart 7 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/identifying-and-troubleshooting-gpu-problems-a-guide-by-yl-computing/"><u>Identifying and Troubleshooting GPU Problems: A Guide by YL Computing</u></a></li>
-<li><a href="https://sound-optimizing.techidaily.com/new-ideal-soundtrack-choices-selecting-songs-to-elevate-your-montage-masterpiece/"><u>New Ideal Soundtrack Choices Selecting Songs to Elevate Your Montage Masterpiece</u></a></li>
-<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-xiaomi-redmi-13c-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Xiaomi Redmi 13C 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-flashglimpse-crafter/"><u>[New] 2024 Approved FlashGlimpse Crafter</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-explore-the-potential-of-kinemaster-and-rank-10-best-online-game-substitutes/"><u>[New] Explore the Potential of KineMaster & Rank 10 Best Online Game Substitutes</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-dynamic-capture-excellence-the-premium-seven-list/"><u>[Updated] 2024 Approved Dynamic Capture Excellence The Premium Seven List</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/1716070280100-updated-2024-approved-securing-perfect-images-on-pc-check-out-these-top-5-tools/"><u>[Updated] 2024 Approved Securing Perfect Images on PC? Check Out These Top 5 Tools!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-crafting-perfect-youtube-channel-names-a-comprehensive-guide-for-video-content-creators-maximum-length-156-characters/"><u>[Updated] In 2024, Crafting Perfect Youtube Channel Names A Comprehensive Guide for Video Content Creators (Maximum Length 156 Characters)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-investigating-top-viewed-comments/"><u>[Updated] In 2024, Investigating Top Viewed Comments</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-posting-videos-on-instagram-easy/"><u>[Updated] In 2024, Posting Videos on Instagram Easy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accessible-japanese-study-freebies-and-solo-strategies/"><u>Accessible Japanese Study: Freebies and Solo Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apertenca-a-cultura-portuguesa-greves-tipicas/"><u>Apertença À Cultura Portuguesa: Greves Tipicas</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/charm-crafted-conversations-flirting-in-english-dialogue/"><u>Charm Crafted Conversations: Flirting in English Dialogue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/grammars-impact-on-second-language-acquisition/"><u>Grammar's Impact on Second Language Acquisition</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-insightful-names-in-virtual-reality-ventures/"><u>In 2024, Insightful Names in Virtual Reality Ventures</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-depth-analysis-top-9-freeware-logo-designers-unveiled-for-2024/"><u>In-Depth Analysis Top 9 Freeware Logo Designers Unveiled for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/macaus-trilingual-richness-revealed/"><u>Macau's Trilingual Richness Revealed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/marauders-dictionary-20-terms-to-sound-like-a-buccaneer/"><u>Marauder's Dictionary: 20 Terms to Sound Like a Buccaneer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-tongues-old-brains-fresh-minds-in-silver-years/"><u>New Tongues, Old Brains: Fresh Minds in Silver Years</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/akeup-mavens-handbook-youtube-edition-for-2024/"><u>The Makeup Maven’s Handbook YouTube Edition for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-timeless-journey-of-polyglots/"><u>The Timeless Journey of Polyglots</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voyage-vocabulary-top-phrases-to-conquer-francophone-lands/"><u>Voyage Vocabulary: Top Phrases to Conquer Francophone Lands</u></a></li>
 </ul></div>
 

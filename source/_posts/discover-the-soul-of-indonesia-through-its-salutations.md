@@ -1,7 +1,7 @@
 ---
 title: Discover the Soul of Indonesia Through Its Salutations
-date: 2024-09-15T17:43:55.334Z
-updated: 2024-09-21T19:38:18.492Z
+date: 2025-01-25T20:06:04.892Z
+updated: 2025-01-29T23:46:20.164Z
 tags:
   - speak
   - english
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/6e23731e5459bef762d6b1bc2a8183e3bf6b31c4a
 
  Last but not least, if someone greets you using the_wai_ gesture (slight bow with the palms put together in front of the chest), you can show respect towards their culture by returning the same gesture.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say ‘hello’ in Indonesian
 
  **If you want to say ‘hello’ in Indonesian, you can simply say_halo_ .** It’s short, sweet and almost identical to the English ‘hello’ you already know and use. Besides, it’s friendly and works great in most social situations.
@@ -40,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/6e23731e5459bef762d6b1bc2a8183e3bf6b31c4a
 
  On the other hand, if someone asks you how you are doing, you can say_kabar baik,_ which means “I am fine” or “I am well”. Here’s what a basic conversation in Indonesian sounds like:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### ‘Hi’ in Indonesian
 
  Made some new friends during your trip to Bali? When you meet them, you can also use the more informal_hi,_ which is pronounced the same as the English “hi”.
@@ -47,16 +55,7 @@ thumbnail: https://thmb.techidaily.com/6e23731e5459bef762d6b1bc2a8183e3bf6b31c4a
 Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Indonesian greetings for different times of day
@@ -71,6 +70,10 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
 
 ![indonesian words](https://edge.mondly.com/blog/wp-content/uploads/2022/07/indonesian-words.png "Hello In Indonesian: A Quick Guide To Indonesian Greetings 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The same way we say “morning!’ in English, Indonesians sometimes drop the_selamat_ . This results in a very informal greeting that can be used with friends and family.
 
  Determining the correct time of the day during which you should use a certain greeting is somehow tricky. However, most people will agree that_selamat pagi_ is best used until 11 p.m. and_selamat siang_ until 3 p.m._Selamat sore_ and_selamat malam_ highly depend on the daylight so it’s best to adjust your greetings on the spot.
@@ -78,16 +81,7 @@ Learning how to say ‘hello’ in Indonesian wasn’t that hard, was it?
  Naturally,_selamat tidur_ is only used when someone is retiring for the night.
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say goodbye
@@ -130,5 +124,19 @@ Get Mondly today and learn Indonesian naturally with the following:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-how-to-use-d3dgear-screen-recorder/"><u>[New] How to Use D3DGear Screen Recorder</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-zoom-organization-101-the-ultimate-setup-guide/"><u>[New] Zoom Organization 101 The Ultimate Setup Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-iphone-12-mini-review-big-things-come-in-small-packages/"><u>Apple iPhone 12 Mini Review: Big Things Come in Small Packages</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comprehensive-guide-what-is-a-408-request-timeout-and-how-can-you-troubleshoot/"><u>Comprehensive Guide: What Is a 408 Request Timeout and How Can You Troubleshoot?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-vimeo-earnings-unlocked-strategies-for-content-creators/"><u>In 2024, Vimeo Earnings Unlocked Strategies for Content Creators</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-reinvented-mondlys-ascent-in-germanys-online-world/"><u>Learning Reinvented: Mondly’s Ascent in Germany's Online World</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-problem-promptly-corrected-error-1053-service-delay-during-initiation/"><u>Overcoming Problem: Promptly Corrected Error 1053 - Service Delay During Initiation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/salutations-francaises-pour-equilibrer-la-montoirie/"><u>Salutations Françaises Pour Équilibrer La Montoirie</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-into-hangul-quick-learning-for-beginners/"><u>Step by Step Into Hangul: Quick Learning for Beginners</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-quest-for-your-own-specialized-tiktok-hash-code/"><u>The Quest for Your Own Specialized TikTok Hash Code</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-6-motivators-for-learning-arabic-on-mondly-online-platform/"><u>Top 6 Motivators for Learning Arabic on Mondly Online Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/trailblazing-ar-dialogue-enabler/"><u>Trailblazing AR Dialogue Enabler</u></a></li>
+</ul></div>
 

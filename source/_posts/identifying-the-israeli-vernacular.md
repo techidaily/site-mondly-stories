@@ -1,7 +1,7 @@
 ---
 title: Identifying the Israeli Vernacular?
-date: 2024-09-14T16:01:27.853Z
-updated: 2024-09-21T20:01:55.753Z
+date: 2025-01-23T23:59:11.391Z
+updated: 2025-01-29T21:00:03.206Z
 tags:
   - speak
   - english
@@ -20,11 +20,19 @@ thumbnail: https://thmb.techidaily.com/740b68b56d6bbac7152f3eef9f605d6bffa61f711
 
  Following a tumultuous and often violent history, the nation of Israel now has a [population](https://en.wikipedia.org/wiki/Israel#Demographics) of more than 9 million people. Out of this, 74.2% are Jews, 20.9% Arabs and 4.8% are Christians and people who have no religion listed in the civil registry. Despite the cultural diversity, almost the entire population speaks Hebrew, the country’s official language, either as a first or second language. However, this is not the full story of the languages of Israel. Let’s take a closer look at the country’s current linguistic landscape.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Israel language mosaic – what language is spoken in Israel?
 
  **Hebrew is the everyday and official language of Israel and roughly everyone speaks it, but the Arab minority which accounts for about one-fifth of the population, also speaks Arabic. Additionally, a high percentage of Israelis know English and over a million of them speak Russian as a result of immigration from the Soviet Union.**
 
  Although Hebrew can be seen and heard everywhere, Israel’s laws are officially published in Arabic and English as well. The same is true for most road signs, food labels, medicine brochures, safety regulations and messages published by the government.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hebrew
 
@@ -33,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/740b68b56d6bbac7152f3eef9f605d6bffa61f711
  What’s fascinating about [Hebrew](https://books.google.ro/books?id=EZCgpaTgLm0C&pg=PA1&redir%5Fesc=y#v=onepage&q&f=false) is that it ceased to be an everyday spoken language somewhere between the 2nd and 4th century CE. During the medieval period it survived only as a sacred language of Jewish liturgy and rabbinic literature. But then, toward the end of the 19th century and into the 20th century, with the rise of Zionism, it was revived as a spoken and literary language. Its renaissance is considered by many a linguistic miracle.
 
  Modern Hebrew is what you’ll hear on [the streets of Israel](https://link.springer.com/referenceworkentry/10.1007%2F978-3-030-02438-3%5F125) (and what you can [learn with Mondly](https://app.adjust.io/5ixfg4k?campaign=blog-post-id-5614&fallback=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages&redirect%5Fios=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fid987873536&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com?avangate%5Fsrc=blog-post-id-5614?mother%5Flang=en%5Fus?target%5Flang=he) ) and premodern Hebrew is now used only for prayer or study in Jewish communities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Arabic
 
@@ -57,10 +69,7 @@ So, as you can see, Russian is surprisingly widespread in Israel.
  Other languages you’re likely to hear in Israel are Yiddish, French (which was used as a diplomatic language in Israel until the 1990s when the Israeli-French alliance was undermined), German, Spanish and Romanian.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can you speak English in Israel?
@@ -79,10 +88,7 @@ So, as you can see, Russian is surprisingly widespread in Israel.
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Speak Hebrew or Arabic fluently in just 10 minutes a day
@@ -108,5 +114,16 @@ So, as you can see, Russian is surprisingly widespread in Israel.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-switching-back-from-macos-sierra-to-older-os-x/"><u>[New] 2024 Approved Switching Back From MacOS Sierra To Older OS X</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-innovative-approaches-for-unwavering-viewership-within-limit/"><u>[Updated] 2024 Approved Innovative Approaches for Unwavering Viewership (Within Limit)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-words-with-mondly-top-of-the-language-app-rankings-2022/"><u>Mastering Words with Mondly - Top of the Language App Rankings, 2022</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-reimagines-buttons-with-pearsons-expertise/"><u>Mondly Reimagines Buttons with Pearson's Expertise</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-eternal-savings-deal/"><u>Mondly's Eternal Savings Deal</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/never-pay-again-get-mondly-elite/"><u>Never Pay Again - Get Mondly Elite</u></a></li>
+<li><a href="https://discover-able.techidaily.com/ntfs-partitionsdatei-wiederherstellung-schritt-fur-schritt-anleitung/"><u>NTFS-Partitionsdatei Wiederherstellung – Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://win11.techidaily.com/quick-resolution-for-windows-update-error-0x800736cc/"><u>Quick Resolution for Windows Update Error 0X800736CC</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/solved-video-driver-issue-43-quickly/"><u>Solved Video Driver Issue #43 Quickly</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Saudações Básicas Em Português Para Ficar De Olho
-date: 2025-01-19T16:19:51.873Z
-updated: 2025-01-22T17:21:24.949Z
+date: 2025-01-27T21:29:24.634Z
+updated: 2025-01-30T02:27:43.050Z
 tags:
   - speak
   - english
@@ -31,7 +31,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### “Hi” in Portuguese – Oi
@@ -40,11 +40,11 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
- “Lisbon, Portugal” by Diego García©
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ “Lisbon, Portugal” by Diego García©
 
 ### “How are you” in Portuguese – Tudo bem?
 
@@ -62,7 +62,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
@@ -78,10 +78,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  **Good night in Portuguese –_Boa noite!_**  – The Portuguese language does not make any difference between evening and night. Thus, “goodnight” and “good evening” have the same translation in Portuguese. While in Brazil you will say “boa NOEE-tsh”, in Portugal you will say “boa NOEE-t”.
 
  All three of these are safe to use in any kind of interaction (formal or informal).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
 
@@ -123,6 +119,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fhello-in-portuguese-basic-portuguese-greetings-you-need%2F&t=Hello+in+Portuguese+and+Other+Basic+Portuguese+Greetings+You+Need+to+Know "Share on Facebook")
@@ -131,7 +131,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
@@ -165,20 +165,24 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/updated-the-evolution-of-excellence-lg-bp550/"><u>[Updated] The Evolution of Excellence - LG BP550</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/adopt-the-ten-minute-method-to-learn-urdu-online/"><u>Adopt the Ten-Minute Method to Learn Urdu Online!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/advance-your-company-culture-via-efficient-language-development/"><u>Advance Your Company Culture via Efficient Language Development</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/best-practices-and-tools-for-at-home-french-studies/"><u>Best Practices & Tools for At-Home French Studies</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/cookiebot-integration-elevating-web-analytics-and-marketing-success/"><u>Cookiebot Integration - Elevating Web Analytics and Marketing Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/crossing-cultures-turkish-and-korean-communication/"><u>Crossing Cultures: Turkish & Korean Communication</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/delicate-declarations-italys-flirty-lexicon/"><u>Delicate Declarations: Italy's Flirty Lexicon</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dialect-dichotomy-ukraine-vs-russias-vernacular/"><u>Dialect Dichotomy - Ukraine Vs Russia's Vernacular</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-workforce-skills-with-elite-linguistic-apps/"><u>Elevate Workforce Skills with Elite Linguistic Apps</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/enregistrer-des-fichiers-dans-le-nuage-facilement-avec-aomei-backupper-un-guide-detaille/"><u>Enregistrer Des Fichiers Dans Le Nuage Facilement Avec AOMEI Backupper : Un Guide Détaillé</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fun-meets-functionality-the-ddpai-mini3-dashcam-reviewed/"><u>Fun Meets Functionality: The DDPai Mini3 Dashcam Reviewed</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-7-to-other-iphone-13-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 7 To Other iPhone 13 devices? | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/new-release-ultimate-driver-software-for-the-brother-hl-2n40-series-on-windows/"><u>New Release: Ultimate Driver Software for the Brother HL-2n40 Series on Windows</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/optimize-your-viewing-experience-adjust-netflix-speed-for-2024/"><u>Optimize Your Viewing Experience Adjust Netflix Speed for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/the-ultimate-blueprint-creating-exceptional-podcast-content-on-idevices/"><u>The Ultimate Blueprint Creating Exceptional Podcast Content on iDevices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-great-income-clash-dailymovement-vs-youtube-economic-strategies-for-2024/"><u>[Updated] The Great Income Clash DailyMovement Vs YouTube Economic Strategies for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-global-perspective-why-become-bilingual-or-multilingual/"><u>A Global Perspective: Why Become Bilingual or Multilingual?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-advice-on-reducing-dota-2-lag-for-a-seamless-experience/"><u>Expert Advice on Reducing Dota 2 Lag for a Seamless Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/giro-vocale-dei-numeri-in-italiano-1-1000/"><u>Giro Vocale Dei Numeri in Italiano - 1-1000</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-oneplus-ace-2v-is-unlocked-by-drfone-android/"><u>How To Check if Your OnePlus Ace 2V Is Unlocked</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-honor-x9b-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Honor X9b Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/section-2b-five-factes-to-remember/"><u>Section 2B: Five Factes to Remember</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/semana-en-espanol-recuerdales-los-dias-correspondientes/"><u>Semana en Español: Recuérdales Los Días Correspondientes</u></a></li>
+<li><a href="https://win-unique.techidaily.com/sicheres-festplatten-klonen-auf-ssd-mit-secure-boot-in-windows-11-die-optimale-vorgehensweise/"><u>Sicheres Festplatten-Klonen Auf SSD Mit Secure Boot in Windows 11: Die Optimale Vorgehensweise</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-connecting-chatgpt-with-your-whatsapp-business-account/"><u>Step-by-Step Guide: Connecting ChatGPT with Your WhatsApp Business Account</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-multilingual-mindset-how-to-become-a-fluent-polyglot/"><u>The Multilingual Mindset: How to Become a Fluent Polyglot</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-trials-in-acquiring-fluency-in-german/"><u>The Trials in Acquiring Fluency in German</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/trick-or-treatings-global-variants/"><u>Trick-or-Treating's Global Variants</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unlock-a-potentially-life-saving-trick-on-your-pixel-watch-similar-to-zdnet-exposes/"><u>Unlock a Potentially Life-Saving Trick on Your Pixel Watch # Similar to ZDNet Exposes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579612218-unlock-global-conversations-with-an-exclusive-95-discounted-learning-plan/"><u>Unlock Global Conversations with an Exclusive 95% Discounted Learning Plan</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-linguistic-mastery-with-these-neural-workouts/"><u>Unlock Linguistic Mastery with These Neural Workouts</u></a></li>
+<li><a href="https://win11.techidaily.com/unravel-windows-camera-mysteries-with-this-guide/"><u>Unravel Windows Camera Mysteries with This Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-10-common-spanish-greetings-a-comprehensive-guide/"><u>Unveiling 10 Common Spanish Greetings: A Comprehensive Guide</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-your-hid-compatible-mouse-drivers-now/"><u>Update Your HID Compatible Mouse Drivers Now!</u></a></li>
 </ul></div>
 

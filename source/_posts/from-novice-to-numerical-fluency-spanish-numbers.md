@@ -1,7 +1,7 @@
 ---
 title: "From Novice to Numerical Fluency: Spanish Numbers"
-date: 2024-09-12T17:44:28.050Z
-updated: 2024-09-16T16:28:45.736Z
+date: 2025-01-22T17:28:55.216Z
+updated: 2025-01-29T21:45:29.769Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/12bebdcee4292f456ae693e07b507d42d27bcfe89
 
  Learning how to count is crucial if you decide to [learn Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . Although we may not always acknowledge it, numbers or_números_ (as you’d call them in Spanish) are essential to our day-to-day lives. From shopping to setting up a meeting, telling time, or giving someone your phone number – they really are one of the most basic and important language lessons. So let’s crack the mystery and discover what comes after_uno_ ,_dos,_ and_tres_ . Because Pitbull only gets us so far.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish numbers 1 to 30
 
  One of my Danish friends discovered how important Spanish numbers actually are when he needed to tell someone [the time in Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and had no idea that “five” is_cinco_ in Spanish. So this is a great piece of advice: don’t move to Barcelona without knowing one of the most basic [Spanish lessons](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) first. Especially when it takes just 10 minutes to master it.
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/12bebdcee4292f456ae693e07b507d42d27bcfe89
  Until then, here’s cool audio of a fluent speaker pronouncing the Spanish numbers 1 to 10:
 
 **Good to know:** _uno_becomes an article and changes to_un_if it’s in front of a noun. For example,_un cerdo_translates to “a pig” in English.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Spanish numbers to 40
 
@@ -70,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/12bebdcee4292f456ae693e07b507d42d27bcfe89
 
  As you can see, up to 30 (“thirty”), the numbers are bound together, but from there on they part ways to make counting in Spanish even easier for you. Basically, you won’t say “thirty-one”, but “thirty**and** one”:_treinta y uno_ .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Count to 100 in Spanish
 
  As we already settled, counting in Spanish is all about mastering the basics. Now that you know how to count to 40, counting to 100 in Spanish is a piece of cake. Just learn the tens and you are ready to go.
@@ -100,16 +112,7 @@ thumbnail: https://thmb.techidaily.com/12bebdcee4292f456ae693e07b507d42d27bcfe89
 * 98 –_noventa y ocho_
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spanish numbers to 1000 and beyond
@@ -150,10 +153,7 @@ Here are some more examples:
 ![count in Spanish](https://edge.mondly.com/blog/wp-content/uploads/2020/07/count-in-spanish-960x663.jpg "Spanish Numbers: How To Count Numbers In Spanish 4")
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Barcelona, Spain
@@ -203,5 +203,20 @@ Here are some more examples:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-achieving-professional-colors-with-central-luts-for-2024/"><u>[New] Achieving Professional Colors with Central Luts for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-cutting-edge-filmmaking-techniques-youtubes-insights-and-competitors/"><u>[New] In 2024, Cutting-Edge Filmmaking Techniques YouTube's Insights & Competitors</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-most-liked-prime-videos-amongst-twittersphere-for-2024/"><u>[New] Most Liked Prime Videos Amongst Twittersphere for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-maximizing-viewability-and-engagement-understanding-facebook-video-ratios/"><u>[Updated] 2024 Approved Maximizing Viewability & Engagement Understanding Facebook Video Ratios</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/best-hd-action-recorders-under-100/"><u>Best HD Action Recorders Under $100</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-chatter-mastery-top-simplest-languages-guidebook/"><u>Global Chatter Mastery: Top Simplest Languages Guidebook</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-securing-your-youtube-profile-a-guide/"><u>In 2024, Securing Your YouTube Profile A Guide</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-the-essential-guide-to-understanding-and-using-instagrams-music-features/"><u>In 2024, The Essential Guide to Understanding and Using Instagram's Music Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-leap-fast-track-bulgarian-learning/"><u>Language Leap: Fast-Track Bulgarian Learning</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-dualitys-impact-prime-benefits/"><u>Linguistic Duality's Impact: Prime Benefits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/refine-fluency-in-english-discourse-9-key-tactics/"><u>Refine Fluency in English Discourse – 9 Key Tactics</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speed-up-your-ukrainian-skills-with-short-regular-sessions-106-chars/"><u>Speed Up Your Ukrainian Skills with Short, Regular Sessions (106 Chars)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-communication-the-worlds-hardest-languages-decoded/"><u>Unlocking Communication: The World’s Hardest Languages Decoded</u></a></li>
+</ul></div>
 

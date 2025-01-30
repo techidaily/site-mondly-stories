@@ -1,7 +1,7 @@
 ---
 title: Discover Persian Roots, Unlock Language Potential
-date: 2024-09-18T17:39:59.563Z
-updated: 2024-09-21T19:39:50.496Z
+date: 2025-01-27T01:30:01.254Z
+updated: 2025-01-29T16:05:16.944Z
 tags:
   - speak
   - english
@@ -36,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39
 
  Old Persian then developed into**Middle Persian,** which existed from around 300 BCE until 800 CE. Evidence of Middle Persian exists mainly in the religious texts of the Zoroastrian religion. However, **Middle Persian entered a new stage when the Islamic conquest in 651 AD happened.** The following 200 years are referred to as “the two centuries of silence” because there is very little to almost no literature available from this time period.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The Arab rule
 
  It seems that during the Muslim conquest of Persia, the Persian language was in danger of being lost and replaced by Arabic. Luckily, Persia was one of the few places where the Arabic language did not replace the local language. However, Arabic was used by the elite and it definitely had a big impact on the vocabulary of the**Modern Persian** that was emerging.
@@ -49,16 +53,7 @@ thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39
  Today, there still are a significant number of [Arabic words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) in Persian, but not as many as there could have been.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Persian influence on other languages
@@ -66,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39
  During this Persian cultural resurgence, the Persian language and culture impacted a wide geographic area. For this reason, Persian has left its influence on many different languages, including a heavy influence on the [vocabulary of Urdu](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and Turkish. To this day, words of Persian origin can be found as far as Malaysia.
 
  As a matter of fact, there are even some English words of Persian origin. Some of them came directly into English from Persian, but most of them came indirectly into English via a different language. Some examples include bronze, jackal, lemon, mogul, mummy, scarlet, serendipity, shawl, tulip, turban, typhoon, khaki, caravan, and paradise. Probably the most interesting borrowing is the word “checkmate,” which comes from the Persian_Shah Mat_ , meaning “the king is dead”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Persian vs Farsi: Is Farsi the same as Persian?
 
@@ -76,6 +75,10 @@ thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39
  Over the course of history, the word ‘Farsi’ developed from the terms the natives used to refer to Old Persian, Middle Persian, and New Persian, which are_Parsa, Parsik_ or_Parsig_ and_Fars_ , respectively.
 
  According to the [Academy of Persian Language and Literature](https://iranicaonline.org/articles/farhangestan) , the endonym ‘Farsi’ should be avoided in foreign languages. Instead, ‘Persian’ should be the appropriate designation in English, as it has the longest tradition in western languages and is better suited to convey the language’s role as a national and cultural continuity symbol.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Persian vs Arabic: Is Persian similar to Arabic?
 
@@ -88,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39
  Here are two videos of numbers from 1 to 10 in Persian and in Arabic so you can see the difference:
 
  All in all, Persian and Arabic can’t be considered mutually intelligible. A speaker of either Persian or Arabic with no knowledge of the other could recognize some basic words in writing, but conversations are a whole other story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The benefits of learning Farsi/Persian
 
@@ -108,13 +115,6 @@ Other benefits of learning Persian include:
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Learn Persian online with Mondly
 
@@ -145,5 +145,18 @@ Other benefits of learning Persian include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-revealing-10-hidden-viewers-of-stories/"><u>[New] In 2024, Revealing 10 Hidden Viewers of Stories</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-photography-toolkit-a-comprehensive-app-analysis/"><u>[New] Photography Toolkit A Comprehensive App Analysis</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-building-a-sustainable-income-via-youtube-and-adsense-for-2024/"><u>[Updated] Building a Sustainable Income via YouTube and AdSense for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-the-ultimate-guide-to-vimeo-gif-conversion-magic-for-2024/"><u>[Updated] The Ultimate Guide to Vimeo-Gif Conversion Magic for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/enhance-your-medias-impact-with-precise-aspect-ratios-for-2024/"><u>Enhance Your Media's Impact with Precise Aspect Ratios for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-croatian-expressions-for-an-unforgettable-journey-to-croatia/"><u>Key Croatian Expressions for an Unforgettable Journey to Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-to-converse-tagalog-today-with-focused-short-sessions/"><u>Learn to Converse Tagalog Today with Focused Short Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-consequences-picking-between-german-and-french/"><u>Learning Consequences: Picking Between German and French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-boundless-learning-network-a-community-of-70plus-million/"><u>Mondly’s Boundless Learning Network: A Community of 70+ Million</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sunday-through-saturday-in-korea-made-simple/"><u>Sunday Through Saturday in Korea Made Simple</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-in-online-income-the-revelation-of-500plus-subscribers-power-for-2024/"><u>Surge in Online Income The Revelation of 500+ Subscribers' Power for 2024</u></a></li>
+</ul></div>
 

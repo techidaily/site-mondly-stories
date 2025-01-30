@@ -1,7 +1,7 @@
 ---
 title: Sounds of Language Across Atlantic
-date: 2024-09-19T16:04:13.674Z
-updated: 2024-09-21T17:34:56.961Z
+date: 2025-01-23T17:24:34.321Z
+updated: 2025-01-29T16:47:45.587Z
 tags:
   - speak
   - english
@@ -95,6 +95,10 @@ thumbnail: https://thmb.techidaily.com/aa55be7c2a41a4441a2d4709614981b2cbcf720fe
 
  Although spelling, accent, and vocabulary differences are the most notorious distinctions, American English and British English are divergent in some [grammar](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) matters as well.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Collective nouns
 
  In American English, collective nouns such as “band”, “team”, “family” or “crew” are considered plural. In contrast, British English considers collective nouns either singular or plural, but more often plural as a way to emphasize the members of the group.
@@ -107,6 +111,10 @@ thumbnail: https://thmb.techidaily.com/aa55be7c2a41a4441a2d4709614981b2cbcf720fe
 
  Many verbs that are irregular in the past tense in British English (_dreamt, burnt, learnt_), have been made regular in American English (_dreamed, burned, learned_).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Got or gotten?
 
  In the UK, the past participle of “get” – “gotten” – is considered archaic and was replaced with “got” some time ago. Americans, on the other hand, still use “gotten” as the past participle of “get”.
@@ -116,10 +124,7 @@ thumbnail: https://thmb.techidaily.com/aa55be7c2a41a4441a2d4709614981b2cbcf720fe
 **American English:** get – got – gotten
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Tenses
@@ -128,20 +133,21 @@ thumbnail: https://thmb.techidaily.com/aa55be7c2a41a4441a2d4709614981b2cbcf720fe
 
  Thus, in Britain, you’ll say**“I’ve been to the supermarket”** and in the US you’ll say**“I went to the supermarket”** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Prepositions
 
  In British English, “at” is generally used in relation to time and place. In contrast, in American English, “on” is used in relation to time and “in” is used in relation to place.
 
 ![british american english](https://edge.mondly.com/blog/wp-content/uploads/2020/06/british-american-english-600x600.jpg "British English Vs American English Differences: Spelling, Pronunciation And More 3")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  British English vs American English
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Other grammar differences
 
@@ -149,31 +155,11 @@ thumbnail: https://thmb.techidaily.com/aa55be7c2a41a4441a2d4709614981b2cbcf720fe
 
  Additionally, in Britain, you are likely to hear “needn’t” a lot and in the US not at all. In its place, Americans use “don’t need to”.
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## British accent vs American accent
 
  The biggest difference between British English and American English is, undoubtedly, the accent. The reason why these two variations sound so different is known as rhotacism, the change of a particular consonant into a rhotic consonant. In this case, the consonant is “r”.
 
  American accent is rhotic and Americans pronounce their “R’s” loud and clear. On the other hand, the British accent is non-rhotic and Brits usually replace their “R’s” with “H’s”. Thus, words like “water” or “card” will be pronounced_wa-tuh_ or_caahd_ .
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## British vs American: which one should you learn and use?
 
@@ -213,5 +199,20 @@ thumbnail: https://thmb.techidaily.com/aa55be7c2a41a4441a2d4709614981b2cbcf720fe
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-from-free-to-funded-monetization-mastery-for-fb-pages/"><u>[New] 2024 Approved From Free to Funded Monetization Mastery for FB Pages</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-leading-websites-to-discover-glossy-gold-letter-effects/"><u>[New] Leading Websites to Discover Glossy Gold Letter Effects</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-earning-big-on-youtube-shorts-what-you-need-and-how-much-can-you-make-in-2024/"><u>[Updated] Earning Big on Youtube Shorts What You Need & How Much Can You Make, In 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-motorola-defy-2-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Motorola Defy 2?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/cross-operational-expertise-enabling-and-running-android-software-with-ease-on-windows-10-systems/"><u>Cross-Operational Expertise: Enabling and Running Android Software with Ease on Windows 10 Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-introduction-essentials/"><u>International Introduction Essentials</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-kaleidoscope-the-multilingual-eu-story-echoed/"><u>Language Kaleidoscope: The Multilingual EU Story Echoed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mitternachtsverabschiedungssatze-im-deutschen/"><u>Mitternachtsverabschiedungssätze Im Deutschen</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-privacy-update-notice/"><u>New Privacy Update Notice</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-cinematic-revolution-exploring-the-best-shots-and-lighting-tips-24-edition/"><u>The Cinematic Revolution Exploring the Best Shots & Lighting Tips - '24 Edition</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transform-your-grammar-skills-with-9-top-strategies-by-esl-pioneers/"><u>Transform Your Grammar Skills with 9 Top Strategies by ESL Pioneers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/bes-rules-the-creators-perspective-for-2024/"><u>YouTube’s Rules The Creator's Perspective for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saayd-alyom-lk-arabic/"><u>سعيد اليوم لك (Arabic)</u></a></li>
+</ul></div>
 

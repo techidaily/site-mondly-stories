@@ -1,7 +1,7 @@
 ---
 title: "Försök Till Svensk: Grev Att Göra"
-date: 2024-09-15T18:54:33.956Z
-updated: 2024-09-21T16:50:52.548Z
+date: 2025-01-26T23:42:57.851Z
+updated: 2025-01-29T18:38:11.497Z
 tags:
   - speak
   - english
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe
 
  If you’re visiting and want to get a coffee, the simplest way to sound and look like a local is to throw in a smile and a **“Hej!”** (pronounced just like _Hey!_). This one is the perfect greeting, regardless of the time of day or to whom you address it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say “Hello!” in Swedish
 
  In more formal circumstances, you can use the word **“hallå”** (/haˈloː/). Sometimes, Swedes like to articulate the word when greeting someone by saying **“** **Hallå, hallå!”**  or even use it when they’re irritated and what to bring more attention to a situation they’re telling you about.
@@ -38,30 +42,32 @@ thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe
 
  At the restaurant, cafés, or when you enter a building, saying “Good Morning!” is a sign of respect and will help you establish a connection with those around you. The Swedish equivalent of the morning greeting is **“God morgon!”**  . It’s important to use all the common greetings, even as a foreigner because you will most likely make a good impression.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say “Good evening!” in Swedish
 
 **“God kväll!”** is a rather formal greeting in [Swedish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)  , but you might hear this in theaters, or when the evening news show starts. Usually, this greeting is not used between family and friends. “Kväll” is pronounced _kvell_ and the “g” can be silent.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Goodnight!” in Swedish
 
  After getting acquainted with Swedes, you will most likely enjoy late night talks and drinks, so a proper Goodnight is needed to end the day properly. **“Godnatt!”** , often pronounced _goo-natt_  is the way to wish locals a good night’s rest and let them know you can’t wait to hang out again soon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to say “What’s up?” in Swedish
 
  What better way to find out more about your Swedish friends’ day or how they’re feeling than asking “what’s up?”? **“Hur är det?”** or **“hur går det?”**  are what is used to ask “how is it?” and “how is it going?”. They are both informal ways of getting a conversation started and can be used when talking on the phone as well, just after you introduce yourself.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to say “Goodbye!” in Swedish
@@ -90,5 +96,21 @@ thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-top-15-virtual-classrooms-youtube-channels-pushing-scientific-boundaries/"><u>[New] 2024 Approved Top 15 Virtual Classrooms YouTube Channels Pushing Scientific Boundaries</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-safeguard-yourself-from-oculus-discomfort/"><u>[New] Safeguard Yourself From Oculus Discomfort</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-meme-milestones-crafting-jokes-for-lifes-turning-points/"><u>[Updated] In 2024, Meme Milestones Crafting Jokes for Life's Turning Points</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-nokia-g22-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-vivo-x-fold-2-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-professionals-almanac-to-efficient-voice-recording/"><u>In 2024, Professional's Almanac to Efficient Voice Recording</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-bulgarian-daily-quick-10-minute-routine/"><u>Mastering Bulgarian Daily: Quick 10-Minute Routine</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mind-expansion-elders-and-emerging-languages/"><u>Mind Expansion: Elders and Emerging Languages</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-learners-guide-to-french-literature-20-favorite-books/"><u>New Learners' Guide to French Literature: 20 Favorite Books</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-tandc-for-better-privacy-control/"><u>New T&C for Better Privacy Control</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/reanimated-ruin-renderer-for-2024/"><u>Reanimated Ruin Renderer for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vr-language-labyrinths-navigating-new-worlds-of-speech/"><u>VR Language Labyrinths: Navigating New Worlds of Speech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/your-gateway-to-fluency-embrace-mondlys-magic/"><u>Your Gateway to Fluency: Embrace Mondly's Magic</u></a></li>
+</ul></div>
 

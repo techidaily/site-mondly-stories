@@ -1,7 +1,7 @@
 ---
 title: International Greetings 101
-date: 2025-01-18T16:23:35.928Z
-updated: 2025-01-22T16:21:32.527Z
+date: 2025-01-24T02:24:16.519Z
+updated: 2025-01-29T17:14:53.127Z
 tags:
   - speak
   - english
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/80eceb8d178e7070d961e9242a3b69515c63dafd8
  If you want to learn more about how to say ‘hello’ in Spanish, here’s a more in-depth [guide on Spanish greetings](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hello in Russian — Здравствуйте (Zdravstvuyte)
@@ -50,10 +50,6 @@ thumbnail: https://thmb.techidaily.com/80eceb8d178e7070d961e9242a3b69515c63dafd8
 
  Moreover, don’t forget that the Japanese culture is a culture of respect. If you want to go all-in and immerse yourself entirely in the Japanese culture, it’s best to [study Japanese](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) etiquette before your trip.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Hello in Korean — 안녕하세요 (Annyeonghaseyo)
 
  In recent years, the [Korean language](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) has been enjoying an increase in popularity due to BTS, a Korean boy band “taking over the world”. As a result, more and more young people wish to learn Korean. So, knowing as little as**‘hello’ in Korean** is a must if you want to be up-to-date.
@@ -63,13 +59,13 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 ![hello in japanese](https://edge.mondly.com/blog/wp-content/uploads/2021/06/hello-in-japanese-960x640.jpg "How To Say &Quot;Hello&Quot; In Different Languages 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  “Mount Fuji, Japan” by David Edelstein©
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hello in French — Bonjour
@@ -100,10 +96,6 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
  “Antibes, France” by Reuben Mcfeeters©
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Hello in Italian — Ciao
 
  The Italian_Ciao_ is so popular that it has also been borrowed by other countries to be used between friends as a joke or even seriously. Together with_Capisce_ and_Grazie_ ,_Ciao_ forms the Holy Trinity of the Italian language. Anyone who wants to summon his or her inner Italian just uses these three words and automatically becomes Italian. Oh, let’s not forget about the famous [Italian hand gesture](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) ! (Admit it. You tried that, too, at some point.)
@@ -120,6 +112,10 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 
  Of course, like in many other languages, this is not the only way to say ‘hello’ in Chinese. To find out what are other ways to say ‘hi’ in Chinese, here’s an [in-depth guide on](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) **Chinese greetings.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Hello in Portuguese — Olá
 
 **_Olá_ or_Oi_ ?** What’s your Portuguese hello of choice?
@@ -127,6 +123,10 @@ _안녕하세요 (Annyeonghaseyo)_ is the most popular semi-formal Korean hello.
 _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless of the person you are addressing._Oi_ , on the other hand, is how you can say**‘hi’ in Portuguese** and it is very informal and friendly. Careful though. While it is one of the most common ways to greet your friends in Brazil, people from Portugal don’t use it as much.
 
  To learn more about Portuguese greetings, check out our guide on how to say [**‘** **hello’ in Portuguese**](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Hello in different languages
 
@@ -202,14 +202,24 @@ _Olá_ , just like the Spanish_Hola_ , is suitable for any situation regardless 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-best-screen-grabber-gadgets-for-youtube-channels/"><u>[New] Best Screen Grabber Gadgets for YouTube Channels</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-top-12-capture-providers-never-stop/"><u>[New] In 2024, Top 12 Capture Providers, Never Stop</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/wift-rescaling-perfect-mac-pixels-with-youtube-for-2024/"><u>[New] Swift Rescaling Perfect Mac Pixels with YouTube for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhanced-creativity-and-expression-with-second-language-skills/"><u>Enhanced Creativity and Expression with Second Language Skills</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enter-new-era-of-language-learning-with-mondlyar/"><u>Enter New Era of Language Learning with MondlyAR</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-spelling-knowledge-the-most-frequently-misspelled-words/"><u>Essential Spelling Knowledge: The Most Frequently Misspelled Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-flavor-to-verse-chocolate-speeches-across-nations/"><u>From Flavor to Verse: Chocolate Speeches Across Nations</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-premium-uav-selection-in-stock/"><u>In 2024, Premium UAV Selection in Stock</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/tailor-made-camera-frame-sets-with-unique-accents/"><u>Tailor-Made Camera Frame Sets with Unique Accents</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-ideal-caption-solutions-photo-text-integration-guide/"><u>[New] 2024 Approved Ideal Caption Solutions Photo-Text Integration Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-how-to-securely-document-whatsapp-discussions/"><u>[Updated] How to Securely Document WhatsApp Discussions</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-swift-seize-video-with-soundtracking-for-2024/"><u>[Updated] Swift Seize Video with Soundtracking for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-dialogues-how-to-wake-up-the-world-with-good-morning/"><u>Dawn Dialogues: How to Wake Up the World with 'Good Morning'</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-the-future-of-conversations-with-ai/"><u>Dive Into the Future of Conversations with AI</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/english-worlds-apart/"><u>English Worlds Apart</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-googles-ai-initiative-the-gemini-project-details-and-focuses/"><u>Exploring Google's AI Initiative - The Gemini Project Details and Focuses</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/guide-to-excellent-voice-recorders-for-macs/"><u>Guide to Excellent Voice Recorders for Macs</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/is-chatgpt-a-big-privacy-risk/"><u>Is ChatGPT a Big Privacy Risk?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/japanese-salutations-guide-essential-phrases-and-gestures/"><u>Japanese Salutations Guide: Essential Phrases & Gestures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/journey-through-hindi-why-mondlys-online-study-triumphs/"><u>Journey Through Hindi: Why Mondly's Online Study Triumphs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-expressions-your-guide-to-fluent-conversations-in-south-america/"><u>Key Expressions: Your Guide to Fluent Conversations in South America</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/premier-patois-top-15-language-list/"><u>Premier Patois: Top 15 Language List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/secure-future-savings-unlimited-lifetime-mondly-premium-at-up-to-96-off/"><u>Secure Future Savings: Unlimited Lifetime Mondly Premium at Up to 96% Off!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/streamlining-your-smart-household-introducing-matter-13-solutions/"><u>Streamlining Your Smart Household: Introducing Matter 1.3 Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/superior-software-paving-the-way-to-polyglot-prowess/"><u>Superior Software Paving the Way to Polyglot Prowess</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/understanding-the-mechanisms-of-nightshade-toxins-ceramic-glazes-and-artificial-intelligence-neurotoxins/"><u>Understanding the Mechanisms of Nightshade Toxins, Ceramic Glazes, and Artificial Intelligence Neurotoxins</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/weekly-essentials-the-best-of-igtv/"><u>Weekly Essentials The Best of IGTV</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/wmaaac/"><u>WMAからAACへのフリーオンラインコンバーター - ムヴァヴィ</u></a></li>
 </ul></div>
 

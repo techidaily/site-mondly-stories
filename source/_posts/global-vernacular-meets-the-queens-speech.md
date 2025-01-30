@@ -1,7 +1,7 @@
 ---
 title: Global Vernacular Meets the Queen's Speech
-date: 2025-01-20T16:18:38.760Z
-updated: 2025-01-22T17:11:45.238Z
+date: 2025-01-23T03:14:51.710Z
+updated: 2025-01-29T20:15:51.653Z
 tags:
   - speak
   - english
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/884f30fb76d736a31d012b1260ea6a8f9da2a38ed
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where did English Come From?
@@ -78,7 +78,7 @@ thumbnail: https://thmb.techidaily.com/884f30fb76d736a31d012b1260ea6a8f9da2a38ed
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
@@ -92,14 +92,6 @@ thumbnail: https://thmb.techidaily.com/884f30fb76d736a31d012b1260ea6a8f9da2a38ed
 ##### Improve your English fast 🚀
 
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
 
@@ -129,10 +121,6 @@ thumbnail: https://thmb.techidaily.com/884f30fb76d736a31d012b1260ea6a8f9da2a38ed
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Spanish loanwords: English words that are actually Spanish
 
 | Chinchilla |
@@ -154,6 +142,10 @@ thumbnail: https://thmb.techidaily.com/884f30fb76d736a31d012b1260ea6a8f9da2a38ed
 | Guacamole  |
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
 
@@ -183,6 +175,10 @@ thumbnail: https://thmb.techidaily.com/884f30fb76d736a31d012b1260ea6a8f9da2a38ed
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## German loanwords: English words that are actually German
 
 | Pretzel      |
@@ -206,6 +202,10 @@ thumbnail: https://thmb.techidaily.com/884f30fb76d736a31d012b1260ea6a8f9da2a38ed
 | Diesel       |
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
 
@@ -265,16 +265,17 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-enhance-online-interaction-embracing-closer-views/"><u>[New] 2024 Approved Enhance Online Interaction Embracing Closer Views</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-online-concert-for-a-click-music-and-memories/"><u>[Updated] Online Concert for a Click Music and Memories</u></a></li>
-<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-infinix-zero-30-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Infinix Zero 30 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/raw-footage-to-highlight-hits/"><u>From Raw Footage to Highlight Hits</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Samsung Galaxy A34 5G? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-ukrainians-embrace-free-education/"><u>Mondly: Ukrainians, Embrace FREE Education</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/obsessed-with-squid-game-but-lost-in-translation-learn-korean/"><u>Obsessed With Squid Game, but Lost in Translation? Learn Korean</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/orientacion-para-comprender-relojes-espanoles/"><u>Orientación Para Comprender Relojes Españoles</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96369034-9781446358221-psychic-experiences/"><u>Psychic Experiences | Free Book</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-ultimate-list-of-ai-apps-to-elevate-your-phone-experience-ios-and-android/"><u>The Ultimate List of AI Apps to Elevate Your Phone Experience (iOS and Android)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/why-learning-a-new-language-is-good-for-your-brain/"><u>Why Learning a New Language Is Good for Your Brain</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-how-to-make-a-3d-text-effect-in-photoshop/"><u>[Updated] How to Make a 3D Text Effect in Photoshop</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-tailoring-content-the-importance-of-aspect-ratios/"><u>[Updated] In 2024, Tailoring Content The Importance of Aspect Ratios</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brain-boost-in-your-fifties-with-foreign-languages-learning/"><u>Brain Boost in Your Fifties with Foreign Languages Learning</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-guide-to-downloading-and-upgrading-razer-driver-packs-for-windows-users/"><u>Easy Guide to Downloading & Upgrading Razer Driver Packs for Windows Users</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/frequently-learned-overseas-dialects-in-the-usa/"><u>Frequently Learned Overseas Dialects in the USA</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-easy-methods-how-to-transfer-pictures-from-apple-iphone-14-to-pc-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Easy Methods How To Transfer Pictures From Apple iPhone 14 to PC | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/join-forces-for-movie-night-easy-steps-to-collaborate-and-stream-netflix-simultaneously/"><u>Join Forces for Movie Night: Easy Steps to Collaborate and Stream Netflix Simultaneously</u></a></li>
+<li><a href="https://article-posts.techidaily.com/pinnacle-of-low-speed-video-recording-top-5/"><u>Pinnacle of Low-Speed Video Recording – Top 5</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/selecting-the-most-versatile-european-language-germanfrench/"><u>Selecting the Most Versatile European Language: German/French</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-airpod-connection-issue-on-microsofts-latest-operating-systems-top-strategies/"><u>Solving the AirPod Connection Issue on Microsoft's Latest Operating Systems - Top Strategies</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-setting-up-your-oculus-questquest-cuctatorship/"><u>Step-by-Step Guide: Setting Up Your Oculus Quest/Quest Cuctatorship</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-mondly-is-your-essential-language-learning-ally/"><u>Why Mondly Is Your Essential Language Learning Ally</u></a></li>
 </ul></div>
 

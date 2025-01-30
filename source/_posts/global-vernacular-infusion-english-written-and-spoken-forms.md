@@ -1,7 +1,7 @@
 ---
 title: "Global Vernacular Infusion: English' Written and Spoken Forms"
-date: 2025-01-18T16:55:03.435Z
-updated: 2025-01-22T17:29:36.261Z
+date: 2025-01-23T18:40:32.856Z
+updated: 2025-01-29T22:04:41.658Z
 tags:
   - speak
   - english
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 
  Of course, this story is far from true, but that doesn’t mean it won’t help you remember how the modern English vocabulary came to be. Unexpected connections are a good strategy for remembering new things. Anyway, enough storytelling for now. Let’s see what common words English “took” from other languages.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Where did English Come From?
 
  The earliest forms of English, collectively known as Old English or Anglo-Saxon, developed from the North Sea Germanic languages that came to Britain between the mid-5th and 7th centuries AD. This linguistic influence made its way to Britain through the migration of the Anglo-Saxons from what is now northwest Germany, southern Denmark, and the Netherlands.
@@ -41,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
  Early Modern English began in the late 15th century with the Renaissance trend of borrowing Latin and Greek words and roots, which also coincided with the Great Vowel Shift. The era culminated in the King James Bible and the works of William Shakespeare.
 
  While the question may sound funny (“where did English come from?”), it is a popular inquiry among Google users for obvious reasons. After all, 1.3 billion people worldwide speak English either natively or as a second language. It’s only natural for them to be curious about the origin of the English language.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## English Words from Foreign Languages
 
@@ -81,6 +73,10 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 
 ![English foreign words](https://edge.mondly.com/blog/wp-content/uploads/2024/01/english-foreign-words-600x600.png "100+ English Words Borrowed From Other Languages 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Although we usually call them “borrowed words”, these are also known as loanwords. According to Oxford Languages,**a loanword** is_“a word adopted from a foreign language with little or no modification”_ . The transition from one language to another can happen through:
 
 * **Transcription,** which means borrowing words while preserving their original pronunciation in the borrowed language;
@@ -94,7 +90,11 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
  With Mondly, English mastery is at your fingertips – and in your native tongue. Start today ![Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9827&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9827&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9827%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## French loanwords: English words that are actually French
@@ -125,6 +125,10 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 
  Did you know that approximately**30% of the English vocabulary** consists of words that have their origins in**French and Latin** ? Considering that French was the language of the English king and his court for over 300 years, it’s no surprise. During that time, as many as 10,000 French loanwords came into English.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spanish loanwords: English words that are actually Spanish
 
 | Chinchilla |
@@ -146,6 +150,10 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 | Guacamole  |
 
  Unlike French loanwords which have been adapted into British English, most of the**Spanish loanwords entered English via the North American English route.** Cultural exchanges between [Spanish-speaking](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and English-speaking communities led to an influx of loanwords related to food and music in particular. For example, words like “guacamole”, “salsa” and “piñata” have been borrowed into English from Spanish due to the popularity of the Mexican culture in the United States.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Italian loanwords: English words that are actually Italian
 
@@ -175,10 +183,6 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 
  Thanks to Italy’s cultural influence throughout history, especially during the Renaissance period, many languages borrowed its words. Italian words related to art, music, architecture and cuisine have an especially high predominance in the English vocabulary.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## German loanwords: English words that are actually German
 
 | Pretzel      |
@@ -202,10 +206,6 @@ thumbnail: https://thmb.techidaily.com/459b794516e41ca817af82c1c22066d193c455f48
 | Diesel       |
 
  Some of the first German words were borrowed into English during the interactions between Germanic-speaking tribes and English-speaking communities in early medieval Europe. Words related to everyday life, family, and community were among the earliest borrowings. Later, thanks to Germany’s influence in various fields, English borrowed German words related to science and technology, music, philosophy, literature and engineering.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Understanding the Size of the English Vocabulary
 
@@ -265,20 +265,14 @@ Coming Soon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-elevating-your-instagram-presence-with-watermarks/"><u>[New] Elevating Your Instagram Presence with Watermarks</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-advanced-techniques-to-silence-background-noise-in-media/"><u>[New] In 2024, Advanced Techniques to Silence Background Noise in Media</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-google-translate-strategies-for-excellent-audio-to-text/"><u>[New] In 2024, Google Translate Strategies for Excellent Audio to Text</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-effortlessly-merge-your-memories-photos-from-iphone-to-snapchat/"><u>[Updated] In 2024, Effortlessly Merge Your Memories Photos From iPhone to Snapchat</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/become-a-home-cooking-wizard-in-just-three-easy-steps/"><u>Become a Home Cooking Wizard in Just Three Easy Steps!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/celestial-syntaxes-mastering-galactic-grammar-and-diction/"><u>Celestial Syntaxes: Mastering Galactic Grammar and Diction</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/codec-comparison-are-we-better-with-av1-or-vp9-for-2024/"><u>Codec Comparison Are We Better With AV1 or VP9 for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comprendiendo-el-reloj-digital-ensenanza-fundamental/"><u>Comprendiendo El Reloj Digital - Enseñanza Fundamental</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-immersion-in-israel-must-know-phrases-and-essential-tips/"><u>Cultural Immersion in Israel: Must-Know Phrases & Essential Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/diverse-dialogue-initiation/"><u>Diverse Dialogue Initiation</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ng-strategies-for-successful-youtube-shorts-what-you-need-and-how-much/"><u>Earning Strategies for Successful Youtube Shorts What You Need & How Much?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embark-on-arabic-beginners-pathway/"><u>Embark on Arabic: Beginner's Pathway</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719575651672-essential-croatian-language-skills-for-cultural-immersion-success/"><u>Essential Croatian Language Skills for Cultural Immersion Success</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-realme-12-pro-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Realme 12 Pro 5G For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/sword-and-fairy-game-series-solving-persistent-freezing-problems-for-the-7th-installment-on-desktop-systems/"><u>Sword & Fairy Game Series - Solving Persistent Freezing Problems for the 7Th Installment on Desktop Systems</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-detailed-slomo-app-review-future-predictions/"><u>[New] 2024 Approved Detailed SloMo App Review - Future Predictions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/anticipating-cyber-risks-apples-enhanced-protections-for-imessage-as-featured/"><u>Anticipating Cyber Risks: Apple's Enhanced Protections for iMessage as Featured</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/getting-acquainted-with-zhuyin/"><u>Getting Acquainted with Zhuyin</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Lava Blaze 2? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/linksys-wusb6300-driver-download-and-installation-manual-easy-guide/"><u>Linksys WUSB6300 Driver Download & Installation Manual - Easy Guide</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/losungen-fur-den-wiederherstellungsvorgang-von-windows-der-bei-97-hangen-bleibt/"><u>Lösungen Für Den Wiederherstellungsvorgang Von Windows, Der Bei 97 % Hängen Bleibt</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-the-tongue-proven-strategies-for-eloquence/"><u>Master the Tongue: Proven Strategies for Eloquence</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-language-skills-as-a-vital-fifties-endeavor/"><u>Second Language Skills as a Vital Fifties Endeavor</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachstarter-zahlen-bis-100-in-deutscher-sprache/"><u>Sprachstarter: Zählen Bis 100 in Deutscher Sprache</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide To Saying 'Hello' In Spanish With Top 10 Methods
-date: 2025-01-17T17:23:54.067Z
-updated: 2025-01-22T17:15:41.330Z
+date: 2025-01-25T18:43:29.671Z
+updated: 2025-01-30T02:42:10.327Z
 tags:
   - speak
   - english
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
  Let’s break down the most important Spanish greetings and introductions you’ll need for a basic conversation in Spanish. As Speedy Gonzales used to say:_¡Arriba, arriba! ¡Ándale, ándale!_ – meaning “Go, go! Come on, come on!”
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## “Hello” in Spanish: ¡Hola
 
 **¡Hola!** – pronounced without the “h” – is your safety net wherever you’ll go: to a date, meeting or a Spanish-speaking country. This is the absolute basic greeting you need to know in Spanish and it can be used to salute any person regardless of the circumstance: formal or informal.
@@ -32,11 +28,19 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
 ![spanish greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/05/spanish-greetings-1024x720.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Hello” by Pablo Gentile©
 
 **Pro tip:** All you need is a simple “hola” to spark a**conversation in Spanish** with people from Spain, Mexico, Argentina or Colombia. They are generally very nice and chatty people and they will be extremely happy to find out you are trying to [speak Spanish](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) . From my experience, they will probably start talking to you right away with the speed of a Bugatti. Your safety net in this situation will certainly be_Yo no hablo Español_ –_I don’t speak Spanish_ .
 
 **Bonus dating tip:** “Hello, beautiful” in Spanish is “Hola, hermosa” and “Hello, handsome” in Spanish is “Hola, hermoso”. Good luck! (wink wink)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Spanish greetings for certain moments of the day
 
@@ -51,10 +55,14 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 ![hi in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/04/hi-in-spanish-600x463.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  ¡Hola, señor! by Bruce Jastrow©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## “How are you?” in Spanish
 
@@ -68,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 **¿Qué hay?** – generally used in Spain; it is used the same way we use “hey!” or “what’s up” in English  
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## “Yes”, “please” and “thank you” in Spanish
 
  If you want to [learn Spanish colors](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , “yes”, “no”, “please” and “thank you” together with the above-mentioned greetings are the absolute basics you’ll need to master before moving forward. Here’s how to say these basic but at the same time crucial [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :
@@ -84,10 +88,6 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 * I’m sorry – Lo siento
 * I have/I don’t have – Tengo/No tengo
 * Nice to meet you – Encantado/Encantada de conocerte
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Goodbye in Spanish
 
@@ -107,7 +107,7 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -142,20 +142,19 @@ thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-best-clickbait-title-generator/"><u>[New] 2024 Approved Best Clickbait Title Generator</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-editors-compendium-top-devices-transforming-media-projects/"><u>[Updated] 2024 Approved Editor's Compendium Top Devices Transforming Media Projects</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-digital-filmmaking-6-key-color-techniques/"><u>[Updated] In 2024, Digital Filmmaking 6 Key Color Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/basic-chinese-manners-for-everyday-life/"><u>Basic Chinese Manners for Everyday Life</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-the-gap-mondlys-tech-for-student-success/"><u>Bridging the Gap: Mondly's Tech for Student Success</u></a></li>
-<li><a href="https://fox-links.techidaily.com/chucklechips-studio-laughlens-lab-for-2024/"><u>ChuckleChips Studio LaughLens Lab for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/conquering-swedish-alphabet-with-sound-tips/"><u>Conquering Swedish Alphabet with Sound Tips</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/convertir-video-mov-a-formato-mkv-online-sin-coste-herramientas-gratuitas/"><u>Convertir Video MOV a Formato MKV Online Sin Coste - Herramientas Gratuitas</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/discovering-vietnam-must-know-phrases-and-words/"><u>Discovering Vietnam: Must-Know Phrases and Words</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/efficient-bengali-language-learning/"><u>Efficient Bengali Language Learning</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-your-english-advanced-tips-with-mondly/"><u>Elevate Your English: Advanced Tips with Mondly</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/explore-and-expand-top-7-services-turning-your-digital-creations-into-crypto-assets/"><u>Explore and Expand Top 7 Services Turning Your Digital Creations Into Crypto Assets</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-resolve-connectivity-problems-with-the-logitech-g733-headset-mic/"><u>How to Resolve Connectivity Problems with the Logitech G733 Headset Mic</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solution-steps-for-non-functional-razer-kraken-mic/"><u>Solution Steps for Non-Functional Razer Kraken Mic</u></a></li>
-<li><a href="https://program-issues.techidaily.com/ultimate-guide-boost-your-frames-in-war-thunder/"><u>Ultimate Guide: Boost Your Frames in War Thunder</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-compelling-iphone-photo-and-video-applications-87x/"><u>[New] Compelling iPhone Photo & Video Applications (8/7/X)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-screentosave-mobilepc-video-recording/"><u>[Updated] 2024 Approved ScreenToSave Mobile/PC Video Recording</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-secret-to-understanding-your-youtube-fans/"><u>[Updated] 2024 Approved The Secret to Understanding Your YouTube Fans</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-a-complete-tutorial-for-professional-gopro-vlogs-for-2024/"><u>[Updated] A Complete Tutorial for Professional GoPro Vlogs for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-idea-to-airtime-crafting-compelling-content-live/"><u>2024 Approved From Idea to Airtime Crafting Compelling Content Live</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerate-to-catalan-fluency-in-10-minsday/"><u>Accelerate to Catalan Fluency in 10 Mins/Day</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-infinix-smart-7-hd-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/how-to-tell-time-in-spanish-a-complete-guide-for-beginnersback-buttonfilter-button/"><u>How To Tell Time In Spanish - A Complete Guide For BeginnersBack ButtonFilter Button</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguistic-dominance-in-asia-triad-spoken/"><u>Linguistic Dominance in Asia: Triad Spoken</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quebra-de-silencio-expressoes-e-manifestacoes-do-portugues/"><u>Quebra De Silêncio: Expressões E Manifestações Do Português</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/six-pivotal-reasons-for-picking-arabic-and-mondly/"><u>Six Pivotal Reasons for Picking Arabic & Mondly</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/starting-with-basic-sound-structures-in-german/"><u>Starting with Basic Sound Structures in German</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-picture-in-picture-made-easy-a-beginners-guide-to-fcp-video-editing/"><u>Updated 2024 Approved Picture-in-Picture Made Easy A Beginners Guide to FCP Video Editing</u></a></li>
 </ul></div>
 

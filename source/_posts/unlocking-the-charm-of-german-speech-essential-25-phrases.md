@@ -1,7 +1,7 @@
 ---
 title: Unlocking the Charm of German Speech - Essential 25 Phrases
-date: 2025-01-18T16:38:46.932Z
-updated: 2025-01-22T17:44:24.491Z
+date: 2025-01-28T20:17:20.947Z
+updated: 2025-01-30T05:21:39.683Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
  Once you start learning, the most exciting thing about**German idioms** is that **they feel like learning a super secret code only the fluent speakers understand.** As they provide useful insights into German culture and history, including idioms in your day-to-day conversations will make you sound like “one of their own.” So let’s cut to the chase and present you with the essential collection of German idioms designed to up your German game fast.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Common German idioms Germans love
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 **Actual meaning:** To beat around the bush.
 
  Germans are usually pretty straightforward, but there are times when even they happen to beat around the bush. When such a situation occurs, you can use this idiom to invite them to get straight to the point.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **2.** _Eine Extrawurst haben_
 
@@ -62,10 +66,6 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 
  As odd as this one sounds, it will come in very handy in those situations when you can’t believe what you’re hearing or seeing. The English equivalent could be “You’ve got to be kidding me!”.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **5.** _Seinen Senf dazugeben_
 
 **Literal translation:** To add your mustard to it.
@@ -76,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 
 !['German idioms in English' by Ron Lach©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-idioms-in-english-960x640.jpg "Top 25 German Idioms To Speak Like A German 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **6.** _Die Kirche im Dorf lassen_
 
 **Literal translation:** Leave the church in the village.
@@ -84,10 +88,6 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 
  If you ever get carried away with excitement, German speakers may advise you_die Kirche im Dorf lassen_ , which means to “leave the church in the village.”
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **7.** _Tomaten auf den Augen haben_
 
 **Literal translation:** To have tomatoes on one’s eyes.
@@ -95,10 +95,6 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 **Actual meaning:** To be oblivious to what’s going on around you.
 
  In Germany, when you are blind to what’s happening around you, people could say you have tomatoes on your eyes. Maybe you’re not up to date with the latest news, or you’re not seeing the truth staring you right in the face. Either way, tomatoes seem to affect your vision.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **8.** _Ich verstehe nur Bahnhof_
 
@@ -124,6 +120,10 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 
  After all the funny idioms about food and animals, it’s time for a more grim one. If you’re absolutely certain of the information you are giving, you can assure the person you are talking to by saying_Da kannst du Gift drauf nehmen_ , which essentially means “you can bet on it.”
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **11.** _Du gehst mir auf den Keks_
 
 **Literal translation:** You’re walking on my cookie.
@@ -140,6 +140,10 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 
  There are several ways to look at this one, but the main idea is that the party is so good that the bear will also join it. Or — there’s a dancing bear at the party and you should absolutely not miss it. Either way, this party is probably the best party ever.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **13.** _Das ist ein Katzensprung_
 
 **Literal translation:** That’s a cat’s jump.
@@ -151,7 +155,7 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 !['Common German idioms' by Gratisography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/common-german-idioms-960x640.jpg "Top 25 German Idioms To Speak Like A German 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **14.** _Das ist Schnee von gestern_
@@ -171,7 +175,7 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
  It’s interesting how similar this idiom is to our English equivalent. It looks like feeling out of place is finally something more languages can agree on.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **16.** _Die Daumen drücken_
@@ -181,6 +185,10 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 **Actual meaning:** Fingers crossed.
 
  Same story here. You already know in which situations it’s suitable to use this one.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **17.** _Du nimmst mich auf den Arm_
 
@@ -197,10 +205,6 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 **Actual meaning:** As thick as a brick./Dumb as a post.
 
  We don’t support insults, but this one can also be used as a joke between very – and we mean**very** – close friends.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **19.** _Alles hat ein Ende, nur die Wurst hat zwei_
 
@@ -220,10 +224,6 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 
 !['German expressions' by Picography©](https://edge.mondly.com/blog/wp-content/uploads/2022/09/german-expressions-960x640.jpg "Top 25 German Idioms To Speak Like A German 4")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **21.** _Haare auf den Zähnen haben_
 
 **Literal translation:** To have hair on one’s teeth.
@@ -231,6 +231,10 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
 **Actual meaning:** To be confrontational or bossy.
 
  That’s just weird, but okay, German. If someone’s having one of those days, it may prove helpful the lighten the mood with this funny idiom.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **22.** _Einen Kater haben_
 
@@ -241,6 +245,10 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
  As you can see, Germans have all kinds of animals when it comes to idioms. This time, however, having a cat is not as fun as you’d imagine because it actually refers to having a hangover.
 
  Before you jump to conclusions, you must know that_Kater_ (‘tomcat’) comes from the word_Katarrh_ , a condition in which a lot of thick liquid is produced in your nose and throat. Over time, the pronunciation of the word changed into_Kater_ .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **23.** _Da haben wir den Salat_
 
@@ -261,10 +269,6 @@ thumbnail: https://thmb.techidaily.com/924b42c675af7e54d265aac523b5dbe2839bad9cc
  On a more serious note, this is yet another fun idiom you can use to sound like a fluent speaker. The idiom probably originated from the belief that crazy people must have flocks of little birds in their heads.
 
 It’s usually used as an insult, so be careful to who you are saying this.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **25.** _Jemandem ein Ohr abkauen_
 
@@ -291,10 +295,6 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Speak German like a fluent speaker fast
 
@@ -327,18 +327,19 @@ _ [Tschüss](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=10
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-mastering-green-screen-techniques-in-kinemaster-a-step-by-step-guide/"><u>[New] In 2024, Mastering Green Screen Techniques in Kinemaster - A Step-by-Step Guide</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-dividing-recordings-top-cam-scrutiny-review/"><u>[Updated] Dividing Recordings Top Cam Scrutiny Review</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tech-insight-pulling-and-keeping-twitters-vids-in-phone/"><u>[Updated] Tech Insight Pulling and Keeping Twitters Vids in Phone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-powerful-insights-unlocking-full-potential-with-mobizen-screen-recording/"><u>2024 Approved Powerful Insights Unlocking Full Potential with Mobizen Screen Recording</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-vivo-g2-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Vivo G2 Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721465386658-bypassing-the-blank-overcome-your-iphones-text-message-problem-with-our-expert-fixes-and-tips/"><u>Bypassing the Blank: Overcome Your iPhone's Text Message Problem with Our Expert Fixes & Tips</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expanding-lexicon-through-visual-storytelling/"><u>Expanding Lexicon Through Visual Storytelling</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fluent-english-a-gateway-to-success/"><u>Fluent English: A Gateway to Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-flair-must-know-phrases-to-boost-your-trip-experience/"><u>French Flair: Must-Know Phrases to Boost Your Trip Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-social-grace-understanding-and-using-different-salutations/"><u>French Social Grace: Understanding and Using Different Salutations</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/full-list-of-spanish-speaking-countries/"><u>Full List Of Spanish-Speaking Countries</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/gepflegte-gute-nachtsprache-in-deutschen-kontexten/"><u>Gepflegte Gute-Nachtsprache in Deutschen Kontexten</u></a></li>
-<li><a href="https://review-topics.techidaily.com/play-mkv-movies-on-xiaomi-is-it-possible-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Play MKV movies on Xiaomi , is it possible?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-audio-adaptation-innovations-for-youtubers-videos/"><u>[New] In 2024, Audio Adaptation Innovations for YouTubers' Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-how-to-record-iptv-screen/"><u>[Updated] 2024 Approved How to Record IPTV Screen</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-essential-websites-to-drive-youtube-engagement-for-2024/"><u>[Updated] Essential Websites to Drive YouTube Engagement for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-5-homemade-shot-strategies-the-fastest-hacks-you-need/"><u>2024 Approved Top 5 Homemade Shot Strategies – The Fastest Hacks You Need</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deconstructing-mondlys-instructional-strategy/"><u>Deconstructing Mondly’s Instructional Strategy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialogues-beyond-distance-turkey-and-korea/"><u>Dialogues Beyond Distance: Turkey & Korea</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/die-richtige-deutschen-bitten-vermeiden/"><u>Die Richtige Deutschen Bitten Vermeiden</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-the-most-innovative-apple-macintosh-computers-of-2024-insights/"><u>Exploring the Most Innovative Apple Macintosh Computers of 2024 - Insights</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-motorola-edge-40-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Motorola Edge 40</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-tecno-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Tecno Phone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/leveraging-google-photos-full-potential/"><u>Leveraging Google Photos' Full Potential</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-english-spelling-the-top-100-mistakes-to-avoid/"><u>Mastering English Spelling: The Top 100 Mistakes to Avoid</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/primary-communication-medium-croatia/"><u>Primary Communication Medium: Croatia</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reaping-rewards-from-language-study-starting-at-fifty-five/"><u>Reaping Rewards From Language Study Starting at Fifty-Five</u></a></li>
 </ul></div>
 

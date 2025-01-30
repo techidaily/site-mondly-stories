@@ -1,7 +1,7 @@
 ---
 title: Charting the Course of Seafaring Slang
-date: 2024-09-17T18:43:02.006Z
-updated: 2024-09-21T20:06:43.053Z
+date: 2025-01-29T03:25:19.822Z
+updated: 2025-01-29T23:02:51.124Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/b5542e5d478c6dd2b37aeafac45234590634d7908
 
 ![talk like a pirate day](https://media.giphy.com/media/5oVt3GSJuXKP6/giphy.gif "How To Talk Like A Pirate: 20 Pirate Words 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The origins of Talk Like a Pirate Day
 
  It was June 6, 1995, when John Baur and Mark Summers – later known by their pirate names Ol’ Chumbucket and Cap’n Slappy – played racquetball. The story says one of them got injured during the game and reacted with an outburst of “Arrr!”. Thus the Talk Like a Pirate Day was born. Out of respect for the observance of World War II’s D-Day on the 6th of June, the soon-to-be world-renowned pirates decided to choose Summers’ now ex-wife’s birthday – September 19 – to celebrate pirate lingo.
@@ -28,17 +32,29 @@ thumbnail: https://thmb.techidaily.com/b5542e5d478c6dd2b37aeafac45234590634d7908
 
  Over the years, the idea gained a lot of notoriety and is now celebrated internationally by people and brands everywhere. For example, in 2008, to celebrate the day, Facebook introduced a pirate-translated version of its website.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The pirate accent: how to talk like a pirate
 
  **Arr! All right, ye’ bilge rat! It’s time to teach ye’ how to talk like a real pirate!**
 
 ![ahoy matey](https://edge.mondly.com/blog/wp-content/uploads/2019/09/ahoy-matey-1024x575.jpg "How To Talk Like A Pirate: 20 Pirate Words 3")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Ahoy, matey!” by Austin Neill©
 
  All you have to do is talk in a deep, gravelly voice, grunt and growl a lot, use insults abundantly, yell “arr!” every now and then, mumble incoherently from all the rum you’ve drunk, slur your words, give up g’s and v’s in most words, and replace “you” and your“ with “ye” and “yer”.
 
 Easy peasy, ain’t it?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Pirate lingo: useful pirate words and phrases
 
@@ -74,23 +90,13 @@ Easy peasy, ain’t it?
 ![jack sparrow](https://media.giphy.com/media/LrIA0CryFKvN6/giphy.gif "How To Talk Like A Pirate: 20 Pirate Words 4")
 
 <!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * [Download Mondly](https://www.facebook.com/sharer/sharer.php?u=https%3A%2F%2Fwww.mondly.com%2Fblog%2Fahoy-its-talk-like-a-pirate-day-arr%2F&t=How+to+Talk+Like+a+Pirate%3A+20+Pirate+Words "Share on Facebook")
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Ahoy! Get your language skills to the next level
 
@@ -111,5 +117,21 @@ Easy peasy, ain’t it?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/mnipresent-connectors-identifying-the-right-cms-for-2024/"><u>[New] Omnipresent Connectors Identifying the Right CMS for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-aesthetic-alchemy-transforming-youtube-videos/"><u>[Updated] Aesthetic Alchemy Transforming YouTube Videos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-audible-mac-visual-record-functionality-for-2024/"><u>[Updated] Audible Mac Visual Record Functionality for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-intricate-dance-of-photos-into-a-unified-display/"><u>[Updated] In 2024, The Intricate Dance of Photos Into a Unified Display</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-unleashing-creative-potential-in-minecraft-with-circles-and-spheres/"><u>[Updated] In 2024, Unleashing Creative Potential in Minecraft with Circles & Spheres</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/easy-guide-updating-your-microsoft-powerpoint-presentations/"><u>Easy Guide: Updating Your Microsoft PowerPoint Presentations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/identifica-los-animales-en-espanol-con-estos-topos/"><u>Identifica Los Animales en Español Con Estos Topos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-art-of-ad-driven-earnings-ajays-youtube-strategy/"><u>In 2024, The Art of Ad-Driven Earnings Ajay's YouTube Strategy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-driving-change/"><u>Johannes Honterus: Driving Change</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/jpeg-repair-tool-to-fix-corrupt-jpeg-files/"><u>JPEG Repair Tool to Fix Corrupt JPEG Files</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lexical-differences-a-tale-of-two-englishes/"><u>Lexical Differences: A Tale of Two Englishes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rapidly-acquire-japanese-numbers-today/"><u>Rapidly Acquire Japanese Numbers Today</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/step-by-step-guide-restoring-your-lost-iphone-notecard-from-deleted-items-in-ios/"><u>Step-by-Step Guide: Restoring Your Lost iPhone Notecard From 'Deleted Items' In iOS.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/tune-into-new-language-skills-using-scientific-musical-approaches/"><u>Tune Into New Language Skills - Using Scientific, Musical Approaches</u></a></li>
+</ul></div>
 

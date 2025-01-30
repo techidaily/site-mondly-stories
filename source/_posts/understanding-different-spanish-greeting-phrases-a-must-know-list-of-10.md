@@ -1,7 +1,7 @@
 ---
 title: Understanding Different Spanish Greeting Phrases - A Must Know List Of 10
-date: 2025-01-16T17:24:59.061Z
-updated: 2025-01-22T18:05:21.720Z
+date: 2025-01-28T22:54:44.848Z
+updated: 2025-01-30T03:36:14.708Z
 tags:
   - speak
   - english
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
  Let’s break down the most important Spanish greetings and introductions you’ll need for a basic conversation in Spanish. As Speedy Gonzales used to say:_¡Arriba, arriba! ¡Ándale, ándale!_ – meaning “Go, go! Come on, come on!”
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## “Hello” in Spanish: ¡Hola
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 **“Hola”, the cooler brother of “hello”** – as I like to call it – is so short, sweet & simple you’ll simply love using it even as a part of your English greetings.
 
 ![spanish greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/05/spanish-greetings-1024x720.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 2")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  “Hello” by Pablo Gentile©
 
@@ -51,14 +55,10 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 ![hi in spanish](https://edge.mondly.com/blog/wp-content/uploads/2019/04/hi-in-spanish-600x463.jpg "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 3")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  ¡Hola, señor! by Bruce Jastrow©
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## “How are you?” in Spanish
 
@@ -72,10 +72,6 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 **¿Qué hay?** – generally used in Spain; it is used the same way we use “hey!” or “what’s up” in English  
 **¿Cómo va?** – it translates to “how is it going?” and you can also add “todo” at the end – ¿cómo va todo? – to expand its meaning to “how is it all going?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## “Yes”, “please” and “thank you” in Spanish
 
  If you want to [learn Spanish colors](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) , “yes”, “no”, “please” and “thank you” together with the above-mentioned greetings are the absolute basics you’ll need to master before moving forward. Here’s how to say these basic but at the same time crucial [Spanish words](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) :
@@ -88,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 * I’m sorry – Lo siento
 * I have/I don’t have – Tengo/No tengo
 * Nice to meet you – Encantado/Encantada de conocerte
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Goodbye in Spanish
 
@@ -107,7 +107,7 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 ![hasta la vista](https://media.giphy.com/media/2oVfyRHk1EuRy/giphy-downsized-large.gif "Hello In Spanish And Other Basic Spanish Greetings You Need To Know 4")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Not sure you understand how Spanish accents work? Check out our [article on how to master them all](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) .
@@ -142,20 +142,17 @@ thumbnail: https://thmb.techidaily.com/6568a394f73588c2742e16d9523df01c904b1fdda
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-streamline-your-browsing-eliminate-youtube-ads-in-chrome-firefox-ios/"><u>[Updated] 2024 Approved Streamline Your Browsing Eliminate YouTube Ads in Chrome, Firefox, iOS</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-navigating-to-your-subscription-statistics/"><u>[Updated] Navigating to Your Subscription Statistics</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-top-10-best-free-mmorpg-games-you-can-find/"><u>[Updated] Top 10 Best Free MMORPG Games You Can Find</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/1-word/"><u>1. 解決方法：從 Word 文件破損中恢復</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mediasphere-app-user-experience-report/"><u>2024 Approved MediaSphere App User Experience Report</u></a></li>
-<li><a href="https://techidaily.com/different-methods-for-resetting-vivo-y100i-power-5g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Vivo Y100i Power 5G Phones with Screen Locked and Not | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-croatian-language-skills-for-a-seamless-travel-experience/"><u>Essential Croatian Language Skills for a Seamless Travel Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/everyday-wisdom-in-spanish-the-best-17-sayings/"><u>Everyday Wisdom in Spanish: The Best 17 Sayings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/experience-language-immersion-like-never-before-with-mondlyvr/"><u>Experience Language Immersion Like Never Before with MondlyVR</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/expert-analysis-on-the-toshiba-55lf711u2-a-great-deal-for-amazon-prime-users/"><u>Expert Analysis on the Toshiba 55LF711U2: A Great Deal for Amazon Prime Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-steps-in-learning-russian-figures/"><u>First Steps in Learning Russian Figures</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/french-for-the-modern-world-saying-hello-in-the-21st-century/"><u>French for the Modern World: Saying Hello in the 21St Century</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-fondue-to-fluent-a-multilingual-journey-through-chocolate/"><u>From Fondue to Fluent: A Multilingual Journey Through 'Chocolate'</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-tutorial-for-assessing-personal-data-usage-habits/"><u>The Ultimate Tutorial for Assessing Personal Data Usage Habits</u></a></li>
-<li><a href="https://techidaily.com/unlock-android-phone-if-you-forget-the-poco-f5-pro-5g-password-or-pattern-lock-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you forget the Poco F5 Pro 5G password or pattern lock</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-walkers-wonderland-curating-the-top-8-zombie-video-experiences/"><u>[New] In 2024, Walkers' Wonderland Curating the Top 8 Zombie Video Experiences</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-direct-upload-photos-and-videos-from-pc-to-iphone/"><u>2024 Approved Direct Upload Photos & Videos From PC to iPhone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/beyond-google-other-ar-sticker-solutions/"><u>Beyond Google Other AR Sticker Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/black-friday-deal-endless-language-learning-at-96-less/"><u>Black Friday Deal: Endless Language Learning at 96% Less</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cinema-and-televisions-a-new-path-to-language-proficiency/"><u>Cinema & Televisions: A New Path to Language Proficiency</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-videos-on-vivo-v29e-by-fonelab-android-recover-video/"><u>How to restore wiped videos on Vivo V29e</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-to-russian-verbal-courtesies-crucial-phrases-and-words/"><u>Introduction to Russian Verbal Courtesies: Crucial Phrases and Words</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/koreas-daily-language-puzzle-solved/"><u>Korea's Daily Language Puzzle Solved</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/spanish-numbers-101-a-beginners-guide-to-counting-in-spanish/"><u>Spanish Numbers 101: A Beginner's Guide To Counting In Spanish</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlocking-instagrams-gold-standard-your-guide-to-official-account-recognition/"><u>Unlocking Instagram's Gold Standard: Your Guide to Official Account Recognition</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unveiling-the-future-adopting-macos-11-big-sur-for-growth-for-2024/"><u>Unveiling The Future Adopting macOS 11 Big Sur for Growth for 2024</u></a></li>
 </ul></div>
 

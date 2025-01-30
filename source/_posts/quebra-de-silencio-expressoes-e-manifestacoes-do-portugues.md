@@ -1,7 +1,7 @@
 ---
 title: "Quebra De Silêncio: Expressões E Manifestações Do Português"
-date: 2024-09-17T18:52:58.738Z
-updated: 2024-09-21T20:06:59.845Z
+date: 2025-01-23T05:24:47.233Z
+updated: 2025-01-29T22:17:03.071Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/ecd5393b4b11cd27ce9b151fec19432ec4c563d2b
 
  So next time you go on an adventure to one of the 7 countries where Portuguese is the only official language (Portugal, Brazil, Mozambique, Angola, Cape Verde, Guinea-Bissau, São Tomé and Príncipe), try the following**Portuguese greetings** and see how easy it is to connect with someone even if you don’t speak the same language.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. How to say “hello” in Portuguese
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
@@ -36,13 +40,14 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Lisbon, Portugal” by Diego García©
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
@@ -63,13 +68,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
@@ -95,7 +93,15 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: other basic Portuguese phrases that you should know
 
@@ -120,13 +126,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * No. –_Não._
 
 ![obrigado](https://edge.mondly.com/blog/wp-content/uploads/2019/08/obrigado-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 5")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  “Gruta do Lago Azul, Brazil” by Ademir Alves©
 
@@ -164,5 +163,21 @@ _Olá_ is the best choice for most social situations regardless of the person yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-exquisite-couple-clips-the-best-weddings-online-8-picks/"><u>[New] 2024 Approved Exquisite Couple Clips The Best Weddings Online (8 Picks)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-behind-the-scenes-of-360-degree-media/"><u>[Updated] Behind the Scenes of 360-Degree Media</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/eliminate-invisible-anomalies-a-step-by-step-guide-to-fix-ghosts-in-3d-prints/"><u>Eliminate Invisible Anomalies: A Step-by-Step Guide to Fix Ghosts in 3D Prints</u></a></li>
+<li><a href="https://fox-where.techidaily.com/excessive-gpu-temperatures-solutions-and-maintenance-tips-yl-tech-support/"><u>Excessive GPU Temperatures: Solutions & Maintenance Tips - YL Tech Support</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hone-your-tagalog-skills-in-just-15-minutes-daily/"><u>Hone Your Tagalog Skills in Just 15 Minutes Daily</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-expedite-visuals-drawing-and-enhancing-with-windows-photos-app/"><u>In 2024, Expedite Visuals Drawing & Enhancing with Windows Photos App</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-frame-your-story-a-guide-to-insta-video-bordering/"><u>In 2024, Frame Your Story A Guide to Insta Video Bordering</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-xiaomi-redmi-note-12-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Xiaomi Redmi Note 12 5G?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-on-iphone-x-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked On iPhone X?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jumpstart-your-urdu-learning-now/"><u>Jumpstart Your Urdu Learning Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-art-of-cooking-essential-techniques-for-aspiring-cuisine-enthusiasts/"><u>Mastering the Art of Cooking: Essential Techniques for Aspiring Cuisine Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/social-connection-in-multilingualism-top-four-benefits-for-adults-learning-a-new-language/"><u>Social Connection in Multilingualism: Top Four Benefits for Adults Learning a New Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-3-linguistic-hubs-swift-multilingual-mastery-awaits/"><u>Top 3 Linguistic Hubs: Swift Multilingual Mastery Awaits!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uniting-worlds-love-without-a-common-tongue/"><u>Uniting Worlds: Love Without a Common Tongue</u></a></li>
+</ul></div>
 

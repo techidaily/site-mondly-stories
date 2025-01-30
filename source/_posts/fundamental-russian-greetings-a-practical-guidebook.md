@@ -1,7 +1,7 @@
 ---
 title: "Fundamental Russian Greetings: A Practical Guidebook"
-date: 2024-09-18T17:04:56.490Z
-updated: 2024-09-21T19:49:24.485Z
+date: 2025-01-23T00:45:10.433Z
+updated: 2025-01-29T18:48:30.737Z
 tags:
   - speak
   - english
@@ -26,30 +26,25 @@ thumbnail: https://thmb.techidaily.com/5bb08ab6d34a1fb0acace4e8322f42ab6cac411cd
 
  Whether you’re planning an expedition, immersing in classic Russian literature, meeting with Russian-speaking friends, or even looking to impress with your language skills, using**Russian greetings** will surely be appreciated. Here are some of the most common ways to say “hello” in Russian:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Здравствуйте (Zdravstvuyte): Hello in Russian
 
 **здравствуйте** is the most common Russian greeting. Being slightly formal, yet friendly makes it perfect for greeting people in a professional setting or people you don’t know. Besides, you can also use it to address a group of people as the verb form is meant for formal settings or addressing multiple people.
 
  Rooted in the phrase “to be healthy and well”, it’s not just a greeting, but a wish for good health.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Привет (Privyet): Hi in Russian
 
 **Привет** is the most popular informal Russian greeting. It’s what you would use with your friends – the same way we use “hi” in English. Short, sweet and easy to say!
 
  If we’re being honest,**здравствуйте** and **Привет** are everything you need when it comes to Russian greetings. If you don’t want to overcrowd your mind, you can stop right here and come back later when you’re ready for more. If you want the full picture of Russian greetings now, let’s continue to discover how Russians say hello to each other.
-
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2\. Time-specific Russian greetings
 
@@ -72,19 +67,6 @@ Good job, you!
 
 [Start Now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-2406&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-2406&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-2406%26mt%3D8)
 
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Additional Russian greetings Russians use
 
  Now onto less popular greetings. Or let’s call them “specialized”. Sounds better, right? These are the kind of “bonus” Russian greetings you use once you feel more comfortable with the language. Because – let’s be honest: not all words are equally important. You have to focus on the most frequently used ones first.
@@ -96,13 +78,6 @@ Good job, you!
 * **Приветствую (Privetstvuyu):** This is a Russian word that means “I greet” or “I welcome”. Being more formal makes it perfect for official settings. For instance, you can use it when interacting with business associates or when the degree of formality is unclear. This greeting works for both formal and informal situations, setting it apart from all the other greetings we listed here.
 
 ![hi in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hi-in-russian.jpg "Russian Greetings: Common Phrases And Basic Words 3")
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Russian farewells
 
@@ -134,6 +109,10 @@ Good job, you!
 
 ![hello in russian](https://edge.mondly.com/blog/wp-content/uploads/2018/11/hello-in-russian-960x640.jpg "Russian Greetings: Common Phrases And Basic Words 4")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Found this interesting? You might want to learn about the [Russian alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) and the [Russian numbers](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) too.
 
 ## Cultural insights on Russian greetings
@@ -149,6 +128,10 @@ Good job, you!
 
  If you feel like you need more information on Russian greetings, here are some frequently asked questions. Maybe you’ll find your answer here.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How can I learn to pronounce Russian words correctly?
 
  Use transliteration. It can be tricky to get the hang of Russian words using the Cyrillic alphabet, so resources that use transliteration will always come in handy.
@@ -162,16 +145,7 @@ Good job, you!
  To greet someone respectfully in Russian you can say Здравствуйте (Zdravstvuyte) or use the time specific greetings.
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Are there specific greetings for different times of the day in Russian?
@@ -206,5 +180,26 @@ Good job, you!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/updated-captivating-viewers-with-visuals-picture-upload-tips-for-2024/"><u>[Updated] Captivating Viewers with Visuals Picture Upload Tips for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-filmmakers-choice-selecting-perfect-lenses-for-youtube-creation/"><u>[Updated] Filmmaker's Choice Selecting Perfect Lenses for YouTube Creation</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-streamlining-and-organizing-your-itunes-video-files/"><u>2024 Approved Streamlining and Organizing Your iTunes Video Files</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-guide-to-downloading-and-installing-epson-xp-310-drivers/"><u>Easy Guide to Downloading and Installing Epson XP-310 Drivers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/fixing-skewed-views-in-internet-based-videos-for-2024/"><u>Fixing Skewed Views in Internet-Based Videos for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-honor-magic-6-pro-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Honor Magic 6 Pro to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/great-personalities-who-inspire-us-johannes-honterus/"><u>Great Personalities Who Inspire Us: Johannes Honterus</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/horas-y-minutos-guia-sencilla-en-espanol/"><u>Horas Y Minutos: Guía Sencilla en Español</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-motorola-moto-g04-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Motorola Moto G04 without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-salutation-strategies/"><u>Multilingual Salutation Strategies</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-exploring-the-finest-audio-reversal-applications-the-top-10-software-picks-for-your-devices/"><u>New Exploring the Finest Audio Reversal Applications The Top 10 Software Picks for Your Devices</u></a></li>
+<li><a href="https://video-capture.techidaily.com/sidestep-the-norm-alternatives-to-vidma-screen-record/"><u>Sidestep the Norm Alternatives to Vidma Screen Record</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-catalan-fast-learn-in-under-an-hour-a-day/"><u>Speak Catalan Fast: Learn in Under An Hour a Day</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-saying-hello-in-japenese/"><u>The Art of Saying 'Hello' In Japenese</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-ceos-guide-to-mastering-company-language/"><u>The CEO's Guide to Mastering Company Language</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-european-melody-a-century-of-languages-unveiled-today/"><u>The European Melody: A Century Of Languages Unveiled Today</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-resources-and-routines-for-self-learning-french/"><u>Top Resources & Routines for Self-Learning French</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-spoken-mastery-with-these-17-everyday-spanish-phrases/"><u>Unlock Spoken Mastery with These 17 Everyday Spanish Phrases</u></a></li>
+</ul></div>
 

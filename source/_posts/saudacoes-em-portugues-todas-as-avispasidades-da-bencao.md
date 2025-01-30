@@ -1,7 +1,7 @@
 ---
 title: "Saudações Em Português: Todas as Avispasidades Da Bênção"
-date: 2025-01-21T17:41:03.902Z
-updated: 2025-01-22T16:37:32.289Z
+date: 2025-01-23T23:20:47.062Z
+updated: 2025-01-29T23:14:19.288Z
 tags:
   - speak
   - english
@@ -20,19 +20,23 @@ thumbnail: https://thmb.techidaily.com/85ea88a283ba15f13d63e8eaf5823127ecc1dabd5
 
  So next time you go on an adventure to one of the 7 countries where Portuguese is the only official language (Portugal, Brazil, Mozambique, Angola, Cape Verde, Guinea-Bissau, São Tomé and Príncipe), try the following**Portuguese greetings** and see how easy it is to connect with someone even if you don’t speak the same language.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. How to say “hello” in Portuguese
 
  “Hello” is a [powerful word](https://www.merriam-webster.com/words-at-play/the-origin-of-hello) . It opens doors. It makes people smile. And said the right way and at the right time, “hello” can impact someone’s day and you wouldn’t even know it. So here are the right ways to say “hello” in Portuguese and open doors everywhere you go.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### “Hello” in Portuguese – Olá
 
 _Olá_ is the best choice for most social situations regardless of the person you are addressing. It’s somehow formal, but also friendly.
 
  Be careful with your Portuguese pronunciation though! A lot of people accidentally mistake Portuguese for Spanish. You don’t want to do that. Just say “OH-lah” and everybody from Brazil to Mozambique will understand that you are saying “hello” in Portuguese.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### “Hi” in Portuguese – Oi
 
@@ -41,6 +45,10 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ![hi in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/hi-in-portuguese-1024x658.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 2")
 
  “Lisbon, Portugal” by Diego García©
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### “How are you” in Portuguese – Tudo bem?
 
@@ -57,13 +65,13 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 * **_Quanto tempo!_ – Long time no see!** – Used the same as in English.
 * **_Como foi o seu dia?_ – How’s your day?** – Used the same as in English.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. “Bom dia!” and other Portuguese greetings for certain moments of the day
 
 ![good morning in portuguese](https://edge.mondly.com/blog/wp-content/uploads/2019/08/good-morning-in-portuguese-1024x642.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 3")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Rio de Janeiro, Brazil” by Raphael Nogueira©
 
@@ -74,10 +82,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  **Good night in Portuguese –_Boa noite!_**  – The Portuguese language does not make any difference between evening and night. Thus, “goodnight” and “good evening” have the same translation in Portuguese. While in Brazil you will say “boa NOEE-tsh”, in Portugal you will say “boa NOEE-t”.
 
  All three of these are safe to use in any kind of interaction (formal or informal).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3.“Goodbye” in Portuguese – Adeus
 
@@ -92,10 +96,6 @@ _Olá_ is the best choice for most social situations regardless of the person yo
  Another useful phrase for bidding farewell is “have a good day”. In Portuguese, that’s_t_ _enha um bom dia_ .
 
 ![portuguese greetings](https://edge.mondly.com/blog/wp-content/uploads/2019/08/portuguese-greetings-1024x682.jpg "Hello In Portuguese And Other Basic Portuguese Greetings You Need To Know 4")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  “Ruínas da Fortaleza de Arrifana, Aljezur, Portugal” by Ferhat Deniz Fors©
 
@@ -131,7 +131,7 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s how to speak Portuguese in 10 minutes a day
@@ -165,22 +165,22 @@ _Olá_ is the best choice for most social situations regardless of the person yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-realism-refined-how-to-use-motion-blur-in-faces-using-picsart/"><u>[New] Realism Refined How to Use Motion Blur in Faces Using Picsart</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-giggles-in-a-gigabyte-10-hilarious-video-concepts-to-share-online/"><u>[Updated] In 2024, Giggles in a Gigabyte 10 Hilarious Video Concepts to Share Online</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-leading-videographers-best-editor-picks/"><u>[Updated] Leading Videographers' Best Editor Picks</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-precision-steps-for-hassle-free-ipad-and-iphone-recordings/"><u>[Updated] Precision Steps for Hassle-Free iPad & iPhone Recordings</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-comprehensive-guide-to-masterful-win11-zoom-use/"><u>2024 Approved Comprehensive Guide to Masterful Win11 Zoom Use</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-the-secrets-of-morphvox-sound-adjustment/"><u>2024 Approved Unveiling the Secrets of MorphVOX Sound Adjustment</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/4k-uxga-reality-check-detailed-review-of-asus-mg28uq/"><u>4K UXGA Reality Check - Detailed Review of ASUS MG28UQ</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/arabic-starter-pack-essential-steps-for-novices/"><u>Arabic Starter Pack: Essential Steps for Novices</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ciclo-semanal-en-espanol-dia-por-dia/"><u>Ciclo Semanal en Español: Día Por Día</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/commonly-mispronounced-english-words-ranking-the-top-100/"><u>Commonly Mispronounced English Words - Ranking the Top 100</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparative-guide-to-pt-button-usage-europe-and-brazil/"><u>Comparative Guide to PT Button Usage, Europe and Brazil</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dive-deep-into-languages-the-secret-of-mondlys-success/"><u>Dive Deep Into Languages: The Secret of Mondly's Success</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-your-language-skills-mondlys-augmented-reality-tutorials/"><u>Elevate Your Language Skills: Mondly’s Augmented Reality Tutorials</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578098370-from-novice-to-speaker-in-croatia-here-are-the-top-7-reasons/"><u>From Novice to Speaker in Croatia - Here Are The Top 7 Reasons</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-from-idea-to-airwaves-crafting-compelling-podcast-scripts/"><u>In 2024, From Idea to Airwaves Crafting Compelling Podcast Scripts</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Nokia C210 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580803493-multilingual-momentum-speak-and-travel-without-leaving-home/"><u>Multilingual Momentum: Speak and Travel without Leaving Home!</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-from-still-shots-to-soundscapes-an-instagram-mp3-journey-for-2024/"><u>[New] From Still Shots to Soundscapes An Instagram-MP3 Journey for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-next-gen-gloves-top-picks-to-immerse-in-vr-worlds-for-2024/"><u>[Updated] Next-Gen Gloves Top Picks to Immerse in VR Worlds for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-impressive-image-sequence-on-instagram/"><u>2024 Approved Impressive Image Sequence on Instagram</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1726223181465-webmwav/"><u>無料で簡単なWEBM/WAVファイル変換 - ムーヴェイビ</u></a></li>
+<li><a href="https://article-files.techidaily.com/are-product-critiques-online-generated-income-in-2024/"><u>Are Product Critiques Online Generated Income, In 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/compilation-of-top-5-mkv-apps-for-mac-for-2024/"><u>Compilation of Top 5 MKV Apps for Mac for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cut-prices-deep-lifetime-mondly-plan/"><u>Cut Prices Deep - Lifetime Mondly Plan</u></a></li>
+<li><a href="https://win11.techidaily.com/efficiently-uninstalling-apps-on-windows-11/"><u>Efficiently Uninstalling Apps on Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expand-your-mind-reasons-to-learn-later/"><u>Expand Your Mind: Reasons to Learn Later</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressoes-amigaveis-do-portugues-compreensao-absoluta/"><u>Expressões Amigáveis Do Português - Compreensão Absoluta</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ideal-painting-and-design-tools-on-windows-no-cost-or-charge-for-2024/"><u>Ideal Painting & Design Tools on Windows No Cost or Charge for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/keywords-and-phrases-to-know-in-k-squid-game/"><u>Keywords and Phrases to Know in K-Squid Game</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-the-tongue-of-east-asia-top-budget-friendly-resources/"><u>Mastering the Tongue of East Asia: Top Budget-Friendly Resources</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-connects-to-pearson-scholarship-network/"><u>Mondly Connects to Pearson Scholarship Network</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579758376-never-pay-again-get-mondly-elite/"><u>Never Pay Again - Get Mondly Elite!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-your-culinary-creativity-essential-strategies-and-tips-from-experts/"><u>Unleash Your Culinary Creativity: Essential Strategies and Tips From Experts</u></a></li>
 </ul></div>
 

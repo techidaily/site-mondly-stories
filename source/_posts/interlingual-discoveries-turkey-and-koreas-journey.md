@@ -1,7 +1,7 @@
 ---
 title: "Interlingual Discoveries: Turkey and Korea's Journey"
-date: 2024-09-15T16:47:46.746Z
-updated: 2024-09-16T18:24:20.495Z
+date: 2025-01-26T16:31:09.685Z
+updated: 2025-01-29T16:43:23.703Z
 tags:
   - speak
   - english
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/2bb5e1bc170b8c3f4a6ce1aff27e49a67b4dbeb27
 
  Their potential connection has perplexed linguists and historians alike for many years. So, let’s see what this is all about and how two apparently different languages echo each other in syntax, structure, and soul.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Historical Roots and Origins of Turkish and Korean
 
  Before exploring the intriguing points of intersection between Turkish and Korean, it’s important to look back at their historical roots.
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/2bb5e1bc170b8c3f4a6ce1aff27e49a67b4dbeb27
  In the 20th century, though, a linguistic revolution followed when **Mustafa Kemal Atatürk replaced the Arabic script with the Latin alphabet,** aiming to modernize and simplify Turkish. This strategic move not only transformed the language but also contributed to a cultural renaissance.
 
  Discovering more about the [modern Turkish alphabet](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875) will help you understand its importance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The Korean Language
 
@@ -64,13 +72,6 @@ thumbnail: https://thmb.techidaily.com/2bb5e1bc170b8c3f4a6ce1aff27e49a67b4dbeb27
 
 ![mondly banner icon](https://edge.mondly.com/blog/wp-content/themes/mondly/img/mondly-banner-icon.png "Unveiling The Intriguing Relationship Between Turkish And Korean Languages 3")
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Learn both Turkish and Korean with a single app?
 
  Yes, please! Mondly offers courses for both Korecans and Turkish language lovers. ✌️
@@ -78,16 +79,7 @@ thumbnail: https://thmb.techidaily.com/2bb5e1bc170b8c3f4a6ce1aff27e49a67b4dbeb27
 [Start now](https://adjt.mondly.com/5ixfg4k?campaign=blog-post-id-9782&fallback=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9782&redirect%5Fmacos=https%3A%2F%2Fapp.mondly.com%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9782&redirect%5Fandroid=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.atistudios.mondly.languages%3Futm%5Fmedium%3Dblog%5Fshortcode%26utm%5Fsource%3Dblog-post-id-9782&redirect%5Fios=https%3A%2F%2Fapps.apple.com%2Fapp%2Fapple-store%2Fid987873536%3Fpt%3D78954800%26ct%3Dblog-post-id-9782%26mt%3D8)
 
 <!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Similarities Between Turkish and Korean
@@ -99,13 +91,6 @@ thumbnail: https://thmb.techidaily.com/2bb5e1bc170b8c3f4a6ce1aff27e49a67b4dbeb27
  So, she watches K-dramas on Netflix in their original Korean with subtitles. The thing is – and you’re not gonna believe this – she claims to understand some of the Korean words and phrases used in the dialogue that – she says – are similar to Turkish. The thing is the woman speaks not a word of Korean. Isn’t this crazy? Aren’t Turkish and Korean supposed to be two completely different languages with completely different alphabets?
 
 ![k-drama](https://media.giphy.com/media/3owzW9z4FkO6WzGIBW/giphy.gif "Unveiling The Intriguing Relationship Between Turkish And Korean Languages 4")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Well, as it turns out, that’s not entirely true.**Turkish and Korean share a lot of similarities:**
 
@@ -139,19 +124,6 @@ Do you see now why some people still support the Altaic theory?
 
 ![K-pop in Turkey](https://edge.mondly.com/blog/wp-content/uploads/2024/01/kpop-in-turkey-960x540.jpg "Unveiling The Intriguing Relationship Between Turkish And Korean Languages 5")
 
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The young generations in Turkey are such big fans of Hallyu that, in 2021, three girls fled their home in Istanbul to go to South Korea. Their action resulted in an investigation started by the Ministry of Family and Social Affairs in Turkey on the influence of K-pop and K-drama on Turkish youth.
 
  Due to conservative Turkish families and the fact that in K-drama, males and females seem to be more equal, young Turkish girls identify with the Korean culture more.
@@ -167,6 +139,10 @@ Coming Soon
  Yes  Yes19 (73.08 %)
 
  No  No7 (26.92 %)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## New 2021 Study Reveals Millennia-Old Evidence on the Turkish-Korean link
 
@@ -190,9 +166,17 @@ Before you go, make sure to check out these FAQs.
 
  The Korean Wave has influenced an increased interest in learning the Korean language in Turkey. Educational Turkish institutions and language centers have started offering Korean language courses to cater to this growing interest.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Are there any language learning resources available for those interested in Turkish and Korean?
 
  Mondly is one of the few language learning resources that allow you to learn both Turkish and Korean with one single app.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How did cultural exchange impact the connection between Turkish and Korean languages?
 
@@ -202,13 +186,6 @@ Before you go, make sure to check out these FAQs.
 * [Download Mondly](https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https://www.mondly.com?AFFILIATE=108875)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Learn both Turkish and Korean with one app
 
@@ -239,5 +216,23 @@ Before you go, make sure to check out these FAQs.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-optimal-accessories-for-your-high-quality-gopro/"><u>[New] Optimal Accessories for Your High-Quality GoPro</u></a></li>
+<li><a href="https://os-tips.techidaily.com/always-active-screen-functionality-assessing-its-effect-on-device-battery-duration/"><u>Always Active Screen Functionality: Assessing Its Effect on Device Battery Duration</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/baffled-by-blank-screens-on-a6400-for-2024/"><u>Baffled by Blank Screens on A6400 for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-navigate-to-the-top-10-most-advanced-photo-changer-apps/"><u>In 2024, Navigate to the Top 10 Most Advanced Photo Changer Apps</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inclusive-leadership-through-multilingual-expertise/"><u>Inclusive Leadership Through Multilingual Expertise</u></a></li>
+<li><a href="https://win-docs.techidaily.com/intraday-price-action-techniques-with-trade-copier-for-metatrader-4-and-5/"><u>Intraday Price Action Techniques with Trade Copier for MetaTrader 4 & 5</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-romanian-naturally/"><u>Mastering Romanian, Naturally</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On OnePlus Ace 2V? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/reflecting-on-a-fruitful-decade-with-mondlyback/"><u>Reflecting on a Fruitful Decade with MondlyBack</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/scaricare-e-convertire-file-raw-gratuitamente-su-movavi-registrati-ora/"><u>Scaricare E Convertire File RAW Gratuitamente Su Movavi - Registrati Ora</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-elongated-term-epic-quest/"><u>The Elongated Term Epic Quest</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-sound-strategy-for-successful-language-acquisition/"><u>The Sound Strategy for Successful Language Acquisition</u></a></li>
+<li><a href="https://win-superb.techidaily.com/the-ultimate-list-of-windows-11s-top-8-password-management-software/"><u>The Ultimate List of Windows 11'S Top 8 Password Management Software</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-in-a-flash-one-minute-a-day-65-chars-note-adjusted-for-brevity/"><u>Ukranian in a Flash, One Minute a Day (65 Chars) - Note: Adjusted for Brevity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/workplace-excellence-via-exceptional-language-application-selection/"><u>Workplace Excellence via Exceptional Language Application Selection</u></a></li>
+</ul></div>
 
